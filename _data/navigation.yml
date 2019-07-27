@@ -1,5 +1,8 @@
 # main links links
 main:
+  - title: "Festivity Team"
+    url: /festivity/
+
   - title: "Publications"
     url: /publications/
 
