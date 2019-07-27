@@ -187,10 +187,24 @@ collections:
   talks:
     output: true
     permalink: /:collection/:path/
+  festivity:
+    output: true
+    permalink: /:collection/:path/
 
 
 # Defaults
 defaults:
+  # _festivity
+  - scope:
+      path: ""
+      type: festivity
+    values:
+      layout: single
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true
   # _posts
   - scope:
       path: ""
