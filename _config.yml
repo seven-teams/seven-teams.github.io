@@ -194,11 +194,9 @@ collections:
     output: true
     permalink: /:collection/:path/
 
-
-
 # Defaults
 defaults:
-  # _compilation:
+  # _compilation
   - scope:
       path: ""
       type: compilation
