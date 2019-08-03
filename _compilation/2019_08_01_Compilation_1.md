@@ -12,3 +12,7 @@ Please find attached the pdf file of quotes on <font color="blue">American Presi
 Please kindly share the file with all our brothers and sisters.  
 
 The Comprehensive Compilations Team
+
+
+
+[Download pdf here](http://seven-teams.github.io/files/American\ Presidents\,\ Part\ 1\ \(George\ Washington\).pdf)
