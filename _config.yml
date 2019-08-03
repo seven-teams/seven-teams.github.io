@@ -7,7 +7,7 @@
 
 # Site Settings
 locale                   : "en-US"
-title                    : "Divine Messages"
+title                    : "Divine Treasures"
 title_separator          : "-"
 name                     : &name "Your Name"
 description              : &description "personal description"
@@ -190,10 +190,25 @@ collections:
   festivity:
     output: true
     permalink: /:collection/:path/
+  compilation:
+    output: true
+    permalink: /:collection/:path/
+
 
 
 # Defaults
 defaults:
+  # _compilation:
+  - scope:
+      path: ""
+      type: compilation
+    values:
+      layout: single
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true
   # _festivity
   - scope:
       path: ""

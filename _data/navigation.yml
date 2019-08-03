@@ -2,6 +2,9 @@
 main:
   - title: "Festivity Team"
     url: /festivity/
+  
+  - title: "Comprehensive Compilations Team"
+    url: /compilation/
 
   - title: "Publications"
     url: /publications/
