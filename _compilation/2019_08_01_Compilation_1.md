@@ -15,4 +15,4 @@ The Comprehensive Compilations Team
 
 
 
-[Download pdf here](http://seven-teams.github.io/files/American\ Presidents\,\ Part\ 1\ \(George\ Washington\).pdf)
+[Download pdf here](http://seven-teams.github.io/files/American_Presidents_Part_1_George_Washington.pdf)
