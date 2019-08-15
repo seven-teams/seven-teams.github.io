@@ -196,6 +196,61 @@ collections:
 
 # Defaults
 defaults:
+  # _divine
+  - scope:
+      path: ""
+      type: divine
+    values:
+      layout: single
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true
+  # _scriptures
+  - scope:
+      path: ""
+      type: scriptures
+    values:
+      layout: single
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true
+  # _chronology
+  - scope:
+      path: ""
+      type: chronology
+    values:
+      layout: single
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true
+  # _quotes
+  - scope:
+      path: ""
+      type: quotes
+    values:
+      layout: single
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true
+  # _years
+  - scope:
+      path: ""
+      type: years
+    values:
+      layout: single
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true
   # _compilation
   - scope:
       path: ""
