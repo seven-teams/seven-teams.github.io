@@ -1,10 +1,25 @@
 # main links links
 main:
-  - title: "Festivity Team"
+  - title: "Sahaja Yoga Festivity"
     url: /festivity/
   
-  - title: "Comprehensive Compilations Team"
+  - title: "Compilations"
     url: /compilation/ 
+
+  - title: "Years"
+    url: /years/
+
+  - title: "Quotes"
+    url: /quotes/
+
+  - title: "Chronology"
+    url: /chronology/
+
+  - title: "Scriptures"
+    url: /scriptures/
+
+  - title: "Divine"
+    url: /divine/
     
   - title: "Guide"
     url: /markdown/
