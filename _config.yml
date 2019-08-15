@@ -193,7 +193,22 @@ collections:
   compilation:
     output: true
     permalink: /:collection/:path/
-
+  yearly:
+    output: true
+    permalink: /:collection/:path/
+  quotes:
+    output: true
+    permalink: /:collection/:path/
+  chronology:
+    output: true
+    permalink: /:collection/:path/
+  scriptures:
+    output: true
+    permalink: /:collection/:path/
+  divine:
+    output: true
+    permalink: /:collection/:path/
+    
 # Defaults
 defaults:
   # _divine
