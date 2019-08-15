@@ -7,7 +7,7 @@ main:
     url: /compilation/ 
 
   - title: "Years"
-    url: /years/
+    url: /yearly/
 
   - title: "Quotes"
     url: /quotes/

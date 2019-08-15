@@ -240,10 +240,10 @@ defaults:
       comments: true
       share: true
       related: true
-  # _years
+  # _yearly
   - scope:
       path: ""
-      type: years
+      type: yearly
     values:
       layout: single
       author_profile: true
