@@ -8,30 +8,30 @@ redirect_from:
   - /about.html
 ---
 
-Divine Treasures: an eternal token of gratitude
+<font color="blue">Divine Treasures: an eternal token of gratitude</font>
 ======
 
 Content
 
 
-H. H. Shri Mataji Nirmala Devi
+<font color="red">H. H. Shri Mataji Nirmala Devi</font>
 ======
 
 Content
 
-Presentation of the Posts of the Seven Teams
+<font color="mediumvioletred">Presentation of the Posts of the Seven Teams</font>
 ======
 
-1. Sahaja Yoga Festivity Team.
+1. <font color="mediumvioletred">Sahaja Yoga Festivity Team.</font>
 
-2. Comprehensive Compilations Teams.
+2. <font color="mediumvioletred">Comprehensive Compilations Teams.</font>
 
-3. Yearly Topics Team.
+3. <font color="mediumvioletred">Yearly Topics Team.</font>
 
-4. Quotes on Incarnations Team. 
+4. <font color="mediumvioletred">Quotes on Incarnations Team.</font>
 
-5. Chronology Team.
+5. <font color="mediumvioletred">Chronology Team.</font>
 
-6. Scriptures Team. 
+6. <font color="mediumvioletred">Scriptures Team.</font>
 
-7. Divine Message Team. 
+7. <font color="mediumvioletred">Divine Message Team.</font>
