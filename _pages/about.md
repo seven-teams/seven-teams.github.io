@@ -18,7 +18,7 @@ redirect_from:
 The encounter with Shri Mataji and Her teachings represented a dramatic turnaround in our lives. Sometimes fast, sometimes slow, visible transformation in our lives occurred, producing a lasting change infused by beauty, serenity, joy, purity, simplicity, collectivity, etc. As an eternal expression of our gratitude towards Shri Mataji, we would like to share some of the Divine Treasures we have delighted our Souls and Spirits with while following Shri Mataji and practicing Sahaja Yoga. In particular, the site includes the complete and unedited Divine Message of Shri Mataji and all its connections with the Spiritual Festivals and Scriptures of the World.
 
 
-**<font color="red">H. H. Shri Mataji Nirmala Devi</font>**
+**<font color="red">Shri Mataji Nirmala Devi</font>**
 ======
 
 Nirmala Salve was born at noon on March 21, 1923. Nirmala means immaculate, and the whole name translates: O Immaculate One, salutations to You.
