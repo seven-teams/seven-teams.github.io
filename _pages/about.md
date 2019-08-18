@@ -10,8 +10,6 @@ redirect_from:
 
 ![PICTURE 1](/images/HHShriMatajiNirmalDevi.jpg)
 
-**Shri Mataji Nirmala Devi**
-
 **<font color="blue">Divine Treasures: an eternal token of gratitude</font>**
 ======
 
