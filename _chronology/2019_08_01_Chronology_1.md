@@ -1,12 +1,12 @@
 ---
-title: 'Yearly Topics Blog Sample Post 1'
-date: 2019-08-01
-permalink: /yearly/2019/08/sample-post-1
+title: 'Chronology of the Divine Message explicitly related to USA, Post 47: Period July 1982'
+date: 2015-08-11
+permalink: /chronologyy/2015/08/11
 tags:
-  - fun
+  - USA
 ---
 
-# PERIOD JULY 1982
+# <font color="blue">PERIOD JULY 1982
 
 1982-­0709: <font color="red">Public Program, Confusion the Subtle Slavery, Birmingham, UK</font>
 
