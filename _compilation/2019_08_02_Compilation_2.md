@@ -1,18 +1,18 @@
 ---
-title: 'Compilation Blog Sample Post 2'
-date: 2019-08-02
-permalink: /compilation/2019/08/sample-post-2
+title: 'Post 14: American Presidents, Part 1 (George Washington)'
+date: 2019-02-26
+permalink: /compilation/2019/02/26
 tags:
-  - fun
+  - personalities
 ---
 Jai Shri Mataji
 
-Please find attached the pdf file of quotes on <font color="blue">Chemotherapy</font> obtained by searching for the root "<font color="red">chem</font>". If by chance extra quotes on chemotherapy are found out, please kindly share them with all of us.  
+Please find attached the pdf file of quotes on <font color="blue">American Presidents, Part 1 (George Washington)</font>obtained by searching for all possible root combinations such as "<font color="red">Washington</font>". If by chance extra such quotes are found out, please kindly share them with all of us.<br>
 
 Please kindly share the file with all our brothers and sisters.  
 
-We would like to thank the Indian Sahaja Yogini who suggested this topic.  
+The Comprehensive Compilations Team
 
-The Compilations Team
 
-[Download pdf here](http://seven-teams.github.io/files/Chemotherapy.pdf)
+
+[Download pdf here](http://seven-teams.github.io/files/American_Presidents_Part_1_George_Washington.pdf)
