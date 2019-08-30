@@ -1,18 +1,18 @@
 ---
-title: 'Post 14: American Presidents, Part 1 (George Washington)'
-date: 2019-02-26
-permalink: /compilation/2019/02/26
+title: 'Post 12: Sahaja Meditation, Sahaj Dhyana, and Sahaja Samadhi'
+date: 2017-02-17
+permalink: /compilation/2017/0217
 tags:
   - personalities
 ---
 Jai Shri Mataji
 
-Please find attached the pdf file of quotes on <font color="blue">American Presidents, Part 1 (George Washington)</font>obtained by searching for all possible root combinations such as "<font color="red">Washington</font>". If by chance extra such quotes are found out, please kindly share them with all of us.<br>
+Please find attached the pdf file of quotes on <font color="blue">sahaja meditation, sahaj dhyana, and sahaja samadhi</font>obtained by searching for all possible root combinations such as "<font color="red">sahaj sam</font>" and "<font color="red">sahaja sam</font>". If by chance extra such quotes are found out, please kindly share them with all of us.<br>
 
-Please kindly share the file with all our brothers and sisters.  
+Please kindly share the file with all our brothers and sisters. 
+
+We would like to thank several American Sahaja Yoginis and Yoginis who had suggested this topic and we apologize to all of them for the quite long delay. 
 
 The Comprehensive Compilations Team
 
-
-
-[Download pdf here](http://seven-teams.github.io/files/American_Presidents_Part_1_George_Washington.pdf)
+[Download pdf here](http://seven-teams.github.io/files/Sahaja_Meditation_Sahaj_Dhyana_and_Sahaja_Samadhi.pdf)

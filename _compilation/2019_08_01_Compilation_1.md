@@ -1,9 +1,9 @@
 ---
 title: 'Post 11: Chemotherapy'
 date: 2016-08-01
-permalink: /compilation/2016/08/01
+permalink: /compilation/2016/0801
 tags:
-  - treatments
+  - treatments, medical
 ---
 Jai Shri Mataji
 
