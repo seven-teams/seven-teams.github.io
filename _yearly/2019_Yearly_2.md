@@ -16,9 +16,8 @@ tags:
 
 "So now the time has come for Russians to get their blessings. In the whole of Europe and America, Eastern Bloc, Russians are the highest people in spirituality. I mean Russians and Ukrainians."
  
-
 <p style="color:blue;">
-1994-0910 Interview, at the beginning of the Evening Program, the day before Śhrī Gaṇeśha Pūjā, Sports Hall, Moscow, Russia
+<b>1994-0910 Interview, at the beginning of the Evening Program, the day before Śhrī Gaṇeśha Pūjā, Sports Hall, Moscow, Russia</b>
 </p>
 
 Suggested talk on vimeo: <a href="https://vimeo.com/88430664"> https://vimeo.com/88430664</a>

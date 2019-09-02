@@ -20,9 +20,8 @@ So without the chastity, the women cannot achieve anything in Sahaja Yoga. One h
 
 Recently I read a beautiful book, so big as that, has come out that 'Media Versus America'. In that they have said that how this media has put ideas into the heads of women and men, decrying the utility of married life -- how they have killed the married life. They marry, then divorce; then marry, then divorce. The same thing goes on all the time."
  
-
 <p style="color:blue;">
-1993-0518 Śhrī Fāṭimah Pūjā, You Must Learn to Respect a Woman Who Is Chaste, Mövenpick Hotel, Istanbul, Turkey
+<b>1993-0518 Śhrī Fāṭimah Pūjā, You Must Learn to Respect a Woman Who Is Chaste, Mövenpick Hotel, Istanbul, Turkey</b>
 </p>
 
 Suggested talk on vimeo: <a href=" https://vimeo.com/292705923">  https://vimeo.com/292705923</a>

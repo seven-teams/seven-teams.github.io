@@ -24,9 +24,8 @@ So the wealth that you have should be seen in your temperament, in your nature, 
 
 Moreover, the person who has Lakṣhmī has to be a very humble man. For example, Śhrī Lakṣhmī is standing on a lotus. Lotus is the lightest flower you could think because it floats [laughing:] over the water. So, her temperament should be not of a very serious type but of a very mirthful ... And she should, she, she doesn't show off, because is such a simple thing like a lotus to stand on that."
  
-
 <p style="color:blue;">
-1996-0716 Śhrī Lakṣhmī Pūjā, Lakṣhmī Principle and We Have to Live like One Family, Moscow, Russia
+<b>1996-0716 Śhrī Lakṣhmī Pūjā, Lakṣhmī Principle and We Have to Live like One Family, Moscow, Russia</b>
 </p>
 
 Suggested talk on vimeo: <a href="https://vimeo.com/113281959"> https://vimeo.com/113281959</a>

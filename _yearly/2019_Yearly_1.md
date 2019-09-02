@@ -16,9 +16,8 @@ tags:
 
 "I don't know but, how to say, uh as to the Russian a scholars and scientists, uh scientists are amoral people because science is immoral, but I was surprised that in Leningrad, thanks to Professor, we had about two thousand scientist[s] and, I don't know, ten thousand public who honored Me so much."
  
-
 <p style="color:blue;">
-1994-1106 Talk to Sahaja Yogis (4th day after Diwālī Day), after the Russian Award Presented by Professor Voronov after Marriages, Istanbul, Turkey
+<b>1994-1106 Talk to Sahaja Yogis (4th day after Diwālī Day), after the Russian Award Presented by Professor Voronov after Marriages, Istanbul, Turkey</b>
 </p>
 
 Suggested talk on vimeo: <a href="https://vimeo.com/88459556"> https://vimeo.com/88459556</a>

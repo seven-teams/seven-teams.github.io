@@ -18,9 +18,8 @@ tags:
 
 And I was surprised. This is only possible in your country, either Russia or Kiev, where people have such enlightened mind. No one can think of such a thing in other countries. You people are very advanced in your wisdom. Also, you are very deep in understanding spirituality, how important it is."
  
-
 <p style="color:blue;">
-1994-0917 Talk to Sahaja Yogis, On Arrival, Boryspil International Airport, Boryspil (38 kms ESE of Kiev), Ukraine, Ukraine
+<b>1994-0917 Talk to Sahaja Yogis, On Arrival, Boryspil International Airport, Boryspil (38 kms ESE of Kiev), Ukraine</b>
 </p>
 
 Suggested talk on vimeo: <a href="https://vimeo.com/88504316"> https://vimeo.com/88504316</a>

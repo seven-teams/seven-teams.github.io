@@ -16,9 +16,8 @@ tags:
 
 "I've been desiring all the time that I should go to Turkey or Tunisia where there could be an entry into the Islamic world, because they have been promised that they will be resurrected, and that Resurrection has to take place. For that I have to venture and give them their Resurrection which is promised by Muhammad Sāhab. I mean that's My duty, [laughing:] and not only duty, but I'm bound by it, that I have to tell them about their Resurrection and to save them. They deserve it, no doubt."
  
-
 <p style="color:blue;">
-1989-0527 Śhrī Begum Pasha (Devī) Pūjā, The Essence of Self-respect, Flat of Carla Mottina, Istanbul, Turkey
+<b>1989-0527 Śhrī Begum Pasha (Devī) Pūjā, The Essence of Self-respect, Flat of Carla Mottina, Istanbul, Turkey</b>
 </p>
 
 Suggested talk on vimeo: <a href="https://vimeo.com/264489620"> https://vimeo.com/264489620</a>

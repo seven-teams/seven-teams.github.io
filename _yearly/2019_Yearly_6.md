@@ -18,9 +18,8 @@ tags:
 
 No obligation of Mine, I just love. Specially Russia, I really love you very much, because they are so lovable people. Like you respect Me also as Mother, I love you like My children. I don't know how to explain a Mother having millions of children [laughs], but it is so! And it is so energy giving to Me as well as to you. There is a rapport of love. I don't have to quarrel with you, argue with you, or to shout at you. It just works."
  
-
 <p style="color:blue;">
-1998-0609 Public Talk, Opening Address (10:00 to 11:30 a.m.), IX All-Russia Scientific and Practical Conference `Health. Peace. Morality. Culture. East--West', Moscow, Russia
+<b>1998-0609 Public Talk, Opening Address (10:00 to 11:30 a.m.), IX All-Russia Scientific and Practical Conference `Health. Peace. Morality. Culture. East--West', Moscow, Russia</b>
 </p>
 
 Suggested talk on vimeo: <a href="https://vimeo.com/88512548"> https://vimeo.com/88512548</a>

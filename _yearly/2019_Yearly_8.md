@@ -24,9 +24,8 @@ Guido Lanza: Harvard.
 
 Śhrī Mātājī: Hām̐ [yes] Harvard. Harvard University, for teaching economics. Can you believe it? He was impeached! So all kinds of ... so all kinds of ... all kinds of thieves will be now going to these bigger universities and they'll teach our children how to cheat. [Laughing:] That's what it is coming to."
  
-
 <p style="color:blue;">
-2001-0423 Talk to African Sahaja Yogis, Suite, Swissôtel The Boshporus, Istanbul, Turkey
+<b>2001-0423 Talk to African Sahaja Yogis, Suite, Swissôtel The Boshporus, Istanbul, Turkey</b>
 </p>
 
 Suggested talk on vimeo: <a href="https://vimeo.com/88437462"> https://vimeo.com/88437462</a>

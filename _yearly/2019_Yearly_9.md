@@ -21,9 +21,8 @@ It's a miracle for ordinary human beings, definitely, but not for Christ because
 But they did not recognize Him, they killed Him in a very brutal manner. And even now, they think cross is a great thing because Christ died on a cross. Is a very cruel idea of human beings to respect the cross. What does it show? It shows that people liked all the cruelties done to Him, symbolizing cross as the one that represented His death and His atrocities, the way He was tortured. 
 So, it was a very sad time when He was crucified. But when He got resurrected it was the most joyous, most auspicious and most beautiful time."
  
-
 <p style="color:blue;">
-1998-0419 Easter Pūjā, You Can Spread Sahaja Yoga Only through Love and Compassion or Express Christ's Light through Our Lives, Istanbul, Turkey
+<b>1998-0419 Easter Pūjā, You Can Spread Sahaja Yoga Only through Love and Compassion or Express Christ's Light through Our Lives, Istanbul, Turkey</b>
 </p>
 
 Suggested talk on vimeo: <a href="https://vimeo.com/88512207"> https://vimeo.com/88512207</a>
