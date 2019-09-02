@@ -97,7 +97,6 @@ please give me wisdom and discrimination.<br>
 <a href="https://www.youtube.com/watch?v=3oFG-2N1-5c">https://www.youtube.com/watch?v=3oFG-2N1-5c</a>
 
 <b>Bhajans:</b><br>
-
 <p style="color:DarkGreen;"><b>Shri Ganesha Atharva Sheersha:</b> <a href="www.youtube.com/watch?v=Dxl42_lBRJ4">www.youtube.com/watch?v=Dxl42_lBRJ4</a><br>
 
 <b>Jai Jai Bolo Nirmal Ganesha Ki (Victory to Shri Ganesha, Australian Song Book, Hindi supplement p. 66):</b> <a href="www.youtube.com/watch?v=9r2eVWLg4mo">www.youtube.com/watch?v=9r2eVWLg4mo</a><br>
