@@ -24,6 +24,10 @@ So as Shrī Viṣhṇu, when He thought of taking His incarnation, because He is
 
 ![PICTURE 39](/images/image39.png)
 
+<b>Suggested Talk:</b>
+
+<b>Bhajans:</b>
+
 Jay Shri Mataji!
 
 On behalf of the festivity team

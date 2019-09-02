@@ -23,6 +23,10 @@ tags:
 
 ![PICTURE 34](/images/image34.png)
 
+<b>Suggested Talk:</b>
+
+<b>Bhajans:</b>
+
 Jay Shri Mataji!
 
 On behalf of the festivity team
