@@ -1,9 +1,9 @@
 ---
-title: '2019 Shri Krishna Janamashtami: "Today we have decided to have Krishna Puja because America is the Krishna bhoomi"'
-date: 2019-08-25
-permalink: /festivity/2019/0825
+title: '2019 Celebrating Ganesha Chaturthi'
+date: 2019-09-02
+permalink: /festivity/2019/0902
 tags:
-  - Shri Krishna Puja
+  - Shri CeGanesha, Chaturthi
 ---
 
 ![PICTURE 1](/images/image1.png)
