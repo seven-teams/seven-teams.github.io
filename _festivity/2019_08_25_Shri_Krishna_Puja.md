@@ -1,5 +1,5 @@
 ---
-title: '2019 Shri Krishna Janamashtami: "Today we have decided to have Krishna Puja because America is the Krishna bhoomi"'
+title: '2019 Shri Krishna Puja'
 date: 2019-08-25
 permalink: /festivity/2019/0825
 tags:
