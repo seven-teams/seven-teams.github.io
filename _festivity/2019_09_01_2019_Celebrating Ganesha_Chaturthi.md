@@ -23,7 +23,7 @@ Let all these hypocritical things, all these conditionings and all these wrong i
 Let us manifest these qualities. This is what is to be asked."<br>
 </p>
 <p style="text-align:center;"><b>1990-0826 Shrī Gaṇesha Pūjā, Lanersbach, Austria</b>
-<a href="www.youtube.com/watch?v=HJzi8uu62lc&index=6&list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1">www.youtube.com/watch?v=HJzi8uu62lc&index=6&list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1</a>
+<a href="https://www.youtube.com/watch?v=HJzi8uu62lc&index=6&list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1">https://www.youtube.com/watch?v=HJzi8uu62lc&index=6&list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1</a>
 </p>
 
 <p style="color:Crimson; text-align:left;">
@@ -45,7 +45,7 @@ The fourth offers food to your devotees<br>
 As they worship their innocent Lord<br>
 </p>
 <p style="text-align:center;"> Om Bhur Bhuvah:
-<a href="www.youtube.com/watch?v=W1x0tWtTk_8">www.youtube.com/watch?v=W1x0tWtTk_8</a>
+<a href="www.youtube.com/watch?v=W1x0tWtTk_8">https://www.youtube.com/watch?v=W1x0tWtTk_8</a>
 </p>
 
 <p style="color:Maroon; text-align:left;">
@@ -53,7 +53,7 @@ As they worship their innocent Lord<br>
 </p>
 **1986-0907 Shri Ganesha Puja, San Diego, CA, USA**
 
-<p style="color:blue;"><b>Jay Jay Janani Shri Ganesh Ki:</b>< <a href="www.youtube.com/watch?v=CDgg_m-d3CQ">www.youtube.com/watch?v=CDgg_m-d3CQ</a>
+<p style="color:blue;"><b>Jay Jay Janani Shri Ganesh Ki:</b>< <a href="https://www.youtube.com/watch?v=CDgg_m-d3CQ">https://www.youtube.com/watch?v=CDgg_m-d3CQ</a>
 </p>
 
 
@@ -77,7 +77,7 @@ Is the whole universe pervaded, Your powers are unsurpassed.<br>
 </p>
 <b>1985-0804 Shri Ganesha Puja, The Importance of Chastity, Brighton, UK</b>
 
-<p style="color:blue;"><b>Gajananah Shri Ganaraya:</b> <a href="www.youtube.com/watch?v=5fCd4wODKGg">www.youtube.com/watch?v=5fCd4wODKGg</a></p>
+<p style="color:blue;"><b>Gajananah Shri Ganaraya:</b> <a href="https://www.youtube.com/watch?v=5fCd4wODKGg">https://www.youtube.com/watch?v=5fCd4wODKGg</a></p>
 
 ![PICTURE 43](/images/image43.png)
 
@@ -97,21 +97,21 @@ please give me wisdom and discrimination.<br>
 <a href="https://www.youtube.com/watch?v=3oFG-2N1-5c">https://www.youtube.com/watch?v=3oFG-2N1-5c</a>
 
 <b>Bhajans:</b><br>
-<p style="color:DarkGreen;"><b>Shri Ganesha Atharva Sheersha:</b> <a href="www.youtube.com/watch?v=Dxl42_lBRJ4">www.youtube.com/watch?v=Dxl42_lBRJ4</a><br>
+<p style="color:DarkGreen;"><b>Shri Ganesha Atharva Sheersha:</b> <a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4">https://www.youtube.com/watch?v=Dxl42_lBRJ4</a><br>
 
-<b>Jai Jai Bolo Nirmal Ganesha Ki</b> (Victory to Shri Ganesha, Australian Song Book, Hindi supplement p. 66): <a href="www.youtube.com/watch?v=9r2eVWLg4mo">www.youtube.com/watch?v=9r2eVWLg4mo</a><br>
+<b>Jai Jai Bolo Nirmal Ganesha Ki</b> (Victory to Shri Ganesha, Australian Song Book, Hindi supplement p. 66): <a href="https://www.youtube.com/watch?v=9r2eVWLg4mo">https://www.youtube.com/watch?v=9r2eVWLg4mo</a><br>
 
-<b>Shri Ganesha Kinaryala Lau</b> (Australian Song Book, Marathi song 62): <a href="www.youtube.com/watch?v=1ZZ57Fxd79Q">www.youtube.com/watch?v=1ZZ57Fxd79Q</a><br>
+<b>Shri Ganesha Kinaryala Lau</b> (Australian Song Book, Marathi song 62): <a href="https://www.youtube.com/watch?v=1ZZ57Fxd79Q">https://www.youtube.com/watch?v=1ZZ57Fxd79Q</a><br>
 
-<b>Gajananah Shri Ganaraya:</b> <a href="www.youtube.com/watch?v=5fCd4wODKGg">www.youtube.com/watch?v=5fCd4wODKGg</a><br>
+<b>Gajananah Shri Ganaraya:</b> <a href="https://www.youtube.com/watch?v=5fCd4wODKGg">https://www.youtube.com/watch?v=5fCd4wODKGg</a><br>
 
-<b>Jay Jagadambe:</b> <a href="www.youtube.com/watch?v=KbUT-S2AcBY">www.youtube.com/watch?v=KbUT-S2AcBY</a><br>
+<b>Jay Jagadambe:</b> <a href="https://www.youtube.com/watch?v=KbUT-S2AcBY">https://www.youtube.com/watch?v=KbUT-S2AcBY</a><br>
 
 <b>Shri Ganesha Pancha Ratnam</b> (Names of Shri Ganesha): <a href="https://www.youtube.com/watch?v=TxotrB3Gzo">https://www.youtube.com/watch?v=TxotrB3Gzo</a><br>
 
-<b>Shri Ganesha jai Shri Ganesha:</b> <a href="www.youtube.com/watch?v=GCgN6qnmNiA">www.youtube.com/watch?v=GCgN6qnmNiA</a><br>
+<b>Shri Ganesha jai Shri Ganesha:</b> <a href="https://www.youtube.com/watch?v=GCgN6qnmNiA">https://www.youtube.com/watch?v=GCgN6qnmNiA</a><br>
 
-<b>Sukhkarta dukhharta Shri Ganesh Aarti:</b> <a href="www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407">www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407</a><br></p>
+<b>Sukhkarta dukhharta Shri Ganesh Aarti:</b> <a href="https://www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407">https://www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407</a><br></p>
 
 Jai Shri Mataji!
 
