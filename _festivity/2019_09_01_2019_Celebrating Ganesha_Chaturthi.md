@@ -45,7 +45,7 @@ The fourth offers food to your devotees<br>
 As they worship their innocent Lord<br>
 </p>
 <p style="text-align:center;"> Om Bhur Bhuvah:
-<a href="www.youtube.com/watch?v=W1x0tWtTk_8">https://www.youtube.com/watch?v=W1x0tWtTk_8</a>
+<a href="https://www.youtube.com/watch?v=W1x0tWtTk_8">https://www.youtube.com/watch?v=W1x0tWtTk_8</a>
 </p>
 
 <p style="color:Maroon; text-align:left;">
