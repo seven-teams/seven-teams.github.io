@@ -6,7 +6,7 @@ main:
   - title: "Compilations"
     url: /compilation/ 
 
-  - title: "Years"
+  - title: "Yearly Topics"
     url: /yearly/
 
   - title: "Quotes"
@@ -18,5 +18,5 @@ main:
   - title: "Scriptures"
     url: /scriptures/
 
-  - title: "Divine"
+  - title: "Divine Message"
     url: /divine/
