@@ -99,15 +99,15 @@ please give me wisdom and discrimination.<br>
 <b>Bhajans:</b><br>
 <p style="color:DarkGreen;"><b>Shri Ganesha Atharva Sheersha:</b> <a href="www.youtube.com/watch?v=Dxl42_lBRJ4">www.youtube.com/watch?v=Dxl42_lBRJ4</a><br>
 
-<b>Jai Jai Bolo Nirmal Ganesha Ki (Victory to Shri Ganesha, Australian Song Book, Hindi supplement p. 66):</b> <a href="www.youtube.com/watch?v=9r2eVWLg4mo">www.youtube.com/watch?v=9r2eVWLg4mo</a><br>
+<b>Jai Jai Bolo Nirmal Ganesha Ki</b> (Victory to Shri Ganesha, Australian Song Book, Hindi supplement p. 66): <a href="www.youtube.com/watch?v=9r2eVWLg4mo">www.youtube.com/watch?v=9r2eVWLg4mo</a><br>
 
-<b>Shri Ganesha Kinaryala Lau (Australian Song Book, Marathi song 62):</b> <a href="www.youtube.com/watch?v=1ZZ57Fxd79Q">www.youtube.com/watch?v=1ZZ57Fxd79Q</a><br>
+<b>Shri Ganesha Kinaryala Lau</b> (Australian Song Book, Marathi song 62): <a href="www.youtube.com/watch?v=1ZZ57Fxd79Q">www.youtube.com/watch?v=1ZZ57Fxd79Q</a><br>
 
 <b>Gajananah Shri Ganaraya:</b> <a href="www.youtube.com/watch?v=5fCd4wODKGg">www.youtube.com/watch?v=5fCd4wODKGg</a><br>
 
 <b>Jay Jagadambe:</b> <a href="www.youtube.com/watch?v=KbUT-S2AcBY">www.youtube.com/watch?v=KbUT-S2AcBY</a><br>
 
-<b>Shri Ganesha Pancha Ratnam (Names of Shri Ganesha):</b> <a href="https://www.youtube.com/watch?v=TxotrB3Gzo">https://www.youtube.com/watch?v=TxotrB3Gzo</a><br>
+<b>Shri Ganesha Pancha Ratnam</b> (Names of Shri Ganesha): <a href="https://www.youtube.com/watch?v=TxotrB3Gzo">https://www.youtube.com/watch?v=TxotrB3Gzo</a><br>
 
 <b>Shri Ganesha jai Shri Ganesha:</b> <a href="www.youtube.com/watch?v=GCgN6qnmNiA">www.youtube.com/watch?v=GCgN6qnmNiA</a><br>
 
