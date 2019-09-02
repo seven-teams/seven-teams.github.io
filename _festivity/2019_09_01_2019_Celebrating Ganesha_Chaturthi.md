@@ -92,12 +92,11 @@ please give me wisdom and discrimination.<br>
 (from the 2012 edition of Sahaja Yoga Mantra Book, Page 29)</b></p>
 
 
-<b>Suggested Talk: 
-
-1986-0907 Shri Ganesha Puja Talk, Camp Marston, San Diego, USA</b>
+<b>Suggested Talk:</b><br>
+1986-0907 Shri Ganesha Puja Talk, Camp Marston, San Diego, USA<br>
 <a href="https://www.youtube.com/watch?v=3oFG-2N1-5c">https://www.youtube.com/watch?v=3oFG-2N1-5c</a>
 
-<b>Bhajans:</b>
+<b>Bhajans:</b><br>
 
 <p style="color:DarkGreen;"><b>Shri Ganesha Atharva Sheersha:</b> <a href="www.youtube.com/watch?v=Dxl42_lBRJ4">www.youtube.com/watch?v=Dxl42_lBRJ4</a><br>
 
