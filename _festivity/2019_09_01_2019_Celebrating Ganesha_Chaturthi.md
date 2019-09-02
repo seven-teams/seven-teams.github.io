@@ -53,7 +53,7 @@ As they worship their innocent Lord<br>
 </p>
 **1986-0907 Shri Ganesha Puja, San Diego, CA, USA**
 
-<p style="color:blue;"><b>Jay Jay Janani Shri Ganesh Ki:</b> <a href="www.youtube.com/watch?v=CDgg_m-d3CQ">www.youtube.com/watch?v=CDgg_m-d3CQ</a>
+<p style="color:blue;"><b>Jay Jay Janani Shri Ganesh Ki:</b></p> <a href="www.youtube.com/watch?v=CDgg_m-d3CQ">www.youtube.com/watch?v=CDgg_m-d3CQ</a>
 
 
 ![PICTURE 42](/images/image42.png)
