@@ -11,7 +11,7 @@ tags:
 ![PICTURE 24](/images/image24.png)
 
 <p style="color:purple; text-align:left;">
-<b>Russian scientists are honoring Shri Mataji in the Land of Turke</b><br>
+<b>Russian scientists are honoring Shri Mataji in the Land of Turkey</b><br>
 </p>
 
 "I don't know but, how to say, uh as to the Russian a scholars and scientists, uh scientists are amoral people because science is immoral, but I was surprised that in Leningrad, thanks to Professor, we had about two thousand scientist[s] and, I don't know, ten thousand public who honored Me so much."

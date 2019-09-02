@@ -107,7 +107,7 @@ please give me wisdom and discrimination.<br>
 
 <b>Jay Jagadambe:</b> <a href="https://www.youtube.com/watch?v=KbUT-S2AcBY">https://www.youtube.com/watch?v=KbUT-S2AcBY</a><br>
 
-<b>Shri Ganesha Pancha Ratnam</b> (Names of Shri Ganesha): <a href="https://www.youtube.com/watch?v=TxotrB3Gzo">https://www.youtube.com/watch?v=TxotrB3Gzo</a><br>
+<b>Shri Ganesha Pancharatnam</b> (Names of Shri Ganesha): <a href="https://www.youtube.com/watch?v=TxotrB3Gzo0">https://www.youtube.com/watch?v=TxotrB3Gzo0</a><br>
 
 <b>Shri Ganesha jai Shri Ganesha:</b> <a href="https://www.youtube.com/watch?v=GCgN6qnmNiA">https://www.youtube.com/watch?v=GCgN6qnmNiA</a><br>
 
