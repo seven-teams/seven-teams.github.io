@@ -26,12 +26,12 @@ Let us manifest these qualities. This is what is to be asked."<br>
 <a href="www.youtube.com/watch?v=HJzi8uu62lc&index=6&list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1">www.youtube.com/watch?v=HJzi8uu62lc&index=6&list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1</a>
 </p>
 
-<p style="color:DarkGreen; text-align:left;">
+<p style="color:Crimson; text-align:left;">
 "So I have to make a very simple announcement today, that on this day of Shri Ganesha, all My children who are born like Shri Ganesha, in the same pattern, should become dynamic like Him, innocent like Him, great like Him, working twenty-four hours. This little Child is working throughout the day and night to give you this source of joy."	
 </p>
 **1984-0115 Shri Ganesha Puja, Nasik, Maharashtra, India**
 
-<p style="color:DarkGreen; text-align:left;">
+<p style="color:Crimson; text-align:left;">
 "Today cannot be Dwitya, has to be Chaturthi. According to Indian…, you see, is Chaturthi, has to be. Or Chaturdashi, could be. When was this rakhi? [Sahaja Yogi: Seventeen, sixteen days ago.] Sixteen days ago, so it is after rakhi. [Sahaja Yogi: Two days after new moon.] That is, two days after new moon it is. It is, has to be Chaturdashi, fourth day, has to be in Indian time. Because Chaturthi is the day He is established, Ganesha is established on this Chaturthi – because Indian, you see, is different, little bit particular. Must be starting now, about twelve o’clock, Chaturthi."	
 </p>
 **1982-0822 Shri Ganesha Puja, Geneva, Switzerland**
@@ -44,16 +44,17 @@ The blessing, rope and goad<br>
 The fourth offers food to your devotees<br>
 As they worship their innocent Lord<br>
 </p>
-<p style="text-align:center;"> Om Bhur Bhuvah
+<p style="text-align:center;"> Om Bhur Bhuvah:
 <a href="www.youtube.com/watch?v=W1x0tWtTk_8">www.youtube.com/watch?v=W1x0tWtTk_8</a>
 </p>
 
-<p style="color:Crimson; text-align:left;">
+<p style="color:Maroon; text-align:left;">
 "But when Parvati made Shri Ganesha, He was the son of Parvati alone. There was no Father. Parvati Herself wanted to have a child of Her own. There were angels who were dedicated either to Vishnu or to Shiva, like ganas were dedicated to Shiva alone. So, She wanted to have Her own Son who can permeate Her powers on this Earth. So to begin with when the Shakti created this universe and Sadashiva was watching Her creation, the first thing She created on this Earth was innocence and the embodiment of that innocence was Shri Ganesha. The whole Universe was covered with innocence, which we call as Aumkara. This innocence protected all the creation of the world and penetrated into all that is matter."	
 </p>
 **1986-0907 Shri Ganesha Puja, San Diego, CA, USA**
 
-<p style="color:blue;"><b>Jay Jay Janani Shri Ganesh Ki:</b></p> <a href="www.youtube.com/watch?v=CDgg_m-d3CQ">www.youtube.com/watch?v=CDgg_m-d3CQ</a>
+<p style="color:blue;"><b>Jay Jay Janani Shri Ganesh Ki:</b>< <a href="www.youtube.com/watch?v=CDgg_m-d3CQ">www.youtube.com/watch?v=CDgg_m-d3CQ</a>
+</p>
 
 
 ![PICTURE 42](/images/image42.png)
@@ -76,8 +77,7 @@ Is the whole universe pervaded, Your powers are unsurpassed.<br>
 </p>
 <b>1985-0804 Shri Ganesha Puja, The Importance of Chastity, Brighton, UK</b>
 
-
-<b>Gajananah Shri Ganaraya:</b> <a href="www.youtube.com/watch?v=5fCd4wODKGg">www.youtube.com/watch?v=5fCd4wODKGg</a>
+<p style="color:blue;"><b>Gajananah Shri Ganaraya:</b> <a href="www.youtube.com/watch?v=5fCd4wODKGg">www.youtube.com/watch?v=5fCd4wODKGg</a></p>
 
 ![PICTURE 43](/images/image43.png)
 
@@ -92,11 +92,14 @@ please give me wisdom and discrimination.<br>
 (from the 2012 edition of Sahaja Yoga Mantra Book, Page 29)</b></p>
 
 
-<b>Suggested Talk: 1986-0907 Shri Ganesha Puja Talk, Camp Marston, San Diego, USA</b>
+<b>Suggested Talk: 
+
+1986-0907 Shri Ganesha Puja Talk, Camp Marston, San Diego, USA</b>
 <a href="https://www.youtube.com/watch?v=3oFG-2N1-5c">https://www.youtube.com/watch?v=3oFG-2N1-5c</a>
 
 <b>Bhajans:</b>
-<b>Shri Ganesha Atharva Sheersha:</b> <a href="www.youtube.com/watch?v=Dxl42_lBRJ4">www.youtube.com/watch?v=Dxl42_lBRJ4</a>
+
+<p style="color:DarkGreen;"><b>Shri Ganesha Atharva Sheersha:</b> <a href="www.youtube.com/watch?v=Dxl42_lBRJ4">www.youtube.com/watch?v=Dxl42_lBRJ4</a>
 
 <b>Jai Jai Bolo Nirmal Ganesha Ki (Victory to Shri Ganesha, Australian Song Book, Hindi supplement p. 66):</b> <a href="www.youtube.com/watch?v=9r2eVWLg4mo">www.youtube.com/watch?v=9r2eVWLg4mo</a>
 
@@ -110,7 +113,7 @@ please give me wisdom and discrimination.<br>
 
 <b>Shri Ganesha jai Shri Ganesha:</b> <a href="www.youtube.com/watch?v=GCgN6qnmNiA">www.youtube.com/watch?v=GCgN6qnmNiA</a>
 
-<b>Sukhkarta dukhharta Shri Ganesh Aarti:</b> <a href="www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407">www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407</a>
+<b>Sukhkarta dukhharta Shri Ganesh Aarti:</b> <a href="www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407">www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407</a></p>
 
 Jai Shri Mataji!
 
