@@ -3,7 +3,7 @@ title: '2019 Rakshabandhan Celebrations on India's Independence Day'
 date: 2019-08-15
 permalink: /festivity/2019/0815
 tags:
-  - Rakshabandhan, India's Independence Day
+  - Rakshabandhan, India
 ---
 
 ![PICTURE 1](/images/image1.png)
@@ -14,8 +14,7 @@ tags:
 <b>Rakhi Pūrnimā is a day of great significance.</b> On that day you should ask for perfection, make big decisions and keep attention on high ideals. Sahaja Yogis should not destroy their attention on trifle issues.
 Lot of work has yet to be done."<br>
 </p>
-<b>1978-0817 Letter (Marathi) on Rakshābandhan and Pūrnimā Day (0818), London, UK
-</b>
+<b>1978-0817 Letter (Marathi) on Rakshābandhan and Pūrnimā Day (0818), London, UK</b>
 
 ![PICTURE 25](/images/image25.png)
 
