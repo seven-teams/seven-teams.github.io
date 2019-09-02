@@ -22,7 +22,7 @@ By coming into this world He has created music (sangeet), rhythm (tāl) and note
 Let all these hypocritical things, all these conditionings and all these wrong ideas we have or all the wrong life we have had, should just disappear like thin air, and let the beautiful moonlight of your soothing qualities of innocence be manifested through us.'<br>
 Let us manifest these qualities. This is what is to be asked."<br>
 </p>
-<p style="text-align:center;">**1990-0826 Shrī Gaṇesha Pūjā, Lanersbach, Austria**
+<p style="text-align:center;"><b>1990-0826 Shrī Gaṇesha Pūjā, Lanersbach, Austria</b>
 <a href="www.youtube.com/watch?v=HJzi8uu62lc&index=6&list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1">www.youtube.com/watch?v=HJzi8uu62lc&index=6&list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1</a>
 </p>
 
@@ -32,7 +32,7 @@ Let us manifest these qualities. This is what is to be asked."<br>
 **1984-0115 Shri Ganesha Puja, Nasik, Maharashtra, India**
 
 <p style="color:DarkGreen; text-align:left;">
-"Today cannot be Dwitya, has to be Chaturthi. According to Indian…, you see, is Chaturthi, has to be. Or Chaturdashi, could be. When was this rakhi? (Yogi: Seventeen, sixteen days ago). Sixteen days ago, so it is after rakhi. (Yogi: Two days after new moon). That is, two days after new moon it is. It is, has to be Chaturdashi, fourth day, has to be in Indian time.Because Chaturthi is the day He is established, Ganesha is established on this Chaturthi – because Indian, you see, is different, little bit particular. Must be starting now, about 12 o’clock, Chaturthi."	
+"Today cannot be Dwitya, has to be Chaturthi. According to Indian…, you see, is Chaturthi, has to be. Or Chaturdashi, could be. When was this rakhi? [Sahaja Yogi: Seventeen, sixteen days ago.] Sixteen days ago, so it is after rakhi. [Sahaja Yogi: Two days after new moon.] That is, two days after new moon it is. It is, has to be Chaturdashi, fourth day, has to be in Indian time. Because Chaturthi is the day He is established, Ganesha is established on this Chaturthi – because Indian, you see, is different, little bit particular. Must be starting now, about twelve o’clock, Chaturthi."	
 </p>
 **1982-0822 Shri Ganesha Puja, Geneva, Switzerland**
 
@@ -48,9 +48,30 @@ As they worship their innocent Lord<br>
 <a href="www.youtube.com/watch?v=W1x0tWtTk_8">www.youtube.com/watch?v=W1x0tWtTk_8</a>
 </p>
 
+<p style="color:Crimson; text-align:left;">
+"But when Parvati made Shri Ganesha, He was the son of Parvati alone. There was no Father. Parvati Herself wanted to have a child of Her own. There were angels who were dedicated either to Vishnu or to Shiva, like ganas were dedicated to Shiva alone. So, She wanted to have Her own Son who can permeate Her powers on this Earth. So to begin with when the Shakti created this universe and Sadashiva was watching Her creation, the first thing She created on this Earth was innocence and the embodiment of that innocence was Shri Ganesha. The whole Universe was covered with innocence, which we call as Aumkara. This innocence protected all the creation of the world and penetrated into all that is matter."	
+</p>
+**1986-0907 Shri Ganesha Puja, San Diego, CA, USA**
+
+<p style="color:blue;"><b>Jay Jay Janani Shri Ganesh Ki:</b> <a href="www.youtube.com/watch?v=CDgg_m-d3CQ">www.youtube.com/watch?v=CDgg_m-d3CQ</a>
+
+
 ![PICTURE 42](/images/image42.png)
 
-<p style="color:Crimson;">
+<p style="color:DarkGreen; text-align:center;">
+You are the only support of the world,<br>
+Because you are in the form of Earth.<br>
+By you who exists in the form of water,<br>
+Is the whole universe pervaded, Your powers are unsurpassed.<br>
+</p>
+<p style="text-align:center;"> (From Devi Mahatmayam, Chapter 11)</p>
+
+<p style="color:Maroon; text-align:left;">
+"Today you have come here to worship me as Shri Ganesha. We have been singing the praise of Shri Ganesha before every puja. And we have such tremendous respect for Shri Ganesha, because we have found out that unless and until Shri Ganesha, who is the symbol of our innocence, is not awakened within us, we cannot enter into the Kingdom of God. And even to stay there and to enjoy the blessings of Shri Ganesha, we have to have our innocence fully blossoming. So we praise Him and He is very easily praised. And whatever we might have done wrong before coming to Sahaja Yoga, He completely forgives because He is the eternal child."	
+</p>
+**1989-0808 Shri Ganesha Puja, Les Diablerets, Switzerland**
+
+<p style="color:Crimson; text-align:left;">
 "So the priorities have to change if Shri Ganesha is to be worshipped. What are we worshipping today is the innocence within us. We are worshipping that is auspicious, which is innocent. Innocence, which is deep down within us - that's our character, that's our nature, that's what we are born with - is the basic of this whole Creation; is the essence of this Creation."<br>
 </p>
 <b>1985-0804 Shri Ganesha Puja, The Importance of Chastity, Brighton, UK</b>
