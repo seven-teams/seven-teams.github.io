@@ -18,14 +18,14 @@ tags:
 
 ![PICTURE 1](/images/image1.png)
 
-<p style="color:red;">
-"Is a very new beginning of a new world, the vision of which I had since long, because this world is one, created by One God. All these demarcations are manmade and they create problems. In Sahaja Yoga you realize that we are all one, part and parcel of One Great Virāṭa.<br>
+<p>
+<font color="red">"Is a very new beginning of a new world, the vision of which I had since long, because this world is one, created by One God. All these demarcations are manmade and they create problems. In Sahaja Yoga you realize that we are all one, part and parcel of One Great Virāṭa.<br>
 This has to be understood that, this joy comes out of the love and affection we have for each other and for our Mother and the Creator.<br>
 So open your heart. Open your heart. And everything will be enjoyable, beautiful and you’ll feel the Ambros[i]a trickling into your being, into your nerves, all around you.<br>
 The joy can be only complete when you can receive it every minute, every moment. And that is what I want all of you to have. That’s My pure desire.<br>
-May God bless you all."<br>
-</p>
+May God bless you all."</font><br>
 <b>1989-0722 Talk to Sahaja Yogis, before and during the Evening Program, the day before Guru Pūjā, Hotel Lago di Braies, Braies, Bolzano, Italy</b>
+</p>
 
 ![PICTURE 8](/images/image8.png)
 
