@@ -6,12 +6,11 @@ tags:
   - Guru Puja, Evening Program
 ---
 
-## Header 2 (H1 is reserved for post titles)##
-
-### Header 3
-
-#### Header 4
-
+<header>
+    <h1>Most important heading here</h1>
+    <h3>Less important heading here</h3>
+    <p>Some additional information here</p>
+ </header>
 
 ![PICTURE 1](/images/image1.png)
 
