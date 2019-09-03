@@ -6,6 +6,9 @@ tags:
   - Guru Puja, Evening Program
 ---
 
+<div style="text-align: center"><img src="/image/image1.png" width="100" /></div>
+
+
 ![PICTURE 1](/images/image1.png)
 
 <p style="color:red;">
