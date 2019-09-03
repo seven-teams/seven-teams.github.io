@@ -6,16 +6,6 @@ tags:
   - Guru Puja, Evening Program
 ---
 
-<font size="+2">This is bigger text.</font>
-
-<font size="-1">This is smaller text.</font>
-
-<font size="1">This is really tiny text.</font>
-
-
-
-
-
 ![PICTURE 1](/images/image1.png)
 
 <p>
