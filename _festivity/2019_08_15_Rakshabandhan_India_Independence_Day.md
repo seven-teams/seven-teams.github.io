@@ -15,15 +15,15 @@ tags:
 </p>
 <b>1978-0817 Letter (Marathi) on Rakshābandhan and Pūrnimā Day (0818), London, UK</b>
 
-![PICTURE 25](/images/image25.png)
+<div style="text-align: center"><img src="/images/image25.png" /></div>
 
-![PICTURE 26](/images/image26.png)
+<div style="text-align: center"><img src="/images/image26.png" /></div>
 
-![PICTURE 27](/images/image27.png)
+<div style="text-align: center"><img src="/images/image27.png" /></div>
 
-![PICTURE 28](/images/image28.png)
+<div style="text-align: center"><img src="/images/image28.png" /></div>
 
-![PICTURE 29](/images/image29.png)
+<div style="text-align: center"><img src="/images/image29.png" /></div>
 
 <b>Suggested Talk:</b>
 

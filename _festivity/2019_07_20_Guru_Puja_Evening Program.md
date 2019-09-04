@@ -17,7 +17,7 @@ May God bless you all."</font><br>
 <b>1989-0722 Talk to Sahaja Yogis, before and during the Evening Program, the day before Guru Pūjā, Hotel Lago di Braies, Braies, Bolzano, Italy</b>
 </p>
 
-![PICTURE 8](/images/image8.png)
+<div style="text-align: center"><img src="/images/image8.png" /></div>
 
 <p style="color:green; text-align:center;">
 When thus I lose myself in Thee, my God,<br>

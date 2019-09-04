@@ -14,7 +14,7 @@ By coming into this world He has created music (sangeet), rhythm (tāl) and note
 </p>
 <b>2008-0210 Shrī Gaṇesha’s Birthday Pūjā (Hindi), Pratishthan, Maharashtra, India</b><br>
 
-![PICTURE 40](/images/image40.png)
+<div style="text-align: center"><img src="/images/image40.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 <b>"So today’s Pūjā is specially to be done with a prayer in your heart that:<br>
@@ -36,7 +36,7 @@ Let us manifest these qualities. This is what is to be asked."<br></b>
 </p>
 **1982-0822 Shri Ganesha Puja, Geneva, Switzerland**
 
-![PICTURE 41](/images/image41.png)
+<div style="text-align: center"><img src="/images/image41.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 <b>Your first tooth You have and four holy hands<br>
@@ -56,8 +56,7 @@ As they worship their innocent Lord<br></b>
 <p style="color:blue;"><b>Jay Jay Janani Shri Ganesh Ki:</b>< <a href="https://www.youtube.com/watch?v=CDgg_m-d3CQ">https://www.youtube.com/watch?v=CDgg_m-d3CQ</a>
 </p>
 
-
-![PICTURE 42](/images/image42.png)
+<div style="text-align: center"><img src="/images/image42.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 You are the only support of the world,<br>
@@ -79,7 +78,7 @@ Is the whole universe pervaded, Your powers are unsurpassed.<br>
 
 <p style="color:blue;"><b>Gajananah Shri Ganaraya:</b> <a href="https://www.youtube.com/watch?v=5fCd4wODKGg">https://www.youtube.com/watch?v=5fCd4wODKGg</a></p>
 
-![PICTURE 43](/images/image43.png)
+<div style="text-align: center"><img src="/images/image43.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 <b>Shri Ganesha</b> I am going to be worthy of your attention.<br>

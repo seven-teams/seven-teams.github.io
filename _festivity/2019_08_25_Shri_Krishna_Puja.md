@@ -14,15 +14,15 @@ So as Shrī Viṣhṇu, when He thought of taking His incarnation, because He is
 </p>
 <b>1989-0814 Shrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, UK</b>
 
-![PICTURE 35](/images/image35.png)
+<div style="text-align: center"><img src="/images/image35.png" /></div>
 
-![PICTURE 36](/images/image36.png)
+!<div style="text-align: center"><img src="/images/image36.png" /></div>
 
-![PICTURE 37](/images/image37.png)
+<div style="text-align: center"><img src="/images/image37.png" /></div>
 
-![PICTURE 38](/images/image38.png)
+<div style="text-align: center"><img src="/images/image38.png" /></div>
 
-![PICTURE 39](/images/image39.png)
+<div style="text-align: center"><img src="/images/image39.png" /></div>
 
 <b>Suggested Talk:</b>
 

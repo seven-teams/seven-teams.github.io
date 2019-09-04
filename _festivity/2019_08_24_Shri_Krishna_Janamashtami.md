@@ -13,15 +13,15 @@ tags:
 </p>
 <b>1983-0918 Śhrī Kṛiṣhṇa Pūjā, House of Dr. Vinod Worlikar, 17301 Maria Avenue, Cerritos (32 kms SE of Los Angeles), CA, U.S.A.</b>
 
-![PICTURE 30](/images/image30.png)
+<div style="text-align: center"><img src="/images/image30.png" /></div>
 
-![PICTURE 31](/images/image31.png)
+<div style="text-align: center"><img src="/images/image31.png" /></div>
 
-![PICTURE 32](/images/image32.png)
+<div style="text-align: center"><img src="/images/image32.png" /></div>
 
-![PICTURE 33](/images/image33.png)
+<div style="text-align: center"><img src="/images/image33.png" /></div>
 
-![PICTURE 34](/images/image34.png)
+<div style="text-align: center"><img src="/images/image34.png" /></div>
 
 <b>Suggested Talk:</b>
 
