@@ -16,13 +16,23 @@ So as Shrī Viṣhṇu, when He thought of taking His incarnation, because He is
 
 <div style="text-align: center"><img src="/images/image35.png" /></div>
 
-!<div style="text-align: center"><img src="/images/image36.png" /></div>
+<br>
+
+<div style="text-align: center"><img src="/images/image36.png" /></div>
+
+<br>
 
 <div style="text-align: center"><img src="/images/image37.png" /></div>
 
+<br>
+
 <div style="text-align: center"><img src="/images/image38.png" /></div>
 
+<br>
+
 <div style="text-align: center"><img src="/images/image39.png" /></div>
+
+<br>
 
 <b>Suggested Talk:</b>
 

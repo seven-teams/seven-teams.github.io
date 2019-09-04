@@ -17,13 +17,23 @@ tags:
 
 <div style="text-align: center"><img src="/images/image25.png" /></div>
 
+<br>
+
 <div style="text-align: center"><img src="/images/image26.png" /></div>
+
+<br>
 
 <div style="text-align: center"><img src="/images/image27.png" /></div>
 
+<br>
+
 <div style="text-align: center"><img src="/images/image28.png" /></div>
 
+<br>
+
 <div style="text-align: center"><img src="/images/image29.png" /></div>
+
+<br>
 
 <b>Suggested Talk:</b>
 
