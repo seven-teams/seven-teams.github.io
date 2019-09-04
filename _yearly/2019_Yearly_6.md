@@ -22,7 +22,7 @@ No obligation of Mine, I just love. Specially Russia, I really love you very muc
 <font color="blue"><b>1998-0609 Public Talk, Opening Address (10:00 to 11:30 a.m.), IX All-Russia Scientific and Practical Conference 'Health. Peace. Morality. Culture. East--West', Moscow, Russia</b></font><br>
 </p>
 
-Suggested talk on vimeo: <a href="https://vimeo.com/88512548"> https://vimeo.com/88512548</a>
+Suggested talk on vimeo: <a href="https://vimeo.com/88512548"> video</a>
 
 <p style="color:red;">Jay Shri Mataji!<br></p>
 

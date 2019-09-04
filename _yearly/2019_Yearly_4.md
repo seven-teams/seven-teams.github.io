@@ -20,7 +20,7 @@ tags:
 <font color="blue"><b>1989-0527 Śhrī Begum Pasha (Devī) Pūjā, The Essence of Self-respect, Flat of Carla Mottina, Istanbul, Turkey</b></font><br>
 </p>
 
-Suggested talk on vimeo: <a href="https://vimeo.com/264489620"> https://vimeo.com/264489620</a>
+Suggested talk on vimeo: <a href="https://vimeo.com/264489620"> video</a>
 
 <p style="color:red;">Jay Shri Mataji!<br></p>
 

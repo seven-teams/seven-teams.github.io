@@ -28,7 +28,7 @@ Guido Lanza: Harvard.
 <font color="blue"><b>2001-0423 Talk to African Sahaja Yogis, Suite, Swissôtel The Boshporus, Istanbul, Turkey</b></font><br>
 </p>
 
-Suggested talk on vimeo: <a href="https://vimeo.com/88437462"> https://vimeo.com/88437462</a>
+Suggested talk on vimeo: <a href="https://vimeo.com/88437462"> video</a>
 
 <p style="color:red;">Jay Shri Mataji!<br></p>
 

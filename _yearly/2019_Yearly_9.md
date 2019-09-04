@@ -25,7 +25,7 @@ So, it was a very sad time when He was crucified. But when He got resurrected it
 <font color="blue"><b>1998-0419 Easter Pūjā, You Can Spread Sahaja Yoga Only through Love and Compassion or Express Christ's Light through Our Lives, Istanbul, Turkey</b></font><br>
 </p>
 
-Suggested talk on vimeo: <a href="https://vimeo.com/88512207"> https://vimeo.com/88512207</a>
+Suggested talk on vimeo: <a href="https://vimeo.com/88512207"> video</a>
 
 <p style="color:red;">Jay Shri Mataji!<br></p>
 

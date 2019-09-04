@@ -22,7 +22,7 @@ And I was surprised. This is only possible in your country, either Russia or Kie
 <font color="blue"><b>1994-0917 Talk to Sahaja Yogis, On Arrival, Boryspil International Airport, Boryspil (38 kms ESE of Kiev), Ukraine</b></font><br>
 </p>
 
-Suggested talk on vimeo: <a href="https://vimeo.com/88504316"> https://vimeo.com/88504316</a>
+Suggested talk on vimeo: <a href="https://vimeo.com/88504316"> video</a>
 
 <p style="color:red;">Jay Shri Mataji!<br></p>
 
