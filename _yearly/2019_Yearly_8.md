@@ -16,7 +16,13 @@ tags:
 </p>
 
 <p>
-"So, you see, in the generosity is the only way we can correct corruption. When you s... start enjoying giving, you don't grab. And such a person has na ... no reputation in the society and that money that he has grabbed is of no use. And all those people who have made money like that have lost it because they have put it [laughing:] in the ... in this Swiss Bank. And the Swiss Bank also doesn't avail of it. ...... If you stop the working of Swiss Bank, I tell you [that] corruption will go away. That's the only way you can stops [stop] this high class corruption. You should write, you should write about it. Americans are very clever: if you send any money from America to Switzerland, Switzerland informs, they are in deal with each other.  ......<br>
+"So, you see, in the generosity is the only way we can correct corruption. When you s... start enjoying giving, you don't grab. And such a person has na ... no reputation in the society and that money that he has grabbed is of no use. And all those people who have made money like that have lost it because they have put it [laughing:] in the ... in this Swiss Bank. And the Swiss Bank also doesn't avail of it.<br>
+
+......<br> 
+
+If you stop the working of Swiss Bank, I tell you [that] corruption will go away. That's the only way you can stops [stop] this high class corruption. You should write, you should write about it. Americans are very clever: if you send any money from America to Switzerland, Switzerland informs, they are in deal with each other.<br>  
+
+......<br>
 
 There was in a Brazil, you see, I met with the Minister of Law and also uh ... ...... Justice. Chief Justice. Both of them, I met. They were very respectful but they said that, "In our country, we had a Prime Minister who was impeached." ...... And that fellow has got now a very great job in the University of uh, what University is that?<br>
 
