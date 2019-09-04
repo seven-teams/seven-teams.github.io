@@ -8,7 +8,7 @@ tags:
 
 ![PICTURE 9](/images/image9.png)
 
-![PICTURE 20](/images/image20.png)
+<div style="text-align: center"><img src="/images/image20.png" /></div>
 
 <p style="color:purple; text-align:left;">
 <b>Chastity is the one is the Power of Śhrī Gaṇeśha</b><br>

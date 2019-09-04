@@ -8,7 +8,7 @@ tags:
 
 ![PICTURE 9](/images/image9.png)
 
-![PICTURE 19](/images/image19.png)
+<div style="text-align: center"><img src="/images/image19.png" /></div>
 
 <p style="color:purple; text-align:left;">
 <b>Time of this Transition, of this Resurrection</b><br>

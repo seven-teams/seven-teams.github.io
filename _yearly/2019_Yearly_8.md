@@ -8,7 +8,7 @@ tags:
 
 ![PICTURE 9](/images/image9.png)
 
-![PICTURE 17](/images/image17.png)
+<div style="text-align: center"><img src="/images/image17.png" /></div>
 
 <p style="color:purple; text-align:left;">
 <b>Generosity Is The Only Way We Can Correct Corruption</b><br>

@@ -8,7 +8,7 @@ tags:
 
 ![PICTURE 9](/images/image9.png)
 
-![PICTURE 16](/images/image16.png)
+<div style="text-align: center"><img src="/images/image16.png" /></div>
 
 <p style="color:purple; text-align:left;">
 <b>When He got resurrected it was the most joyous, most auspicious and most beautiful time</b><br>

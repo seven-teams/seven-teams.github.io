@@ -8,7 +8,7 @@ tags:
 
 ![PICTURE 9](/images/image9.png)
 
-![PICTURE 21](/images/image21.png)
+<div style="text-align: center"><img src="/images/image21.png" /></div>
 
 <p style="color:purple; text-align:left;">
 <b>An Entry Into The Islamic World</b><br>

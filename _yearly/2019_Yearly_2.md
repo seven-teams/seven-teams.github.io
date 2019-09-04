@@ -8,7 +8,7 @@ tags:
 
 ![PICTURE 9](/images/image9.png)
 
-![PICTURE 23](/images/image23.png)
+<div style="text-align: center"><img src="/images/image23.png" /></div>
 
 <p style="color:purple; text-align:left;">
 <b>Russians and Ukrainians Are the Highest People in Spirituality</b><br>

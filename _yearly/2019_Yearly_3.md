@@ -8,7 +8,7 @@ tags:
 
 ![PICTURE 9](/images/image9.png)
 
-![PICTURE 22](/images/image22.png)
+<div style="text-align: center"><img src="/images/image22.png" /></div>
 
 <p style="color:purple; text-align:left;">
 <b>The Person Who Has Lakṣhmī</b><br>

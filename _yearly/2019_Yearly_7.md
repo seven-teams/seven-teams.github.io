@@ -8,7 +8,7 @@ tags:
 
 ![PICTURE 9](/images/image9.png)
 
-![PICTURE 18](/images/image18.png)
+<div style="text-align: center"><img src="/images/image18.png" /></div>
 
 <p style="color:purple; text-align:left;">
 <b>You people are very advanced in your wisdom</b><br>

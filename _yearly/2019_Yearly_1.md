@@ -8,7 +8,7 @@ tags:
 
 ![PICTURE 9](/images/image9.png)
 
-![PICTURE 24](/images/image24.png)
+<div style="text-align: center"><img src="/images/image24.png" /></div>
 
 <p style="color:purple; text-align:left;">
 <b>Russian scientists are honoring Shri Mataji in the Land of Turkey</b><br>
