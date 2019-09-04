@@ -10,14 +10,14 @@ tags:
 
 <div style="text-align: center"><img src="/images/image21.png" /></div>
 
-<p style="color:purple; text-align:left;">
-<b>An Entry Into The Islamic World</b><br>
+<br>
+<p style="color:DarkOrchid; text-align:center">
+<font size="+2"><b>An Entry Into The Islamic World</b><br></font>
 </p>
 
-"I've been desiring all the time that I should go to Turkey or Tunisia where there could be an entry into the Islamic world, because they have been promised that they will be resurrected, and that Resurrection has to take place. For that I have to venture and give them their Resurrection which is promised by Muhammad Sāhab. I mean that's My duty, [laughing:] and not only duty, but I'm bound by it, that I have to tell them about their Resurrection and to save them. They deserve it, no doubt."
- 
-<p style="color:blue;">
-<b>1989-0527 Śhrī Begum Pasha (Devī) Pūjā, The Essence of Self-respect, Flat of Carla Mottina, Istanbul, Turkey</b>
+<p>
+"I've been desiring all the time that I should go to Turkey or Tunisia where there could be an entry into the Islamic world, because they have been promised that they will be resurrected, and that Resurrection has to take place. For that I have to venture and give them their Resurrection which is promised by Muhammad Sāhab. I mean that's My duty, [laughing:] and not only duty, but I'm bound by it, that I have to tell them about their Resurrection and to save them. They deserve it, no doubt."<br>
+<font color="blue"><b>1989-0527 Śhrī Begum Pasha (Devī) Pūjā, The Essence of Self-respect, Flat of Carla Mottina, Istanbul, Turkey</b></font><br>
 </p>
 
 Suggested talk on vimeo: <a href="https://vimeo.com/264489620"> https://vimeo.com/264489620</a>

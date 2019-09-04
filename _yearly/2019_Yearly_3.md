@@ -10,10 +10,12 @@ tags:
 
 <div style="text-align: center"><img src="/images/image22.png" /></div>
 
-<p style="color:purple; text-align:left;">
-<b>The Person Who Has Lakṣhmī</b><br>
+<br>
+<p style="color:DarkOrchid; text-align:center">
+<font size="+2"><b>The Person Who Has Lakṣhmī</b><br></font>
 </p>
 
+<p>
 "So with the Lakṣhmī, you must have your morality intact. 
 
 In a country like, now say, America and all such people, there are horrible films coming, and people are taking to the signs we call it alakṣhmī. 
@@ -22,10 +24,8 @@ A person who has Lakṣhmī should dress up in a decent manner, women and men. I
 
 So the wealth that you have should be seen in your temperament, in your nature, in your behavior, in your living. 
 
-Moreover, the person who has Lakṣhmī has to be a very humble man. For example, Śhrī Lakṣhmī is standing on a lotus. Lotus is the lightest flower you could think because it floats [laughing:] over the water. So, her temperament should be not of a very serious type but of a very mirthful ... And she should, she, she doesn't show off, because is such a simple thing like a lotus to stand on that."
- 
-<p style="color:blue;">
-<b>1996-0716 Śhrī Lakṣhmī Pūjā, Lakṣhmī Principle and We Have to Live like One Family, Moscow, Russia</b>
+Moreover, the person who has Lakṣhmī has to be a very humble man. For example, Śhrī Lakṣhmī is standing on a lotus. Lotus is the lightest flower you could think because it floats [laughing:] over the water. So, her temperament should be not of a very serious type but of a very mirthful ... And she should, she, she doesn't show off, because is such a simple thing like a lotus to stand on that."<br>
+<font color="blue"><b>1996-0716 Śhrī Lakṣhmī Pūjā, Lakṣhmī Principle and We Have to Live like One Family, Moscow, Russia</b></font><br>
 </p>
 
 Suggested talk on vimeo: <a href="https://vimeo.com/113281959"> https://vimeo.com/113281959</a>
