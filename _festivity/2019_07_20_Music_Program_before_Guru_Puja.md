@@ -19,7 +19,7 @@ May God bless you all."</font><br>
 
 <div style="text-align: center"><img src="/images/image8.png" /></div>
 
-<p style="color:FireBrick; text-align:center;">
+<p style="color:DarkRed; text-align:center;">
 When thus I lose myself in Thee, my God,<br>
 Then do I see, and know,<br>
 That all Thy universe reveals Thy beauty,<br>
