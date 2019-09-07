@@ -36,7 +36,7 @@ And fill me wholly with Thyself.<br>
 <p style="text-align:center;"><b>Sant Tukaram (17th century poet-saint)</b><br></p>  
 
 <font size="+2"><b>Today’s Suggested Video:</b></font> 1998-0711 Entertainment Program before Guru Puja<br>
-[www.youtube.com/watch?time_continue=10791&v=aHW-KTHeocU](video)<br>
+<a href="https://youtu.be/aHW-KTHeocU"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
