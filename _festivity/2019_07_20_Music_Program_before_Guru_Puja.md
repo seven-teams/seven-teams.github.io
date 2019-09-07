@@ -35,28 +35,26 @@ And fill me wholly with Thyself.<br>
 </p>
 <p style="text-align:center;"><b>Sant Tukaram (17th century poet-saint)</b><br></p>  
 
-<font size="+2"><b>Today’s Suggested Video:</b></font> 1998-0711 Entertainment Program before Guru Puja  
-
-[www.youtube.com/watch?time_continue=10791&v=aHW-KTHeocU](www.youtube.com/watch?time_continue=10791&v=aHW-KTHeocU)
+<font size="+2"><b>Today’s Suggested Video:</b></font> 1998-0711 Entertainment Program before Guru Puja<br>
+<a href="https://youtu.be/aHW-KTHeocU"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p style="color:green; text-align:left;">
 <b>Mohe ek pal chain na aawe</b> by Rajiv Bagadthey<br>
 </p>
-
-[www.youtube.com/watch?v=bTJfxnOF53s](www.youtube.com/watch?v=bTJfxnOF53s)
+[www.youtube.com/watch?v=bTJfxnOF53s](video)<br>
 
 <p style="color:green; text-align:left;">
 <b>Guru Paramatma Pareshu</b> by Suresh Wadkar<br>
 </p>
-[www.youtube.com/watch?v=R6M4IgAHMcE](www.youtube.com/watch?v=R6M4IgAHMcE)
+[www.youtube.com/watch?v=R6M4IgAHMcE](video)<br>
 
 <p style="color:green; text-align:left;">
 <b>Nanak Mohammad, Ibrahim</b><br>
 </p>
 
-[www.youtube.com/watch?v=wfCyNpxW3Ms](www.youtube.com/watch?v=wfCyNpxW3Ms)
+[www.youtube.com/watch?v=wfCyNpxW3Ms](video)<br>
 
 Jay Shri Mataji!
 
