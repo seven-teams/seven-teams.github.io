@@ -43,18 +43,17 @@ And fill me wholly with Thyself.<br>
 <p style="color:green; text-align:left;">
 <b>Mohe ek pal chain na aawe</b> by Rajiv Bagadthey<br>
 </p>
-[www.youtube.com/watch?v=bTJfxnOF53s](video)<br>
+<a href="https://youtu.be/bTJfxnOF53s"> video</a><br>
 
 <p style="color:green; text-align:left;">
 <b>Guru Paramatma Pareshu</b> by Suresh Wadkar<br>
 </p>
-[www.youtube.com/watch?v=R6M4IgAHMcE](video)<br>
+<a href="https://youtu.be/R6M4IgAHMcE"> video</a><br>
 
 <p style="color:green; text-align:left;">
 <b>Nanak Mohammad, Ibrahim</b><br>
 </p>
-
-[www.youtube.com/watch?v=wfCyNpxW3Ms](video)<br>
+<a href="https://youtu.be/wfCyNpxW3Ms"> video</a><br>
 
 Jay Shri Mataji!
 
