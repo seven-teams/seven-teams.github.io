@@ -9,7 +9,7 @@ tags:
 ![PICTURE 1](/images/image1.png)
 
 <p>
-<font color="DarkGreen">"<b>Rakhi is Protecting Power.</b> Its bond is very strong and extremely tender because it symbolizes the noble love of sister. Customarily, tying a Rakhi to someone is establishing a place of Pure Protection. However, man’s ability to understand love has become so feeble that tying of Rakhi has become merely a mechanical process. All beautiful human traditions become lifeless and dry formalities if there is no warmth of faith in them.<br>
+<font color="DarkRed">"<b>Rakhi is Protecting Power.</b> Its bond is very strong and extremely tender because it symbolizes the noble love of sister. Customarily, tying a Rakhi to someone is establishing a place of Pure Protection. However, man’s ability to understand love has become so feeble that tying of Rakhi has become merely a mechanical process. All beautiful human traditions become lifeless and dry formalities if there is no warmth of faith in them.<br>
 ....<br>
 <b>Rakhi Pūrnimā is a day of great significance.</b> On that day you should ask for perfection, make big decisions and keep attention on high ideals. Sahaja Yogis should not destroy their attention on trifle issues. Lot of work has yet to be done."</font><br>
 <b>1978-0817 Letter (Marathi) on Rakshābandhan and Pūrnimā Day (0818), London, UK</b>
@@ -20,7 +20,7 @@ tags:
 <br>
 
 <p>
-<font color="DarkRed">"<b>Today in India, we celebrate a special festival. It is called as Rakshābandhan.</b> 'Raksha' means protection and ‘bandhan’ means the bondage – the bondage of protection. It’s a very nice, good, social custom to have this beautiful festival today. Today is the full moon day and this day what we do is to tie a band of threads around the person whom you want to protect. It is done between brothers and sisters.<br>
+<font color="Maroon">"<b>Today in India, we celebrate a special festival. It is called as Rakshābandhan.</b> 'Raksha' means protection and ‘bandhan’ means the bondage – the bondage of protection. It’s a very nice, good, social custom to have this beautiful festival today. Today is the full moon day and this day what we do is to tie a band of threads around the person whom you want to protect. It is done between brothers and sisters.<br>
 The sisters tie this bondage to the wrist of the brothers, and when we do that, they’re putting all their love around the wrist, that it is the day for giving all their love, everything to their brother, as a protection, as a symbol of their protection through that thread. It’s a very, very simple thread they use. And this is has to be tied on the left hand side. But people tie it on the right hand side, which is a mistake, but it has to be tied on the left hand side."</font><br>
 <b>1980-0826 Rakshābandhan, Caxton Hall, Westminster, London, UK</b>
 </p>
