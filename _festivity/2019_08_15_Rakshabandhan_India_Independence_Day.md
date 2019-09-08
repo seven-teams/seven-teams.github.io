@@ -10,14 +10,22 @@ tags:
 
 <p>
 <font color="DarkRed">"<b>Rakhi is Protecting Power.</b> Its bond is very strong and extremely tender because it symbolizes the noble love of sister. Customarily, tying a Rakhi to someone is establishing a place of Pure Protection. However, man’s ability to understand love has become so feeble that tying of Rakhi has become merely a mechanical process. All beautiful human traditions become lifeless and dry formalities if there is no warmth of faith in them.<br>
-....<br>
+......<br>
 <b>Rakhi Pūrnimā is a day of great significance.</b> On that day you should ask for perfection, make big decisions and keep attention on high ideals. Sahaja Yogis should not destroy their attention on trifle issues. Lot of work has yet to be done."</font><br>
 <b>1978-0817 Letter (Marathi) on Rakshābandhan and Pūrnimā Day (0818), London, UK</b>
 </p>
 
 <div style="text-align: center"><img src="/images/image25.png" /></div>
 
-<br>
+<p style="color:MediumBlue; text-align:center;">
+You are my brothers and sisters<br>
+Because you are human,<br>
+And we all are sons and daughters<br>
+Of one Holy Spirit;<br>
+We are equal and made of the same Earth.<br>
+</p>
+<p style="text-align:center;"><b>(My Brethren: Kahlil Gibran)</b>
+</p>
 
 <p>
 <font color="Maroon">"<b>Today in India, we celebrate a special festival. It is called as Rakshābandhan.</b> 'Raksha' means protection and ‘bandhan’ means the bondage – the bondage of protection. It’s a very nice, good, social custom to have this beautiful festival today. Today is the full moon day and this day what we do is to tie a band of threads around the person whom you want to protect. It is done between brothers and sisters.<br>
