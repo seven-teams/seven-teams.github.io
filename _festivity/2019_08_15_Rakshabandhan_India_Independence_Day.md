@@ -54,7 +54,7 @@ So one has to understand this relationship is to be kept very clean, beautiful, 
 <p>
 <p style="text-align:center;">
 <font color="Blue"><b>If you call somebody a sister, then not only that you do for her the way you would do for your sister, 
-but in all your relationships, in all your festivals, in all the weddings in the family, she is treated like a sister."</font><br>
+but in all your relationships, in all your festivals, in all the weddings in the family, she is treated like a sister."</b></font><br>
 <b>1984-0811 Rakshabandhan and Havan, Maryadas, Hounslow, London, UK</b>
 </p>
 
