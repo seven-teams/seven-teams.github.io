@@ -53,13 +53,13 @@ So one has to understand this relationship is to be kept very clean, beautiful, 
 
 <p>
 <p style="text-align:center;">
-<font color="Blue"><b>If you call somebody a sister, then not only that you do for her the way you would do for your sister, 
+<font color="Blue"><b>"If you call somebody a sister, then not only that you do for her the way you would do for your sister, 
 but in all your relationships, in all your festivals, in all the weddings in the family, she is treated like a sister."</b></font><br>
-<b>1984-0811 Rakshabandhan and Havan, Maryadas, Hounslow, London, UK</b>
+<font size="-1"><b>1984-0811 Rakshabandhan and Havan, Maryadas, Hounslow, London, UK</b></font>
 </p>
 
 <p>
-<font color="DarkGreen">"Is so important, that on this day if this is tied on your wrist, then you become brothers and sisters. Now, <b>in Sahaja Yoga brotherhood is the most important.</b> That is the friendliness among ourselves. When you are very good brothers and sisters, first of all, your left Vishuddhi improves.<br>
+<font color="DarkRed">"Is so important, that on this day if this is tied on your wrist, then you become brothers and sisters. Now, <b>in Sahaja Yoga brotherhood is the most important.</b> That is the friendliness among ourselves. When you are very good brothers and sisters, first of all, your left Vishuddhi improves.<br>
 This left Vishuddhi. You get this left Vishuddhi, because we don’t have proper brother and sister relationship.<br>
 Is not that we should have our own sister, but any woman who is a Sahaja Yogini is your sister. Except for your own wife. And this is the feeling. Unless and until we develop that pure feeling within ourselves, we cannot work out Sahaja Yoga. Sahaja Yoga cannot be worked out. I know it’s rather difficult to digest, but is a fact. You have to feel clean and pure within your heart."</font><br>
 <b>1986-0818 Rakshābandhan, Room, Ashram, Hampstead, London, UK</b>
@@ -67,7 +67,7 @@ Is not that we should have our own sister, but any woman who is a Sahaja Yogini 
 
 <div style="text-align: center"><img src="/images/image28.png" /></div>
 
-<p style="color:Blue; text-align:center;">
+<p style="color:Navy; text-align:center;">
 Sapta koti kantha kalakala ninaada karaale<br>
 nisapta koti bhujaidhruta kharakarvaale<br>
 sapta koti kantha kalakala ninaada karaale<br>
@@ -98,14 +98,13 @@ Mother, to thee I praise thee.</font><br>
 <div style="text-align: center"><img src="/images/image29.png" /></div>
 
 <p style="color:DarkOliveGreen; text-align:center;">
-<font size="+2">Ma Teri Jay Ho Tera Hi Vijay Ho,<\font><br>
+<font size="+2">Ma Teri Jay Ho Tera Hi Vijay Ho,</font><br>
 Victory be to You, O Mother India<br>
 <font size="+2">Tere Geet Se Aaj Jag Ye Jivit Ho,</font><br>
 Let this world get alive today with Your song!<br>
 <font size="+2">Ma Teri Jay Ho.</font><br>
 Victory be to You, O Mother India!<br>
-</p>
-<p style="text-align:center;"><b>Ma Teri Jay ho sung by Shri Mataji Nirmala Devi</b><a href="https://www.youtube.com/watch?v=L4iJtXr9jbI">Bhajan sung by Shri Mataji</a>
+<a href="https://www.youtube.com/watch?v=L4iJtXr9jbI">  Ma Teri Jay Ho sung by Shri Mataji</a>
 </p>
 
 
