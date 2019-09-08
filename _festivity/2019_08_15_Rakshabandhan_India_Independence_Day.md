@@ -17,14 +17,14 @@ tags:
 
 <div style="text-align: center"><img src="/images/image25.png" /></div>
 
-<p style="color:MediumBlue; text-align:center;">
+<p style="color:Navy; text-align:center;">
 You are my brothers and sisters<br>
 Because you are human,<br>
 And we all are sons and daughters<br>
 Of one Holy Spirit;<br>
 We are equal and made of the same Earth.<br>
 </p>
-<p style="text-align:center;"><b>(My Brethren: Kahlil Gibran)</b>
+<p style="text-align:center;"><b>(`My Brethren' by Kahlil Gibran)</b>
 </p>
 
 <p>
@@ -36,8 +36,8 @@ The sisters tie this bondage to the wrist of the brothers, and when we do that, 
 <div style="text-align: center"><img src="/images/image26.png" /></div>
 
 <p style="text-align:center;">
-<b>Baba Mama, (March 1990): This is what the brother has written for the sister:<br>
-"O Nirmala, my sister, how much should I praise You? Because You have given the human being the experience of God."</b><br>
+<font size="-1"><b>Baba Mama, (March 1990): This is what the brother has written for the sister:<br>
+"O Nirmala, my sister, how much should I praise You? Because You have given the human being the experience of God."</b></font><br>
 <a href="https://www.youtube.com/watch?v=ErGWNRdwSBE">Nirmalaa, Kiti Varnaavi Tujhiga Stuti</a>
 </p>
 
