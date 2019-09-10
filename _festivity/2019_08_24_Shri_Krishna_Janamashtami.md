@@ -109,7 +109,7 @@ Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!<br></p>
 
 <p>
 <font color="green"><b>Madhurashtakam (Shri Krishna song)</b></font><br>
-Stotram by Shri vallabhacharya in sanskrit (1479–1531 CE)<br>
+Stotram by Shri Vallabhacharya in sanskrit (1479–1531 CE)<br>
 <a href="https://www.youtube.com/watch?v=e986Ho3yag8&list=PLA223369282044EC4&index=5">video</a><br>
 </p>
 
