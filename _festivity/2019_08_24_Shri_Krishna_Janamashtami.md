@@ -42,7 +42,7 @@ Establish Shri Krishna, Who is the Charming One, within your heart!</b></font><b
 <p>
 <font color="DarkRed">"Today we are celebrating here in this holy land the birthday of Shrī Kṛiṣhṇa.<br>
 Shrī Kṛiṣhṇa is the ultimate of the fatherhood, that I described you before, who came on this Earth and illustrated the ultimate of that. So on this Earth, the highest fatherhood is Shrī Kṛiṣhṇa’s awareness.<br>
-But in the Kingdom of God, we can say in Heavens, or even above everything else, resides Sadāshiva who does not take incarnations. He is one of the aspects, Shrī Kṛiṣhṇa is one of the aspects of Sadāshiva which is the Father. And the Ādi Shakti or the Holy Ghost is the other aspect of Sadāshiva which is His power. So when Shrī Kṛiṣhṇa incarnated on this Earth, an aspect of this Ādi Shakti came on this Earth as Rādhā."<br>
+But in the Kingdom of God, we can say in Heavens, or even above everything else, resides Sadāshiva who does not take incarnations. He is one of the aspects, Shrī Kṛiṣhṇa is one of the aspects of Sadāshiva which is the Father. And the Ādi Shakti or the Holy Ghost is the other aspect of Sadāshiva which is His power. So when Shrī Kṛiṣhṇa incarnated on this Earth, an aspect of this Ādi Shakti came on this Earth as Rādhā."</font><br>
 <b>1983-0828 Śhrī Kṛiṣhṇa Pūjā, Tannay (13 kms N of Geneva), Switzerland</b>
 </p>
 
@@ -54,7 +54,7 @@ Aum twameva sakshat Shri Mahā-virāta sakshat Shri Adi Shakti Mataji Shri Nirma
 </p>
 
 <p>
-<font color="DarkRed">"Thank you. What fruits you have, shasya shamalam. Beautiful country you have, is Gokul itself, Vrindavan itself. I’m very happy I could come again.This is the first time that, Janmashtami, I’m here first time. And today I’m wearing a sarī that Rādhā used to wear this kind, is all hand and dyed, is made with tying up every knot, thousands of knots like the thousand chakras. And what is our brain? Is nothing but Virāta itself. Brain is the place of Virāta, so the whole central nervous system is guided by this brain and the brains of the universe is America."<br>
+<font color="DarkRed">"Thank you. What fruits you have, shasya shamalam. Beautiful country you have, is Gokul itself, Vrindavan itself. I’m very happy I could come again.This is the first time that, Janmashtami, I’m here first time. And today I’m wearing a sarī that Rādhā used to wear this kind, is all hand and dyed, is made with tying up every knot, thousands of knots like the thousand chakras. And what is our brain? Is nothing but Virāta itself. Brain is the place of Virāta, so the whole central nervous system is guided by this brain and the brains of the universe is America."</font><br>
 <b>1984-0819 Shrī Kṛiṣhṇa Pūjā (Janmashtami Day), Tent, around Englewood, NJ, U.S.A.</b>
 </p>
 
@@ -62,12 +62,12 @@ Aum twameva sakshat Shri Mahā-virāta sakshat Shri Adi Shakti Mataji Shri Nirma
 <font color="DarkRed">"Brain is the place of Virāta, so the whole central nervous system is guided by this brain and the brains of the universe is America.
 But it’s crazy now.<br>
 ......<br>
-The brain has gone crazy. The brain of the universe, crazy Americans. They are known like that. English are mad, Americans are crazy. Children are enjoying violence. Imagine, everything is just the opposite of what you should have been. You should have been the wisest, the sanest and the most confident ones, are crazy people."<br>
+The brain has gone crazy. The brain of the universe, crazy Americans. They are known like that. English are mad, Americans are crazy. Children are enjoying violence. Imagine, everything is just the opposite of what you should have been. You should have been the wisest, the sanest and the most confident ones, are crazy people."</font><br>
 <b>1984-0819 Shrī Kṛiṣhṇa Pūjā (Janmashtami Day), Tent, around Englewood, NJ, U.S.A.</b>
 </p>
 
 <p>
-<font color="DarkRed">"Shrī Kṛiṣhṇa, who is the Virāt, who is the great primordial personality, didn’t show any such signs of His greatness. But Americans have a specialty to show that they are something outstandingly great. But Sahaja Yogis, please don’t learn those things. You have to make others unlearn. If that cannot happen, it’s better to leave Sahaja Yoga for ever. Such people will make everyone miserable and destroy Sahaja Yoga in America."<br>
+<font color="DarkRed">"Shrī Kṛiṣhṇa, who is the Virāt, who is the great primordial personality, didn’t show any such signs of His greatness. But Americans have a specialty to show that they are something outstandingly great. But Sahaja Yogis, please don’t learn those things. You have to make others unlearn. If that cannot happen, it’s better to leave Sahaja Yoga for ever. Such people will make everyone miserable and destroy Sahaja Yoga in America."</font><br>
 <b>1996-0929 Shrī Kṛiṣhṇa Pūjā, Camp Vacamas,  NJ, U.S.A.</b>
 </p>
 
@@ -76,7 +76,7 @@ The brain has gone crazy. The brain of the universe, crazy Americans. They are k
 <p>
 <font color="DarkRed">"Their intellect which is also, I should say is the brain, which is the seat of Virāṭ. Can you imagine? Is the seat of Virāṭ. And with their intellect, what do they do? They say it is natural. It is natural to be adhārmik. It is natural to be aggressive. It is natural to be money-oriented. Everything that they have is all natural because according to them with their intellect they have somehow or other managed to convince through your rationality that this is the correct thing to do.<br>
 ......<br>
-Because everybody’s guru is America. It starts from America, the gurudom and people just follow blindly. So the violence is now entering into our films."<br>
+Because everybody’s guru is America. It starts from America, the gurudom and people just follow blindly. So the violence is now entering into our films."</font><br>
 <b>1994-0828 Śhrī Kṛiṣhṇa Pūjā (English+Marathi), Cabella Ligure, Italy</b>
 </p>
 
