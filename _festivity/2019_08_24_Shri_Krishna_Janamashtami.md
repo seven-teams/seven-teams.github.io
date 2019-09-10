@@ -88,7 +88,7 @@ Because everybody’s guru is America. It starts from America, the gurudom and p
 </p>
 
 <p>
-<font color="DarkRed"><b>"Unless and until this America is put right, Śhrī Kṛiṣhṇa is not going to leave My throat, I tell you. So, as America, I say, is the place of Śhrī Kṛiṣhṇa’s auspiciousness."</b><br>
+<font color="DarkRed"><b>"Unless and until this America is put right, Śhrī Kṛiṣhṇa is not going to leave My throat, I tell you. So, as America, I say, is the place of Śhrī Kṛiṣhṇa’s auspiciousness."</b></font><br>
 <b>1994-1002 Śhrī Yogeśhwara Pūjā, Camp Vacamas, 256 Macopin Road, West Milford, NJ, U.S.A.</b>
 </p>
 
