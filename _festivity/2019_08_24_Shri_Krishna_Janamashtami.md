@@ -32,10 +32,10 @@ You are the integrated brain of divinity.<br>
 <div style="text-align: center"><img src="/images/image31.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
-<font size="-1">Krishna Govind. Govind Gaya Karo<br>
+<font size="-1"><b>Krishna Govind. Govind Gaya Karo<br>
 Sing every day the praise of Shri Krishna<br>
 Pyara Mohan Hriday me Bithaya Karo<br>
-Establish Shri Krishna, Who is the Charming One, within your heart!</font><br>
+Establish Shri Krishna, Who is the Charming One, within your heart!</b></font><br>
 <a href="https://www.youtube.com/watch?v=H_-4d_cwBjE"> video</a>
 </p>
 
