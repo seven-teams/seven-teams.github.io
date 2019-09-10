@@ -48,7 +48,7 @@ But in the Kingdom of God, we can say in Heavens, or even above everything else,
 
 <div style="text-align: center"><img src="/images/image32.png" /></div>
 
-<p style="color:Navy; text-align:center;">
+<p style="color:Blue; text-align:center;">
 Aum twameva sakshat Shri Mahā-virāta sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!<br>
 </p>
 
@@ -75,6 +75,11 @@ The brain has gone crazy. The brain of the universe, crazy Americans. They are k
 
 <div style="text-align: center"><img src="/images/image33.png" /></div>
 
+<p style="color:Blue; text-align:center;">
+Aum twameva sakshat Shri Americ'eshwara sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!<br></p>
+<p style="text-align:center;"><b>You are the lord of America</b><br>
+</p>
+
 <p>
 <font color="DarkRed">"Their intellect which is also, I should say is the brain, which is the seat of Virāṭ. Can you imagine? Is the seat of Virāṭ. And with their intellect, what do they do? They say it is natural. It is natural to be adhārmik. It is natural to be aggressive. It is natural to be money-oriented. Everything that they have is all natural because according to them with their intellect they have somehow or other managed to convince through your rationality that this is the correct thing to do.<br>
 ......<br>
@@ -89,10 +94,10 @@ Because everybody’s guru is America. It starts from America, the gurudom and p
 
 <div style="text-align: center"><img src="/images/image34.png" /></div>
 
-<p style="color:Navy; text-align:center;">
+<p style="color:Blue; text-align:center;">
 Aum twameva sakshat Shri Mātṛu-charan’āmṛuta-priya<br>
 Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!<br></p>
-<p style="text-align:center;"><b>You are the  The one who enjoys the amrut of the Lotus Feet of Shri Mataji.<b><br>
+<p style="text-align:center;"><b>You are the the one who enjoys the amrut of the Lotus Feet of Shri Mataji</b><br>
 </p>
 
 <p>
