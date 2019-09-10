@@ -3,7 +3,8 @@ title: '2019 Rakshabandhan Celebrations on India Independence Day'
 date: 2019-08-15
 permalink: /festivity/2019/0815
 tags:
- - Rakshabandhan, India
+ - Rakshabandhan
+ - India
 ---
 
 ![PICTURE 1](/images/image1.png)
