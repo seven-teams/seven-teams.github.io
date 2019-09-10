@@ -16,7 +16,7 @@ tags:
 
 <div style="text-align: center"><img src="/images/image30.png" /></div>
 
-<p style="color:Navy; text-align:center;">
+<p style="color:Blue; text-align:center;">
 You are the Father, yet You are the friend.<br>
 You are the revelation of ultimate fatherhood.<br>
 You manifest Shri Sadashiva (Lord God Almighty).<br>
@@ -25,7 +25,7 @@ You are the integrated brain of divinity.<br>
 </p>
 
 <p>
-<font color="DarkRed">"With the understanding that today is the day – in the night about 12 o’clock, now it must be about 12 o’clock in India also, about that, so it matches – He was born at this time in the night, because it was real night symbolically, under horrible circumstances He came. At a time then, when His own birth was very dangerously placed, He was saved and then in His very childhood He killed Rakshasas. But all this He did because He was an incarnation."<br>
+<font color="DarkRed">"With the understanding that today is the day – in the night about 12 o’clock, now it must be about 12 o’clock in India also, about that, so it matches – He was born at this time in the night, because it was real night symbolically, under horrible circumstances He came. At a time then, when His own birth was very dangerously placed, He was saved and then in His very childhood He killed Rakshasas. But all this He did because He was an incarnation."</font><br>
 <b>1982-0815 Shri Yogeshwara Puja, Ashram, 44 Chelsham Road, London, UK</b>
 </p>
 
