@@ -3,7 +3,7 @@ title: '2019 Music Program before Guru Puja '
 date: 2019-07-20
 permalink: /festivity/2019/0720
 tags:
-  - Guru Puja, Music Program
+  - Guru Puja; Music Program
 ---
 
 ![PICTURE 1](/images/image1.png)
