@@ -100,9 +100,7 @@ Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!<br></p>
 <p style="text-align:center;"><b>You are the the one who enjoys the amrut of the Lotus Feet of Shri Mataji</b><br>
 </p>
 
-<p>
 <font size="+2"><b>Suggested Talk:</b></font> 1993-0815 Shri Krishna Puja Talk, Cabella Ligure, Italy<br><a href="https://www.youtube.com/watch?v=IP0HjBdb230"> video</a><br>
-</p>
 
 <br>
 <font size="+2"><b>Bhajans:</b></font>
@@ -124,12 +122,12 @@ Stotram by Shri Vallabhacharya in sanskrit (1479–1531 CE)<br>
 </p>
 
 <p>
-<font color="green"><b>Keshava Madhava</b></font><br>
+<font color="green"><b>Keshava Madhava 1991-0901 Shri Krishna Puja</b></font><br>
 <a href="https://www.youtube.com/watch?v=nJzN90-qk8Q">video</a><br>
 </p>
 
 <p>
-<font color="green"><b>Radha Krishna Bhajele</b></font><br>
+<font color="green"><b>Radha Krishna Bhajele 1987-0816 Shri Krishna Puja</b></font><br>
 <a href="https://www.youtube.com/watch?v=P8g8UR1ZaU8&feature=youtu.be">video</a><br>
 </p>
 
@@ -139,7 +137,7 @@ Stotram by Shri Vallabhacharya in sanskrit (1479–1531 CE)<br>
 </p>
 
 <p>
-<font color="green"><b>Aarti 1987 08 16 Shri Krishna Puja</b></font><br>
+<font color="green"><b>Aarti 1987-0816 Shri Krishna Puja</b></font><br>
 <a href="https://www.youtube.com/watch?v=DEzt1vmETlk">video</a><br>
 </p>
 
