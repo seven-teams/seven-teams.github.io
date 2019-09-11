@@ -94,7 +94,7 @@ Because everybody’s guru is America. It starts from America, the gurudom and p
 
 <p style="text-align:center;">
 <font color="Blue">Aum twameva sakshat Shri Mātṛu-charan’āmṛuta-priya<br>
-Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!</font><br><
+Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!</font><br>
 <b>You are the the one who enjoys the amrut of the Lotus Feet of Shri Mataji</b><br>
 </p>
 
