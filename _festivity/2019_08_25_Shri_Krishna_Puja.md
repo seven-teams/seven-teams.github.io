@@ -18,8 +18,8 @@ So as Shrī Viṣhṇu, when He thought of taking His incarnation, because He is
 
 <p style="text-align:center;">
 <font color="Blue"><b>Aum twameva sakshat Shri Krishna sakshat Shri Adi Shakti  Mataji Shri Nirmala devyai Namo Namah!</b></font><br>
-You are The supreme power of the dark-blue God (the eighth Incarnation of Shri Vishnu)<br>
-You sowed the seed of Spirituality<br>
+<b>You are The supreme power of the dark-blue God (the eighth Incarnation of Shri Vishnu)<br>
+You sowed the seed of Spirituality</b><br>
 </p>
 
 <p>
