@@ -100,7 +100,6 @@ You will unite the nations of the Earth at the lotus feet of Shri Adi Shakti Nir
 
 <font size="+2"><b>Suggested Talk:</b></font> 1994-1002 Śhrī Yogeśhwara Pūjā, Śhrī Kṛiṣhṇa and the Enlightenment of the Brain, Camp Vacamas, 256 Macopin Road, West Milford, NJ, U.S.A.<br><a href="https://soundcloud.com/sahaja-library/1994-1002-shri-yogeshwara-puja-1"> audio1</a> <a href="https://soundcloud.com/sahaja-library/1994-1002-shri-yogeshwara-puja-2"> audio2</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
