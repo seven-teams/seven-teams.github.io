@@ -74,8 +74,8 @@ The brain has gone crazy. The brain of the universe, crazy Americans. They are k
 <div style="text-align: center"><img src="/images/image33.png" /></div>
 
 <p style="text-align:center;">
-Aum twameva sakshat Shri Americ'eshwara sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!<br>
-<font color="Blue";><b>You are the lord of America</b></font><br>
+<font color="Blue">Aum twameva sakshat Shri Americ'eshwara sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!</font><br>
+<b>You are the lord of America</b><br>
 </p>
 
 <p>
