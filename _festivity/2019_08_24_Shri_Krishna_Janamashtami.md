@@ -93,9 +93,9 @@ Because everybody’s guru is America. It starts from America, the gurudom and p
 <div style="text-align: center"><img src="/images/image34.png" /></div>
 
 <p style="text-align:center;">
-Aum twameva sakshat Shri Mātṛu-charan’āmṛuta-priya<br>
-Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!<br><
-<font color="Blue";><b>You are the the one who enjoys the amrut of the Lotus Feet of Shri Mataji</b></font><br>
+<font color="Blue">Aum twameva sakshat Shri Mātṛu-charan’āmṛuta-priya<br>
+Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!</font><br><
+<b>You are the the one who enjoys the amrut of the Lotus Feet of Shri Mataji</b><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 1993-0815 Shri Krishna Puja Talk, Cabella Ligure, Italy<br><a href="https://www.youtube.com/watch?v=IP0HjBdb230"> video</a><br>
