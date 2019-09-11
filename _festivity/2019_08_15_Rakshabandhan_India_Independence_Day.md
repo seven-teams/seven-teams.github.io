@@ -18,14 +18,13 @@ tags:
 
 <div style="text-align: center"><img src="/images/image25.png" /></div>
 
-<p style="color:Navy; text-align:center;">
+<p style="text-align:center;">
 You are my brothers and sisters<br>
 Because you are human,<br>
 And we all are sons and daughters<br>
 Of one Holy Spirit;<br>
 We are equal and made of the same Earth.<br>
-</p>
-<p style="text-align:center;"><b>(`My Brethren' by Kahlil Gibran)</b>
+<font color="Navy;"><b>(`My Brethren' by Kahlil Gibran)</b></font>
 </p>
 
 <p>
@@ -122,6 +121,5 @@ Victory be to You, O Mother India!<br>
 <b>Rakhi offered to Shri Mataji from America 1993 0815 Shri Krishna Puja, Dharma, Cabella</b><br><a href="https://www.youtube.com/watch?v=5fwXzXBnz_o&feature=youtu.be"> video</a><br>
 </p>
 
-
-Jay Shri Mataji!<br>
+Jai Shri Mataji!<br>
 On behalf of the festivity team

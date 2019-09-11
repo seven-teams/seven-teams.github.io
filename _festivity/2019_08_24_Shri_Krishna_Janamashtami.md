@@ -75,9 +75,9 @@ The brain has gone crazy. The brain of the universe, crazy Americans. They are k
 
 <div style="text-align: center"><img src="/images/image33.png" /></div>
 
-<p style="color:Blue; text-align:center;">
-Aum twameva sakshat Shri Americ'eshwara sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!<br></p>
-<p style="text-align:center;"><b>You are the lord of America</b><br>
+<p style="text-align:center;">
+Aum twameva sakshat Shri Americ'eshwara sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!<br>
+<font color="Blue";><b>You are the lord of America</b></font><br>
 </p>
 
 <p>
@@ -94,12 +94,10 @@ Because everybody’s guru is America. It starts from America, the gurudom and p
 
 <div style="text-align: center"><img src="/images/image34.png" /></div>
 
-<p style="color:Blue; text-align:center;">
+<p style="text-align:center;">
 Aum twameva sakshat Shri Mātṛu-charan’āmṛuta-priya<br>
-Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!<br></p>
-
-<p>
-<p style="text-align:center;"><b>You are the the one who enjoys the amrut of the Lotus Feet of Shri Mataji</b><br>
+Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!<br><
+<font color="Blue";><b>You are the the one who enjoys the amrut of the Lotus Feet of Shri Mataji</b></font><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 1993-0815 Shri Krishna Puja Talk, Cabella Ligure, Italy<br><a href="https://www.youtube.com/watch?v=IP0HjBdb230"> video</a><br>
@@ -143,5 +141,5 @@ Stotram by Shri Vallabhacharya in sanskrit (1479–1531 CE)<br>
 <a href="https://www.youtube.com/watch?v=DEzt1vmETlk">video</a><br>
 </p>
 
-Jay Shri Mataji!<br>
+Jai Shri Mataji!<br>
 On behalf of the festivity team

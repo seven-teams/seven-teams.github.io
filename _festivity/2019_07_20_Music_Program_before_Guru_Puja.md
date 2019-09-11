@@ -53,6 +53,5 @@ And fill me wholly with Thyself.<br></font>
 <b>Nanak Mohammad, Ibrahim</b><br><a href="https://youtu.be/wfCyNpxW3Ms"> video</a><br>
 </p>
 
-
-Jay Shri Mataji!<br>
+Jai Shri Mataji!<br>
 On behalf of the festivity team
