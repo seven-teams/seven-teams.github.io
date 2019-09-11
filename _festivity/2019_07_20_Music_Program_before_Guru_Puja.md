@@ -20,7 +20,8 @@ May God bless you all."</font><br>
 
 <div style="text-align: center"><img src="/images/image8.png" /></div>
 
-<p style="color:DarkRed; text-align:center;">
+<p style="text-align:center;">
+<font color="DarkRed;"> 
 When thus I lose myself in Thee, my God,<br>
 Then do I see, and know,<br>
 That all Thy universe reveals Thy beauty,<br>
@@ -32,9 +33,9 @@ Is but the voice<br>
 In which Thyself Thou speakest unto us.<br>
 What need of words?<br>
 Come, Master, come,<br>
-And fill me wholly with Thyself.<br>
-</p>
-<p style="text-align:center;"><b>Sant Tukaram (17th century poet-saint)</b><br></p>  
+And fill me wholly with Thyself.<br></font>
+<b>Sant Tukaram (17th century poet-saint)</b><br>
+</p>  
 
 <font size="+2"><b>Today’s Suggested Video:</b></font> 1998-0711 Entertainment Program before Guru Puja<br><a href="https://youtu.be/aHW-KTHeocU"> video</a><br>
 
