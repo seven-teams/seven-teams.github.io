@@ -60,7 +60,7 @@ As they worship their innocent Lord<br></b>
 <div style="text-align: center"><img src="/images/image42.png" /></div>
 
 <p style="text-align:center;">
-	<font color="DarkGreen;">
+	<font color="DarkGreen">
 You are the only support of the world,<br>
 Because you are in the form of Earth.<br>
 By you who exists in the form of water,<br>
