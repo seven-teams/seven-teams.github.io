@@ -31,8 +31,8 @@ So many aspects of His being have been described in so many of My lectures to yo
 <div style="text-align: center"><img src="/images/image36.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkOrchid";><b>Aum twameva sakshat Shri Yogeshwara sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai namo namah!</b></font><br>
-<font color="DarkGreen";><b>You are the Primordial Being.<br>
+<font color="DarkOrchid"><b>Aum twameva sakshat Shri Yogeshwara sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai namo namah!</b></font><br>
+<font color="DarkGreen"><b>You are the Primordial Being.<br>
  You are the Ishwara (God) of the Yogis.<br>
 You are the God of Yoga.<br>
 You are our ideal in its highest glory.<br>
