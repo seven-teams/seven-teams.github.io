@@ -50,7 +50,7 @@ But in the Kingdom of God, we can say in Heavens, or even above everything else,
 
 <p style="text-align:center;">
 <font color="Blue">Aum twameva sakshat Shri Mahā-virāta sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!</font><br>
-<b>You are the Universal Being of which everything is a part.</b><br>
+<b>You are the Universal Being of which everything is a part</b><br>
 </p>
 
 <p>
