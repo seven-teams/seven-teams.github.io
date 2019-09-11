@@ -68,9 +68,9 @@ This is a sign of a Yogeshwara. That’s how you have to be, in a mood which is 
 <div style="text-align: center"><img src="/images/image38.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkOrchid";><b>Aum twameva sakshat Shri  Suhāsya sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!</b></font><br>
+<font color="DarkOrchid"><b>Aum twameva sakshat Shri  Suhāsya sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!</b></font><br>
 The one whose laughter is beautiful<br>
-<font color="Blue";>You are fully aware of Your divine powers.<br> 
+<font color="Blue">You are fully aware of Your divine powers.<br> 
 You are the sakshi (witness).<br>
 You are the axis of the whirling universes.<br> 
 You hold the strings of the cosmic puppet show.<br>
@@ -84,7 +84,7 @@ And He had a capacity more expressing His witness-hood, as a ‘Sākṣhi’. He
 </p>
 
 <p>
-<font color="DarkRed"><b>"The greatest quality of Yogeshwara is that He is not at all involved into it, detached, absolutely.<br>
+<font color="DarkRed">"The greatest quality of Yogeshwara is that He is not at all involved into it, detached, absolutely.<br>
 If He eats His food, He does not eat it. If He speaks, He does not speak. If He sees, He does not see. If He hears, He does not hear. It has no effect on Him, no retention on Him, no action on Him. Whatever He is, He is complete: sixteen petals is complete moon, sixteenth day of the moon is the Purnima. That is how one has to be, complete in oneself, complete confidence in oneself. But confidence should not be confused with ego. But confidence is complete wisdom, it’s complete dharma, it is complete love, complete beauty, and is complete God. That’s what it should be.<br>
 Now when He said that "you give up all your dharmas and surrender to Me" in Gita, what He was meaning is that all other things about which you are worried "You give up and become one with me, so I look after you". Give up the responsibility to Shri Krishna, so the complete integrated Divinity will start  expressing through you. Means if you say that you have to be responsible, then He says alright, go ahead, try! But if you say that ”You are responsible, I’m just an institution or an instrument in Your hand”, then you start manifesting it well. And that is how your Vishuddhi Chakra gets opened up.</font><br>
 <b>1983-0828 Shrī Kṛiṣhṇa Pūjā, Tannay (13 kms N of Geneva), Switzerland</b>
@@ -93,7 +93,7 @@ Now when He said that "you give up all your dharmas and surrender to Me" in Gita
 <div style="text-align: center"><img src="/images/image39.png" /></div>
 
 <p style="color:Blue; text-align:center;">
-<b> You lead the play of recognition of Shri Adi Shakti Nirmala Devi.<br>
+<b>You lead the play of recognition of Shri Adi Shakti Nirmala Devi.<br>
 You will establish on this Earth the dazzling glory of Shri Adi Shakti Nirmala Devi.<br>
 You will unite the nations of the Earth at the lotus feet of Shri Adi Shakti Nirmala Devi.</b><br>
 </p>
