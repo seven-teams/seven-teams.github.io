@@ -107,15 +107,13 @@ Victory be to You, O Mother India!<br>
 <a href="https://www.youtube.com/watch?v=L4iJtXr9jbI">  Ma Teri Jay Ho sung by Shri Mataji</a>
 </p>
 
-
 <p>
 <font color="DarkGreen">"<b>We got our independence and graciously English left us</b>, that was something really great of them, in those days to do it. But that independence was just a political independence, political freedom but today you have the ultimate, ultimate freedom. You got the freedom of your spirit which is not attached to anything, which is not anything but the spirit, which is absolute, which is neither English nor Indian nor Australian, which is not this house, which is not anything but the spirit itself, the complete freedom you’ve got. In that freedom you have to rise."</font><br>
 <b>1986-0802 Talk to Sahaja Yogis, Arrival for Ashram Inauguration, Shudy Camps, UK</b>
 </p>
 
-<p>
+
 <font size="+2"><b>Suggested Talk:</b></font> 1990-0807 Raksha Bandhan  Puja, Los Angeles, California, USA<br><a href="https://www.youtube.com/watch?time_continue=4&v=380D3C1isCYo"> video</a><br>
-</p>
 
 <p>
 <b>Rakhi offered to Shri Mataji from America 1993 0815 Shri Krishna Puja, Dharma, Cabella</b><br><a href="https://www.youtube.com/watch?v=5fwXzXBnz_o&feature=youtu.be"> video</a><br>
