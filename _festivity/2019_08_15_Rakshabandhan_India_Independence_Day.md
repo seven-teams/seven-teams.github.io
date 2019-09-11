@@ -19,7 +19,7 @@ tags:
 <div style="text-align: center"><img src="/images/image25.png" /></div>
 
 <p style="text-align:center;">
-<font color="Olive">You are my brothers and sisters<br>
+<font color="Navy">You are my brothers and sisters<br>
 Because you are human,<br>
 And we all are sons and daughters<br>
 Of one Holy Spirit;<br>
