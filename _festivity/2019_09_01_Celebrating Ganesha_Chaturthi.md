@@ -59,13 +59,13 @@ As they worship their innocent Lord<br></b>
 
 <div style="text-align: center"><img src="/images/image42.png" /></div>
 
-<p style="color:DarkGreen; text-align:center;">
+<p style="text-align:center;">
+	<font color="DarkGreen;">
 You are the only support of the world,<br>
 Because you are in the form of Earth.<br>
 By you who exists in the form of water,<br>
-Is the whole universe pervaded, Your powers are unsurpassed.<br>
-</p>
-<p style="text-align:center;"> (From Devi Mahatmayam, Chapter 11)</p>
+Is the whole universe pervaded, Your powers are unsurpassed.<br></font>
+(From Devi Mahatmayam, Chapter 11)</p>
 
 <p style="color:Maroon; text-align:left;">
 "Today you have come here to worship me as Shri Ganesha. We have been singing the praise of Shri Ganesha before every puja. And we have such tremendous respect for Shri Ganesha, because we have found out that unless and until Shri Ganesha, who is the symbol of our innocence, is not awakened within us, we cannot enter into the Kingdom of God. And even to stay there and to enjoy the blessings of Shri Ganesha, we have to have our innocence fully blossoming. So we praise Him and He is very easily praised. And whatever we might have done wrong before coming to Sahaja Yoga, He completely forgives because He is the eternal child."	
