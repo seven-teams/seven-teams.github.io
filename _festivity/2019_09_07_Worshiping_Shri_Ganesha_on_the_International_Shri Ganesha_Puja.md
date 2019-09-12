@@ -18,7 +18,7 @@ tags:
 <p style="text-align:center;">
 <font color="DarkRed"><b>Aum twameva sākshāt Shrī Ganesha sākshāt<br>
 Shrī Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah!</b></font><br>
-<b> Divine Mother, You are verily Shri Ganesha.<br> 
+<b> O Divine Mother, You are verily Shri Ganesha.<br> 
 Salutations to You!</b><br>
 </p>
 
@@ -130,9 +130,9 @@ Intelligence, so-called, is not wisdom. It can make you a very cunning, very agg
 <div style="text-align: center"><img src="/images/image56.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
-<b>You grant the subtlety of discretion.<br> 
+<font size="+2"><b>You grant the subtlety of discretion.<br> 
 You remove all the obstacles.<br>
-You bless the sanctity of the marriage union.</b><br>
+You bless the sanctity of the marriage union.</b></font><br>
 </p>
 
 Jay Shri Mataji!<br>
