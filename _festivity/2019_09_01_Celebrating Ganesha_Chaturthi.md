@@ -92,34 +92,52 @@ please give me wisdom and discrimination.<br>
 (from the 2012 edition of Sahaja Yoga Mantra Book, Page 29)</b></p>
 
 
-<b>Suggested Talk:</b><br>
-1986-0907 Shri Ganesha Puja Talk, Camp Marston, San Diego, USA<br>
-<a href="https://www.youtube.com/watch?v=3oFG-2N1-5c">https://www.youtube.com/watch?v=3oFG-2N1-5c</a>
+<font size="+2"><b>Suggested Talk:</b></font> 1986-0907 Shri Ganesha Puja Talk, Camp Marston, San Diego, USA<br><a href="https://www.youtube.com/watch?v=3oFG-2N1-5c"> video</a><br>
+
+<br>
+<font size="+2"><b>Bhajans:</b></font>
 
 <b>Bhajans:</b><br>
-<p style="color:DarkGreen;"><b>Shri Ganesha Atharva Sheersha:</b><br>
-<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4">https://www.youtube.com/watch?v=Dxl42_lBRJ4</a><br>
-<br>
-<b>Jai Jai Bolo Nirmal Ganesha Ki</b> (Victory to Shri Ganesha, Australian Song Book, Hindi supplement p. 66):<br> 
-<a href="https://www.youtube.com/watch?v=9r2eVWLg4mo">https://www.youtube.com/watch?v=9r2eVWLg4mo</a><br>
-<br>
-<b>Shri Ganesha Kinaryala Lau</b> (Australian Song Book, Marathi song 62):<br> 
-<a href="https://www.youtube.com/watch?v=1ZZ57Fxd79Q">https://www.youtube.com/watch?v=1ZZ57Fxd79Q</a><br>
-<br>
-<b>Gajananah Shri Ganaraya:</b><br>
-<a href="https://www.youtube.com/watch?v=5fCd4wODKGg">https://www.youtube.com/watch?v=5fCd4wODKGg</a><br>
-<br>
-<b>Jay Jagadambe:</b><br> 
-<a href="https://www.youtube.com/watch?v=KbUT-S2AcBY">https://www.youtube.com/watch?v=KbUT-S2AcBY</a><br>
-<br>
-<b>Shri Ganesha Pancharatnam</b> (Names of Shri Ganesha):<br> 
-<a href="https://www.youtube.com/watch?v=TxotrB3Gzo0">https://www.youtube.com/watch?v=TxotrB3Gzo0</a><br>
-<br>
-<b>Shri Ganesha jai Shri Ganesha:</b><br> 
-<a href="https://www.youtube.com/watch?v=GCgN6qnmNiA">https://www.youtube.com/watch?v=GCgN6qnmNiA</a><br>
-<br>
-<b>Sukhkarta dukhharta Shri Ganesh Aarti:</b><br> 
-<a href="https://www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407">https://www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407</a><br></p>
+
+<p>
+<font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
+<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4">video</a><br>
+</p>
+
+<p>
+<font color="green"><b>Jai Jai Bolo Nirmal Ganesha Ki</b> (Victory to Shri Ganesha, Australian Song Book, Hindi supplement p. 66)</font><br>
+<a href="https://www.youtube.com/watch?v=9r2eVWLg4m">video</a><br>
+</p>
+
+<p>
+<font color="green"><b>Shri Ganesha Kinaryala Lau</b> (Australian Song Book, Marathi song 62)</font><br>
+<a href="https://www.youtube.com/watch?v=1ZZ57Fxd79Q">video</a><br>
+</p>
+
+<p>
+<font color="green"><b>Gajananah Shri Ganaraya</b></font><br>
+<a href="https://www.youtube.com/watch?v=5fCd4wODKGg">video</a><br>
+</p>
+
+<p>
+<font color="green"><b>Jay Jagadambe</b></font><br>
+<a href="https://www.youtube.com/watch?v=KbUT-S2AcBY">video</a><br>
+</p>
+
+<p>
+<font color="green"><b>Shri Ganesha Pancharatnam</b>  (Names of Shri Ganesha)</font><br>
+<a href="https://www.youtube.com/watch?v=TxotrB3Gzo0">video</a><br>
+</p>
+
+<p>
+<font color="green"><b>Shri Ganesha jai Shri Ganesha</b></font><br>
+<a href="https://www.youtube.com/watch?v=GCgN6qnmNi">video</a><br>
+</p>
+
+<p>
+<font color="green"><b>Sukhkarta dukhharta Shri Ganesh Aarti</b></font><br>
+<a href="https://www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407">video</a><br>
+</p>
 
 Jai Shri Mataji!<br>
 On behalf of the festivity team

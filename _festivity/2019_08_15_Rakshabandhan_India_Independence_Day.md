@@ -112,13 +112,10 @@ Victory be to You, O Mother India!<br>
 <b>1986-0802 Talk to Sahaja Yogis, Arrival for Ashram Inauguration, Shudy Camps, UK</b>
 </p>
 
-<p>
 <font size="+2"><b>Suggested Talk:</b></font> 1990-0807 Raksha Bandhan  Puja, Los Angeles, California, USA<br><a href="https://www.youtube.com/watch?time_continue=4&v=380D3C1isCYo"> video</a><br>
-</p>
 
-<p>
-<b>Rakhi offered to Shri Mataji from America 1993 0815 Shri Krishna Puja, Dharma, Cabella</b><br><a href="https://www.youtube.com/watch?v=5fwXzXBnz_o&feature=youtu.be"> video</a><br>
-</p>
+<br>
+<font size="0"><b>Rakhi offered to Shri Mataji from America 1993 0815 Shri Krishna Puja, Dharma, Cabella</b><br><a href="https://www.youtube.com/watch?v=5fwXzXBnz_o&feature=youtu.be"> video</a><br>
 
 Jai Shri Mataji!<br>
 On behalf of the festivity team
