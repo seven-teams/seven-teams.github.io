@@ -66,7 +66,7 @@ And He is, on the other side, the Source of Love. The Source of Emotional Securi
 <div style="text-align: center"><img src="/images/image54.png" /></div>
 
 <p style="text-align:center;">
-<font color="Crimson">"But Gaṇeśha's enchantment has dignity.<br> 
+<font color="Maroon">"But Gaṇeśha's enchantment has dignity.<br> 
 He may look like a child, but He is an old man.<br>
 He is the eldest of all. And despite all these years, he has kept His innocence intact."</font><br>
 <font size="-1"><b>1983-0911 Śhrī Gaṇeśha Pūjā, Hotel ‘Lo Zodiaco’, near Tivoli (35 kms ENE of Rome), Italy</b></font><br>
@@ -81,7 +81,7 @@ Intelligence, so-called, is not wisdom. It can make you a very cunning, very agg
 
 <div style="text-align: center"><img src="/images/image55.png" /></div>
 
-<p style="color:DarkGreen; text-align:center;">
+<p style="color:DarkOliveGreen; text-align:center;">
 <b>Namami Shri Gan raj Dayal<br>
 <font size="-1">We bow to You, Compassionate Ganesha!</font><br>
 Karat Ho Bhakt Naka Pratipa<br>
