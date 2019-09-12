@@ -72,7 +72,7 @@ Is the whole universe pervaded, Your powers are unsurpassed.<br></font>
 <p>
 <font color="Crimson">"So the priorities have to change if Shri Ganesha is to be worshipped. What are we worshipping today is the innocence within us. We are worshipping that is auspicious, which is innocent. Innocence, which is deep down within us - that's our character, that's our nature, that's what we are born with - is the basic of this whole Creation; is the essence of this Creation."</font><br>
 <b>1985-0804 Shri Ganesha Puja, The Importance of Chastity, Brighton, UK</b><br>
-<font color="Blue"><b>Gajananah Shri Ganaraya:</b><br> <a href="https://www.youtube.com/watch?v=5fCd4wODKGg"> video</a></p>
+<font color="Blue"><b>Gajananah Shri Ganaraya:</b></font><br> <a href="https://www.youtube.com/watch?v=5fCd4wODKGg"> video</a></p>
 </p>
 
 <div style="text-align: center"><img src="/images/image43.png" /></div>
