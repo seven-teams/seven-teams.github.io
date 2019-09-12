@@ -88,7 +88,7 @@ Karat Ho Bhakt Naka Pratipa<br>
 <font size="-1">Verily You are the Protector and Supporter of devotees</font><br>
 Namami Shri Gan Raj Dayal<br>
 <font size="-1">We bow to You, Compassionate Ganesha!</font><br>
-<a href="https://www.youtube.com/watch?v=K1R54Pk7-70">video</a>
+<a href="https://www.youtube.com/watch?v=K1R54Pk7-70"> video</a><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 1983-0911 Ganesha Puja, Tivoli, Italy<br><a href="https://www.youtube.com/watch?v=o5j9eRdskGs"> video</a><br>
