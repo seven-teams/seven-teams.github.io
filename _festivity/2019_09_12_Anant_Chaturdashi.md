@@ -127,5 +127,5 @@ You are the destroyer of fears and distresses<br>
 
 <div style="text-align: center"><img src="/images/image50.png" /></div>
 
-Jay Shri Mataji!<br>
+Jai Shri Mataji!<br>
 On behalf of the festivity team!
