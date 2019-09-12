@@ -46,14 +46,14 @@ The idea of everyday, moment-to-moment enjoyment has destroyed them. And also th
 <div style="text-align: center"><img src="/images/image53.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen">Sukh.na hi kothe ale hya samsari</font><br>
-<font size="-1">There is no happiness in this world without You</font><br>
-<font color="DarkGreen">Samsaratsa bhar.sara dayiwari</font><br>
-<font size="-1">You are the support of the whole world</font><br>
-<font color="DarkGreen">Tu dakhav.maz.mala gaon</font><br>
-<font size="-1">Please direct us to the Kingdom of God</font><br>
-<font color="DarkGreen">Shri Ganesha Kinaryala lau</font><br>
-<font size="-1">Shri Ganesha please steer it to the shore</font><br>
+<font color="DarkGreen"><b>Sukh.na hi kothe ale hya samsari</b></font><br>
+<font size="-1"><b>There is no happiness in this world without You</b></font><br>
+<font color="DarkGreen"><b>Samsaratsa bhar.sara dayiwari</b></font><br>
+<font size="-1"><b>You are the support of the whole world</b></font><br>
+<font color="DarkGreen"><b>Tu dakhav.maz.mala gaon</b></font><br>
+<font size="-1"><b>Please direct us to the Kingdom of God</b></font><br>
+<font color="DarkGreen"><b>Shri Ganesha Kinaryala lau</b></font><br>
+<font size="-1"><b>Shri Ganesha please steer it to the shore</b></font><br>
 <a href="https://www.youtube.com/watch?v=1ZZ57Fxd79Q">video</a>
 </p>
 
