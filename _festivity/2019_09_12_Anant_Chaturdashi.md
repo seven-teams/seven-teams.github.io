@@ -97,7 +97,6 @@ You are the destroyer of fears and distresses<br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 1991-0915 Ganesha Puja Talk, Cabella, Italy<br><a href="https://www.youtube.com/watch?time_continue=1&v=1qfV6iYtsqI"> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
@@ -112,7 +111,7 @@ You are the destroyer of fears and distresses<br>
 
 <p>
 <font color="green"><b>Jai Jagadambe</b></font><br>
-<a href="https://www.youtube.com/watch?v=IeW7bkCqxSk">video</a></p>
+<a href="https://www.youtube.com/watch?v=IeW7bkCqxSk">video</a>
 </p>
 
 <p>
