@@ -91,8 +91,6 @@ please give me wisdom and discrimination.<br></font>
 
 <font size="+2"><b>Bhajans:</b></font>
 
-<b>Bhajans:</b><br>
-
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
 <a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4">video</a><br>
