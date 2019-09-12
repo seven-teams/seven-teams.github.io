@@ -17,14 +17,13 @@ By coming into this world He has created music (sangeet), rhythm (tāl) and note
 
 <div style="text-align: center"><img src="/images/image40.png" /></div>
 
-<p style="color:DarkGreen; text-align:center;">
-<b>"So today’s Pūjā is specially to be done with a prayer in your heart that:<br>
+<p style="text-align:center;">
+<font color="DarkGreen"><b>"So today’s Pūjā is specially to be done with a prayer in your heart that:<br>
 'Shrī Gaṇesha, please be kind and merciful and forgiving that You manifest within ourselves.<br>
 Let all these hypocritical things, all these conditionings and all these wrong ideas we have or all the wrong life we have had, should just disappear like thin air, and let the beautiful moonlight of your soothing qualities of innocence be manifested through us.'<br>
-Let us manifest these qualities. This is what is to be asked."<br></b>
-</p>
-<p style="text-align:center;"><b>1990-0826 Shrī Gaṇesha Pūjā, Lanersbach, Austria</b>
-<a href="https://www.youtube.com/watch?v=HJzi8uu62lc&index=6&list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1">https://www.youtube.com/watch?v=HJzi8uu62lc&index=6&list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1</a>
+Let us manifest these qualities. This is what is to be asked."</b></font><br>
+<b>1990-0826 Shrī Gaṇesha Pūjā, Lanersbach, Austria</b><br>
+<a href="https://www.youtube.com/watch?v=HJzi8uu62lc&index=6&list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1"> video</a>
 </p>
 
 <p style="color:Crimson; text-align:left;">
@@ -94,7 +93,6 @@ please give me wisdom and discrimination.<br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 1986-0907 Shri Ganesha Puja Talk, Camp Marston, San Diego, USA<br><a href="https://www.youtube.com/watch?v=3oFG-2N1-5c"> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <b>Bhajans:</b><br>

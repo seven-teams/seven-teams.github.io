@@ -39,7 +39,6 @@ And fill me wholly with Thyself.<br></font>
 
 <font size="+2"><b>Suggested Video:</b></font> 1998-0711 Music Program before Guru Puja<br><a href="https://youtu.be/aHW-KTHeocU"> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
