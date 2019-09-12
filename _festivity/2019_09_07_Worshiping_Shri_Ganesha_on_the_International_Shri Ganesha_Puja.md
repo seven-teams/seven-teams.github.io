@@ -1,5 +1,5 @@
 ---
-title: 'Worshiping Shri Ganesha on the International Shri Ganesha Puja'
+title: ''
 date: 2019-09_07
 permalink: /festivity/2019/0907
 tags:
