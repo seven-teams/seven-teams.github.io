@@ -82,12 +82,12 @@ Intelligence, so-called, is not wisdom. It can make you a very cunning, very agg
 <div style="text-align: center"><img src="/images/image55.png" /></div>
 
 <p style="color:DarkOliveGreen; text-align:center;">
-<b>Namami Shri Gan raj Dayal<br>
-<font size="-1">We bow to You, Compassionate Ganesha!</font><br>
-Karat Ho Bhakt Naka Pratipa<br>
-<font size="-1">Verily You are the Protector and Supporter of devotees</font><br>
-Namami Shri Gan Raj Dayal<br>
-<font size="-1">We bow to You, Compassionate Ganesha!</font><br>
+<b>Namami Shri Gan raj Dayal</b><br>
+<font size="-1"><b>We bow to You, Compassionate Ganesha!</b></font><br>
+<b>Karat Ho Bhakt Naka Pratipa</b><br>
+<font size="-1"><b>Verily You are the Protector and Supporter of devotees</b></font><br>
+<b>Namami Shri Gan Raj Dayal</b><br>
+<font size="-1"><b>We bow to You, Compassionate Ganesha!</b></font><br>
 <a href="https://www.youtube.com/watch?v=K1R54Pk7-70"> video</a><br>
 </p>
 
