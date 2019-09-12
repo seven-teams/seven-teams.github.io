@@ -69,7 +69,7 @@ And He is, on the other side, the Source of Love. The Source of Emotional Securi
 <font color="Crimson">"But Gaṇeśha's enchantment has dignity.<br> 
 He may look like a child, but He is an old man.<br>
 He is the eldest of all. And despite all these years, he has kept His innocence intact."</font><br>
-<b>1983-0911 Śhrī Gaṇeśha Pūjā, Hotel ‘Lo Zodiaco’, near Tivoli (35 kms ENE of Rome), Italy</b><br>
+<font size="-1"><b>1983-0911 Śhrī Gaṇeśha Pūjā, Hotel ‘Lo Zodiaco’, near Tivoli (35 kms ENE of Rome), Italy</b></font><br>
 </p>
 
 <p>
