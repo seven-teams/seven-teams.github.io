@@ -130,10 +130,10 @@ Intelligence, so-called, is not wisdom. It can make you a very cunning, very agg
 <div style="text-align: center"><img src="/images/image56.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
-<font size="+2"><b>You grant the subtlety of discretion.<br> 
+<b>You grant the subtlety of discretion.<br> 
 You remove all the obstacles.<br>
-You bless the sanctity of the marriage union.</b></font><br>
+You bless the sanctity of the marriage union.</b><br>
 </p>
 
-Jay Shri Mataji!<br>
-On behalf of the festivity team!
+<font size="-1">Jay Shri Mataji!<br>
+On behalf of the festivity team!</font>
