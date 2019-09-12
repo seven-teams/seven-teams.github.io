@@ -32,9 +32,9 @@ The idea of everyday, moment-to-moment enjoyment has destroyed them. And also th
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Gaiye Ganapati Jagavandan</b></font><br>
-Let us sing the praise of the leader of the Ganas who is respected by the whole world<br>
+<b>Let us sing the praise of the leader of the Ganas who is respected by the whole world</b><br>
 <font color="DarkRed"><b>Shankara Suvana Bhavani Nandan</b></font><br>
-He is the son of Shiva and the Devi<br>
+<b>He is the son of Shiva and the Devi</b><br>
 <a href="www.youtube.com/watch?v=ilY4PAguS6A">video</a>
 </p>
 
