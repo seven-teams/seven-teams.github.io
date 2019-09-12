@@ -93,7 +93,6 @@ Intelligence, so-called, is not wisdom. It can make you a very cunning, very agg
 
 <font size="+2"><b>Suggested Talk:</b></font> 1983-0911 Ganesha Puja, Tivoli, Italy<br><a href="https://www.youtube.com/watch?v=o5j9eRdskGs"> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
@@ -109,19 +108,20 @@ Intelligence, so-called, is not wisdom. It can make you a very cunning, very agg
 <p>
 <font color="green"><b>Jai Jai Bolo Nirmal Ganesha Ki</b></font><br>
 (Victory to Shri Ganesha, Australian song book, Hindi supplement page 66)<br>
-<a href="https://www.youtube.com/watch?v=9r2eVWLg4mo">video</a></p>
+<a href="https://www.youtube.com/watch?v=9r2eVWLg4mo">video</a>
 </p>
 
 <p>
 <font color="green"><b>Shri Ganesha Pancha Ratnam</b></font><br>
 (Names of Shri Ganesha, Australian song book, Sanskrit song 23)<br>
-<a href="https://www.youtube.com/watch?v=TxotrB3Gzo0">video</a></p>
+<a href="https://www.youtube.com/watch?v=TxotrB3Gzo0">video</a>
 </p>
  
 <p>
 <font color="green"><b>Omkar pradhan roop Ganeshanche</b></font><br>
 <a href="https://www.youtube.com/watch?v=9saoYg9chB0">video</a> 
 </p>
+
 <p>
 <font color="green"><b>Sukhkarta dukhharta Shri Ganesh Aarti</b></font><br>
 <a href="https://www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407">video</a> 
