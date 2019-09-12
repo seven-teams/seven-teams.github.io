@@ -50,7 +50,7 @@ Om Bhur Bhuvah:<a href="https://www.youtube.com/watch?v=W1x0tWtTk_8"> video</a>
 <font color="Maroon">"But when Parvati made Shri Ganesha, He was the son of Parvati alone. There was no Father. Parvati Herself wanted to have a child of Her own. There were angels who were dedicated either to Vishnu or to Shiva, like ganas were dedicated to Shiva alone. So, She wanted to have Her own Son who can permeate Her powers on this Earth. So to begin with when the Shakti created this universe and Sadashiva was watching Her creation, the first thing She created on this Earth was innocence and the embodiment of that innocence was Shri Ganesha. The whole Universe was covered with innocence, which we call as Aumkara. This innocence protected all the creation of the world and penetrated into all that is matter."</font><br>
 <b>1986-0907 Shri Ganesha Puja, San Diego, CA, USA</b><br>
 <font color="Blue">"<b>Jay Jay Janani Shri Ganesh Ki:</b><br>
-<a href="https://www.youtube.com/watch?v=CDgg_m-d3CQ"> video</a>
+<a href="https://www.youtube.com/watch?v=CDgg_m-d3CQ"> video</a><br>
 </p>
 
 <div style="text-align: center"><img src="/images/image42.png" /></div>
