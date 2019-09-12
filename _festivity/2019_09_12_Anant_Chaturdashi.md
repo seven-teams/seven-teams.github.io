@@ -1,9 +1,9 @@
 ---
-title: 'Anant Chaturdaśhī: The day when we visarjan, dissolve Śhrī Gaṇeśha in the water'
+title: 'Anant Chaturdashi: The day when we visarjan, dissolve Shri Ganesha in the water'
 date: 2019-09-12
 permalink: /festivity/2019/09/12
 tags:
-  - Anant Chaturdaśhī
+  - Anant Chaturdashi
 ---
 
 ![PICTURE 1](/images/image1.png)
