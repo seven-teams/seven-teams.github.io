@@ -50,13 +50,12 @@ I appear very innocent sometimes, but My innocence is complete intelligence, I t
 <div style="text-align: center"><img src="/images/image59.png" /></div>
 
 <p style="text-align:center;">
-<font color="IndianRed">"So then everybody should today decide and take an oath that we'll do everything to spread Sahaja Yoga with humility."<br>
-Sleeping is not so important. You have to today promise Me that, from tomorrow, you all are going to get up in the morning and meditate."</font><br>
+<font color="FireBrick">"So then everybody should today decide and <b>take an oath</b> that we'll do everything to spread Sahaja Yoga with humility."</font><br>
 <font size="-1"><b>1992-1025 Diwālī Pūjā (Diwālī Day), Sala Olimpia (Olympia Sports Hall), Timişoara, Romania</b></font><br>
 </p>
 
 <p>
-<font color="blue">"Sahaja Yogi: So it [UNCLEAR], should be little bit other than heart of Your children and the expression of the gratitude for Your protection, Your love, Your greatness and I don't know. And the second thing, what we feel through this coronation is, You are the Queen. You are the Queen of the universe. And we are Your devotees, we are Your disciples. So if we are allowed to crown You, it means that we have to have complete adherence, allegiance and surrender. Otherwise how can we crown You? We are not even able to reach Your head because your head is reaching the Universe. So in our heart we have tried the songs, little poems, give some little things, Shri Mataji. And some pictures and photographs from You. And through this, whatever may be the quality Shri Mataji, I am sure that all of us will be able <b>to make this pledge of complete obedience, complete adherence, complete gratitude for You. And finally, we thought that through the image of Your photographs, through some poems and through music, we could express what I cannot express, our love for You, Shri Mataji.</b></font>
+<font color="blue">"Sahaja Yogi: So it [UNCLEAR], should be little bit other than heart of Your children and the expression of the gratitude for Your protection, Your love, Your greatness and I don't know. And the second thing, what we feel through this coronation is, You are the Queen. You are the Queen of the universe. And we are Your devotees, we are Your disciples. So if we are allowed to crown You, it means that we have to have complete adherence, allegiance and surrender. Otherwise how can we crown You? We are not even able to reach Your head because your head is reaching the Universe. So in our heart we have tried the songs, little poems, give some little things, Shri Mataji. And some pictures and photographs from You. And through this, whatever may be the quality Shri Mataji, I am sure that all of us will be able <b>to make this pledge of complete obedience, complete adherence, complete gratitude for You. And finally, we thought that through the image of Your photographs, through some poems and through music, we could express what I cannot express, our love for You, Shri Mataji.</b></font><br>
 <font color="red"><b>Shri Mataji:</b></font> <font color="blue">Thank you."</font><br>
 <b>1987-1004 Talk to Sahaja Yogis, Evening with Music and Poetry after Śhrī Rāma Pūjā (Dussehra Day), Centre International, Les Avants, Switzerland</b>
 </p>
@@ -64,13 +63,12 @@ Sleeping is not so important. You have to today promise Me that, from tomorrow, 
 <div style="text-align: center"><img src="/images/image60.png" /></div>
 
 <p>
-<font color="IndianRed">"Now we are starting a New Year and I wish you all a very happy and prosperous New Year. In this Desh of mine, I also wish you a very deep growth in Sahaja Yoga. Now you all are Sahaja Yogis and you all have to become masters in Sahaja Yoga.  For becoming masters in Sahaja Yoga I am sure, you are doing meditation, introspection, and all kinds of Sahaja Yoga rituals, I should say. In this New Year I think there is greater chance for you to do much better because all those years of ordeals are over. We are now entering into the new era or say now the ‘Satyayuga’ has established."</font><br>
+<font color="FireBrick">"Now we are starting a New Year and I wish you all a very happy and prosperous New Year. In this Desh of mine, I also wish you a very deep growth in Sahaja Yoga. Now you all are Sahaja Yogis and you all have to become masters in Sahaja Yoga.  For becoming masters in Sahaja Yoga I am sure, you are doing meditation, introspection, and all kinds of Sahaja Yoga rituals, I should say. In this New Year I think there is greater chance for you to do much better because all those years of ordeals are over. We are now entering into the new era or say now the ‘Satyayuga’ has established."</font><br>
 <b>2000-1231 New Year Pūjā (English+Marathi), You All Have to Become Masters in Sahaja Yoga, Kalwa, Thane, Maharashtra, India</b>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 2000-1231 New Year Puja Talk, Kalwe, India<br><a href="https://www.youtube.com/watch?v=VQCbvlXTQhI"> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
@@ -90,7 +88,7 @@ Sleeping is not so important. You have to today promise Me that, from tomorrow, 
 
 <p>
 <font color="green"><b>Jaya He Jaya He Devi</b></font><br>
-<a href="https://www.youtube.com/watch?v=zjnjqxBR-uA">video</a></p>
+<a href="https://www.youtube.com/watch?v=zjnjqxBR-uA">video</a>
 </p>
 
 <p>
@@ -115,5 +113,5 @@ Sleeping is not so important. You have to today promise Me that, from tomorrow, 
 
 <div style="text-align: center"><img src="/images/image61.png" /></div>
 
-Jay Shri Mataji!<br>
+Jai Shri Mataji!<br>
 On behalf of the festivity team!
