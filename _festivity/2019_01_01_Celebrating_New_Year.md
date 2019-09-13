@@ -16,9 +16,9 @@ tags:
 <div style="text-align: center"><img src="/images/image57.png" /></div>
 
 <p style="text-align:center;">
-<font color="blue">"<b>Mediation is very important after Sahaja Yoga.</b> You have slept and slept all your life.<br>
+<font color="MediumBlue">"<b>Mediation is very important after Sahaja Yoga.</b> You have slept and slept all your life.<br>
 Sleeping is not so important. You have to today promise Me that, from tomorrow, you all are going to get up in the morning and meditate."</font><br>
-<b>1980-0323 Birthday Puja, London, UK</b><br>
+<font size="-1"><b>1980-0323 Birthday Puja, London, UK</b></font><br>
 </p>
 
 <p>
@@ -30,8 +30,7 @@ Sleeping is not so important. You have to today promise Me that, from tomorrow, 
 <div style="text-align: center"><img src="/images/image58.png" /></div>
 
 <p style="text-align:center;">
-<font color="IndianRed"><b>"My complete blessings are with you. My heart, mind, body be always engaged in your service. I am
-not away from you even for a moment. Whenever you will remember Me anywhere by just closing your eyes, at that moment I shall come to you with all My powers, “Śhaṅkha, Chakra, Gadā, Padma, Garuḍalayi sidhari.”<br> 
+<font color="DarkRed"><b>"My complete blessings are with you. My heart, mind, body be always engaged in your service. I am not away from you even for a moment. Whenever you will remember Me anywhere by just closing your eyes, at that moment I shall come to you with all My powers, “Śhaṅkha, Chakra, Gadā, Padma, Garuḍalayi sidhari.”<br> 
 Even for a moment I shall not be late but you will have to be Mine. This is very important. If you are Mine then I shall not be late even for a moment. I shall be before you. May God bless you all and give
 you wisdom."</font><br>
 <font size="-1"><b>1976-0527 Public Program (Hindi), Dhyān Kaise Karein (How to Meditate), Bharatiya Vidyā Bhavan, Kulapati K.M. Munshi Mārg, 3rd Floor, Gita Mandir Hall, Chowpatty, Mumbai, Maharashtra, India</b></font><br>
