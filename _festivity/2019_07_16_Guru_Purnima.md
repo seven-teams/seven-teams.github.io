@@ -11,6 +11,7 @@ tags:
 
 <p>
 <font color="DarkGreen">"Today is a pūrnimā day, ‘pūrnimā’ means the complete moon. The guru has to be a complete personality to talk about these Statutes and to elevate his disciples to this level of understanding, by which they imbibe those Statutes. He is there to fulfill this gap, and for that it is essential that every guru has to be a realized Soul of a very high quality and greatly evolved. He need not be a person who is an ascetic, or he need not be a person who is living in the forest. He could be a common householder, he could be a king. All these outward manifestations of one’s life do not matter. Whatever may be your position, I would say the so-called position in this world makes no difference to your being a guru, as long as you have imbibed the Statutes of the Lord. Again, I say you have to imbibe the Statutes."</font><br>
+<b>1980-0727 Guru Pūjā , Temple of all Faiths, Hampstead, London, UK</b>
 </p>
 
 <div style="text-align: center"><img src="/images/image62.png" /></div>
