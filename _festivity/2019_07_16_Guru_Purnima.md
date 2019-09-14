@@ -17,8 +17,8 @@ tags:
 
 <p style="color:DarkGreen; text-align:center;">
 <b>Gurū Param’ātmā Pareshu<br>
-The Guru is the Supreme Spirit, God Almighty<br> 
-<font size="-1">Guru Ashtakam</b></font><br>
+The Guru is the Supreme Spirit, God Almighty</b><br> 
+<font size="-1"><b>Guru Ashtakam</b></font><br>
 <a href="https://www.youtube.com/watch?v=H2oWRPAEY_M">video</a>
 </p>
 
