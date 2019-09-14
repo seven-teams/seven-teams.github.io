@@ -48,7 +48,7 @@ The guru has to be like a full moon, means completely growing, completely mature
 <div style="text-align: center"><img src="/images/image64.png" /></div>
 
 <p style="text-align:center;">
-<font color=IndianRed>"On this Guru Pūrṇimā I bless all of you and all those who are realized, are very special people, and I would say to them that just as you have got, give to others. You too have to bring them around. Might be that they may get annoyed with you, hit you, beat you, they may not remain, but this is nothing. I have borne much more than this. That is why with joy and not arguments; they may not believe in you,
+<font color="IndianRed">"On this Guru Pūrṇimā I bless all of you and all those who are realized, are very special people, and I would say to them that just as you have got, give to others. You too have to bring them around. Might be that they may get annoyed with you, hit you, beat you, they may not remain, but this is nothing. I have borne much more than this. That is why with joy and not arguments; they may not believe in you,
 doesn’t matter. Leave them. They may argue, just leave them. The ones who believe in you give them.<br>
 This is what you have to give and this is all you can give that My love may reach each corner of the world and each house may be lit with it.<br>
 May God bless you"</font><br>
