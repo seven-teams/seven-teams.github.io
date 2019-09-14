@@ -51,11 +51,11 @@ The guru has to be like a full moon, means completely growing, completely mature
 <font color="DarkRed">"On this Guru Pūrṇimā I bless all of you and all those who are realized, are very special people, and I would say to them that just as you have got, give to others. You too have to bring them around. Might be that they may get annoyed with you, hit you, beat you, they may not remain, but this is nothing. I have borne much more than this. That is why with joy and not arguments; they may not believe in you,
 doesn’t matter. Leave them. They may argue, just leave them. The ones who believe in you give them.<br>
 This is what you have to give and this is all you can give that My love may reach each corner of the world and each house may be lit with it.<br>
-May God bless you"</font><br>
+May God bless you."</font><br>
 <font size="-1"><b>1973-0715 Public Program (Hindi) (Guru Pūrṇimā), Mumbai, Maharashtra, India</b></font><br>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 2002-0724 Guru Purnima Puja Talk: What Is Our Duty? Cabella, Italy<br><a href="https://www.youtube.com/watch?time_continue=1&v=_wwSUO6odqo"> video</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 2002-0724 Guru Purnima Puja Talk, What Is Our Duty, Albera Ligure, Italy<br><a href="https://www.youtube.com/watch?time_continue=1&v=_wwSUO6odqo"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
