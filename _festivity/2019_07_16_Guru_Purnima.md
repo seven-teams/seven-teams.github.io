@@ -15,7 +15,7 @@ tags:
 
 <div style="text-align: center"><img src="/images/image62.png" /></div>
 
-<p style="color:green; text-align:center;">
+<p style="color:DarkGreen; text-align:center;">
 <b>Gurū Param’ātmā Pareshu<br>
 The Guru is the Supreme Spirit, God Almighty<br> 
 <font size="-1">Guru Ashtakam</b></font><br>
