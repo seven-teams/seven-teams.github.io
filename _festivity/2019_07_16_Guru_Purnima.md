@@ -103,7 +103,7 @@ upon Thy feet , and pray 'Forgive'</font><br>
 <b>Sant Tukaram (17th Century Poet-Saint)</b>
 </p>
 
-<p style="color=Chocolate; text-align:center;">
+<p style="color:Chocolate; text-align:center;">
 <b>Om Twameva Sakshat Shri Adi Guru Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namo Namah!</b>
 </p>
 
