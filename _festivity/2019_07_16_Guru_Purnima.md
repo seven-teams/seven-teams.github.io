@@ -57,7 +57,6 @@ May God bless you"</font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 2002-0724 Guru Purnima Puja Talk: What Is Our Duty? Cabella, Italy<br><a href="https://www.youtube.com/watch?time_continue=1&v=_wwSUO6odqo"> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
