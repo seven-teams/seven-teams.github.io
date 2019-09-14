@@ -62,7 +62,7 @@ May God bless you"</font><br>
 
 <p>
 <font color="Maroon"><b>Guru bin Kaun</b></font><br>
-<a href="https://www.youtube.com/watch?v=7jjdlluWX8Q">video</a></p>
+<a href="https://www.youtube.com/watch?v=7jjdlluWX8Q">video</a>
 </p>
 
 <p>
@@ -88,7 +88,7 @@ May God bless you"</font><br>
 <div style="text-align: center"><img src="/images/image65.png" /></div>
 
 <p style="text-align:center;">
-<font color=DarkGreen>Thou art more kind than Mother Dear,<br>
+<font color="DarkGreen">Thou art more kind than Mother Dear,<br>
 More soothing than the rays of moon<br>
 Thy love an ever flowing tide,<br>
 Sinks deeper than a common stream I know of none that equals Thee -<br>
