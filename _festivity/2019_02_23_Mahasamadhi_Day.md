@@ -36,7 +36,7 @@ But deliver us from evil;<br>
 For thine is the Father,<br>
 The children and the glory,<br>
 Forever and ever, Amen.</b></font><br>
-<b>1986-0713 Shrī Kārttikeya Pūjā, Grosshartpenning, Münich, Germany</b><br>
+<b>Mother's Prayer (1986-0713 Shrī Kārttikeya Pūjā, Grosshartpenning, Münich, Germany)</b><br>
 <a href="https://www.youtube.com/watch?v=tHm8jefq9bk">video</a>
 </p>
 
@@ -62,7 +62,7 @@ or My incarnation will have been a waste of time."</b></font><br>
 
 <font size="+2"><b>Suggested Videos:</b></font>
 <font color="DarkGreen"><b>Shri Devi Puja, January 11, 1987, Paithan</b></font><a href="http://vimeo.com/25431464"> video</a><br>
-<font color="DarkGreen"><b>Supreme Source of Love</b></font><a href="https://www.youtube.com/watch?v=jKHior0j0aw"> video</a><br>
+<font color="DarkGreen"><b>Supreme Source of Love</b></font><a href="https://vimeo.com/60342739"> video</a><br>
 
 
 <font size="+2"><b>Bhajans:</b></font>
