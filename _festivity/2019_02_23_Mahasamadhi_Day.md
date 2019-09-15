@@ -73,7 +73,7 @@ or My incarnation will have been a waste of time."</b></font><br>
 </p>
 
 <p>
-<font color="green"><b>Vandan Karuya Matajila: (Let us pay homage to Shri Mataji to the great Power, to the Giver of Sahaja Yoga)</b></font><br>
+<font color="green"><b>Vandan Karuya Matajila (Let us pay homage to Shri Mataji to the Great Power, to the Giver of Sahaja Yoga)</b></font><br>
 <a href="https://www.youtube.com/watch?v=ybCnMcQi2ZQ">video</a> 
 </p>
 
