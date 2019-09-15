@@ -21,7 +21,7 @@ Lokātītā Guṇātītā, Sarvātītā Shamātmikā</b><br>
 You are the Earth, and Daughter of the Mountain, possessing Wealth, and Righteousness,<br>
 You increase the righteousness of Your devotees;<br>
 Beyond the three worlds, beyond the three attributes, beyond everything,<br>
-You are the Essence of Peace and Bliss.</b><br>
+You are the Essence of Peace and Bliss.<br>
 </p>
 
 <p>
@@ -38,7 +38,6 @@ You are the Essence of Peace and Bliss.</b><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 1991-0408 Śhrī Gaurī Pūjā, Residence near Aśhram, Parnell, Auckland, New Zealand<br><a href="https://vimeo.com/88505728 "> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
@@ -57,7 +56,7 @@ You are the Essence of Peace and Bliss.</b><br>
 </p>
  
 <p>
-<font color="green"><b>Gajanana Shri Gan Raya</b></font><br>
+<font color="green"><b>Gajanana Shri Gana Raya</b></font><br>
 <a href="https://www.youtube.com/watch?v=sDHdeRTcVjc">video</a> 
 </p>
 
