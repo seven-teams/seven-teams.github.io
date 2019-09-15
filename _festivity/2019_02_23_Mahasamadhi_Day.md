@@ -22,7 +22,7 @@ Lead a life of wisdom."</font><br>
 <div style="text-align: center"><img src="/images/image66.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>{\it Our Mother, who art on Earth,}<br>	
+<font color="DarkRed"><b>Our Mother, who art on Earth,<br>	
 Hallowed be Thy name.<br>
 Thy kingdom come,<br>
 Thy will be done<br>
