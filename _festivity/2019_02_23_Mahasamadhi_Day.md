@@ -22,7 +22,7 @@ Lead a life of wisdom."</font><br>
 <div style="text-align: center"><img src="/images/image66.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Our Mother, who art on Earth,<br>	
+<font color="DarkRed"><b><i>Our Mother, who art on Earth,<br>	
 Hallowed be Thy name.<br>
 Thy kingdom come,<br>
 Thy will be done<br>
@@ -35,7 +35,7 @@ And lead us not into maya,<br>
 But deliver us from evil;<br>
 For thine is the Father,<br>
 The children and the glory,<br>
-Forever and ever, Amen.</b></font><br>
+Forever and ever, Amen.</i></b></font><br>
 <b>Mother's Prayer (1986-0713 Shrī Kārttikeya Pūjā, Grosshartpenning, Münich, Germany)</b><br>
 <a href="https://www.youtube.com/watch?v=tHm8jefq9bk">video</a>
 </p>
