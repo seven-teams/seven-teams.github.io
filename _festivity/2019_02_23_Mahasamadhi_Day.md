@@ -69,7 +69,7 @@ or My incarnation will have been a waste of time."</b></font><br>
 
 <p>
 <font color="green"><b>Mother I adore you</b></font><br>
-<a href="https://www.youtube.com/watch?v=LsWaC7NktHA&list=PLuAVZW42aaCnQ3JW90xymBbcyS-gt6SE1&index=10">video</a></p>
+<a href="https://www.youtube.com/watch?v=LsWaC7NktHA&list=PLuAVZW42aaCnQ3JW90xymBbcyS-gt6SE1&index=10">video</a>
 </p>
 
 <p>
