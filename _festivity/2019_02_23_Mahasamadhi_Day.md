@@ -56,8 +56,8 @@ Forever and ever, Amen.</b></font><br>
 <p style="text-align:center;">
 <font color="Red"><b>"All My Love, all My Powers, all My wisdom<br>
 must be transferred to you people in this lifetime<br>
-or My incarnation will have been a waste of time."</b><br>
-<b>1988-0731 Guru Puja, Gravity of Guru-ship, Andorra</b><br>
+or My incarnation will have been a waste of time."</b></font><br>
+<b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b><br>
 </p>
 
 <font size="+2"><b>Suggested Videos:</b></font>
