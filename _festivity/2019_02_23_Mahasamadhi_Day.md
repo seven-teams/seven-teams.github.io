@@ -1,5 +1,5 @@
 ---
-title: 'Mahasamadhi Day'
+title: '2019 Mahasamadhi Day'
 date: 2019-02-23
 permalink: /festivity/2019/02/23
 tags:
