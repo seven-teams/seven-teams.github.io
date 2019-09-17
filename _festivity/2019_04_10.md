@@ -1,5 +1,5 @@
 ---
-title: 'Worshipping Shri Lalitā: "Lalitā is Śhrī Gaurī’s name"'
+title: '2019 Worshipping Shri Lalitā: "Lalitā is Śhrī Gaurī’s name"'
 date: 2019-04-10
 permalink: /festivity/2019/0410
 tags:
