@@ -50,12 +50,12 @@ Born from the sacred fire-pit of consciousness, emerging for a divine purpose.</
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Arpit Hai Tan Man Dhan Apna</b></font><br> 
-<font size="-1">I totally surrender my mind, body and wealth</font><br>
+<font size="-1"><b>I totally surrender my mind, body and wealth</b></font><br>
 <font color="DarkGreen"><b>Charan Nahi Ye Swarga Ki Rachna</b></font><br>
-<font size="-1">To the Lotus Feet of  Mother, as There lies my Paradise</font><br> 
+<font size="-1"><b>To the Lotus Feet of  Mother, as There lies my Paradise</b></font><br> 
 <font color="DarkGreen"><b>Vast.vik Hai Nahi ye Kalpana</b></font><br> 
-<font size="-1">This is not imagination, but actualization of the Divine Truth, the ultimate reality</font><br>
-<font color="blur"><b>Tere Charan Kamal</b></font><br>
+<font size="-1"><b>This is not imagination, but actualization of the Divine Truth, the ultimate reality</b></font><br>
+<font color="blue"><b>Tere Charan Kamal</b></font><br>
 <a href="https://www.youtube.com/watch?v=mKrVNKlY7Hg">video</a>
 </p>
 
