@@ -61,7 +61,6 @@ Born from the sacred fire-pit of consciousness, emerging for a divine purpose.</
 
 <font size="+2"><b>Suggested Talk:</b></font> 1981-0517 The Power of Kundalini, Chelsham Road Ashram, London, UK<br><a href="https://www.youtube.com/watch?time_continue=10&v=Bd5g5OeO3l8"> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>

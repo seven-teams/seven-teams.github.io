@@ -54,10 +54,8 @@ I said yes, and then I got this photograph."</font><br>
 <b>1986-1225 Christmas Pūjā (English+Marathi), Pavanā Dam Camp, Pune, Maharashtra, India</b><br>
 </p>
 
-
 <font size="+2"><b>Suggested Talk:</b></font> 1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, Weilburg, Germany<br><a href="https://www.youtube.com/watch?v=7uSGgzf6Rrg"> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
@@ -94,7 +92,7 @@ Yet it characterises Your boundless and omnipresesnt and enigmatic form<br>
 </p>
 
 <p>
-<font color="freen"><b>Hai Mata Mahan Ap.Ni - Awaz Uthayenge #2</b></font><br>
+<font color="green"><b>Hai Mata Mahan Ap.Ni - Awaz Uthayenge #2</b></font><br>
 <a href="https://www.youtube.com/watch?v=MwI6Uxmdja8">video</a> 
 </p>
 
