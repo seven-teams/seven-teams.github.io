@@ -39,7 +39,7 @@ O Divine Mother, You are verily Adorned with glorious chaitanya (vibrations)</fo
 
 <p style="text-align:center;">
 Yogi Mahajan: Are these vibrations similar to what modern physics talks about?<br>
-<font color="Red"><b>Śhrī Mātājī:</b> No, the vibrations in physics are only electromagnetic. Electro comes from Sun and magnetic comes from the Earth. They are present in the center of the mesons, but mesons act under the Ādi Śhakti. Her vibrations flow through it and are the pure vibrations which you feel as the Cool Vibrations of your Kuṇḍalinī. These vibrations are conscious, they act and organize everything, and above all they love. Love gives joy.</font><br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b> No, the vibrations in physics are only electromagnetic. Electro comes from Sun and magnetic comes from the Earth. They are present in the center of the mesons, but mesons act under the Ādi Śhakti. Her vibrations flow through it and are the pure vibrations which you feel as the Cool Vibrations of your Kuṇḍalinī. These vibrations are conscious, they act and organize everything, and above all they love. Love gives joy.</font><br>
 <b>1985-0329 Conversation with Yogi Mahajan, Talnoo, Naddi (11 kms NNE of Dharmaśhālā), Himachal Pradesh, India</b>
 </p>
 
