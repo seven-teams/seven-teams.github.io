@@ -1,7 +1,7 @@
 ---
 title: '2019 Worshipping Shri Kundalini: "When the Kundalini moves, She makes vibrations"'
 date: 2019-04-09
-permalink: /festivity/2019/0410
+permalink: /festivity/2019/0409
 tags:
   - Shri Adi Kundalini
   - Vasant Navaratri
