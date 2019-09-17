@@ -10,7 +10,7 @@ tags:
 ![PICTURE 1](/images/image1.png)
 
 <p>
-<font color="Crimson">"Many forms of the Devī are described in our Scriptures. There is absolutely no error in it. But to understand its depth, one has to grow deep in Sahaja Yoga. On vibrations you will achieve the power of discrimination. You will see that all the forms of the the Devī have different vibrations. This is very subtle quality. The more you go deeper in Sahaja Yoga the more you will understand it. If you are established yourself in meditation and develop your powers then you will understand it immediately. About every human being you will come to know on your vibrations."</font><br>
+<font color="DarkRed">"Many forms of the Devī are described in our Scriptures. There is absolutely no error in it. But to understand its depth, one has to grow deep in Sahaja Yoga. On vibrations you will achieve the power of discrimination. You will see that all the forms of the the Devī have different vibrations. This is very subtle quality. The more you go deeper in Sahaja Yoga the more you will understand it. If you are established yourself in meditation and develop your powers then you will understand it immediately. About every human being you will come to know on your vibrations."</font><br>
 <b>2000-0405 Guḍhī Pāḍavā Pūjā (Hindi), Noida Bhavan, New Delhi, India</b>
 </p>
 
@@ -25,7 +25,7 @@ You are beyond all categories and reside in the Sahasrara, and are to be found t
 </p>
 
 <p>
-<font color="Crimson">"Kuṇḍalinī is a lady. She is not, She is not a man, you can say. You have all the Avatāras [Incarnations] and everything but Kuṇḍalinī is the, what they call the reflection of the Ādi Śhakti. She’s the Śhakti. We are the Śhakti worshipers. But the way we are treating our women is very surprising. We have to understand that these women, if they are awakened, what powers you will have."</font><br>
+<font color="DarkRed">"Kuṇḍalinī is a lady. She is not, She is not a man, you can say. You have all the Avatāras [Incarnations] and everything but Kuṇḍalinī is the, what they call the reflection of the Ādi Śhakti. She’s the Śhakti. We are the Śhakti worshipers. But the way we are treating our women is very surprising. We have to understand that these women, if they are awakened, what powers you will have."</font><br>
 <b>2000-0417 Public Address to Income Tax Officers Meeting,New Delhi, India</b>
 </p>
 
@@ -46,7 +46,7 @@ Yogi Mahajan: Are these vibrations similar to what modern physics talks about?<b
 <div style="text-align: center"><img src="/images/image78.png" /></div>
 
 <p style="text-align:center;">
-<font color="Crimson">"These are the miraculous photograph of My Hand of  Mahālakṣhmī's and vibrations emit<br> 
+<font color="DarkRed">"These are the miraculous photograph of My Hand of  Mahālakṣhmī's and vibrations emit<br> 
 [unclear] and you can see My eight hands very clearly.<br>
 I was holding the Nag champa flowers in my Hands and I told Rajesh that it depicts the Sahasrāra.<br> 
 He said that you have the Sahasrāra of all the yogis in Your hand.<br>
@@ -72,7 +72,7 @@ Yet it characterises Your boundless and omnipresesnt and enigmatic form<br>
 </p>
 
 <p>
-<font color="green"><b>Tujhya pujani 2001 0707 Guru Puja, Cabella</b></font><br>
+<font color="green"><b>Tujhya pujani 2001-0707 Guru Puja, Cabella</b></font><br>
 <a href="https://www.youtube.com/watch?v=iJiGVlWeUlA">video</a>
 </p>
 
@@ -89,11 +89,6 @@ Yet it characterises Your boundless and omnipresesnt and enigmatic form<br>
 <p>
 <font color="green"><b>He Nirmala Ma</b></font><br>
 <a href="https://www.youtube.com/watch?v=v7T1xpKkYFU">video</a> 
-</p>
-
-<p>
-<font color="green"><b>Hai Mata Mahan Ap.Ni - Awaz Uthayenge #2</b></font><br>
-<a href="https://www.youtube.com/watch?v=MwI6Uxmdja8">video</a> 
 </p>
 
 Jai Shri Mataji!<br>
