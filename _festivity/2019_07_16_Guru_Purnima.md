@@ -108,5 +108,5 @@ upon Thy feet , and pray 'Forgive'</font><br>
 </p>
 
 
-Jay Shri Mataji!<br>
+Jai Shri Mataji!<br>
 On behalf of the festivity team!

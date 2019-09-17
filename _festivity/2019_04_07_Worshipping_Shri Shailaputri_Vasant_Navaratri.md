@@ -3,7 +3,8 @@ title: '2019 Worshipping Shri Shailaputri: Vasant Navaratri'
 date: 2019-04-07
 permalink: /festivity/2019/0407
 tags:
-  - 
+  - Shri Shailaputri
+  - Vasant Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)
@@ -60,5 +61,5 @@ You are the Essence of Peace and Bliss.<br>
 <a href="https://www.youtube.com/watch?v=sDHdeRTcVjc">video</a> 
 </p>
 
-Jay Shri Mataji!<br>
+Jai Shri Mataji!<br>
 On behalf of the festivity team!
