@@ -59,7 +59,7 @@ Born from the sacred fire-pit of consciousness, emerging for a divine purpose.</
 <a href="https://www.youtube.com/watch?v=mKrVNKlY7Hg">video</a>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 1981-0517 The Power of Kundalini, Chelsham Road Ashram, London, UK<br><a href="https://www.youtube.com/watch?time_continue=10&v=Bd5g5OeO3l8"> video</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 1981-0517 The Power of Kundalini, Chelsham Road Ashram, London, UK<br><a href="https://www.youtube.com/watch?time_continue=10&v=Bd5g5OeO3l8"> audio</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -69,12 +69,12 @@ Born from the sacred fire-pit of consciousness, emerging for a divine purpose.</
 </p>
 
 <p>
-<font color="green"><b>Shri Lalita Sahastranama</b></font><br>
+<font color="green"><b>Shri Lalita Sahasranama</b></font><br>
 <a href="https://www.youtube.com/watch?v=PKNAgirTBr4">video</a>
 </p>
 
 <p>
-<font color="green"><b>Ma tere Nirmal prem ko</b></font><br>
+<font color="green"><b>Ma Tere Nirmal Prem Ko</b></font><br>
 <a href="https://www.youtube.com/watch?v=YLLoomUwrOQ">video</a>
 </p>
  
