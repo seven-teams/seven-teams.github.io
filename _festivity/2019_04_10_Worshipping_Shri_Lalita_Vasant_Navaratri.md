@@ -71,7 +71,7 @@ Born from the sacred fire-pit of consciousness, emerging for a divine purpose.</
 
 <p>
 <font color="green"><b>Shri Lalita Sahastranama</b></font><br>
-<a href="https://www.youtube.com/watch?v=PKNAgirTBr4">video</a></p>
+<a href="https://www.youtube.com/watch?v=PKNAgirTBr4">video</a>
 </p>
 
 <p>
