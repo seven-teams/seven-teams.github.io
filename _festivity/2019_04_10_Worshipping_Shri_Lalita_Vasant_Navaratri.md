@@ -64,7 +64,7 @@ Born from the sacred fire-pit of consciousness, emerging for a divine purpose.</
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Jago Savera Aya Hai, Mata Ne Jagaya Ha/b></font><br>
+<font color="green"><b>Jago Savera Aya Hai, Mata Ne Jagaya Ha</b></font><br>
 <a href="https://www.youtube.com/watch?v=lUNkxcIAEs4"> video</a><br>
 </p>
 
