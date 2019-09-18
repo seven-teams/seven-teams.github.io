@@ -23,8 +23,8 @@ tags:
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
-<b></b>
+<font color="DarkRed">"I have told you many a times it is like a donkey, mind is just like a donkey. If you go behind the donkey, it kicks you, it will tell you, that you are the bad man, you are the worst man; all the self-pity will come into you. If you go ahead with the donkey, then he’ll put his ears to you, you can hold him like an ego, you see. You can go wherever you want, do what you like, “What’s wrong?” It will not control you. If you sit on top of the donkey it will still play about with you, to see how you work out."</font><br>
+<b>1982-0926 Śhrī Durgā Pūjā, Mind Is just like a Donkey, House of Grégoire, Vienna, Austria</b>
 </p>
 
 <div style="text-align: center"><img src="/images/image86.png" /></div>
