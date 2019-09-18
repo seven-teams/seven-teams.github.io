@@ -17,15 +17,15 @@ tags:
 <div style="text-align: center"><img src="/images/image82.png" /></div>
 
 <p style="color:blue; text-align:center;">
-Rāmo Rāja-manihi sadā vijayate Rāmam Ram’esham bhaje
-<font size="-1">(I worship the husband of Shri Sita, Shri Rama, the king of kings, who is forever victorious).</font>
- Rāmen’ābhihatā nishāchara-chamū Rāmāya tasmai namah
-<font size="-1">(I bow to Shri Rama who has killed the army of rakshasas).</font>
-Rāmānn’āsti parā-yanam para-taram Rāmasya dās’osmy’aham
-<font size="-1">(I consider no-one greater than Shri Rama and I am His servant).</font>
- Rāme chitta-layah sadā bhavatu me bho Rāma mām-uddhara
-<font size="-1">(Shri Rama, let my attention be always on Your Being and may You help me to evolve).</font>
-<b>Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namo Namaha!</b>
+Rāmo Rāja-manihi sadā vijayate Rāmam Ram’esham bhaje<br>
+<font size="-1">(I worship the husband of Shri Sita, Shri Rama, the king of kings, who is forever victorious).</font><br>
+ Rāmen’ābhihatā nishāchara-chamū Rāmāya tasmai namah<br>
+<font size="-1">(I bow to Shri Rama who has killed the army of rakshasas).</font><br>
+Rāmānn’āsti parā-yanam para-taram Rāmasya dās’osmy’aham<br>
+<font size="-1">(I consider no-one greater than Shri Rama and I am His servant).</font><br>
+ Rāme chitta-layah sadā bhavatu me bho Rāma mām-uddhara<br>
+<font size="-1">(Shri Rama, let my attention be always on Your Being and may You help me to evolve).</font><br>
+<b>Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namo Namaha!</b><br>
 </p>
 
 <p>
