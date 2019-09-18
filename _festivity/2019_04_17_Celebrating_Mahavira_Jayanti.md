@@ -18,11 +18,11 @@ Mahāvīra is the Incarnation of Bhairavanāth, or you call Him as Saint Michael
 
 <div style="text-align: center"><img src="/images/image89.png" /></div>
 
-<p style="color:blue; text-align:center;">
-Now Mahavira also was one of them,<br>
+<p style="text-align:center;">
+<font color="blue">Now Mahavira also was one of them,<br>
 who was born again and again and he was Markandeya and he was Kabira,<br>
 the way Kabira lashes people you can see that he is tremendous,<br>
-<b>He is like Bhairava and the Power of Bhairava, ......</b><br>
+<b>He is like Bhairava and the Power of Bhairava, ......</b></font><br>
 <b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b>
 </p>
 
