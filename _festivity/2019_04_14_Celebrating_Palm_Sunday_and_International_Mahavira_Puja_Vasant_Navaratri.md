@@ -36,7 +36,9 @@ O Divine Mother, You are verily Shri Mahavira. Salutations to You!<br>
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"Today we have gathered here to do the Pūjā of Mahāvīra. So far I think it’s the first time we are having Mahāvīra Pūjā. The reason was that Mahāvīra’s life was an ascetic’s life, just like Buddha.<br>
+......<br>
+The ascetic life of Mahāvīra was of a very, very extreme nature. He was the one who was born in a clan of warriors, Kṣhatriyas, and then He was also married. Also He had a daughter and then He decided because He knew He had to do the work of the Divine, He decided to take a saṃnyāsa. So He took the permission of His brother because His parents were dead. He was a king, so He gave up all His material wealth everything and He became a complete saṃnyāsī and He left His family, left His house everything behind and went alone with a little bowl for begging alms. And the people who joined Him were very few and He asked them that you have to also become ascetics, Munis"</font><br>
 <b>1990-0616 Śhrī Mahāvīra Pūjā, Touch Your Depth and Complete Kevalagyān (There Is Hell and You Must Learn to Have Self-discipline), Ca'n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b>
 </p>
 
