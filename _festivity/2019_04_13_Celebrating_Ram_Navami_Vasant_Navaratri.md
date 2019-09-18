@@ -64,14 +64,14 @@ Baajat painjaniyaan</font><br>
 Dhaay maat god let dasharath kii raniyaan</font><br>
 Laughing joyously he stumbles around on the ground<br>
 He is fondly picked into the laps of King Dasharath’s queens<br>
-<font color="blue"><b>Thumak Chala</b></font>
+<font color="blue"><b>Thumak Chala</b></font><br>
 <a href="https://www.youtube.com/watch?v=3kjgprOXnAU"> video</a><br>
 </p>
 
 <p>
 <font color="DarkRed">"That is a very beautiful song was written by him. But still, the description of a child, how when he runs when he runs,when he jumps, when he walks it’s a beautiful songs about Śhrī Rāma. Ṭhumko atta hai who – Ṭhumaka chalat Rām[a]chandra, atta hai kya?<br>
 [In Hindi:] <b>Do you know the song 'Ṭhumaka chalat  Rām[a]chandra'</b> ...<br>
-[In English:] Now these words are such that we cannot explain in English, but when they walk, you know, with – started walking, so their body, you know, moves in a way that’s called ‘ṭhumakanā’ [ toddle, waddle] in Hindi language. <b>So described by Tulasīdāsa, as Śhrī Rāma is walking in that way. ‘Ṭhumaka chalat Rām[a]chandra’. And His anklets are singing and then He’s looking round and every pebble on which He’s walking is reflecting Him, like the souls in which He’s reflected."</b></font><br>
+[In English:] Now these words are such that we cannot explain in English, but when they walk, you know, with – started walking, so their body, you know, moves in a way that’s called ‘ṭhumakanā’ [ toddle, waddle] in Hindi language. <b>So described by Tulasīdāsa, as Śhrī Rāma is walking in that way. ‘Ṭhumaka chalat Rām[a]chandra’. And His anklets are singing and then He’s looking round and every pebble on which He’s walking is reflecting Him, like the souls in which He’s reflected.</b>"</font><br>
 <b>1994-0405 Talk to Sahaja Yogis, Picnic, Lane Cove National Park, Lane Cone Valley Walk, West Pymble, Sydney, New South Wales, Australia</b>
 </p>
 
