@@ -31,6 +31,7 @@ tags:
 
 <p style="color:blue; text-align:center;">
 <b>Aum twameva sākshāt Shrī Mahāvīra sākshāt<br>
+Shrī Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah!</b><br>
 O Divine Mother, You are verily Shri Mahavira. Salutations to You!<br>
 </p>
 
