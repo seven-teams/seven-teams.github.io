@@ -47,10 +47,10 @@ It exists in everything and you have to feel it. That’s what we call as the Co
 <p style="text-align:center;">
 <font color="DarkGreen"><b>On this very auspicious day, Shri Mataji please give us the desire to have Akshaya Pad.<br>
 Please bless us with that eternal love of God.</b></font><br>
-<font color="DarkRed"; size="-1"><b>Kundalini Kundalini Nirmala Mata, Mata Ma<br>
+<font size="-1"><font color="DarkRed"><b>Kundalini Kundalini Nirmala Mata, Mata Ma<br>
 Jai Nirmala Shakti, Bhagawati, Nirmal Bhakti<br>
 Adi Shakti, Nirmala Devi, Nirmala Mata Mataji</b><br>
-Kundalini Kundalini</font><br>
+Kundalini Kundalini</font></font><br>
 <a href="https://www.youtube.com/watch?v=eA5CQ3iSK2A"> video</a><br>
 </p>
 
