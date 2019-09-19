@@ -46,8 +46,8 @@ When your Mother is the Deity of Sahasrāra, the only way to be able to keep the
 
 <div style="text-align: center"><img src="/images/image149.png" /></div>
 
-<p style="color:text-align:center;">
-<b>"The mantra of Sahasrāra is 'Nirmalā'' which means everyone should be clean, tidy, pure and ‘niṣhkalaṅk’ [immaculate, without any blemish/stain]."</b>
+<p style="text-align: center;">
+<font color="DarkRed"><b>"The mantra of Sahasrāra is 'Nirmalā'' which means everyone should be clean, tidy, pure and ‘niṣhkalaṅk’ [immaculate, without any blemish/stain]."</b></font><br>
 <font size="-1">1900-0000 Four Quotes from Nirmala Yoga (Hindi), Issue 19 (May-June 1985), Page 15</font><br>
 <font color="DarkGreen"><b>Aum twameva sākshāt  Shri Nishkalaṅkā sākshāt Shri Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah!</b></font>
 <b>O Divine Mother, You are verily the Spotless and unblemished , Shri Adi Shakti. Salutations to You!</b><br>
@@ -87,7 +87,7 @@ Those who are devoted to You themselves become supporters of the universe</font>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"When your Mother is the Deity of Sahasrāra,<br>
-the only way to be able to keep the Sahasrāra open has to be complete surrendering."</b><br>
+the only way to be able to keep the Sahasrāra open has to be complete surrendering."</b></font><br>
 <b>1985-0504 Talk to Sahaja Yogis, Nirvikalpa, the day before Sahasrāra Pūjā, Laxenburg Castle, Vienna, Austria</b><br>
 </p>
 
