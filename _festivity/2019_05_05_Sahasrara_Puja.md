@@ -49,7 +49,7 @@ When your Mother is the Deity of Sahasrāra, the only way to be able to keep the
 <p style="text-align: center;">
 <font color="DarkRed"><b>"The mantra of Sahasrāra is 'Nirmalā'' which means everyone should be clean, tidy, pure and ‘niṣhkalaṅk’ [immaculate, without any blemish/stain]."</b></font><br>
 <font size="-1">1900-0000 Four Quotes from Nirmala Yoga (Hindi), Issue 19 (May-June 1985), Page 15</font><br>
-<font color="DarkGreen"><b>Aum twameva sākshāt  Shri Nishkalaṅkā sākshāt Shri Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah!</b></font>
+<font color="DarkGreen"><b>Aum twameva sākshāt  Shri Nishkalaṅkā sākshāt Shri Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah!</b></font><br>
 <b>O Divine Mother, You are verily the Spotless and unblemished , Shri Adi Shakti. Salutations to You!</b><br>
 </p>
 
