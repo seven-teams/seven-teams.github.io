@@ -73,10 +73,9 @@ You are worshipped by the lords of the universe.<br>
 <b>Vishw'ashraya ye twayi bhakti namraha</b><br>
 Those who are devoted to You themselves become supporters of the universe</font><br>
 <b>Prayer to Shri Raja-rajeshwari<br>
-(79 names of Shri raja-rajeshwari created by Shri Mataji Herself and read out during Sahasrara puja in cabella, 2000)</b><br>
+(79 names of Shri raja-rajeshwari created by Shri Mataji Herself and read out during the 2000 Sahasrara Puja in Cabella)</b><br>
 <a href="https://www.youtube.com/watch?v=7jLDenmw7So"> video</a>
 </p>
-
 
 <p>
 <font color="DarkRed">"Sahasrara is your awareness. When it is enlightened you get into the technique of the Divine. Now there are two techniques: the technique of the Divine, and the technique that you follow. You cannot act as Divine, but you can use the Divine power and manoeuvre it. For example, Divine looks after all the Universal happenings.Every minutest particle is controlled by Divine. When your Sahasrara opens out and your Kundalini touches the fontanelle bone, sort of a igniting force is ready in your Sahastrara, and as soon as the fontanelle bone area opens up through the brahmarandhra, the Grace of your Spirit ignites that igniting force and your nadis get enlightened. Not all of them, quite a lot of them; not all the length, but quite the peripheries. That’s how you get your enlightenment."</font><br>
