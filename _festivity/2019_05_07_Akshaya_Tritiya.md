@@ -18,7 +18,7 @@ Now, we say that it is pure desire, but we do not know what purity means. It mea
 <div style="text-align: center"><img src="/images/image95.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>"Akshay Tritiya.That’s the day, when – I mean it is regarded as the most auspicious day to start anything."</b></font><br>
+<font color="DarkGreen"><b>"Akshay Tritiya. That’s the day, when – I mean it is regarded as the most auspicious day to start anything."</b></font><br>
 <b>1988-0610 Conversation with Sahaja Yogis, About Music, Photographs and False Gurus, Lunch before the evening Public Program in Graz, Gleißenfeld (75 kms S of Vienna), Austria</b>
 </p>
 
@@ -32,7 +32,7 @@ Now, we say that it is pure desire, but we do not know what purity means. It mea
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"So when you worship the Adi Kundalini,<br>
 what you are trying to do is to cleanse your Kundalini as well as please the Deities.<br>
-Because this is an object, it is object, it is not to be changed –  but the reflection can change."</b></font><br>
+Because this is an object, it is [an] object, it is not to be changed –  but the reflection can change."</b></font><br>
 <b>1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b>
 </p>
 
@@ -46,7 +46,7 @@ It exists in everything and you have to feel it. That’s what we call as the Co
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>On this very auspicious day, Shri Mataji please give us the desire to have Akshaya Pad.<br>
-Please bless us with that eternal love of God.</b><br>
+Please bless us with that eternal love of God.</b></font><br>
 <font color="DarkRed"; size="-1"><b>Kundalini Kundalini Nirmala Mata, Mata Ma<br>
 Jai Nirmala Shakti, Bhagawati, Nirmal Bhakti<br>
 Adi Shakti, Nirmala Devi, Nirmala Mata Mataji</b><br>
