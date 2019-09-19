@@ -103,7 +103,7 @@ They say that you have to ask for three things called ‘Sālokya’, ‘Sāmīp
 <font color="DarkRed"><b>Shri Mataji:</b> Now say the Sahasraras mantras, three, Sahasrara Swamini, Moksha Pradayani, Sahaja Yoga Dayini.</font><br>
 <b>Sahaja Yogis: Om Twameva Sakshat Shri Sahasrara Swamini Moksha Pradayani Sakshat Shri Adishakti Mataji Shri Nirmala Devi Namo Namah.</b><br>
 <font color="DarkRed"><b>Shri Mataji:</b> Sahaja Yoga Dayini.</font><br> 
-<b>Sahaja Yogis: Om Twameva Sakshat Shri Sahaja Yoga Dayini Sakshat Shri Adishakti Mataji Shri Nirmala Devi Namo Namah.</b>
+<b>Sahaja Yogis: Om Twameva Sakshat Shri Sahaja Yoga Dayini Sakshat Shri Adishakti Mataji Shri Nirmala Devi Namo Namah.</b><br>
 <font color="DarkRed"><b>Shri Mataji:</b> Now after saying all these mantras you have reached up to Sahasrara and you have also pierced through the Sahasrara.<br>
 The most effective mantra you know is Nirmala, and that works the best for Sahasrara.</font><br>
 <b>1980-0126 Pūjā, 31st Republic Day Celebration, Seminar, Day 1, Golwad (near Bordi), Maharashtra, India</b><br>
