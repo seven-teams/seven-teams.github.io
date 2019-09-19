@@ -32,7 +32,7 @@ So we have to mold ourselves to fit into the new pattern, the new rhythm, the ne
 
 <p style="text-align:center;">
 <font size="-1">1997-0504 Sahastrara Puja, Cabella, Italy)</font><br>
-<font color="DarkGreen"><b>Om Twameva Sakshat Shri Vishwa Nirmala Dharma- Prasthapini Sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namoh Namah!</b></font>
+<font color="DarkGreen"><b>Om Twameva Sakshat Shri Vishwa Nirmala Dharma Prasthapini Sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namoh Namah!</b></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 1985-0504 Talk to Sahaja Yogis, Nirvikalpa, the day before Sahasrāra Pūjā, Laxenburg Castle, Vienna, Austria<br><a href="https://www.youtube.com/watch?time_continue=1&v=UnELWtFpbfc"> video</a><br>
