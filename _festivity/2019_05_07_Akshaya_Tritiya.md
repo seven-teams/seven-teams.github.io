@@ -68,11 +68,11 @@ Let us all worship Shri Mataji sakshat Shri Adi Shakti and pray for eternally ri
 
 <p>
 <font color="green"><b>Jago Kundalini Ma</b></font><br>
-<a href="https://www.youtube.com/watch?v=QIWysa18CGY&list=RDv7T1xpKkYFU">video</a>
+<a href="https://www.youtube.com/watch?v=QIWysa18CGY&list=RDv7T1xpKkYFU">video, Part 1</a>
 </p>
 
 <p>
-<font color="green"><b>Jo Bhaje Hari Ko Sada: Divine prayer for Shri Vishnu</b> by Pandit Bhimsen Joshi, in the presence of Shri Mataji</b></font><br>
+<font color="green"><b>Jo Bhaje Hari Ko Sada: Divine prayer for Shri Vishnu</b> by Pandit Bhimsen Joshi, in the presence of Shri Mataji</font><br>
 <a href="https://www.youtube.com/watch?v=NFwpRXCx5VQ">video</a>
 </p>
 
@@ -89,7 +89,6 @@ Let us all worship Shri Mataji sakshat Shri Adi Shakti and pray for eternally ri
 <p>
 <font color="green"><b>Apne Panah Mein Hame Rakhna</b></font><br>
 <a href="https://www.youtube.com/watch?v=1zzMwHijwI0">video</a>
-</p>
 </p>
 
 Jai Shri Mataji!<br>
