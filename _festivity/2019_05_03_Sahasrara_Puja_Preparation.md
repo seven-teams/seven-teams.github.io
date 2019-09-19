@@ -31,7 +31,7 @@ So we have to mold ourselves to fit into the new pattern, the new rhythm, the ne
 <div style="text-align: center"><img src="/images/image93.png" /></div>
 
 <p style="text-align:center;">
-<font size="-1">1997-0504 Sahastrara Puja, Cabella, Italy)</font><br>
+<font size="-1">(1997-0504 Sahastrara Puja, Cabella, Italy)</font><br>
 <font color="DarkGreen"><b>Om Twameva Sakshat Shri Vishwa Nirmala Dharma Prasthapini Sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namoh Namah!</b></font>
 </p>
 
