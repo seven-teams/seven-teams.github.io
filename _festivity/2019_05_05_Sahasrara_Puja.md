@@ -110,7 +110,7 @@ The most effective mantra you know is Nirmala, and that works the best for Sahas
 <a href="https://www.youtube.com/watch?v=mPBwtVUOHKg"> video</a><br>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 1989-0506 Sahasrāra Pūjā, Sahaja Yoga Is Nothing but Is Love (Whole Power of Sahasrāra is Love and Jump in the Ocean of Love), Theater Cinema della Rosa, Via delle Rose, 35, Sorrento, Italy<br><a href="https://www.youtube.com/watch?time_continue=1&v=FbB7lAmYpOc"> Part 1</a><br>   <a href="https://www.youtube.com/watch?time_continue=4865&v=FYjcXD4x1lg"> Part 2</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 1989-0506 Sahasrāra Pūjā, Sahaja Yoga Is Nothing but Is Love (Whole Power of Sahasrāra is Love and Jump in the Ocean of Love), Theater Cinema della Rosa, Via delle Rose, 35, Sorrento, Italy<br><a href="https://www.youtube.com/watch?time_continue=1&v=FbB7lAmYpOc"> Part 1</a><br> <a href="https://www.youtube.com/watch?time_continue=4865&v=FYjcXD4x1lg"> Part 2</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -130,13 +130,13 @@ The most effective mantra you know is Nirmala, and that works the best for Sahas
 </p>
  
 <p>
-<font color="green"><b>Gogawa</b></font><br>
+<font color="green"><b>Jogawa</b></font><br>
 <a href="https://www.youtube.com/watch?v=v-jT4DI13cE&feature=youtu.be">video</a>
 </p>
 
 <p>
 <font color="green"><b>Dhyana te rangale</b></font><br>
-<a href="http://www.youtube.com/watch?v=3ifSk6dHu-s&list=PLF38677C8A4FD1D84">video</a>
+<a href="https://www.youtube.com/watch?v=U0w8QSa7zNY4">video</a>
 </p>
 
 <p>
