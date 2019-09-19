@@ -64,7 +64,6 @@ Let us all worship Shri Mataji sakshat Shri Adi Shakti and pray for eternally ri
 
 <font size="+2"><b>Suggested Talk:</b></font> 1992-0621 Śhrī Ādi Kuṇḍalinī Pūjā, Pure Love, Compassion, and Morality, Tent, Cabella Ligure, Italy<br><a href="https://www.youtube.com/watch?v=EPQxjElAVMI"> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
