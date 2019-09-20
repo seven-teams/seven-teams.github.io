@@ -9,7 +9,7 @@ tags:
 ![PICTURE 1](/images/image1.png)
 
 <p>
-<font color="DarkRed">"Today we have decided to celebrate the Buddha Jayanti, it’s the day of Buddha’s birthday. In the whole map of time, Buddha came to this earth at a time when it was so important for Him to come. That time, especially in India, we had two types of people: one, who were very ritualistic, trying to be extremely strict and disciplined; and the another were the people who were too much conditioned and were full of so-called devotion to God. So these two types of people were occupying the area of seekers. So it was necessary to neutralize these two styles of seekings."</font><br>
+<font color="DarkRed">"<b>Today we have decided to celebrate the Buddha Jayanti, it’s the day of Buddha’s birthday.</b> In the whole map of time, Buddha came to this earth at a time when it was so important for Him to come. That time, especially in India, we had two types of people: one, who were very ritualistic, trying to be extremely strict and disciplined; and the another were the people who were too much conditioned and were full of so-called devotion to God. So these two types of people were occupying the area of seekers. So it was necessary to neutralize these two styles of seekings."</font><br>
 <b>1988-0723 Śhrī Buddha Pūjā, Tent, YMCA Camp Surf, 560 Silver Strand Blvd, Imperial Beach (21 kms S of San Diego), CA, U.S.A.</b>
 </p>
 
@@ -23,7 +23,7 @@ sākshāt Shrī Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah</b></font
 
 <p>
 <font color="DarkGreen">"When Lord Buddha came on this earth he found the problem very intricate about God. Everybody was talking that they know God. And everybody's God was different, and in the name of God they were raising wars. So he decided that "don't talk of God anymore now". But everybody wants to talk of Him. "Better not talk of God at this moment when they are not knowing about their Spirit." So He just talked of the Self, the Spirit. But He said: "Buddham sharanam gacch ami", "Buddham sharanam gacch ami", I surrender myself to Buddha. Buddha means the one who knows, the one who has the knowledge, means the Realized soul. In Sahaja Yoga also we go step by step. First of all we have to know our Spirit, not through mental projection but with a spontaneous happening, which is a living happening. They think that human beings cannot do it."</font><br>
-<b>1983-0616 Public Program, Day 1, Joy Has No Duality, Societe d'Encouragement pour l'Industrie Nationale, 4 Place St. Germain des Pres, 6th Arrondissement, Paris, Franc</b>
+<b>1983-0616 Public Program, Day 1, Joy Has No Duality, Societe d'Encouragement pour l'Industrie Nationale, 4 Place St. Germain des Pres, 6th Arrondissement, Paris, France</b>
 </p>
 
 <p>
@@ -33,7 +33,7 @@ He was so tired and fagged out, that suddenly, spontaneous, the Primordial Mothe
 </p>
 
 <p>
-<font color="DarkGreen">"So the Buddha's main thing – Buddha” itself means Bodh, from Bodh. And the Bodh means, "To know the reality on your central nervous system" is the Bodh. You all have become now buddhas without giving up anything, because whatever He gave up was all nonsense. It was a myth. ……. But still one has to know that we have to have that principle of Buddha within ourselves. And what is that Principle of Buddha is that we have to do tapah."</font><br>
+<font color="DarkGreen">"So the Buddha's main thing – Buddha itself means Bodh, from Bodh. And the Bodh means, "To know the reality on your central nervous system" is the Bodh. You all have become now buddhas without giving up anything, because whatever He gave up was all nonsense. It was a myth. ……. But still one has to know that we have to have that principle of Buddha within ourselves. And what is that Principle of Buddha is that we have to do tapah."</font><br>
 <b><1992-0531 Śhrī Buddha Pūjā, The Search for the Absolute, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b>
 </p>
 
@@ -70,6 +70,11 @@ May God bless you!</b>"</font><br>
 </p>
 
 <div style="text-align: center"><img src="/images/image104.png" /></div>
+
+<p style="text-align:center;">
+<font color="DarkRed"><b>"So there are three, three mantras of – in the Buddhist, the Buddhist religion, they call it, or Buddha’s stotram.</b></font><br>
+<b>1990-0514 Śhrī Buddha Pūjā, Saint Petersburg, Russia</b>
+</p>
 
 <p>
 <font color="DarkRed">"So there are three, three mantras of – in the Buddhist, the Buddhist religion, they call it, or Buddha’s stotram. The first one is “Buddham sharanam gachami,” meaning “I surrender myself to all the people who are enlightened.” That case we have to respect each other. We are all enlightened souls. As I also bow to you, you have to bow to each other. So, we are to bow to all the people who are enlightened. And thus, we respect each other’s Self-realization.<br>
