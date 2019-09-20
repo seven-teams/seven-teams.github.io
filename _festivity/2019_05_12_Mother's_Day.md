@@ -41,7 +41,7 @@ But Mother’s position is different, She’ll go on struggling and fighting for
 <div style="text-align: center"><img src="/images/image99.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">May I this day be what You'd have me be.<br>
+<font color="RebeccaPurple">May I this day be what You'd have me be.<br>
 May I this day say what You'd have me say.<br>
 May I this day be part and parcel of the whole<br>
 And may my thoughts be of a realized soul.<br>
@@ -65,7 +65,7 @@ It produces them, nurses them, and weans them.
 The trees and flowers become kind mothers of their great fruits and
 seeds. 
 And the Mother, the prototype of all existence, is the Eternal
-Spirit, full of beauty and love.</font>
+Spirit, full of beauty and love.</font><br>
 <b>(`Broken Wings' by Khalil Gibran)</b>
 </p>
 
@@ -95,11 +95,6 @@ Spirit, full of beauty and love.</font>
 <p>
 <font color="green"><b>Namostute</b></font><br>
 <a href="https://www.youtube.com/watch?v=30F02gXLuGw">video</a> 
-</p>
-
-<p>
-<font color=""><b>HERE</b></font><br>
-<a href="">video</a> 
 </p>
 
 Jai Shri Mataji!<br>
