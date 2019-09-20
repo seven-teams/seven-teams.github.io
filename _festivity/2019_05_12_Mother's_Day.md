@@ -21,7 +21,7 @@ In Divine Love there is no expectations, it just flows, it doesn't think how to 
 <div style="text-align: center"><img src="/images/image98.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Thank You</b> for descending from Your heavenly abode, Mata Dwipa, to bring light into the darkness of Kali Yuga.<br>
+<font color="Indigo"><b>Thank You</b> for descending from Your heavenly abode, Mata Dwipa, to bring light into the darkness of Kali Yuga.<br>
 <b>Thank You</b>, Shri Mataji, again and again.<br>
 <b>Thank You</b> for giving Sahaja Yoga to a confused and self-destructive humanity.<br> 
 <b>Thank You</b> for revealing to us the meaning of creation and evolution.<br>
