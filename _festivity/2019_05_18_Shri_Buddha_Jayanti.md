@@ -88,7 +88,7 @@ And he said that, “I came to feel here to see something that is formless, just
 <div style="text-align: center"><img src="/images/image105.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Buddham sharanam gachhāmi</b><br>
+<font color="Indigo"><b>Buddham sharanam gachhāmi</b><br>
 I surrender myself to my Self-realisation and to all those who are realised souls (Buddhas)<br>
 <b>Dhammam sharanam gachhāmi</b><br>
 I surrender myself to dharma, to the innate religion that is Vishwa Nirmala Dharma<br>
@@ -96,7 +96,7 @@ I surrender myself to dharma, to the innate religion that is Vishwa Nirmala Dhar
 I surrender myself to collectivity and to the collective community of realised souls<br>
 <b>Shrī Ādi Shaktyai Nirmalā Mātaram sharanam gachhāmi</b><br>
 I surrender myself to Shri Adi Shakti Mataji</font><br>
-<font size="-1"><font color="DarkRed"><b>Buddham Sharnam Gachami</b></font></font><br>
+<font size="-1"><font color="DarkGreen"><b>Buddham Sharnam Gachami</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=3IRvnyOjUdI">video</a>
 </p>
 
