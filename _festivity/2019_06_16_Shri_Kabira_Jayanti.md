@@ -89,13 +89,6 @@ Guru Bin Kaun Batave Baat.<br>
 <a href="https://www.youtube.com/watch?v=7jjdlluWX8Q">video</a><br>
 </p>
 
-<div style="text-align: center"><img src="/images/image110.png" /></div>
-
-<p>
-<font color="DarkRed">""</font><br>
-<b></b>
-</p>
-
 <font size="+2"><b>Suggested Talk:</b></font> 1987-1218 Talk to Sahaja Yogis, On Kabīr, after Evening Program, Aurangabad, Maharashtra, India<br><a href="https://www.youtube.com/watch?v=sboIoojWkxY&list=PLB618CDA4FEC74AE6&index=1"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
@@ -106,7 +99,7 @@ Guru Bin Kaun Batave Baat.<br>
 </p>
 
 <p>
-<font color="green"><b>Shri Mataji explaining the bhajan Rang de Jhini</b></font><br>
+<font color="green"><b>Shri Mataji explaining the bhajan 'Rang de Jhini'</b></font><br>
 <a href="https://www.youtube.com/watch?v=gQTTVpjPE34&list=PLB618CDA4FEC74AE6&index=5">video</a>
 </p>
 
