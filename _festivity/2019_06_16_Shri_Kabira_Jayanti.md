@@ -65,7 +65,7 @@ There Kabīra lived and developed that heart. You don’t have all these handica
 On the silent apex there is the percussion of Anahata.<br>
 Anahat is this “lub-dub” of the heart you feel there.<br>
 And then when it breaks you start getting the cool breeze coming out of your head."</font><br>
-<b>1984-0803 Public Program, Birmingham, UK]{1984-0803 Public Program, Birmingham, UK</b><br>
+<b>1984-0803 Public Program, Birmingham, UK</b><br>
 <b>Nirbhay nirgun gun re</b><br>
 <a href="https://www.youtube.com/watch?v=_buuncAm9Ts&list=RD_buuncAm9Ts#t=0">video</a><br>
 </p>
