@@ -72,7 +72,7 @@ May God bless you!</b>"</font><br>
 <div style="text-align: center"><img src="/images/image104.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"So there are three, three mantras of – in the Buddhist, the Buddhist religion, they call it, or Buddha’s stotram.</b></font><br>
+<font color="DarkRed"><b>"So there are three, three mantras of – in the Buddhist, the Buddhist religion, they call it, or Buddha’s stotram."</b></font><br>
 <b>1990-0514 Śhrī Buddha Pūjā, Saint Petersburg, Russia</b>
 </p>
 
