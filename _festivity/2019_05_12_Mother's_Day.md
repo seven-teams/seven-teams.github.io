@@ -1,5 +1,5 @@
 ---
-title: '2019 Celebrating Mother's Day: The most beautiful word on the lips of mankind is the word "Mother": Khalil Gibran'
+title: '2019 Celebrating Mothers Day: The most beautiful word on the lips of mankind is the word "Mother": Khalil Gibran'
 date: 2019-05-12
 permalink: /festivity/2019/0512
 tags:
