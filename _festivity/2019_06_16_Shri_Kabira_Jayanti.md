@@ -79,7 +79,7 @@ Today only I recited him a beautiful couplet that, <b>"Mana mamatÄ ko thirakarÄ
 <div style="text-align: center"><img src="/images/image109.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">Guru gobind dou khade,kaake lagoon paay<br>
+<font color="DarkRed">Guru Gobind dou khade, kaake lagoon paay<br>
 Balihari guru aapne gobind diyo batay<br>
 (Guru and God both are here to whom should I first bow<br>
 All glory to the Guru who showed me the path to God)<br>
