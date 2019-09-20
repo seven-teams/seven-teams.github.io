@@ -1,5 +1,5 @@
 ---
-title: '2019 Celebrating Shri Buddha Jayanti: 'Mother, please take away this curse of ego from Americans and America.''
+title: '2019 Celebrating Shri Buddha Jayanti: "Mother, please take away this curse of ego from Americans and America."'
 date: 2019-05-18
 permalink: /festivity/2019/0518
 tags:
