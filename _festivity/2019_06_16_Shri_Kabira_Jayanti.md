@@ -1,5 +1,5 @@
 ---
-title: 'Shri Kabira Jayanti: "We become people of authority like Kabīra: how he sings, how he talks!"'
+title: '2019 Shri Kabira Jayanti: "We become people of authority like Kabīra: how he sings, how he talks!"'
 date: 2019-06-16
 permalink: /festivity/2019/0616
 tags:
@@ -20,7 +20,7 @@ tags:
 and that my Atma would be enlightened within my awareness.<br>
 Let me keep my life so beautiful,<br>
 <b>"Ye chaadar rishi muni jann odhi, Odhi ke meli kini chadariya,<br>
-Daas Kabir jatan se odhi, Jaisi ki taisi rakh dini chadariya."</b><br>
+Daas Kabir jatan se odhi, Jaisi ki taisi rakh dini chadariya."</b></font><br>
 <b>[1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b><br>
 <a href="https://www.youtube.com/watch?v=tZRibru_9Gw">video</a><br>
 (1986 India Tour: 8 chakras and 5 elements)<br>
