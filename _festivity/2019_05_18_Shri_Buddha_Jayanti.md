@@ -103,7 +103,6 @@ I surrender myself to Shri Adi Shakti Mataji</font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 1992-0531 Śhrī Buddha Pūjā, The Search for the Absolute, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK<br><a href="https://www.youtube.com/watch?time_continue=1&v=Y4tpGZyIgoY"> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
