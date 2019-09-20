@@ -21,7 +21,7 @@ and that my Atma would be enlightened within my awareness.<br>
 Let me keep my life so beautiful,<br>
 <b>"Ye chaadar rishi muni jann odhi, Odhi ke meli kini chadariya,<br>
 Daas Kabir jatan se odhi, Jaisi ki taisi rakh dini chadariya."</b></font><br>
-<b>[1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b><br>
+<b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b><br>
 <a href="https://www.youtube.com/watch?v=tZRibru_9Gw">video</a><br>
 (1986 India Tour: 8 chakras and 5 elements)<br>
 </p>
@@ -30,7 +30,7 @@ Daas Kabir jatan se odhi, Jaisi ki taisi rakh dini chadariya."</b></font><br>
 <font color="DarkGreen"><b>Sometimes by mistake something as you want is not done. You must accept it as the Will of God. That is what He desires. It’s all right.</b><br>
 That is the Desire of God and now you are one with His Desire. You are here to communicate the Desire of God to the whole world. At in, at this stage, if you start having your own desires and ideas about yourself, then when will you become the Desire of God?<br>
 This ‘I’-ness has to go away. That is what meditation is, where you are no more ‘I’ but it is ‘You’.<br>
-Kabīr Dāsjī has written a beautiful poem about it that, "When the goat is living and kicking, she says, 'Maiṃ, maiṃ,' " that is "I, I." "But then she dies and her intestines are drawn out into wires and some Saint fixes them on the tutari," that instrument that they have, ektāri as they call it, "and he goes on pulling it with his fingers, then it says, 'Tū hī, Tū hī, Tū hī,'' " that is, "You are, You are, You are." That is how we have to die and we have to be resurrected."</font><br>
+Kabīr Dāsjī has written a beautiful poem about it that, "When the goat is living and kicking, she says, 'Maiṃ, maiṃ,' " that is "I, I." "But then she dies and her intestines are drawn out into wires and some Saint fixes them on the tutari," that instrument that they have, ektāri as they call it, "and he goes on pulling it with his fingers, then it says, 'Tū hī, Tū hī, Tū hī,' " that is, "You are, You are, You are." That is how we have to die and we have to be resurrected."</font><br>
 <b>1976-0330 Guḍhī Pāḍavā Pūjā (the Day before Guḍhī Pāḍavā), We Have to Be in Meditation Meditation (Be in Thoughtless Awareness and Meditation Is Where You Are No More), New Delhi, India</b><br>
 <font size="-1"><font color="DarkRed">Nirmala Ma Kahiye</font></font><br>
 <a href="https://www.youtube.com/watch?v=XqgvLLeIzVQ">video</a><br>
