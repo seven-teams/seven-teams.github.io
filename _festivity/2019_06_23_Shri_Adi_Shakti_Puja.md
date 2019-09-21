@@ -1,5 +1,5 @@
 ---
-title: '2019 Shri Adi Shakti Puja: "I think if there is any Pūjā you should do, it is this one – is Ādi Shakti"'
+title: '2019 Shri Adi Shakti Puja: "I think if there is any Pūjā you should do, it is this one – is Ādi Śhakti"'
 date: 2019-06-23
 permalink: /festivity/2019/0623
 tags:
@@ -20,29 +20,29 @@ If you do not love something you will not desire it. So, these mundane types of 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Aum sarve vai Devā Devīm-upa-tasthuhu<br>
 “Kāsi twam Mahā-dev’īti”</b></font><br>
-<b>Amen. All the Devas reverently approached the Devi and asked:<br>
-“Who are You, Great Goddess?”</b><br>
+<font size="-1"><b>Amen. All the Devas reverently approached the Devi and asked:<br>
+“Who are You, Great Goddess?”</b></font><br>
 <font color="DarkRed"><b>Sā-bravīt</b></font><br>
-<b>Replying, She said:</b><br>
+<font size="-1"><b>Replying, She said:</b></font><br>
 <font color="DarkRed"><b>“Aham Brahma-swarūpinī“</b></font><br>
-<b>I am all-pervading. I am Divine Awareness Itself.</b><br> 
+<font size="-1"><b>I am all-pervading. I am Divine Awareness Itself.</b></font><br> 
 <font color="DarkRed"><b>Mattah Prakṛuti-purush’ātmakam jagat</b></font><br>
-<b>The world made from the creative energy of Shri Adi Shakti<br>
+<font size="-1"><b>The world made from the creative energy of Shri Adi Shakti<br>
 and of the Primordial Spirit of Shri Sadashiva,<br> 
-comes from Me,</b><br>
+comes from Me,</b></font><br>
 <font color="DarkRed"><b>Shūnyam ch’āshūnyam cha</b></font><br>
-<b>It being both manifest and unmanifest.</b><br>
+<font size="-1"><b>It being both manifest and unmanifest.</b></font><br>
 <font color="DarkRed"><b>Aham-ānand’ānānandau</b></font><br>
-<b>I am blissful and I am bliss itself.</b><br>
+<font size="-1"><b>I am blissful and I am bliss itself.</b></font><br>
 <font color="DarkRed"><b>Aham Vidñyān’āvidñyāne</b></font><br> 
-<b>I am all knowledge and that which is yet to be known.</b><br>
+<font size="-1"><b>I am all knowledge and that which is yet to be known.</b></font><br>
 <font color="DarkRed"><b>Aham Brahm’ābhrahmanī veditavye</b></font><br>
-<b>I am Divine Awareness and also that which is outside of Divine Awareness, I am all that is to be known.</b><br>
+<font size="-1"><b>I am Divine Awareness and also that which is outside of Divine Awareness, I am all that is to be known.</b></font><br>
 <font color="DarkRed"><b>Aham Pancha-bhūtāni-apancha-bhūtāni</b></font><br>
-<b>I am the five elements of creation and beyond the five elements of creation.</b><br>
+<font size="-1"><b>I am the five elements of creation and beyond the five elements of creation.</b></font><br>
 <font color="DarkRed"><b>Aham-akhilam jagat</b></font><br>
-<b>I am this whole manifested world.</b><br>
-Shrī-Devī Atharva-Shīrsham (The highest praise of the supreme Devi)<br>
+<font size="-1"><b>I am this whole manifested world.</b><br>
+Shrī-Devī Atharva-Shīrsham (The highest praise of the supreme Devi)</font><br>
 <a href="https://www.youtube.com/watch?v=CYtOQdOYgU8">video</a>
 </p>
 
@@ -54,12 +54,12 @@ Shrī-Devī Atharva-Shīrsham (The highest praise of the supreme Devi)<br>
 <div style="text-align: center"><img src="/images/image113.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Vin.ti Suniye Adi Shakti Meri</b></font><br>
-<b>Oh Adi Shakti, please listen to my request
-<font color="DarkGreen"><b>Pujan. ka adhikar. dijiye</b></font><br>
-<b>Please give me the authority to do Your Puja
-<font color="DarkGreen"><b>Sharanagat. hai hriday. pujari</b></font><br>
-<b>Your worshipper is surrendered to You from the heart.</b><br>
+<font size="-1"><font color="DarkGreen"><b>Vin.ti Suniye Adi Shakti Meri</b></font></font><br>
+<font size="-1"><b>Oh Adi Shakti, please listen to my request</b><br>
+<font size="-1"><font color="DarkGreen"><b>Pujan. ka adhikar. dijiye</b></font></font><br>
+<font size="-1"><b>Please give me the authority to do Your Puja</b></font><br>
+<font size="-1"><font color="DarkGreen"><b>Sharanagat. hai hriday. pujari</b></font></font><br>
+<font size="-1"><b>Your worshipper is surrendered to You from the heart.</b></font><br>
 <a href="https://www.youtube.com/watch?v=hMK6gaaQ1hU">video</a>
 </p>
 
@@ -105,12 +105,6 @@ Thou Art the Primordial Splendour of God,<br>
 The Adi Shakti and Mother of the Devatas.<br>
 Thou are the roots of all action, the success in any action and the sole and only Doer in the countless universes of Thy creation.</b></font><br>
 <b>Prayer recited at 1988-0723 Shri Buddha Puja, San Diego</b><br>
-<br>
-<b></b><br>
-<br>
-<b></b><br>
-<br>
-<a href="">video</a>
 </p>
 
 <p>
