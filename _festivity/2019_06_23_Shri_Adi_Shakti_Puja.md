@@ -69,7 +69,7 @@ Shrī-Devī Atharva-Shīrsham (The highest praise of the supreme Devi)</font><br
 </p>
 
 <p>
-<font color="DarkRed">"<b>Now, in India they have a word for Holy Spirit and this word is Ādi Śhakti. Ādi, means primordial and śhakti means power. Ādi Śhakti means Primordial Power or the Very Power of God. The Ādi Śhakti is also said to be the Mother of the Universe.</b><br>
+<font color="RebeccaPurple">"<b>Now, in India they have a word for Holy Spirit and this word is Ādi Śhakti. Ādi, means primordial and śhakti means power. Ādi Śhakti means Primordial Power or the Very Power of God. The Ādi Śhakti is also said to be the Mother of the Universe.</b><br>
 Now, in our Christian tradition we have a Divine Family where you have a Father who is God the Almighty and we have a Son who is Jesus Christ.<br>
 But do you know of a family where there is a father and a son without a mother? So the third is what we call the Holy Spirit."</font><br>
 <b>1978-0320 Public Program, We Are All Seeking, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b>
@@ -78,9 +78,9 @@ But do you know of a family where there is a father and a son without a mother? 
 <div style="text-align: center"><img src="/images/image114.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
-<font size="-1"><b>Dene Zeri Amuchya Shiri,</b><br>
-You have given us so much<br>
-<b>Pari Agnya Jana Tu Par Kari,</b><br>
+<font size="-1"><b>Dene Zeri Amuchya Shiri,</b></font><br>
+<font size="-1">You have given us so much</font><br>
+<font size="-1"><b>Pari Agnya Jana Tu Par Kari,</b><br>
 even to those who don't have any knowledge,<br>
 <b>Deshi Jag. Tu Sahaj. Yoga,</b><br>
 You give Sahaja Yoga to the whole universe<br>
