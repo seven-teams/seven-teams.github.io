@@ -121,7 +121,7 @@ Adi Shakti Mataji I have come to Your Lotus Feet<br>
 <b>Shyam Savere gun. Tere gaon,  Tera hijaya hun mein,</b><br>
 Morning and evening I sing Your Praise<br>
 <b>Shri Ma Tera hi jaya hu mein</b><br>
-Shri Mataji I Have received second birth from You<br>
+Shri Mataji I Have received second birth from You</font><br>
 <a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&index=15&list=PLC8554007A2C98EA0">video</a>
 </p>
 
