@@ -47,7 +47,6 @@ Make us like the Sufis and the Gnostics adoring You at every moment.</b></font><
 
 <font size="+2"><b>Suggested Talk:</b></font> 1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.<br><a href="https://www.youtube.com/watch?v=aN-Z4JjZqx4"> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
