@@ -55,7 +55,7 @@ Shrī-Devī Atharva-Shīrsham (The highest praise of the supreme Devi)</font><br
 
 <p style="text-align:center;">
 <font size="-1"><font color="DarkGreen"><b>Vin.ti Suniye Adi Shakti Meri</b></font></font><br>
-<font size="-1"><b>Oh Adi Shakti, please listen to my request</b><br>
+<font size="-1"><b>Oh Adi Shakti, please listen to my request</b></font><br>
 <font size="-1"><font color="DarkGreen"><b>Pujan. ka adhikar. dijiye</b></font></font><br>
 <font size="-1"><b>Please give me the authority to do Your Puja</b></font><br>
 <font size="-1"><font color="DarkGreen"><b>Sharanagat. hai hriday. pujari</b></font></font><br>
