@@ -64,7 +64,7 @@ Shrī-Devī Atharva-Shīrsham (The highest praise of the supreme Devi)</font><br
 </p>
 
 <p>
-<font color="DarkRed">"The poor seekers had to face lot of problems. While meditating they were tortured. So Ādi Śhakti incarnated on this Earth 108 times in Her perfect form. You might have read about it. Read Devī Māhātmyam and you will know what I am saying. Ādi Śhakti incarnated in the form of the Devī and recognized the seekers. At that time She came in the clear form of Devī. There was no māyā around Her. So seekers could not get their Self-realization form Her.The only thing they got was Her protection. She killed Mahiṣhāsura, Śhumbha–Niśhumbha and many others. All the rākṣhasas and negative people who used to torture the Saints were killed. But none of them got salvation because they were not perfect human beings."</font><br>
+<font color="DarkRed">"The poor seekers had to face lot of problems. While meditating they were tortured. <b>So Ādi Śhakti incarnated on this Earth 108 times in Her perfect form.</b> You might have read about it. Read Devī Māhātmyam and you will know what I am saying. <b>Ādi Śhakti incarnated in the form of the Devī and recognized the seekers. At that time She came in the clear form of Devī. There was no māyā around Her. So seekers could not get their Self-realization form Her.</b> The only thing they got was Her protection. She killed Mahiṣhāsura, Śhumbha–Niśhumbha and many others. All the rākṣhasas and negative people who used to torture the Saints were killed. But none of them got salvation because they were not perfect human beings."</font><br>
 <b>1973-1125 Public Program (Hindi), Day 7, Pāne ke Bāda: Sāta Chakroṃ ke Devatā (After Getting It: Deities of the Seven Chakras), New Delhi, India</b>
 </p>
 
