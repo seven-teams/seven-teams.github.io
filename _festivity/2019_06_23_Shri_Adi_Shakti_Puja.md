@@ -116,12 +116,12 @@ I was the One who was born again and again, but now in My Complete Form and Comp
 <div style="text-align: center"><img src="/images/image116.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Adi Shakti Mataji tere Charano meaya hu mein</b><br>
+<font size="-1"><font color="DarkGreen"><b>Adi Shakti Mataji tere Charano meaya hu mein</b><br>
 Adi Shakti Mataji I have come to Your Lotus Feet<br>
 <b>Shyam Savere gun. Tere gaon,  Tera hijaya hun mein,</b><br>
 Morning and evening I sing Your Praise<br>
 <b>Shri Ma Tera hi jaya hu mein</b><br>
-Shri Mataji I Have received second birth from You</font><br>
+Shri Mataji I Have received second birth from You</font></font><br>
 <a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&index=15&list=PLC8554007A2C98EA0">video</a>
 </p>
 
