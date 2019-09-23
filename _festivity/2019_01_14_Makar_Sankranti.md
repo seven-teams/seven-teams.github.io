@@ -17,13 +17,13 @@ tags:
 
 <div style="text-align: center"><img src="/images/image117.png" /></div>
 
-<p style="color:orange; text-align:center;">
+<p style="color:Coral; text-align:center;">
 <b>Aum twameva sakshat Shri Surya Dev sakshat<br>
 Shri Adi Shakti Mataji Shri Nirmala Devyai namo namah!</b><br>
 </p>
 
 <p>
-<font color="green">"Today is Saṅkrānti. Saṅkrānti means that today there is something new going to happen. Kuṇḍalinī has awakened within you and you have become new person compared to what you were before. But on the day of Saṅkrānti, you should know that you have to please the Goddess who is sitting within you.
+<font color="DarkGreen">"Today is Saṅkrānti. Saṅkrānti means that today there is something new going to happen. Kuṇḍalinī has awakened within you and you have become new person compared to what you were before. But on the day of Saṅkrānti, you should know that you have to please the Goddess who is sitting within you.
 What should you do to make Her happy? You distributed sesame seeds and jaggery. That is for love. To increase the love between each other, we give sesame seeds and jaggery."</font><br>
 <b>2008-0117 Makar Saṅkrānti Pūjā (Hindi), Hall, Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b>
 </p>
@@ -60,7 +60,7 @@ And this is one of the religions we have to accept that we will not use harsh wo
 <div style="text-align: center"><img src="/images/image120.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"when on the Saṅkrānti, when the day changes, on the 14th of January when the Sun changes over, then they give the sweet,[unclear] saying that, ‘We’ll give you the sweet and speak to us in the same way in a sweet manner’ – so friendship. <b>Sugar gives you friendship. You give sweets to people to establish friendship.</b>"</font><br>
+<font color="DarkRed">"...... when on the Saṅkrānti, when the day changes, on the 14th of January when the Sun changes over, then they give the sweet, [unclear] saying that, ‘We’ll give you the sweet and speak to us in the same way in a sweet manner’ – so friendship. <b>Sugar gives you friendship. You give sweets to people to establish friendship.</b>"</font><br>
 <b>1982-1009 Bestowing of Boons Pūjā, House of Maria Laventzi, Irchester (near Wellingborough), UK</b>
 </p>
 
@@ -90,7 +90,7 @@ O Divine Mother, You are verily the one who does the Divine work. Salutations to
 <p style="text-align:center;">
 Mr. Dhumāḷ [in Marathi]: Everybody should put hands like this to give a promise to Śhrī Mātājī.<br> 
 <b>Śhrī Mātājī, we will keep ourselves bound by the promise to your today’s blessings [sayings also] and your love.
-Keep the hands one minute and give the promise to Śhrī Mātājī.</b>
+Keep the hands one minute and give the promise to Śhrī Mātājī.</b><br>
 <font color="DarkRed"><b>Śhrī Mātājī [in English]: He is saying you should put your hands like this to say that we are bound by Mother’s words. And we’ll try to do good to others and we’ll be very kind to each other.</b></font><br>
 <b>Mr. Dhumāḷ [in Marathi]: On this auspicious Saṅkrānti Day, everyone should by heart give promise to Śhrī Mātājī.</b><br>
 <b>1987-0114 Makar Saṅkrānti Pūjā (English+Marathi), Carry the Sun with You, House of Madhukar Dhumāḷ, Rāhurī, Maharashtra, India</b>
@@ -116,7 +116,7 @@ Keep the hands one minute and give the promise to Śhrī Mātājī.</b>
 </p>
  
 <p>
-<font color=""><b>Sarva Mangala Mangale</b> (1987-0114 Makar Saṅkrānti Pūjā)</font><br>
+<font color="green"><b>Sarva Mangala Mangale</b> (1987-0114 Makar Saṅkrānti Pūjā)</font><br>
 <a href="http://youtu.be/T_myaTlqb4Y">video</a> 
 </p>
 
