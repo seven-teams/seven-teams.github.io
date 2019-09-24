@@ -46,7 +46,7 @@ That sound is used as Auṃkāra which are vibrations, which have light in it."<
 
 <p>
 <font color="DarkGreen">"<b>But when Pārvatī made Śhrī Gaṇeśha, He was the Son of Pārvatī alone.</b> There was no Father. Pārvatī Herself wanted to have a child of Her own. There were angels who were dedicated either to Viṣhṇu or to Śhiva, like gaṇas were dedicated to Śhiva alone. So, She wanted to have Her own Son who can permeate Her Powers on this Earth.<br>
-So to begin with when the Śhakti created this universe and Sadāśhiva was watching Her creation, the first thing She created on this Earth was innocence and the Embodiment of that Innocence was Śhrī Gaṇeśha."</font><br>"</font><br>
+So to begin with when the Śhakti created this universe and Sadāśhiva was watching Her creation, the first thing She created on this Earth was innocence and the Embodiment of that Innocence was Śhrī Gaṇeśha."</font><br>
 <b>1986-0907 Śhrī Gaṇeśha Pūjā, Establishing Śhrī Gaṇeśha Principle, YMCA Camp Marston, 4761 Pine Hills Road, Julian (near San Diego), CA, U.S.A.</b>
 </p>
 
@@ -60,13 +60,13 @@ So to begin with when the Śhakti created this universe and Sadāśhiva was watc
 
 <p style="text-align:center;">
 <font color="green">Sukh.na hi kothe ale hya samsari</font><br>
-<b>There is no happiness in this world without You</b><br>
+<font size="-1"><b>There is no happiness in this world without You</b></font><br>
 <font color="green">Samsaratsa bhar.sara dayiwari</font><br>
-<b>You are the support of the whole world</b><br>
+<font size="-1"><b>You are the support of the whole world</b></font><br>
 <font color="green">Tu dakhav.maz.mala gaon</font><br>
-<b>Please direct us to the Kingdom of God</b><br>
+<font size="-1"><b>Please direct us to the Kingdom of God</b></font><br>
 <font color="green">Shri Ganesha Kinaryala lau</font><br>
-<b>Shri Ganesha please steer it to the shore</b><br>	
+<font size="-1"><b>Shri Ganesha please steer it to the shore</b></font><br>	
 <a href="https://www.youtube.com/watch?v=1ZZ57Fxd79Q">video</a>
 </p>
 
