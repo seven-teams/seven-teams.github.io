@@ -9,16 +9,16 @@ tags:
 ![PICTURE 1](/images/image1.png)
 
 <p>
-<font color="DarkRed">"It is such a fortunate day today that we should come on the birth of Śhrī Gaṇeśha – today is Vināyak Chaturthī, today – that we should celebrate this Pūjā"</font><br>
+<font color="DarkRed"><b>"It is such a fortunate day today that we should come on the birth of Śhrī Gaṇeśha – today is Vināyak Chaturthī, today – that we should celebrate this Pūjā."</b></font><br>
 <b>1983-0118 Śhrī Gaṇeśha Pūjā, Nasik, Maharashtra, India</b>
 </p>
 
 <div style="text-align: center"><img src="/images/image123.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"This is the importance of this day. 
-Today if you ask for any wish, then Śhrī Gaṇeśha will fulfill it. 
-It is His right to fulfill all your desires, because you are all realized. 
+<font color="DarkRed"><b>"This is the importance of this day.<br>
+Today if you ask for any wish, then Śhrī Gaṇeśha will fulfill it.<br> 
+It is His right to fulfill all your desires, because you are all realized.<br>
 Ask Him with all your heart and He will help you in every way, every moment, every instant."</b></font><br>
 <b>2008-0210 Śhrī Gaṇeśha's Birthday Pūjā (Hindi), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b>
 </p>
