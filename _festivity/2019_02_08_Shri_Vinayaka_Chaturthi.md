@@ -95,7 +95,7 @@ It’s like that.</font><br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Omkar Pradhana Rup Ganeshache by Saint Tukaram</b></font><br>
+<font color="green"><b>Omkar Pradhana Rup Ganeshache</b> by Saint Tukaram</font><br>
 <a href="https://www.youtube.com/watch?v=ks7SUsrbB-c"> video</a><br>
 </p>
 
@@ -110,9 +110,10 @@ It’s like that.</font><br>
 </p>
  
 <p>
-<font color="green"><b>Jai Jai Bolo Nirmal Ganesha Ki/b></font><br>
-<a href="https://www.youtube.com/watch?v=0dit4be9pK0">video</a> 
+<font color="green"><b>Jai Jai Bolo Nirmal Ganesha Ki</b></font><br>
+<a href="https://www.youtube.com/watch?v=9r2eVWLg4mo">video</a> 
 </p>
+
 <p>
 <font color="green"><b>108 Names of Shri Ganesha</b></font><br>
 <a href="https://www.youtube.com/watch?v=9r2eVWLg4mo">video</a> 
