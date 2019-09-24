@@ -116,7 +116,7 @@ It’s like that.</font><br>
 
 <p>
 <font color="green"><b>108 Names of Shri Ganesha</b></font><br>
-<a href="https://www.youtube.com/watch?v=9r2eVWLg4mo">video</a> 
+<a href="https://www.youtube.com/watch?v=LEoMVTD6Zuc">video</a> 
 </p>
 
 <p>
