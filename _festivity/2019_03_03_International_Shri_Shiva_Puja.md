@@ -126,7 +126,7 @@ composed by Shri Adi Shankaracharya)<br>
 </p>
 
 <p>
-<font color="green"><b>Dum dum dhamaro baje</b></font><br>
+<font color="green"><b>Dam Dam  Dam Dam Damaru Baje</b></font><br>
 (Hindi 116 - Australian edition Songbook)<br>
 <a href="https://www.youtube.com/watch?v=z0KRpdPHb84">video</a>
 </p>
