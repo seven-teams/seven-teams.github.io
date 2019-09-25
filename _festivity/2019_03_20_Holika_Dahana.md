@@ -17,8 +17,8 @@ tags:
 <div style="text-align: center"><img src="/images/image132.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen">"As you know, on the day of Holi, Holika was burnt. Agni [God of Fire] had a very big blessing and task,<br>
-because Agni Devatā had given Holika a boon that in any circumstance,<br>
+<font color="DarkRed">"As you know, on the day of Holi, Holika was burnt. Agni [God of Fire] had a very big blessing<br>
+and task, because Agni Devatā had given Holika a boon that in any circumstance,<br>
 she will not burn, that death could come to her in any form, but not by fire."</font><br>
 <b>1983-0329 Talk to Sahaja Yogis (Hindi), Raṃgavalī Holī Celebrations, Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b>
 </p>
@@ -35,15 +35,14 @@ Such is the myth and traditionally we burn Holī every year. There lies a lot of
 <font color="DarkRed">"So like that you see different colors are spread on the face ......<br>
 red color, is the sign of innocence. So Kabira says that, “You put me into such a color.<br>
 Oh, the one who is going to color me is the One”. Rangaraj is the one who colors things.<br>
-So He says, “Oh Rangaraj, make me so that the whole thing becomes red – innocence, fills me up with complete innocence."<br>
+So He says, “Oh Rangaraj, make me so that the whole thing becomes red – innocence, fills me up with complete innocence."</font><br>
 <b>Shri Maa Hain Rang Raij Chunar Mori Rang</b><br>
 <a href="https://www.youtube.com/watch?v=RWtxxyvWe7E">video</a> 
 </p>
 
 <p>
 <font color="DarkRed">"Then the colors are, <b>the colors are all representing your chakras.</b> These are all the chakras as you know. Every chakra has got different color. So what happens? These colors just get distributed in the air, in the atmosphere. During Holi time you [know you?] are representing those colors which are completely permeating into the atmosphere. So this is an-other thing when you play colors. When you color another person, you are just expressing that these, your chakras will be blessed. <b>Red color is of the Mooladhara.</b> All those colors that you use here are of different chakras. So just you are making the whole expression of your love that let it be you become completely filled with red color, means innocence, means innocence. Because as a child in the womb of the mother just sees the red color of the mother, color of the blood.
-So like that you see different colors are spread on the face……..
-red color, is the sign of innocence. So Kabira says that, “You put me into such a color. Oh, the one who is going to color me is the One”. Rangaraj is the one who colors things. So He says, “Oh Rangaraj, make me so that the whole thing becomes red – innocence, fills me up with complete innocence.” And innocence is the one he has asked for to be filled in. And same is <b>with Shri Krishna that He played with all these different colors to show that there are different charkas within us apart from the red and the others that are there. All of them play a part to create a beautifully joyful personality.</b>"</font><br>
+So like that you see different colors are spread on the face. ...... red color, is the sign of innocence. So Kabira says that, “You put me into such a color. Oh, the one who is going to color me is the One”. Rangaraj is the one who colors things. So He says, “Oh Rangaraj, make me so that the whole thing becomes red – innocence, fills me up with complete innocence.” And innocence is the one he has asked for to be filled in. And same is <b>with Shri Krishna that He played with all these different colors to show that there are different charkas within us apart from the red and the others that are there. All of them play a part to create a beautifully joyful personality.</b>"</font><br>
 <b>1984-0317 Talk to Sahaja Yogis (English+Hindi+English), Raṃgavalī Holī Celebration, Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b>
 </p>
 
