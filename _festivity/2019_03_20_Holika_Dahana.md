@@ -51,7 +51,7 @@ So like that you see different colors are spread on the face. ...... red color, 
 <b>1991-0228 Talk to Sahaja Yogis (Hindi+English), Raṃgavalī Holī Celebrations, New Delhi, India</b>
 </p>
 
-<div style="text-align: center"><img src="/images/image135.png" /></div>
+<div style="text-align: center"><img src="/images/image134.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"On Holī we should burn all those things which spoil our attention and damage the Āgñyā.<br>
@@ -88,7 +88,7 @@ The day the complete combination of this will happen then on both chakras the si
 <font color="DarkBlue">Wishing</font> <font color="red">you</font> <font color="orange">all</font> <font color="blue">a</font> <font color="DarkGreen">very</font> <font color="DarkRed">Happy Holi!</font><br>
 </p>
 
-<div style="text-align: center"><img src="/images/image134.png" /></div>
+<div style="text-align: center"><img src="/images/image135.png" /></div>
 
 Jai Shri Mataji!<br>
 On behalf of the festivity team!
