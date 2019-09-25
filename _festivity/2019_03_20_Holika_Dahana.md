@@ -57,7 +57,7 @@ So like that you see different colors are spread on the face. ...... red color, 
 <font color="DarkRed">"On Holī we should burn all those things which spoil our attention and damage the Āgñyā.<br>
 Then this attention will clear out and we will celebrate Holī with joy and understanding.<br>
 The day the complete combination of this will happen then on both chakras the similarity will come."</font><br>
-<b>1984-0317 Talk to Sahaja Yogis (English+Hindi+English), Raṃgavalī Holī Celebration, Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b>
+<b>1991-0228 Talk to Sahaja Yogis (Hindi+English), Raṃgavalī Holī Celebrations, New Delhi, India</b>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 1991-0228 Talk to Sahaja Yogis (Hindi+English), Raṃgavalī Holī Celebrations, New Delhi, India<br><a href="https://www.youtube.com/watch?v=bc2lyMh6Beg"> video</a><br>
