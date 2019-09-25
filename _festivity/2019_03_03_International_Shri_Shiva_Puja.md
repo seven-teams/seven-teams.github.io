@@ -19,19 +19,13 @@ tags:
 <p style="color:Indigo; text-align:center;">
 <b>Pranava swaroopaya, chidakasaya,  Aakasa dik swaroopaya, Graha nakshatra maline, Sakalaya, Kalanka rahithaya, Sakala lokaika karthre, Sakala lokaika bharthre,<br> 
 Sakala lokaika samharthre,  SAkala lokaika gurave,<br>
-Sakala lokaika Sakshine,  Sakala nigama guhyaya,<br>
+Sakala lokaika Sakshine,  Sakala nigama guhyaya,</b><br>
 <br>
-<font size="-1">He who is the form of “Om”, He who is the divine ether, He who is personification of sky and directions, He who wears stars and planets as Garlands,<br>
+<font size="-1"><b>He who is the form of “Om”, He who is the divine ether, He who is personification of sky and directions, He who wears stars and planets as Garlands,<br>
 He who is everything, He who does not have any dark spot, He who creates all the world, He who manages all the worlds,<br>
 He who destroys all the worlds, He who is the teacher of all the world, He who is a witness of all the world, He who is hiding in all reasoning.</b><br>
 Shiva Kavach<br>
 Sage Rishabha, from Skanda Purana</b></font><br>
-<br>
-<b></b><br>
-<br>
-<b></b><br>
-<br>
-<a href="">video</a>
 </p>
 
 <p>
