@@ -84,10 +84,8 @@ May God bless you.</font><br>
 <font size="-1"><b>Nirgunaya, Nishkaamaya, Nirupaplavaya, Niravadhyaya, Nirantharaya, Nishkaranaya, Nirathangaya, Nishprapanchaya,<br>
 Nissangaya, Nirdwandwaya, NIradharaya, Neeraagaya,<br>
 Nishkrodhaya, Nirmoolaya, Nishpapaya, Nirbhayaya, Nivikalpaya, Nirbhedhaya,<br>
-Nishkriyaya, Nisthoolaya, Nissamsayaya, Niranjanaya, Nirupamavibhavaya,</b><br>
-He who does not have any properties, He who does not have any desires, He who is separate from all dangers, He who is permanent, He who does not have any cause, He who does not have any worry, He who is different from the world, He who is not in any group,<br>
-He who is not plural, He who does not have any basis, He does not have likes, He who is not angry, He who does not have any roots, He who is above all sins, He who is not afraid, He who is not bound by time, He who does not differentiate,<br> 
-He who is action less, He who is above all , He who does not have any doubts, He who is without stains, He who has matchless assets,<br>
+Nishkriyaya, Nisthoolaya, Nissamsayaya, Niranjanaya, Nirupamavibhavaya</b><br>
+He who does not have any properties, He who does not have any desires, He who is separate from all dangers, He who is permanent, He who does not have any cause, He who does not have any worry, He who is different from the world, He who is not in any group, He who is not plural, He who does not have any basis, He does not have likes, He who is not angry, He who does not have any roots, He who is above all sins, He who is not afraid, He who is not bound by time, He who does not differentiate, He who is action less, He who is above all, He who does not have any doubts, He who is without stains, He who has matchless assets<br>
 <b>Shiva Kavach Sage Rishabha, from Skanda Puran</b></font><br>
 </p>
 
@@ -134,7 +132,7 @@ composed by Shri Adi Shankaracharya)<br>
 </p>
  
 <p>
-<font color=""><b>Shiva Aarti</b></font><br>
+<font color="green"><b>Shiva Aarti</b></font><br>
 <a href="https://www.youtube.com/watch?v=QE6J_z3g4sQ">video</a> 
 </p>
 
