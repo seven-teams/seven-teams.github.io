@@ -10,7 +10,7 @@ tags:
 ![PICTURE 1](/images/image1.png)
 
 <p>
-<font color="Red">"Today is Śhivarātri and today is the day we pray to Lord Śhiva. On the outside, we can gain mastery on our body, its movements, the mind, ego and various functions. Whatever is there in the universe, we can know it and use it like whatever elements that there are in the earth, and what grows, we can use them. We can gain complete supremacy over all this. But this is all an outside manifestation. What we are within is the Spirit. We are Śhiva. What is on the outside is destructible. What is born will die. What is created will be destroyed. But what is within, is our Ātmā, who is our Śhiva, who is a reflection as Sadāśhiva, is indestructible, desireless and free. It is not stuck to anything. It is stainless. By obtaining that Śhiva, and getting the Light of that Śhiva, we also slowly get renounced. The outside remains as it is, but within, is the Ātmā – permanent and indestructible, always emitting its light."</font><br>
+<font color="DarkRed">"Today is Śhivarātri and today is the day we pray to Lord Śhiva. On the outside, we can gain mastery on our body, its movements, the mind, ego and various functions. Whatever is there in the universe, we can know it and use it like whatever elements that there are in the earth, and what grows, we can use them. We can gain complete supremacy over all this. But this is all an outside manifestation. What we are within is the Spirit. We are Śhiva. What is on the outside is destructible. What is born will die. What is created will be destroyed. But what is within, is our Ātmā, who is our Śhiva, who is a reflection as Sadāśhiva, is indestructible, desireless and free. It is not stuck to anything. It is stainless. By obtaining that Śhiva, and getting the Light of that Śhiva, we also slowly get renounced. The outside remains as it is, but within, is the Ātmā – permanent and indestructible, always emitting its light."</font><br>
 <b>1990-0223 Śhivarātri Pūjā (Hindi), Ātma-sākṣhātkārī kī Viśheṣhatāem̐ (Attributes of Self-realization), Flora Palace, Pune, Maharashtra, India</b>
 </p>
 
@@ -25,7 +25,7 @@ Sakala lokaika Sakshine,  Sakala nigama guhyaya,</b><br>
 He who is everything, He who does not have any dark spot, He who creates all the world, He who manages all the worlds,<br>
 He who destroys all the worlds, He who is the teacher of all the world, He who is a witness of all the world, He who is hiding in all reasoning.</b><br>
 Shiva Kavach<br>
-Sage Rishabha, from Skanda Purana</b></font><br>
+Sage Rishabha, from Skanda Purana</font><br>
 </p>
 
 <p>
@@ -71,9 +71,10 @@ So first of all this Earth when it receded from the Sun which was very hot was t
 </p>
 
 <p>
-<font color="Red">"So today I hope we all pray that “O Lord, give us strength and that source of attraction by which we give up ‘all’ other attractions of ‘all’ the pleasures, of ‘joy’ of ego, of every thing that we think of, but <b>we should fall into the ‘pure joy’ form of the Śhiva Tattwa. Absolutely.</b>”<br>
-I hope I’ve been able to explain to you why I am here today and why today is a very big day. You all who are here are specially very lucky people, who should think that God has been kind to you, that He has chosen you today to be here, to listen to this. <b>And then, once you get detached, you’ll start feeling responsible – abhiyukt – responsible.</b> But a responsibility, not giving ego but responsibility which is executing by itself. Which is expressing by itself, manifesting by itself.<br>
-May God bless you!"</font><br>
+<font color="DarkRed">"So, today I hope we all pray that, `O Lord, give us strength and that source of attraction by which we give up all other attractions of all the pleasures of joy, of ego, of everything that we think of, but <b>we should fall into the pure joy form of the Śhiva Tattwa. Absolutely.'</b><br>
+I hope I've been able to kh explain to you why I am here today and why today is a very big day. You all who are here are specially very lucky people, who should think that God has been kind to you, that He has chosen you today to be here, to listen to this.<br>
+<b>And then, once you get detached, you'll start feeling responsible, abhiyukt: responsible.</b> But the responsibili[ty] not giving ego but responsibility which is executing by itself, which is expressing by itself, manifesting by itself.<br> 
+May God bless you.</font><br>
 <b>1984-0229 Śhivarātri Pūjā, Bring Śhiva Tattwa to the Brain and Practice the Śhiva Tattwa by Practicing Detachment (Fifth Dimension in the Human Being, The So-called Limited Brain It Has Become the Unlimited Spirit, and After Realization a Complete Detachment), Banks of Chandrabhāgā River near Śhrī Viṭṭhala Temple, Paṇḍharpur, Maharashtra, India</b>
 </p>
 
