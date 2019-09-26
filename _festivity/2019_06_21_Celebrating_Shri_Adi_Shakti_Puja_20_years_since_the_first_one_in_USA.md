@@ -114,7 +114,7 @@ We would like to begin a three day celebration and worshiping of Shri Mataji in 
 </p>
 
 <p>
-<font color="blue">This year, this celebration is a special one as today we are celebrating 20 years since the first Shri Adi Shakti Puja in USA, in the 114 acres land She has purchased 25 years ago in Fort Plain, Up-state New York. The heavenly names, Nirmal Nagarī, Nirmal Mārg, and Nirmal Dam, were chosen by Her. The minute details on how the stage is to be built, where the well is to be drilled, how the road is to be made, where the hangar is to be placed, are another blessing</font><br>
+<font color="blue">This year, this celebration is a special one as today we are celebrating 20 years since the first Shri Adi Shakti Puja in USA, in the 114 acres land She has purchased 25 years ago in Fort Plain, Up-state New York. The heavenly names, Nirmal Nagarī, Nirmal Mārg, and Nirmal Dam, were chosen by Her. The minute details on how the stage is to be built, where the well is to be drilled, how the road is to be made, where the hangar is to be placed, are another blessing.</font><br>
 </p>
 
 <p>
