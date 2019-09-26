@@ -96,7 +96,7 @@ May the complexity of Your work humble us down completely</b></font>
 <div style="text-align: center"><img src="/images/image158.png" /></div>
 
 <p style="text-align:center;">
-<b>1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</<br>
+<font size="-1"><b>1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</b></font><br>
 <font color="DarkRed"><b>Thank You for submitting us to the benevolent attention of the deities and all celestial beings.<br> 
 Thank You for giving us concern for others. Thank You for giving us the power to help others.<br>
 Thank You for giving us the satisfaction of spreading Vishwa Nirmala Dharma.<br>
