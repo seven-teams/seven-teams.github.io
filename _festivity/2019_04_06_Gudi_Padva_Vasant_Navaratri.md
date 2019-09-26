@@ -109,13 +109,13 @@ O Mother, please place them on my head too, taking mercy on me</font><br>
 <a href="https://www.youtube.com/watch?v=ks7SUsrbB-c">video</a> 
 </p>
 <p>
-<font color="green"><b>Jai Jai Bolo Nirmal Ganesha Ki/b></font><br>
+<font color="green"><b>Jai Jai Bolo Nirmal Ganesha Ki</b></font><br>
 (Victory to Shri Ganesha, Australian song book, Hindi supplement Page 66)<br>
 <a href="https://www.youtube.com/watch?v=9r2eVWLg4mo">video</a> 
 </p>
 
 <p>
-<font color="green"><b><Jay. Jay. Janani Shri Ganesh. Ki /b></font><br>
+<font color="green"><b>Jay. Jay. Janani Shri Ganesh. Ki </b></font><br>
 <a href="https://www.youtube.com/watch?v=osyZMyvmqfA">video</a> 
 </p>
 
