@@ -83,7 +83,7 @@ The day of recollection of Divine devotion has come!<br>
 
 <p>
 <font color="DarkRed">"Nice to see today so many Sahaja Yogis looking like beautiful lotus flowers, as the Blossom Time is filled with the fragrance of your beauty. <b>It is such a pleasure for Me to be your Mother and to be able to communicate the Divine, the Powers of Divine, the Beauty of Divine to you. It was never possible before, as you know. Everyone tried their level best but nobody could achieve it, to communicate that beauty.</b><br>
-As you know, Sahaja Yoga, or this Mahā Yoga is a very unique system, it never existed before. It has come into existence, of course, I should say that because the Parabrahma decided to take a form, but you also all decided to come on this Earth to receive the blessings. It cannot be possible to do anything with one hand. The beauty of Sahaja Yoga is great, no doubt, which I am sure very soon people will realize that this is the only way"</font><br>
+As you know, Sahaja Yoga, or this Mahā Yoga is a very unique system, it never existed before. It has come into existence, of course, I should say that because the Parabrahma decided to take a form, but you also all decided to come on this Earth to receive the blessings. It cannot be possible to do anything with one hand. The beauty of Sahaja Yoga is great, no doubt, which I am sure very soon people will realize that this is the only way."</font><br>
 <b>1982-0321 Birthday Pūjā, Āśhram, 44 Chelsham Road, London, Clapham, UK</b>
 </p>
 
@@ -92,13 +92,13 @@ As you know, Sahaja Yoga, or this Mahā Yoga is a very unique system, it never e
 <p style="color:green; text-align:center;">
 <font color="DarkRed"><b>"As it is, today is also a very auspicious day, which we call as Holī.<br>
 They play Holī on this day and show their love and oneness among themselves."</b></font><br>
-<b>2000-0321 Birthday Pūjā (English+Hindi), Nirmal Dham, New Delhi, India/b><br>
+<b>2000-0321 Birthday Pūjā (English+Hindi), Nirmal Dham, New Delhi, India</b><br>
 </p>
 
 <p>
 <font color="DarkRed">"<b>You wanted to celebrate My Birthday. I don’t know what is such a significance about it. But, the way you have really shown your understanding and respect, I’m just enamored.</b> I can’t understand what I have done for you, that you should do so much for Sahaja Yoga.<br>
 As it is, today is also a very auspicious day, which we call as Holī. They play Holī on this day and show their love and oneness among themselves. This is the time when we have to really understand the value of love, of respect of others"</font><br>
-<b></b>
+<b>2000-0321 Birthday Pūjā (English+Hindi), Nirmal Dham, New Delhi, India</b>
 </p>
 
 <p>
