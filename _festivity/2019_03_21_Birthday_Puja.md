@@ -46,11 +46,11 @@ So He had to create this creation in such a way that He could create His own ima
 You have come for our sake, O Mother<br>
 <b>Bas ek bahane ... aj ke din</b><br>
 Taking this very day as a pretext!<br>
-<b>Aj ke din., Ma, aj.ke din<br>
+<b>Aj ke din., Ma, aj.ke din</b><br>
 On this very day, O Mother, on this very day!<br>
 <b>Bahe prem.hriday se jaha ke liye</b><br>
 Your heart is flowing with Love for the whole universe.<br>
-<b>Barhe Yog Sahaj Ma</b><br>
+<b>Barhe Yog Sahaj Ma<br>
 Aj. Ke Din - Jab. Rat. Dhale</b><br>
 Let Sahaja Yoga prosper on this very day!</font><br>
 <a href="https://www.youtube.com/watch?v=O3kudRDPf-E">video</a>
