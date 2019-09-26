@@ -87,7 +87,7 @@ May the complexity of Your work humble us down completely</b></font>
 </p>
 
 <p>
-<font color="DarkRed">"The -- another greatest thing that you get is love and compassion, love and compassion which acts, which works. For example now there are people who are taking drugs in this country. They can be easily cured. Easily. Overnight people have been cured from drugs, especially in England. And now they are leading a very normal life. They were all intelligent people, but lost in that troubles. <b>I have suggested that we could have this center for drug eradication in Canajoharie. But people are afraid of drug addicts. They say: The drug addicts we don't want to have among ourselves, because they trouble us. But it's an overnight, I told you, overnight you can get rid of your drugs.</b><br>
+<font color="DarkRed">"The - another greatest thing that you get is love and compassion, love and compassion which acts, which works. For example now there are people who are taking drugs in this country. They can be easily cured. Easily. Overnight people have been cured from drugs, especially in England. And now they are leading a very normal life. They were all intelligent people, but lost in that troubles. <b>I have suggested that we could have this center for drug eradication in Canajoharie. But people are afraid of drug addicts. They say: The drug addicts we don't want to have among ourselves, because they trouble us. But it's an overnight, I told you, overnight you can get rid of your drugs.</b><br>
 ......<br>
 <b>Luckily we have people here, even in such a far-fetched place like Canajoharie we have people who know about Sahaja Yoga.</b>"</font><br>
 <b>2001-0802 Public Program, Meeting Room 6, Convention Center, Empire State Plaza, Albany, NY, U.S.A.</b>
