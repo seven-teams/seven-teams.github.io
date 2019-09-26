@@ -62,7 +62,7 @@ But if you decide that we have to ascend spiritually within us then everything t
 ......<br>
 <b>First of all, you have to know you are Prophets and you must know that I am the Holy Ghost. I am the Ādi Śhakti. I am the one who has come on this Earth for the first time in this form to do this tremendous task. The more you will understand this, the better it would be. You will change tremendously.<br>
 I knew I will have to say that openly one day and we have said it.<br>
-But now it is you people who have to prove it, that I am that ......"</font><br>
+But now it is you people who have to prove it, that I am that</b> ......"</font><br>
 <b>1983-0321 Birthday Pūjā, Sahaja Yogis Can't Afford to Have These Six Enemies, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b>
 </p>
 
