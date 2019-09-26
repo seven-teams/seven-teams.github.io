@@ -12,7 +12,8 @@ tags:
 <p>
 <font color="DarkRed">"So today is the day of – first day – of when Gaṇeśha was created, in the sense that, though today is not a Tuesday, but according to dates of the Moon, today is the day, first day of the Moon in this month. [Marathi.] We call it Chaitra. Chaitra is the month. And this is the time when – [Marathi] – Gaurī is the Chaitra. So the establishment of the Gaurī is taken place during these nine days. But Gaṇeśha has to be established before anything else. Though first Gaurī had to come, you can see that. Gaurī had to come first to establish Gaṇeśha. But Gaṇeśha is always put before even Gaurī. Before the Pūjana of the, worship of the Gaṇeśha, nothing starts; because He’s the one who takes out all the obstacles, all the negativities, all the hurdles that are going to come up, all the attentions that are here and there. So that’s why we first  worship Gaṇeśha, just to ask Him to protect us.<br>
 But first the Gaurī has to come, and that’s how the Gaurī is this nine days. She came on this Earth to fight the devils and demons, negativity, for people to transcend the Bhavasāgara, the Void, the Rāmāyaṇa, the illusion. When they were praying, when they were doing anything, people used to obstruct and then they troubled the bhaktas, the devotees of God – rākṣhasas.<br>
-...... But today is actually the Pūjā of the Gaurī, that is, the Kuṇḍalinī. So Śhrī Gaṇeśh we’ll do first of all, and then we’ll worship the Kuṇḍalinī, which is the Gaurī."</font><br>
+......<br>
+But today is actually the Pūjā of the Gaurī, that is, the Kuṇḍalinī. So Śhrī Gaṇeśh we’ll do first of all, and then we’ll worship the Kuṇḍalinī, which is the Gaurī."</font><br>
 <b>1981-0404 Śhrī Gaṇeśha Gaurī Pūjā, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b>
 </p>
 
@@ -41,7 +42,7 @@ In the same way, Kuṇḍalinī is the Gaurī and we have got  Gaṇeśha sittin
 <p style="color:DarkGreen; text-align:center;">
 <b>Jay. Jay. Janani Shri Ganesh. Ki</b><br>
 Victory, Victory O Mother of Shri Ganesha<br>
-<b>Pratibha Parameshwar. Paresh. Ki/b><br>
+<b>Pratibha Parameshwar. Paresh. Ki</b><br>
 You are the Intellect power of God Almighty<br>
 <b>Jay. Jay. Janani Shri Ganesh. Ki</b><br>
 Victory, Victory Oh Mother of Shri Ganesha<br>
