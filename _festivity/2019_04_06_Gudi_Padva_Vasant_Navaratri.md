@@ -95,7 +95,7 @@ O Mother, please place them on my head too, taking mercy on me</font><br>
 </p>
 
 <p>
-<font color="green"><b><Zulzul Vahe/b></font><br>
+<font color="green"><b>Zulzul Vahe</b></font><br>
 <a href="https://www.youtube.com/watch?v=TbbNsFKL07c">video</a>
 </p>
 
