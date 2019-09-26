@@ -121,5 +121,9 @@ O Mother, please place them on my head too, taking mercy on me</font><br>
 
 <div style="text-align: left"><img src="/images/image147.png" /></div>
 
+<p style="text-align:left;">
+	Happy Gudi Padwa!
+</p>
+
 Jai Shri Mataji!<br>
 On behalf of the festivity team!
