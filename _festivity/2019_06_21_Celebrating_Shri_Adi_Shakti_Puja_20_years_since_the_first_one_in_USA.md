@@ -19,8 +19,8 @@ Of course, you know that Red Indians were driven out, and they came here to hide
 <div style="text-align: center"><img src="/images/image153.png" /></div>
 
 <p style="text-align:center;">
-(Shri Mataji leaving for the first Sakar Adi Shakti Puja in Canajoharie: 1999-0620 Śhrī Ādi Śhakti Pūjā, Canajoharie, NY, U.S.A)<br>
-<font color="DarkRed"><b>Shri Adi Shakti, the land of the Vishuddhi is one aspect of Your vast Creation.<br>
+<font size="-1">(Shri Mataji leaving for the first Sakar Adi Shakti Puja in Canajoharie: 1999-0620 Śhrī Ādi Śhakti Pūjā, Canajoharie, NY, U.S.A)</font><br>
+<font color="Purple"><b>Shri Adi Shakti, the land of the Vishuddhi is one aspect of Your vast Creation.<br>
 You will raise the vibrations to transform the people of this land.<br>
 The native peoples of America worshipped Shri Adi Shakti as the Great Mother and they respected the land as sacred.<br> 
 May this attitude return to all others who live here and enjoy the land’s bounty.</b></font><br>
@@ -34,9 +34,11 @@ May this attitude return to all others who live here and enjoy the land’s boun
 <div style="text-align: center"><img src="/images/image154.png" /></div>
 
 <p style="text-align:center;">
-Miracle photo (vibrations) at Adi Shakti Puja: 2000-0702 Adi Shakti Puja, Canajoharie, USA<br>
-<font color="DarkRed"><b>Flow through us freely. Help us give vibrations to all with Your photograph of living vibrations.<br> 
-Your Mahamaya swarupa allows us to be near You and it shields us from the awesome might that flows from You</b></font><br> 
+<font size="-1">Miracle photo (vibrations) at Adi Shakti Puja: 2000-0702 Adi Shakti Puja, Canajoharie, USA</font><br>
+<font color="DarkRed"><b>Flow through us freely. Help us give vibrations to all with<br>
+Your photograph of living vibrations.<br>
+Your Mahamaya swarupa allows us to be near You and it shields us<br> 
+from the awesome might that flows from You.</b></font><br> 
 </p>
 
 <p>
@@ -47,15 +49,15 @@ Your Mahamaya swarupa allows us to be near You and it shields us from the awesom
 <div style="text-align: center"><img src="/images/image155.png" /></div>
 
 <p style="text-align:center;">
-Canajoharie in 1999<b></b><br>
+<font size="-1">Canajoharie in 1999</font><br>
 <font color="DarkRed"><b>"Also in America I bought hundred and fourteen acres of land."</b></font><br>
 <b>1995-0306 Talk to Sahaja Yogis, Grand Hotel, Taipei, Taiwan</b>
 </p>
 
 <div style="text-align: center"><img src="/images/image156.png" /></div>
 
-<p style="color:green; text-align:center;">
-Canajoharie in 1999<b></b><br>
+<p style="text-align:center;">
+<font size="-1">Canajoharie in 1999</font><br>
 <font color="blue">Last weekend Sahaja Yogis listened as Śhrī Mātājī described exactly what is to be done in preparation for Śhrī Ādi Śhakti Pūjā on Her land.<br> 
 She described how the stage is to be built, where the well is to be drilled, how the road is to be made and where the hanger is to be placed.<br>
 Now that we know exactly what has to be done please come and help shape the road Śhrī Mātājī has named 'Sahaj Mārg'.<br>
@@ -68,13 +70,13 @@ A few years ago we described Śhrī Mātājī's land as simply 114 acres of tree
 <p>
 <font color="DarkRed">"In your lives if people will see that you are very peaceful, good, helpful, collective people, then only, Sahaja Yoga will spread. Not what I am saying, or what I am spreading, or what I am working out. It's a fact that I always had a feeling that Sahaja Yogis should take to social work. I've been a social worker all My life, and I am a socialist in a way, but all these things I did, you may call it secretly, or anything, whatever it is, but some people knew about it, and this was to be done, and practically most of these cases are ready to be donated.<br> 
 The reason I did not donate it in the beginning [is] because I wanted to see [that] there are people who are honest, and who will do the work honestly. Because in the name of social work, people just want to exploit. This is the reason I waited for so many days, and though I have given some of these already like Gaṇapatīpuḷe, or the hospital, also Dharmaśhālā school, all have been given. But now I want to give even more. Like I didn't know that, <b>in America, the land we have bought, in Canajoharie, is in My name; and I heard it I was surprised because there is no income from there, nothing of the kind, and I decided there and then, that it has to be given to the collective of Life Eternal Trust of America. It's all My desire that things should work out. But according to Sahaja Yoga, unless and until you have your Gaṇapati, Gaṇeśha, mother of land, motherland, where you start your work, it doesn't take form, it doesn't do anything.</b>"</font><br>
-<b><2000-1029 Talk to Sahaja Yogis (3rd day after Diwālī Day), after Diwālī Pūjā, Lake Piru Recreational Area Campground, 4780 Piru Canyon Rd, Piru (87 kms NW of Los Angeles), CA, U.S.A./b>
+<b>2000-1029 Talk to Sahaja Yogis (3rd day after Diwālī Day), after Diwālī Pūjā, Lake Piru Recreational Area Campground, 4780 Piru Canyon Rd, Piru (87 kms NW of Los Angeles), CA, U.S.A.</b>
 </p>
 
 <div style="text-align: center"><img src="/images/image157.png" /></div>
 
 <p style="text-align:center;">
-<b>1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</b><br>
+<font size="-1"><b>1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</b></font><br>
 <font color="Maroon"><b>Thank You, O Shri Adi Shakti, for the seeking which brought us to Sahaja Yoga.<br>
 You now lift up humanity into the omega of the Last Judgment.<br>
 You have incarnated on this Earth for the Last Judgement.<br>
