@@ -19,13 +19,13 @@ That life is unending, never breaks and binds the whole universe with it’s bea
 <div style="text-align: center"><img src="/images/image136.png" /></div>
 
 <p style="text-align:center;">
-<font color="Crimson"><b>Shubh Mangalmay, Divas He Aya</b></font><br>
+<font color="DarkRed"><b>Shubh Mangalmay, Divas He Aya</b></font><br>
 The Auspicious Benevolent Day has come<br>
-<font color="Crimson"><b>Adi Shakti, Swayam Hain Padhaari</b></font><br>
+<font color="DarkRed"><b>Adi Shakti, Swayam Hain Padhaari</b></font><br>
 Adi Shakti has come Herself<br>
-<font color="Crimson"><b>Shubh Mangalmay, Divas He Aya</b></font><br>
+<font color="DarkRed"><b>Shubh Mangalmay, Divas He Aya</b></font><br>
 The Auspicious Benevolent Day has come.<br>
-<font color="Crimson">Sur Nar Muni, Sab Jhoom Rahe Hain<br>
+<font color="DarkRed">Sur Nar Muni, Sab Jhoom Rahe Hain<br>
 Aaj Prakriti Khil, Phul Rahi Hai<br>
 Phool Khile, Bhanware Khag Mil Ke<br>
 Rachaita Ke, Hi Gun Gaayen<br>
@@ -44,13 +44,13 @@ So He had to create this creation in such a way that He could create His own ima
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Ayi ho Ma ham sab ke liye</b><br>
 You have come for our sake, O Motherbr>
-Bas ek bahane ... aj ke din</b><br>
-Taking this very day as a pretext!br>
-Aj ke din., Ma, aj.ke din</b><br>
-On this very day, O Mother, on this very day!br>
-Bahe prem.hriday se jaha ke liye</b><br>
+<b>Bas ek bahane ... aj ke din</b><br>
+Taking this very day as a pretext!<br>
+<b>Aj ke din., Ma, aj.ke din<br>
+On this very day, O Mother, on this very day!<br>
+<b>Bahe prem.hriday se jaha ke liye</b><br>
 Your heart is flowing with Love for the whole universe.br>
-Barhe Yog Sahaj Ma</b><br>
+<b>Barhe Yog Sahaj Ma</b><br>
 Aj. Ke Din - Jab. Rat. Dhale</b><br>
 Let Sahaja Yoga prosper on this very day!</font><br>
 <a href="https://www.youtube.com/watch?v=O3kudRDPf-E">video</a>
