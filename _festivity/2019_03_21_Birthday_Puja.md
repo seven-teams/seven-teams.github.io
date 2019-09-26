@@ -89,7 +89,7 @@ As you know, Sahaja Yoga, or this Mahā Yoga is a very unique system, it never e
 
 <div style="text-align: center"><img src="/images/image139.png" /></div>
 
-<p style="color:green; text-align:center;">
+<p style="text-align:center;">
 <font color="DarkRed"><b>"As it is, today is also a very auspicious day, which we call as Holī.<br>
 They play Holī on this day and show their love and oneness among themselves."</b></font><br>
 <b>2000-0321 Birthday Pūjā (English+Hindi), Nirmal Dham, New Delhi, India</b><br>
