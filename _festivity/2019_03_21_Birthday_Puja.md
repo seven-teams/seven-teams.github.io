@@ -112,7 +112,7 @@ You all are Sahaja Yogis. You all have got your Realization, that is, your Spiri
 <div style="text-align: center"><img src="/images/image140.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGren"><b>Adi Shakti Mataji Tere Charano me aya hu mein</b><br>
+<font color="DarkGreen"><b>Adi Shakti Mataji Tere Charano me aya hu mein</b><br>
 Adi Shakti Shri Mataji I have come to your Lotus Feet<br>
 <b>Shyam saveregun. Tere gaon Tera hi jaya hu mein</b><br>
 Morning and evening I sing Your praise<br>
