@@ -64,7 +64,7 @@ Now that we know exactly what has to be done please come and help shape the road
 Put paint on and decorate the walls of the building Śhrī Mātājī has called 'Nirmal Dham'.<br>
 Help raise the water tower over the well on this land the Ādi Śhakti has called 'Nirmal Nagarī'.<br>
 A few years ago we described Śhrī Mātājī's land as simply 114 acres of trees, two ponds, meadows and gently sloping hills</font><br>
-<b>1999-06xx Related to an E-mail, U.S.A.</b>
+<font size="-1"><b>1999-06xx Related to an E-mail, U.S.A.</b></font>
 </p>
 
 <p>
