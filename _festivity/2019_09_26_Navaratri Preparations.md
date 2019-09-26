@@ -24,13 +24,13 @@ Kaotu Sa Nah Shubha Hetur Ishwari<br>
 Shubhani Bhadranya Bhihantu Cha Padah</b></font></font><br>
 <font size="-1"><b>Invoked of yore by the Devas for the sake of their desired object,<br>
 and adored by the lord of the Devas every day,<br>
-may She, the Ishwari, the source of all good, accomplish for us all auspicious things and put an end to our calamities!</b></font><br>
+may She, the Ishwari, the Source of all Good, accomplish for us all auspicious things and put an end to our calamities!</b></font><br>
 </p>
 
 <p style="text-align:left;">
 Dear Brothers & Sisters,<br>
 Jai Shri Mataji!<br>
-NNavaratri Celebrations provide a unique opportunity for individual and collective inner growth. Let's get together to worship Shri Mataji as the Supreme Goddess in all Her Divine Forms. All the Goddesses and all the Gods are Shri Mataji's First Children and Divine Emanations of Hers and thus we would like to please Them by making offerings and uttering prayers at the Lotus Feet of Shri Mataji so that Her different Shaktis that abide in all human beings are awakened and manifested within all of us.<br>
+Navaratri Celebrations provide a unique opportunity for individual and collective inner growth. Let's get together to worship Shri Mataji as the Supreme Goddess in all Her Divine Forms. All the Goddesses and all the Gods are Shri Mataji's First Children and Divine Emanations of Hers and thus we would like to please Them by making offerings and uttering prayers at the Lotus Feet of Shri Mataji so that Her different Shaktis that abide in all human beings are awakened and manifested within all of us.<br>
 This year Navaratri in America starts from the 29th of September to the 7th of October which is celebrated as Vijayadashami.<br>
 The 2nd and 3rd day are combined this year.<br>
 We shall worship Shri Mataji in the nine forms of Shri Durga as described by Shri Brahmadeva in the Kavach of the Devi.<br>
@@ -98,7 +98,7 @@ Offer Prasad and perform Aarti to Shri Mataji. Then sit in meditation collective
 <div style="text-align: center"><img src="/images/image163.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Jaya Jagadambe Mā 
+<font color="DarkRed"><b>Jaya Jagadambe Mā<br>
 Victory to the Divine Mother of the Universe!</b></font><br>  
 <b>Nav Durga ki</b><br>
 <a href="https://www.youtube.com/watch?v=yuxz7SjLorw">video</a>
