@@ -15,4 +15,4 @@ Please kindly share the file with all our brothers and sisters.
 
 The Compilations Team
 
-[Download pdf here](http://seven-teams.github.io/files/Lemons_and_Chilies_treatment.pdf)
+[Download pdf here](http://seven-teams.github.io/files/Lemons_and_Chilies_Treatment.pdf)
