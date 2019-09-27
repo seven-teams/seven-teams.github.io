@@ -8,7 +8,7 @@ tags:
 ---
 Jai Shri Mataji
 
-Please find attached the pdf file of quotes on <font color="blue">Judas Iscariot</font>obtained by searching for all possible root combinations such as "<font color="red">juda</font>" and "<font color="red">iscar</font>". If by chance extra such quotes are found out, please kindly share them with all of us.<br>
+Please find attached the pdf file of quotes on <font color="blue">Judas Iscariot</font> obtained by searching for all possible root combinations such as "<font color="red">juda</font>" and "<font color="red">iscar</font>". If by chance extra such quotes are found out, please kindly share them with all of us.<br>
 
 Please kindly share the file with all our brothers and sisters.  
 
