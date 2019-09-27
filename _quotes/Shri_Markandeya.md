@@ -1,18 +1,18 @@
 ---
-title: 'Shri Markandeya'
+title: 'Quotes on Śhrī Mārkaṇḍeya'
 date: 2015-02-28
 permalink: /quotes/2015/02/28
 tags:
   - Incarnations
 ---
 
-Please find attached the pdf file <font color="blue">Shri_Markandeya.pdf</font> obtained by searching for Shri <font color="red">Makandey</font>, Shri <font color="red">Makendey</font>, Shri <font color="red">Makendey</font> and Shri <font color="red">Makanday</font>.   
+Please find attached the pdf file <font color="blue">Shri_Markandeya.pdf</font> obtained by searching for Śhrī <font color="red">Mārkaṇḍey</font>, Śhrī <font color="red">Mārkeṇḍay</font>, Śhrī <font color="red">Mārkeṇḍey</font> and Śhrī <font color="red">Mārkaṇḍay</font>.   
 
-If by chance extra quotes on <font color="blue">Shri Markandeya</font> are found out, please kindly share them with all of us.  
+If by chance extra quotes on <font color="blue">Śhrī Mārkaṇḍeya</font> are found out, please kindly share them with all of us.  
 
 Please share the file with all our brothers and sisters.  
 
-Jay Shri Mataji!  
+Jay Śhrī Mātājīi!  
 
 The Quotes on Incarnations Team  
 
