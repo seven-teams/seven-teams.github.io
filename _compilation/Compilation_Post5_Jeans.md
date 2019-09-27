@@ -3,9 +3,8 @@ title: 'Post 5: Jeans'
 date: 2015-02-25
 permalink: /compilation/2015/0225
 tags:
-  - treatment
   - jeans
-  - medical
+  - Sahaja Culture
 ---
 Jai Shri Mataji
 
