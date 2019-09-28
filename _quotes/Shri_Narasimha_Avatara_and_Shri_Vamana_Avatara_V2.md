@@ -18,4 +18,4 @@ The Quotes on Incarnations Team
 
 [Download pdf here](http://seven-teams.github.io/files/Shri_Narasimha_Avatara.pdf)
 
-[Download pdf here](http://seven-teams.github.io/files/Shri_Vamana_Avatara_Version_2.pdf)
+[Download pdf here](http://seven-teams.github.io/files/Shri_Vamana_Avatara_V2.pdf)

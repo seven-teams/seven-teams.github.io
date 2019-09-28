@@ -1,7 +1,7 @@
 ---
 title: 'Quotes on Śhrī Vāmana Avatāra, Version 4'
 date: 2019-04-03
-permalink: /quotes/2019/04/03
+permalink: /quotes/2019/0403
 tags:
   - Incarnations
 ---
@@ -16,4 +16,4 @@ Jay Śhrī Mātājī!
 
 The Quotes on Incarnations Team  
 
-[Download pdf here](http://seven-teams.github.io/files/Shri_Vamana_Avatara_Version_4.pdf)
+[Download pdf here](http://seven-teams.github.io/files/Shri_Vamana_Avatara_V4.pdf)
