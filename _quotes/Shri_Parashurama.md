@@ -1,5 +1,5 @@
 ---
-title: 'Quotes on Shri Paraśhurāma'
+title: 'Quotes on Śhrī Paraśhurāma'
 date: 2015-06-29
 permalink: /quotes/2015/06/29
 tags:

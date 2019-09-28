@@ -6,7 +6,7 @@ tags:
   - Incarnations
 ---
 
-Please find attached the pdf file <font color="blue">Shri Vamana Avatara, Version 4.pdf</font> obtained by searching for Shri <font color="red">Vāman, short man, small man</font>.   
+Please find attached the pdf file <font color="blue">Shri_Vamana_Avatara_Version_4.pdf</font> obtained by searching for Shri <font color="red">Vāman, short man, small man</font>.   
 
 If by chance extra quotes on <font color="blue">Śhrī Vāmana Avatāra</font> are found out, please kindly share them with all of us.  
 
