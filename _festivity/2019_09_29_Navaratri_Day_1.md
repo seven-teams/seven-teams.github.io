@@ -68,9 +68,9 @@ Which has its origin in the opening of Thine Eyes.</b><br></font>
 <div style="text-align: center"><img src="/images/image167.png" /></div>
 
 <p style="color:indigo; text-align:center;">
-O Parmeshwari, Who is ever praised with devotion by Lord Shiva,<br>
+O Parameśhwarī, Who is ever praised with devotion by Lord Śhiva,<br>
 the Husband of the Daughter of Himalaya,<br>
-please bestow upon us the spiritual personality, victory, and glory, and destroy our enemie
+please bestow upon us the spiritual personality, victory, and glory, and destroy our enemies.
 </p>
 
 <p>
@@ -82,10 +82,10 @@ please bestow upon us the spiritual personality, victory, and glory, and destroy
 
 <p style="color:green; text-align:center;">
 <font color="DarkRed">"So when you soothe My Feet, wash Them, clean Them, you know what They mean:<br>
-<b>you recognize.</b>
+<b>you recognize.</b><br>
 That recognition, how are you to show? <b>You see, these ceremonies, little ceremonies are important<br>
 because<br>
-they express your recognition.</b>
+they express your recognition.</b><br>
 It could be absolutely dull, dead and finished, and it could be absolutely<br>
 living, if you know why you are doing it.<br>
 Then you apply some oil and things [to] again soothe My Feet.<br>
