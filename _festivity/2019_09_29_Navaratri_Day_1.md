@@ -74,7 +74,8 @@ please bestow upon us the spiritual personality, victory, and glory, and destroy
 </p>
 
 <p>
-<font color="DarkRed">"Today we worship the Himalayas and the seven Goddesses whose blessings are here, and pray to them to bless us with Devi Shakti. We have received the blessings of the Devi Shakti from a Mother. That is why, in the form of Mother, let us come to the feet (Sharanagat) of the Himalayas. Keep your attention on yourself."</font><br>
+<font color="DarkRed">"Today we worship the Himalayas and the seven Goddesses whose blessings are here, and pray to them to bless us with Devī Śhakti. We have received the blessings of the Devī Śhakti from a Mother. That is why, in the form of Mother, let us come to the feet (śharaṇāgat) of the Himalayas.<br>
+Keep your attention on yourself."</font><br>
 <b>1985-0329 Śhrī Śhailaputrī Devī Pūjā (English+Hindi) (7th Day of Chaitra Navarātri), Exhibition Hall, Basement of the Puruṣhottam Hotel, Talnoo​, ​Naddi (11 kms NNE of Dharmaśhālā), Himachal Pradesh, India</b>
 </p>
 
