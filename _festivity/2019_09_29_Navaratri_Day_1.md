@@ -80,7 +80,7 @@ please bestow upon us the spiritual personality, victory, and glory, and destroy
 
 <div style="text-align: center"><img src="/images/image168.png" /></div>
 
-<p style="color:green; text-align:center;">
+<p style="text-align:center;">
 <font color="DarkRed">"So when you soothe My Feet, wash Them, clean Them, you know what They mean:<br>
 <b>you recognize.</b><br>
 That recognition, how are you to show? <b>You see, these ceremonies, little ceremonies are important<br>
