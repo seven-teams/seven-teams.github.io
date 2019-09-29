@@ -83,9 +83,8 @@ please bestow upon us the spiritual personality, victory, and glory, and destroy
 <p style="text-align:center;">
 <font color="DarkRed">"So when you soothe My Feet, wash Them, clean Them, you know what They mean:<br>
 <b>you recognize.</b><br>
-That recognition, how are you to show? <b>You see, these ceremonies, little ceremonies are important<br>
-because<br>
-they express your recognition.</b><br>
+That recognition, how are you to show? <b>You see, these ceremonies, little ceremonies are<br>
+important because they express your recognition.</b><br>
 It could be absolutely dull, dead and finished, and it could be absolutely<br>
 living, if you know why you are doing it.<br>
 Then you apply some oil and things [to] again soothe My Feet.<br>
