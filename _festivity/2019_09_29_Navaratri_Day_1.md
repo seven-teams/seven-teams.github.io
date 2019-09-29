@@ -1,5 +1,5 @@
 ---
-title: '2019 Celebrating Navarātri (Day 1): Worshipping Śhrī Mātājī in the form of Śhrī Śhailaputrī and keeping our attention on Shri Ganesha'
+title: '2019 Celebrating Navarātri (Day 1): Worshipping Śhrī Mātājī in the form of Śhrī Śhailaputrī and keeping our attention on Śhrī Gaṇeśha'
 date: 2019-09-29
 permalink: /festivity/2019/0929
 tags:
