@@ -40,7 +40,7 @@ Shantih'. Swasti-matı  Kantir, Nandinı Vighna-na'shinı.</b><br>
 You are Enjoyment, Nourishment, Intelligence and Steadfastness;<br>
 You are Peace, Good Fortune, Love,<br>
 O joy-giving Destroyer of obstacles<br>
-(<b>Śhrī Lalita Sahasranama</b>, verse 94)</font></font>
+(<b>'Śhrī Lalitā Sahasrānama</b>, verse 94)</font></font>
 </p>
 
 <p>
@@ -57,7 +57,7 @@ With the closing and opening of Thine Eyes,<br>
 Thine Eyes are bereft of winking,<br>
 With a view to save from dissolution this entire universe,<br>
 Which has its origin in the opening of Thine Eyes.</b><br></font>
-<font size="-1">('<b>Saundarya Lahari</b>' by Śhrī Ādi Śhaṅkarāchārya)</font>
+<font size="-1">('<b>Saundaryalaharī</b>' by Śhrī Ādi Śhaṅkarāchārya)</font>
 </p>
 
 <p>
