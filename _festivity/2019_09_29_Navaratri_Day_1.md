@@ -16,14 +16,14 @@ tags:
 <div style="text-align: center"><img src="/images/image164.png" /></div>
 
 <p style="color:green; text-align:center;">
-<font color="MidNightBlue"><b>We should devote ourselves to that Devi<br>
+<font color="MidNightBlue"><b>We should devote ourselves to that Devī<br>
 Who resides at the center of our lotus hearts,<br>
 Whose glory is like that of the rising sun,<br>
 Whose face is pleasing,<br>
 Who grants all boons and protection,<br>
 Who is three-eyed, Who wears red clothes, and<br>
 Who fulfills the desires of Her devotees.</b><br>
-<font size="-1">(Shri Devi Atharva Sheersha)</font></font>
+<font size="-1">(Śhrī Devī Atharva Sheersha)</font></font>
 </p>
 
 <p>
@@ -36,15 +36,15 @@ Who fulfills the desires of Her devotees.</b><br>
 <p style="text-align:center;">
 <font color="MidNightBlue"><b>Kumara-gan.a-nath'amba, Tushtih. Pushtir-matir-dhritih.,<br>
 Shantih'. Swasti-matı  Kantir, Nandinı Vighna-na'shinı.</b><br>
-<font size="-1">Mother of Shri Karttikeya and Ganesha,<br>
+<font size="-1">Mother of Śhrī Kārttikeya and Gaṇeśha,<br>
 You are Enjoyment, Nourishment, Intelligence and Steadfastness;<br>
 You are Peace, Good Fortune, Love,<br>
 O joy-giving Destroyer of obstacles<br>
-(<b>Shri Lalita Sahasranama</b>, verse 94)</font></font>
+(<b>Śhrī Lalita Sahasranama</b>, verse 94)</font></font>
 </p>
 
 <p>
-<font color="DarkRed">"Now let us see the first chakra, belongs to the Power of Gaurī, the Power of the Mother of Śhrī Gaṇeśh. Gaurī’s Power. Tremendous they are, aren’t they? Because of Her Power, you have got your Realization. Now what have we done to enshrine that power within ourselves? Today, if it is the first day of Navarātri, let us see what have we done? Have we been able to develop our innocence within ourselves? When people talk, they are so sharp. How can you be sharp if you are innocent? They are so bumptious. How can you be that if you are innocent? People play games. How can you do that if you are innocent? Harm each other. How can it be, if you are innocent? So, first of all, you have to see yourself, that the power of innocence, if it has to live, all the rest of the nonsense has to go away. If you want to have the innocence, all that is anti-innocence has to be dropped out."</font><br>
+<font color="DarkRed">"Now let us see the first chakra, belongs to the Power of Gaurī, the Power of the Mother of Śhrī Gaṇeśh. Gaurī’s Power. Tremendous they are, aren’t they? Because of Her Power, you have got your Realization. Now what have we done to enŚhrīne that power within ourselves? Today, if it is the first day of Navarātri, let us see what have we done? Have we been able to develop our innocence within ourselves? When people talk, they are so sharp. How can you be sharp if you are innocent? They are so bumptious. How can you be that if you are innocent? People play games. How can you do that if you are innocent? Harm each other. How can it be, if you are innocent? So, first of all, you have to see yourself, that the power of innocence, if it has to live, all the rest of the nonsense has to go away. If you want to have the innocence, all that is anti-innocence has to be dropped out."</font><br>
 <b>1984-0923 Navarātri Pūjā (1st Day), The Discipline, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b>
 </p>
 
@@ -100,17 +100,17 @@ if you say in a very rational manner, but to that Love that are these Feet it ma
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Ganesha Atharva Sheersha</b></font><br>
+<font color="green"><b>Gaṇeśha Atharva Sheersha</b></font><br>
 <a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4"> video</a><br>
 </p>
 
 <p>
-<font color="green"><b>Shri Mataji teaching the bhajan Jay Jagadambe</b></font><br>
+<font color="green"><b>Śhrī Mātājī teaching the bhajan Jay Jagadambe</b></font><br>
 <a href="https://youtu.be/9jMjx13o9dA">video</a>
 </p>
 
 <p>
-<font color="green"><b>Jay Jagadambe bhajan sung at the Puja</b></font><br>
+<font color="green"><b>Jay Jagadambe bhajan sung at the Pūjā</b></font><br>
 <a href="https://www.youtube.com/watch?v=KbUT-S2AcBY">video</a>
 </p>
  
@@ -131,9 +131,9 @@ So the first is that to establish the Kuṇḍalinī in the triangular bone, and
 This is the first work, by which whatever She is going to create now – all the universes, the Earth, everything – whatever She is going to create has to be filled with innocence."</font><br>
 <b>1992-0927 Navarātri Pūjā (1st Day), Tent, Cabella Ligure, Italy</b><br>
 <br>
-Let us sing Namostute as an aarti to Her today on this auspicious first Day of Navaratri<br></font>
+Let us sing Namostute as an aarti to Her today on this auspicious first Day of Navarātri<br></font>
 Namostute: <a href="https://www.youtube.com/embed/xlhoVI-SylQ?hl=en&fs=1">video</a>
 </p>
 
-Jai Shri Mataji!<br>
+Jai Śhrī Mātājī!<br>
 On behalf of the festivity team!
