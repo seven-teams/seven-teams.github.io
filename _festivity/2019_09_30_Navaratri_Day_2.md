@@ -10,7 +10,8 @@ tags:
 
 <p>
 <font color="DarkRed">"When I see here, I don’t know what was the situation at that time in these Western countries, whether there were human beings or not I don’t know; but historically I think it was not such a developed place.<br>
-So then all this arrangement was made, and human beings were made to understand that there is God. The Saints were respected – I’m telling you in India – real Saints were respected, and they made different observations. Now when I read say, Ādi Śhaṅkarāchārya, I am amazed how He knows so many things about Me. He knows how My knee looks like, He knows how many lines I have on My back, how many – I mean, it is very amazing how this man knows everything about Me. That means through His meditative power He could envisage Me – He never saw Me. The description and everything is so clear-cut. Now if you say the thousand names of the Goddess, thousand names of the Goddess are so precise. I mean, you can verify them in Me, I am just like that. Whatever it is, good or bad, whatever is said about Me is there, is a fact. And it is the knowledge of these people is most remarkable: how did they know that a Goddess is like that? Certain of My things which I also don’t know, but they are there, and they have described. It’s very surprising.<br>
+So then all this arrangement was made, and human beings were made to understand that there is God. The Saints were respected – I’m telling you in India – real Saints were respected, and they made different observations.<br>
+Now when I read, say Ādi Śhaṅkarāchārya, I am amazed how He knows so many things about Me. He knows how My knee looks like, He knows how many lines I have on My back, how many – I mean, it is very amazing how this man knows everything about Me. That means through His meditative power He could envisage Me – He never saw Me. The description and everything is so clear-cut. Now if you say the thousand names of the Goddess, thousand names of the Goddess are so precise. I mean, you can verify them in Me, I am just like that. Whatever it is, good or bad, whatever is said about Me is there, is a fact. And it is the knowledge of these people is most remarkable: how did they know that a Goddess is like that? Certain of My things which I also don’t know, but they are there, and they have described. It’s very surprising.<br>
 So their meditative power in India was great. The reason was, our seasons were disciplined, people are disciplined."</font><br>
 <b>1992-0927 Navarātri Pūjā (1st Day), 10th Position or Divine Knowledge is the Reality, Tent, Cabella Ligure, Italy</b>
 </p>
@@ -18,14 +19,14 @@ So their meditative power in India was great. The reason was, our seasons were d
 <div style="text-align: center"><img src="/images/image170.png" /></div>
 
 <p style="text-align:center;">
-<font color="MidNightBlue"><b>Namo Devyai Mahā-devyai</b><br>
+<font color="MidNightBlue"><b>Namo Devyai Mahādevyai</b><br>
 Salutations to the Devī, to the Mahādevī,<br>
-<b>Shivaye satatam namaḥ,</b><br>
+<b>Śhivāyai satataṃ namaḥ,</b><br>
 To You who is ever Auspicious,<br>
-<b>Namaḥ prakrutyai bhadrayai</b><br>
+<b>Namaḥ prakṛutyai bhadrāyai</b><br>
 To You who is the Primordial Cause,<br>
-<b>Niyutah pranatah sma tam.</b><br>
-And the sustaining Power, we bow to You.</font><br>
+<b>Niyyatāḥ praṇatāḥ sma tām</b><br>
+And the Sustaining Power, we bow to You.</font><br>
 <b>(from 'Devī Sūktam' in Devī Māhātmyam)</b>
 </p>
 
