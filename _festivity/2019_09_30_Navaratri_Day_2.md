@@ -106,22 +106,22 @@ Sā ghaṇṭā pātu no devi pāpebhyo naḥ sutāniva.</b><br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Mamtamai Maa Durgā Si Lage</b></font><br>
+<font color="green"><b>Mamtamai Mā Durgā Si Lage</b></font><br>
 <a href="https://www.youtube.com/watch?v=LLl-3KTbKLs"> video</a><br>
 </p>
 
 <p>
-<font color="green"><b>He Ādi Śhakti Maa</b></font><br>
+<font color="green"><b>He Ādi Śhakti Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=b7fLaveK-pg">video</a>
 </p>
 
 <p>
-<font color="green"><b>Ayi Singha pe sawar maiya</b></font><br>
+<font color="green"><b>Ayi Singha Pe Sawar Maiya</b></font><br>
 <a href="https://www.youtube.com/watch?v=dh79abA1AsU">video</a>
 </p>
  
 <p>
-<font color="green"><b>Ādimaya Ambabai 1985-1217 Pūjā, House of Dr. Saṃghavī, Nasik</b></font><br>
+<font color="green"><b>Ādimāyā Aṃbābāī 1985-1217 Pūjā, House of Dr. Saṃghavī, Nasik</b></font><br>
 <a href="https://www.youtube.com/watch?v=R85teBs7rSE&feature=youtu.be">video</a> 
 </p>
 
