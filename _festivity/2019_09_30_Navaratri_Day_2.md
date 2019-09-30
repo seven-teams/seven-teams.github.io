@@ -126,7 +126,7 @@ Saa ghanta patu no devi papebhyo nah sutaniva.</b><br>
 
 <div style="text-align: center"><img src="/images/image175.png" /></div>
 
-<p style="color:green; text-align:center;">
+<p style="text-align:center;">
 <font size="-1">Shri Brahmacharini is another form of Shri Durga.<br>
 She is the one who observes the state of Celibacy.<br>
 She is shown as holding rosary in her right hand and a water utensil in her left hand.<br>
