@@ -134,7 +134,7 @@ She is shown as holding rosary in Her right hand and a water utensil in Her left
 Śhrī Chandraghaṇṭā who rides a lion or tiger.<br> 
 She has a half-moon shaped like a bell on Her forehead or who uses moon as Her bell.<br>   
 During the battle between Her and the demons, the horrible sound produced by Her bell sent thousands of demons to Hell.</font><br>
-<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Durgā Mata sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ̣!</b></font><br>
+<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Durgā Mātā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ̣!</b></font><br>
 <i>O Divine Mother, You are verily Śhrī Durgā, the remover of all difficulties and evil.</i><br>
 Salutations to You!<br>
 </p>
