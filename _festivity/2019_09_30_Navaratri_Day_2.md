@@ -44,7 +44,7 @@ Give me love, love that I could love the whole world and that the whole world be
 Give salvation to this humanity which is suffering.<br>
 Take me to Your feet. Cleanse me with Thy love.' "</b></font><br>
 <b>1975-0201 Public Program, Mumbai, India (other dates 0202 and 0209)</b><br>
-<font color="MidNightBlue"><b>Auṃ Twameva sākṣhāt Brahmachāriṇī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
+<font color="MidNightBlue"><b>Auṃ Twameva sākṣhāt Śhrī Brahmachāriṇī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 <i>O Divine Mother, You are verily Śhrī Brahmachāriṇī, the One who observes the State of Celibacy!<br>
 Salutations to You!</i>
 </p>
@@ -80,7 +80,7 @@ Mauli milad bakulāli kule, Jaya, jaya, he</b></font><br>
 Like a tender, lovely spotless Lotus-petal the crescent Moon adorns Your forehead;<br>
 Your movements are like a graceful and playful group of Swans;<br>
 Like a swarm of bees to fragrant flowers, the stars adorn Your forehead. Victory to You<br>
-<font color="green"><font size="-1"><b>Aigiri nandini:</b></font></font><br>
+<font color="green"><font size="-1"><b>Ayi Giri Nandini:</b></font></font><br>
 <a href="https://www.youtube.com/watch?time_continue=9&v=P6OoX03hPBA">video</a><br>
 <font color="MidNightBlue"><b>Auṃ Twameva sākṣhāt Śhrī Chandraghaṇṭā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 <i>O Divine Mother, You are verily Śhrī Chandraghaṇṭā, the One who use the Moon as Her bell</i><br>
@@ -95,8 +95,8 @@ Salutations to You!<br>
 <div style="text-align: center"><img src="/images/image174.png" /></div>
 
 <p style="text-align:center;">
-<font color="MidNightBlue"><b>Hinasti daitya tejamsi swanena pooryaya  jagat,<br>
-Saa ghanta patu no devi papebhyo nah sutaniva.</b><br>
+<font color="MidNightBlue"><b>Hinasti daityatejāṃsi svanenāpūrya yā jagat,<br>
+Sā ghaṇṭā pātu no devi pāpebhyo naḥ sutāniva.</b><br>
 <font size="-1"><b>O Devī, may your bell which fills the world with its sound and destroys the power of asuras, protect us from sins, just as a mother protects her children.</b></font></font><br>
 <font size="-1">(Devī Māhātmyam, Chapter 11)</font>
 </p>
