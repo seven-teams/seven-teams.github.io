@@ -119,7 +119,7 @@ if you say in a very rational manner, but to that Love that are these Feet it ma
 <a href="https://www.youtube.com/watch?v=IV9iyQnpEGw&feature=youtu.be">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image168.png" /></div>
+<div style="text-align: center"><img src="/images/image169.png" /></div>
 
 <p style="text-align:center;">
 <font size="-1"><font color="DarkGreen">"Gaṇas are the workers on the left-hand side. They are like, we can say Saint Michael is their leader, but their king is Gaṇapati, Gaṇeśha.<br>
