@@ -1,5 +1,5 @@
 ---
-title: '2019 Celebrating Navarātri (Day 2): Worshiping Śhrī Mātājī in form of Śhrī Brahmachāriṇī and Śhrī Chandraghaṇṭā'
+title: '2019 Celebrating Navarātri (Day 2): Worshiping Śhrī Mātājī in the form of Śhrī Brahmachāriṇī and Śhrī Chandraghaṇṭā'
 date: 2019-09-30
 permalink: /festivity/2019/0930
 tags:
@@ -10,7 +10,7 @@ tags:
 
 <p>
 <font color="DarkRed">"When I see here, I don’t know what was the situation at that time in these Western countries, whether there were human beings or not I don’t know; but historically I think it was not such a developed place.<br>
-So then all this arrangement was made, and human beings were made to understand that there is God. The Saints were respected – I’m telling you in India – real Saints were respected, and they made different observations. Now when I read say, Ādi Śhaṅkarāchārya, I am amazed how he knows so many things about Me. He knows how My knee looks like, he knows how many lines I have on My back, how many – I mean, it is very amazing how this man knows everything about Me. That means through his meditative power he could envisage Me – he never saw Me. The description and everything is so clear-cut. Now if you say the thousand names of the Goddess, thousand names of the Goddess are so precise. I mean, you can verify them in Me, I am just like that. Whatever it is, good or bad, whatever is said about Me is there, is a fact. And it is the knowledge of these people is most remarkable: how did they know that a Goddess is like that? Certain of My things which I also don’t know, but they are there, and they have described. It’s very surprising.<br>
+So then all this arrangement was made, and human beings were made to understand that there is God. The Saints were respected – I’m telling you in India – real Saints were respected, and they made different observations. Now when I read say, Ādi Śhaṅkarāchārya, I am amazed how He knows so many things about Me. He knows how My knee looks like, He knows how many lines I have on My back, how many – I mean, it is very amazing how this man knows everything about Me. That means through His meditative power He could envisage Me – He never saw Me. The description and everything is so clear-cut. Now if you say the thousand names of the Goddess, thousand names of the Goddess are so precise. I mean, you can verify them in Me, I am just like that. Whatever it is, good or bad, whatever is said about Me is there, is a fact. And it is the knowledge of these people is most remarkable: how did they know that a Goddess is like that? Certain of My things which I also don’t know, but they are there, and they have described. It’s very surprising.<br>
 So their meditative power in India was great. The reason was, our seasons were disciplined, people are disciplined."</font><br>
 <b>1992-0927 Navarātri Pūjā (1st Day), 10th Position or Divine Knowledge is the Reality, Tent, Cabella Ligure, Italy</b>
 </p>
@@ -20,13 +20,13 @@ So their meditative power in India was great. The reason was, our seasons were d
 <p style="text-align:center;">
 <font color="MidNightBlue"><b>Namo Devyai Mahā-devyai</b><br>
 Salutations to the Devī, to the Mahādevī,<br>
-<b>Shivaye satatam namah,</b><br>
+<b>Shivaye satatam namaḥ,</b><br>
 To You who is ever Auspicious,<br>
-<b>Namah prakrutyai bhadrayai</b><br>
+<b>Namaḥ prakrutyai bhadrayai</b><br>
 To You who is the Primordial Cause,<br>
 <b>Niyutah pranatah sma tam.</b><br>
 And the sustaining Power, we bow to You.</font><br>
-<b>(from 'Devī Suktam' in Devī Māhātmyam)</b>
+<b>(from 'Devī Sūktam' in Devī Māhātmyam)</b>
 </p>
 
 <p>
@@ -43,7 +43,7 @@ Give me love, love that I could love the whole world and that the whole world be
 Give salvation to this humanity which is suffering.<br>
 Take me to Your feet. Cleanse me with Thy love.' "</b></font><br>
 <b>1975-0201 Public Program, Mumbai, India (other dates 0202 and 0209)</b><br>
-<font color="MidNightBlue"><b>Aum Twameva sākṣhāt Brahmachāriṇī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai Namo Namah!</b></font><br>
+<font color="MidNightBlue"><b>Aum Twameva sākṣhāt Brahmachāriṇī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 <i>O Divine Mother, You are verily Śhrī Brahma-charini, the one who observes the state of celibacy!<br>
 Salutations to You!</i>
 </p>
@@ -81,7 +81,7 @@ Your movements are like a graceful and playful group of Swans;<br>
 Like a swarm of bees to fragrant flowers, the stars adorn Your forehead. Victory to You<br>
 <font color="green"><font size="-1"><b>Aigiri nandini:</b></font></font><br>
 <a href="https://www.youtube.com/watch?time_continue=9&v=P6OoX03hPBA">video</a><br>
-<font color="MidNightBlue"><b>Aum Twameva sākṣhāt Śhrī Chandraghaṇṭā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai Namo Namah!</b></font><br>
+<font color="MidNightBlue"><b>Aum Twameva sākṣhāt Śhrī Chandraghaṇṭā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 <i>O Divine Mother, You are verily Śhrī Chandraghaṇṭā, the one Who use the Moon as Her bell</i><br>
 Salutations to You!<br>
 </p>
@@ -134,7 +134,7 @@ She is shown as holding rosary in her right hand and a water utensil in her left
 Śhrī Chandraghanta who rides a lion or tiger.<br> 
 She has a half-moon shaped like a bell on Her forehead or who uses moon as Her bell.<br>   
 During the battle between Her and the demons, the horrible sound produced by Her bell sent thousands of demons to Hell.</font><br>
-<font color="DarkRed"><b>Aum twameva sakshat Śhrī Durgā Mata sakshat Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namah!</b></font><br>
+<font color="DarkRed"><b>Aum Twameva sākṣhāt Śhrī Durgā Mata sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ̣!</b></font><br>
 <i>O Divine Mother, You are verily Śhrī Durgā, the remover of all difficulties and evil.</i><br>
 Salutations to You!<br>
 </p>
