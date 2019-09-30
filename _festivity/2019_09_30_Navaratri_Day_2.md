@@ -79,7 +79,7 @@ Mauli milad bakulāli kule, Jaya, jaya, he</b></font><br>
 Like a tender, lovely spotless Lotus-petal the crescent Moon adorns Your forehead;<br>
 Your movements are like a graceful and playful group of Swans;<br>
 Like a swarm of bees to fragrant flowers, the stars adorn Your forehead. Victory to You<br>
-<font size="-1"><b>Aigiri nandini:</b></font><br>
+<font color="green"><font size="-1"><b>Aigiri nandini:</b></font></font><br>
 <a href="https://www.youtube.com/watch?time_continue=9&v=P6OoX03hPBA">video</a><br>
 <font color="MidNightBlue"><b>Aum Twameva Sakshat Shri Chandraganta Sakshat Shri Adishakti Mataji Shri Nirmala Devyai Namo Namah!</b></font><br>
 <i>O Divine Mother, You are verily Shri Chandraganta, the one Who use the Moon as Her bell</i><br>
@@ -94,8 +94,8 @@ Salutations to You!<br>
 <div style="text-align: center"><img src="/images/image174.png" /></div>
 
 <p style="text-align:center;">
-<font color="MidNightBlue"><b>Hinasti daitya tejamsi swanena pooryaya  jagat,
-Saa ghanta patu no devi papebhyo nah sutaniva.</b>
+<font color="MidNightBlue"><b>Hinasti daitya tejamsi swanena pooryaya  jagat,<br>
+Saa ghanta patu no devi papebhyo nah sutaniva.</b><br>
 <font size="-1">O Devi, may your bell which fills the world with its sound and destroys the power of asuras, protect us from sins, just as a mother protects her children.</font></font><br>
 <font size="-1">(Devi Mahatmayam, chapter 11)</font>
 </p>
