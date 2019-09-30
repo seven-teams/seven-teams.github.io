@@ -44,7 +44,7 @@ Give salvation to this humanity which is suffering.<br>
 Take me to Your feet. Cleanse me with Thy love.' "</b></font><br>
 <b>1975-0201 Public Program, Mumbai, India (other dates 0202 and 0209)</b><br>
 <font color="MidNightBlue"><b>Aum Twameva sākṣhāt Brahmachāriṇī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
-<i>O Divine Mother, You are verily Śhrī Brahma-charini, the one who observes the state of celibacy!<br>
+<i>O Divine Mother, You are verily Śhrī Brahma-charini, the One who observes the State of Celibacy!<br>
 Salutations to You!</i>
 </p>
 
@@ -59,11 +59,11 @@ Means She is the Virgin. She is untouched. The desire to become Spirit is withou
 
 <p style="text-align:center;">
 <font color="DarkRed">"But Goddess Herself has done so many things for us already, within us, though we are not aware of it.<br>
-Is said that, "<b>Ya Devī sarva bhūteshu</b>," "All those whom You have created," means mostly the human beings, 'What do You do?<br>
+Is said that, "<b>Yā Devī Sarvabhūteśhu</b>," "All those whom You have created," means mostly the human beings, 'What do You do?<br>
 As what do You exist inside the human beings?'<br>
 Now, just introspect if you have these qualities within you or not, because they are given to you by the Goddess, by the Śhakti within you."</font><br>
 <b>1997-1005 Navarātri Pūjā (6th Day), Cabella Ligure, Italy</b><br>
-<b>Ya Devī Sarva Bhuteshu</b> 2000-1008 Navarātri Pūjā, Cabella<br>
+<b>Yā Devī Sarvabhūteśhu</b> 2000-1008 Navarātri Pūjā, Cabella<br>
 <a href="https://www.youtube.com/watch?v=c11jL6LzviE">video</a>
 </p>
 
