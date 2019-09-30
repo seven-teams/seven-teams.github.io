@@ -17,7 +17,7 @@ So their meditative power in India was great. The reason was, our seasons were d
 
 <div style="text-align: center"><img src="/images/image170.png" /></div>
 
-<p style="color:green; text-align:center;">
+<p style="text-align:center;">
 <font color="MidNightBlue"><b>Namo Devyai maha-devyai</b><br>
 Salutations to the Devi, to the Mahadevi,<br>
 <b>Shivaye satatam namah,</b><br>
