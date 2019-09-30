@@ -1,5 +1,5 @@
 ---
-title: '2019 Celebrating Navarātri (Day 2): Worshiping Shri Mataji in form of Shri Brahmacharini and Shri Chandraganta'
+title: '2019 Celebrating Navarātri (Day 2): Worshiping Śhrī Mātājī in form of Śhrī Brahmachāriṇī and Śhrī Chandraghaṇṭā'
 date: 2019-09-30
 permalink: /festivity/2019/0930
 tags:
@@ -18,15 +18,15 @@ So their meditative power in India was great. The reason was, our seasons were d
 <div style="text-align: center"><img src="/images/image170.png" /></div>
 
 <p style="text-align:center;">
-<font color="MidNightBlue"><b>Namo Devyai maha-devyai</b><br>
-Salutations to the Devi, to the Mahadevi,<br>
+<font color="MidNightBlue"><b>Namo Devyai Mahā-devyai</b><br>
+Salutations to the Devī, to the Mahādevī,<br>
 <b>Shivaye satatam namah,</b><br>
 To You who is ever Auspicious,<br>
 <b>Namah prakrutyai bhadrayai</b><br>
 To You who is the Primordial Cause,<br>
 <b>Niyutah pranatah sma tam.</b><br>
 And the sustaining Power, we bow to You.</font><br>
-<b>(from 'Devi Suktam' in Devi Mahatmyam)</b>
+<b>(from 'Devī Suktam' in Devī Māhātmyam)</b>
 </p>
 
 <p>
@@ -43,8 +43,8 @@ Give me love, love that I could love the whole world and that the whole world be
 Give salvation to this humanity which is suffering.<br>
 Take me to Your feet. Cleanse me with Thy love.' "</b></font><br>
 <b>1975-0201 Public Program, Mumbai, India (other dates 0202 and 0209)</b><br>
-<font color="MidNightBlue"><b>Aum Twameva Sakshat Brahma-Charini Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namo Namah!</b></font><br>
-<i>O Divine Mother, You are verily Shri Brahma-charini, the one who observes the state of celibacy!<br>
+<font color="MidNightBlue"><b>Aum Twameva sākṣhāt Brahmachāriṇī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai Namo Namah!</b></font><br>
+<i>O Divine Mother, You are verily Śhrī Brahma-charini, the one who observes the state of celibacy!<br>
 Salutations to You!</i>
 </p>
 
@@ -63,7 +63,7 @@ Is said that, "<b>Ya Devī sarva bhūteshu</b>," "All those whom You have create
 As what do You exist inside the human beings?'<br>
 Now, just introspect if you have these qualities within you or not, because they are given to you by the Goddess, by the Śhakti within you."</font><br>
 <b>1997-1005 Navarātri Pūjā (6th Day), Cabella Ligure, Italy</b><br>
-<b>Ya Devi Sarva Bhuteshu</b> 2000-1008 Navaratri Puja, Cabella<br>
+<b>Ya Devī Sarva Bhuteshu</b> 2000-1008 Navarātri Pūjā, Cabella<br>
 <a href="https://www.youtube.com/watch?v=c11jL6LzviE">video</a>
 </p>
 
@@ -81,13 +81,13 @@ Your movements are like a graceful and playful group of Swans;<br>
 Like a swarm of bees to fragrant flowers, the stars adorn Your forehead. Victory to You<br>
 <font color="green"><font size="-1"><b>Aigiri nandini:</b></font></font><br>
 <a href="https://www.youtube.com/watch?time_continue=9&v=P6OoX03hPBA">video</a><br>
-<font color="MidNightBlue"><b>Aum Twameva Sakshat Shri Chandraganta Sakshat Shri Adishakti Mataji Shri Nirmala Devyai Namo Namah!</b></font><br>
-<i>O Divine Mother, You are verily Shri Chandraganta, the one Who use the Moon as Her bell</i><br>
+<font color="MidNightBlue"><b>Aum Twameva sākṣhāt Śhrī Chandraghaṇṭā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai Namo Namah!</b></font><br>
+<i>O Divine Mother, You are verily Śhrī Chandraghaṇṭā, the one Who use the Moon as Her bell</i><br>
 Salutations to You!<br>
 </p>
 
 <p>
-<font color="DarkRed">"The Emblem of the Adi Shakti, of course you know, is a thing like this, you see, is ... we call it a ... a[n] elliptical, isn't it? This is elliptical, elliptical. You all know that. But the mark of the Adi Shakti is the Half-moon and a star. You can put a Half-moon and a Bindu, ...... is a point. But that point is a star. So, you see, the Islam follows the star, the inside, and below that is this, what you call, they call it the Moon. But that’s the half mudrā, or we can call it the half ...... of the coil. But half, according to the Western mind, half means it’s bad. But half is the one that takes everything within itself. You see, the one like the bottom of the sea. Bottom of the sea is always bigger than the sea itself. So this ... the half Shakti takes all the Shaktis into itself. And the Bindu represents the heart or we can say the Atma. So is the complete thing, is the Adi Shakti and the Bindu. That’s the Islam seal. And in the same way this is the seal, this is the seal of the Adi Shakti, is a half-circle. Is not even half -- we shouldn’t say now first night’s Moon and a star. And why this it is used? Because this is the thing coming from the creation, from the nature. So that also what we call Islam is nothing but is the creation of Adi Shakti."</font><br>
+<font color="DarkRed">"The Emblem of the Ādi Śhakti, of course you know, is a thing like this, you see, is ... we call it a ... a[n] elliptical, isn't it? This is elliptical, elliptical. You all know that. But the mark of the Ādi Śhakti is the Half-moon and a star. You can put a Half-moon and a Bindu, ...... is a point. But that point is a star. So, you see, the Islam follows the star, the inside, and below that is this, what you call, they call it the Moon. But that’s the half mudrā, or we can call it the half ...... of the coil. But half, according to the Western mind, half means it’s bad. But half is the one that takes everything within itself. You see, the one like the bottom of the sea. Bottom of the sea is always bigger than the sea itself. So this ... the half Śhakti takes all the Śhaktis into itself. And the Bindu represents the heart or we can say the Atma. So is the complete thing, is the Ādi Śhakti and the Bindu. That’s the Islam seal. And in the same way this is the seal, this is the seal of the Ādi Śhakti, is a half-circle. Is not even half -- we shouldn’t say now first night’s Moon and a star. And why this it is used? Because this is the thing coming from the creation, from the nature. So that also what we call Islam is nothing but is the creation of Ādi Śhakti."</font><br>
 <b>1985-1217 Pūjā (English+Marathi+English), The Purity Inside, House of Dr. Saṃghavī, Nasik, Maharashtra, India</b>
 </p>
 
@@ -96,8 +96,8 @@ Salutations to You!<br>
 <p style="text-align:center;">
 <font color="MidNightBlue"><b>Hinasti daitya tejamsi swanena pooryaya  jagat,<br>
 Saa ghanta patu no devi papebhyo nah sutaniva.</b><br>
-<font size="-1"><b>O Devi, may your bell which fills the world with its sound and destroys the power of asuras, protect us from sins, just as a mother protects her children.</b></font></font><br>
-<font size="-1">(Devi Mahatmayam, chapter 11)</font>
+<font size="-1"><b>O Devī, may your bell which fills the world with its sound and destroys the power of asuras, protect us from sins, just as a mother protects her children.</b></font></font><br>
+<font size="-1">(Devī Māhātmyam, Chapter 11)</font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 1982-1017 Navarātri Pūjā (1st Day), Innocence and Virginity (Your Śhakti Is Your Kuṇḍalinī and She Is Virginity or A New Page Has Been Turn), Temple of All Faiths, Hampstead, London, UK<br><a href="https://www.youtube.com/watch?v=KwhRUKYdpt4"> video</a><br>
@@ -105,12 +105,12 @@ Saa ghanta patu no devi papebhyo nah sutaniva.</b><br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Mamtamai Maa Durga Si Lage</b></font><br>
+<font color="green"><b>Mamtamai Maa Durgā Si Lage</b></font><br>
 <a href="https://www.youtube.com/watch?v=LLl-3KTbKLs"> video</a><br>
 </p>
 
 <p>
-<font color="green"><b>He Adi Shakti Maa</b></font><br>
+<font color="green"><b>He Ādi Śhakti Maa</b></font><br>
 <a href="https://www.youtube.com/watch?v=b7fLaveK-pg">video</a>
 </p>
 
@@ -120,24 +120,24 @@ Saa ghanta patu no devi papebhyo nah sutaniva.</b><br>
 </p>
  
 <p>
-<font color="green"><b>Adimaya Ambabai  1985 1217 Puja, Dr Sangwes House, Nasik</b></font><br>
+<font color="green"><b>Ādimaya Ambabai 1985-1217 Pūjā, House of Dr. Saṃghavī, Nasik</b></font><br>
 <a href="https://www.youtube.com/watch?v=R85teBs7rSE&feature=youtu.be">video</a> 
 </p>
 
 <div style="text-align: center"><img src="/images/image175.png" /></div>
 
 <p style="text-align:center;">
-<font size="-1">Shri Brahmacharini is another form of Shri Durga.<br>
+<font size="-1">Śhrī Brahmachāriṇī is another form of Śhrī Durgā.<br>
 She is the one who observes the state of Celibacy.<br>
 She is shown as holding rosary in her right hand and a water utensil in her left hand.<br>
 <br>
-Shri Chandraghanta who rides a lion or tiger.<br> 
+Śhrī Chandraghanta who rides a lion or tiger.<br> 
 She has a half-moon shaped like a bell on Her forehead or who uses moon as Her bell.<br>   
 During the battle between Her and the demons, the horrible sound produced by Her bell sent thousands of demons to Hell.</font><br>
-<font color="DarkRed"><b>Aum twameva sakshat Shri Durga Mata sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai namo namah!</b></font><br>
-<i>O Divine Mother, You are verily Shri Durga, the remover of all difficulties and evil.</i><br>
+<font color="DarkRed"><b>Aum twameva sakshat Śhrī Durgā Mata sakshat Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namah!</b></font><br>
+<i>O Divine Mother, You are verily Śhrī Durgā, the remover of all difficulties and evil.</i><br>
 Salutations to You!<br>
 </p>
 
-Jai Shri Mataji!<br>
+Jai Śhrī Mātājī!<br>
 On behalf of the festivity team!
