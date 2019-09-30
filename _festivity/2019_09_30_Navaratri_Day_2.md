@@ -1,5 +1,5 @@
 ---
-title: '2019'
+title: '2019 Celebrating Navarātri (Day 2): Worshiping Shri Mataji in form of Shri Brahmacharini and Shri Chandraganta'
 date: 2019-09-30
 permalink: /festivity/2019/0930
 tags:
