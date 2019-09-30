@@ -42,7 +42,7 @@ Ask for 'Complete satisfaction in my heart, joy in my hear, bliss in my heart, s
 Give me love, love that I could love the whole world and that the whole world becomes one in love.<br>
 Give salvation to this humanity which is suffering.<br>
 Take me to Your feet. Cleanse me with Thy love.' "</b></font><br>
-<b>1975-0201 Public Program, Mumbai, India (other dates 0202 and 0209)<br>
+<b>1975-0201 Public Program, Mumbai, India (other dates 0202 and 0209)</b><br>
 <font color="MidNightBlue"><b>Aum Twameva Sakshat Brahma-Charini Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namo Namah!</b></font><br>
 <i>O Divine Mother, You are verily Shri Brahma-charini, the one who observes the state of celibacy!<br>
 Salutations to You!</i>
