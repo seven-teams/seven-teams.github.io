@@ -96,7 +96,7 @@ Salutations to You!<br>
 <p style="text-align:center;">
 <font color="MidNightBlue"><b>Hinasti daitya tejamsi swanena pooryaya  jagat,<br>
 Saa ghanta patu no devi papebhyo nah sutaniva.</b><br>
-<font size="-1">O Devi, may your bell which fills the world with its sound and destroys the power of asuras, protect us from sins, just as a mother protects her children.</font></font><br>
+<font size="-1"><b>O Devi, may your bell which fills the world with its sound and destroys the power of asuras, protect us from sins, just as a mother protects her children.</b></font></font><br>
 <font size="-1">(Devi Mahatmayam, chapter 11)</font>
 </p>
 
