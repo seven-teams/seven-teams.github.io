@@ -44,7 +44,7 @@ Give salvation to this humanity which is suffering.<br>
 Take me to Your feet. Cleanse me with Thy love.' "</b></font><br>
 <b>1975-0201 Public Program, Mumbai, India (other dates 0202 and 0209)</b><br>
 <font color="MidNightBlue"><b>Auṃ Twameva sākṣhāt Brahmachāriṇī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
-<i>O Divine Mother, You are verily Śhrī Brahma-charini, the One who observes the State of Celibacy!<br>
+<i>O Divine Mother, You are verily Śhrī Brahmachāriṇī, the One who observes the State of Celibacy!<br>
 Salutations to You!</i>
 </p>
 
@@ -82,7 +82,7 @@ Like a swarm of bees to fragrant flowers, the stars adorn Your forehead. Victory
 <font color="green"><font size="-1"><b>Aigiri nandini:</b></font></font><br>
 <a href="https://www.youtube.com/watch?time_continue=9&v=P6OoX03hPBA">video</a><br>
 <font color="MidNightBlue"><b>Auṃ Twameva sākṣhāt Śhrī Chandraghaṇṭā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
-<i>O Divine Mother, You are verily Śhrī Chandraghaṇṭā, the one Who use the Moon as Her bell</i><br>
+<i>O Divine Mother, You are verily Śhrī Chandraghaṇṭā, the One who use the Moon as Her bell</i><br>
 Salutations to You!<br>
 </p>
 
@@ -128,8 +128,8 @@ Saa ghanta patu no devi papebhyo nah sutaniva.</b><br>
 
 <p style="text-align:center;">
 <font size="-1">Śhrī Brahmachāriṇī is another form of Śhrī Durgā.<br>
-She is the one who observes the state of Celibacy.<br>
-She is shown as holding rosary in her right hand and a water utensil in her left hand.<br>
+She is the One who observes the State of Celibacy.<br>
+She is shown as holding rosary in Her right hand and a water utensil in Her left hand.<br>
 <br>
 Śhrī Chandraghanta who rides a lion or tiger.<br> 
 She has a half-moon shaped like a bell on Her forehead or who uses moon as Her bell.<br>   
