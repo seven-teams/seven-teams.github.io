@@ -131,7 +131,7 @@ Saa ghanta patu no devi papebhyo nah sutaniva.</b><br>
 She is the One who observes the State of Celibacy.<br>
 She is shown as holding rosary in Her right hand and a water utensil in Her left hand.<br>
 <br>
-Śhrī Chandraghanta who rides a lion or tiger.<br> 
+Śhrī Chandraghaṇṭā who rides a lion or tiger.<br> 
 She has a half-moon shaped like a bell on Her forehead or who uses moon as Her bell.<br>   
 During the battle between Her and the demons, the horrible sound produced by Her bell sent thousands of demons to Hell.</font><br>
 <font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Durgā Mata sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ̣!</b></font><br>
