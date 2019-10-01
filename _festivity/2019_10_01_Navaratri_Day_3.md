@@ -78,7 +78,17 @@ May You protect the universe!”<br>
 
 <font size="+1"><b>Suggested Talk:</b></font> 1991-1013 Navarātri Pūjā (6th Day), False Religion or Recognize Me, Tent, Cabella Ligure, Italy<br><a href="https://www.youtube.com/watch?time_continue=11&v=RwoLqfweBz4"> video</a><br>
 
+<font size="-1"><b>Bhajans:</b></font>
+
+<font size="0"><b>Bhajans:</b></font>
+
 <font size="+0"><b>Bhajans:</b></font>
+
+<font size="+0.5"><b>Bhajans:</b></font>
+
+<font size="+1"><b>Bhajans:</b></font>
+
+<font size="+2"><b>Bhajans:</b></font>
 
 <p>
 <font color="green"><b>Durgati Harini Durga Ambe</b></font><br>
