@@ -1,5 +1,5 @@
 ---
-title: '2019 Celebrating Navarātri (Day 2): Worshiping Śhrī Mātājī in the form of Śhrī Brahmachāriṇī and Śhrī Chandraghaṇṭā'
+title: '2019 Celebrating Navarātri (Days 2 and 3): Worshiping Śhrī Mātājī in the form of Śhrī Brahmachāriṇī and Śhrī Chandraghaṇṭā'
 date: 2019-09-30
 permalink: /festivity/2019/0930
 tags:
