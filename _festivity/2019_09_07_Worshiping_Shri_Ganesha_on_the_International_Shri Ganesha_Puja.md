@@ -137,5 +137,8 @@ You remove all the obstacles.<br>
 You bless the sanctity of the marriage union.</b><br>
 </p>
 
-<font size="-1">Jai Shri Mataji!<br>
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>
 On behalf of the festivity team!</font>

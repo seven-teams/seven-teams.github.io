@@ -30,5 +30,7 @@ May God bless you.</font><br>
 <font size="+0">1985-0504 Evening Program after the Nirvikalpa Talk, Evening before Sahasrāra Pūjā, Laxenburg Castle, Vienna, Austria</font>
 <a href="https://www.youtube.com/watch?v=VcDH6Rk-GZo"> video</a><br>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

@@ -63,5 +63,7 @@ You are the Essence of Peace and Bliss.<br>
 <a href="https://www.youtube.com/watch?v=sDHdeRTcVjc">video</a> 
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

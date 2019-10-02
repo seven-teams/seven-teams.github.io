@@ -93,5 +93,7 @@ Let us all worship Shri Mataji sakshat Shri Adi Shakti and pray for eternally ri
 <a href="https://www.youtube.com/watch?v=1zzMwHijwI0">video</a>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

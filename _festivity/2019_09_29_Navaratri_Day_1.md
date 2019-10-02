@@ -137,5 +137,7 @@ Let us sing Namostute as an aarti to Her today on this auspicious first Day of N
 Namostute: <a href="https://www.youtube.com/embed/xlhoVI-SylQ?hl=en&fs=1">video</a>
 </p>
 
-Jai Śhrī Mātājī!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

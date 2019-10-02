@@ -135,6 +135,8 @@ It’s like that.</font><br>
 <font color="green"><b>Sukhkarta dukhharta Shri Ganesh Aarti</b></font><br>
 <a href="https://www.youtube.com/watch?v=HNv44APLhL8&list=PL8E57180C36478F98&index=2">video</a> 
 </p>
-
-Jai Shri Mataji!<br>
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>
 On behalf of the festivity team!

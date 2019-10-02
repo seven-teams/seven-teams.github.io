@@ -139,5 +139,7 @@ You will unite the nations of the Earth at the lotus feet of Shri Adi Shakti Nir
 <a href="https://www.youtube.com/watch?v=ELo8z9CE-3Y">video</a><br>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

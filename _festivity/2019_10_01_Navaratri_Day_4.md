@@ -117,5 +117,7 @@ Shri Kush-manda Sakshat Shri Adishakti Mataji Shri Nirmala Devyai Namo Namah!</b
 Salutations to You!</i></font>
 </p>
 
-Jai Śhrī Mātājī!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

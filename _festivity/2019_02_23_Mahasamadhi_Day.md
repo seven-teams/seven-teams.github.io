@@ -102,5 +102,7 @@ or My incarnation will have been a waste of time."</b></font><br>
 <a href="https://www.youtube.com/watch?v=mKrVNKlY7Hg">video</a> 
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

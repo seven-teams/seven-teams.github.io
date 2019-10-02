@@ -39,5 +39,7 @@ So we have to mold ourselves to fit into the new pattern, the new rhythm, the ne
 <font size="+0">1985-0504 Talk to Sahaja Yogis, Nirvikalpa, the day before Sahasrāra Pūjā, Laxenburg Castle, Vienna, Austria</font>
 <a href="https://www.youtube.com/watch?time_continue=1&v=UnELWtFpbfc"> video</a><br>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

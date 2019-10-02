@@ -138,5 +138,7 @@ Stotram by Shri Vallabhacharya in sanskrit (1479–1531 CE)<br>
 <a href="https://www.youtube.com/watch?v=DEzt1vmETlk">video</a><br>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

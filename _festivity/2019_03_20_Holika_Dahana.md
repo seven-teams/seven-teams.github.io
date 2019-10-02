@@ -92,5 +92,7 @@ The day the complete combination of this will happen then on both chakras the si
 
 <div style="text-align: center"><img src="/images/image135.png" /></div>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

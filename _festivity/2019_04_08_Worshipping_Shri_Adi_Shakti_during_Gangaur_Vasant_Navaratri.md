@@ -72,5 +72,8 @@ majesty of the tiger and the lion."</font><br>
 <a href="https://www.youtube.com/watch?v=rbi_HSVoF2Q">video</a>
 </p>
 
-Jai Shri Mataji!<br>
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>
 On behalf of the festivity team!

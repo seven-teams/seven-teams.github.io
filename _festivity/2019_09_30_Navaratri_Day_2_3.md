@@ -142,5 +142,7 @@ During the battle between Her and the demons, the horrible sound produced by Her
 Salutations to You!<br>
 </p>
 
-Jai Śhrī Mātājī!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

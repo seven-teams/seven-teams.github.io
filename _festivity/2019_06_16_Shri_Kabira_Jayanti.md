@@ -105,5 +105,7 @@ Guru Bin Kaun Batave Baat.<br>
 <a href="https://www.youtube.com/watch?v=gQTTVpjPE34&list=PLB618CDA4FEC74AE6&index=5">video</a>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

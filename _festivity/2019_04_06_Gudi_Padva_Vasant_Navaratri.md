@@ -127,5 +127,7 @@ O Mother, please place them on my head too, taking mercy on me</font><br>
 	Happy Gudi Padwa!
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

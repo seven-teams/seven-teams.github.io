@@ -58,5 +58,7 @@ And fill me wholly with Thyself.<br></font>
 <a href="https://youtu.be/wfCyNpxW3Ms"> video</a><br>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

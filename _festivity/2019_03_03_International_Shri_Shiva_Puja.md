@@ -138,5 +138,7 @@ composed by Shri Adi Shankaracharya)<br>
 <a href="https://www.youtube.com/watch?v=QE6J_z3g4sQ">video</a> 
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

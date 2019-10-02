@@ -89,5 +89,7 @@ Born from the sacred fire-pit of consciousness, emerging for a divine purpose.</
 <a href="https://www.youtube.com/watch?v=S6OsQ_p6cZQ">video</a> 
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

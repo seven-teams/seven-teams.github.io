@@ -72,5 +72,7 @@ On Palm Sunday Shri Jesus entered Jerusalem riding on a donkey.<br>
 He was greeted by a multitude of cheering people who laid down their cloaks in front of him and palm leaves, symbol of peace and eternal life.<br>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

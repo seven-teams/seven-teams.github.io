@@ -145,5 +145,7 @@ The most effective mantra you know is Nirmala, and that works the best for Sahas
 <a href="https://www.youtube.com/watch?v=1Y2Z3tNAs0I&spfreload=5">video</a>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

@@ -63,5 +63,7 @@ No matter what questions you have, just stay in thoughtlessness."</font><br>
 <a href="https://www.youtube.com/watch?v=rItjILB8bNo">video</a> 
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

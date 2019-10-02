@@ -164,5 +164,7 @@ Shri Mataji I Have received second birth from You</font></font><br>
 <font color="DarkRed"><b>Bolo Shrī Ādi Shakti Mātājī Shrī Nirmalā Devi ki Jai!</b></font><br>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

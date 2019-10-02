@@ -134,5 +134,7 @@ please give me wisdom and discrimination.<br></font>
 <a href="https://www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407">video</a><br>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

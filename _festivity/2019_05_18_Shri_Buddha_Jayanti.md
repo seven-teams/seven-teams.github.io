@@ -127,5 +127,7 @@ I surrender myself to Shri Adi Shakti Mataji</font><br>
 <a href="https://www.youtube.com/watch?v=CCWev7vvF0s">video</a> 
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

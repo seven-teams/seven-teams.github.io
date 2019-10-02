@@ -130,5 +130,7 @@ She named it 'Prathisthan' - after the capital of Her ancestors who ruled over t
 <b>1986, 'The Tenth Incarnation' by Yogi Mahajan</b>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

@@ -93,5 +93,7 @@ Yet it characterises Your boundless and omnipresesnt and enigmatic form<br>
 <a href="https://www.youtube.com/watch?v=v7T1xpKkYFU">video</a> 
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

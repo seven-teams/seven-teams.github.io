@@ -109,6 +109,7 @@ upon Thy feet , and pray 'Forgive'</font><br>
 <b>Om Twameva Sakshat Shri Adi Guru Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namo Namah!</b>
 </p>
 
-
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

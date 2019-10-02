@@ -61,5 +61,7 @@ Make us like the Sufis and the Gnostics adoring You at every moment.</b></font><
 <a href="https://www.youtube.com/watch?v=0AzZO9vlF8M">video</a>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

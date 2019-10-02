@@ -128,5 +128,7 @@ We would like to begin a three day celebration and worshiping of Shri Mataji in 
 <a href="https://www.youtube.com/watch?v=wj74gNpcy0s&index=48&list=PLC8554007A2C98EA0"> video</a><br>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

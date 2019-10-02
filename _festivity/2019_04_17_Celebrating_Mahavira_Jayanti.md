@@ -84,5 +84,7 @@ O Divine Mother, You are verily Shri Mahavira. Salutations to You!<br>
 <a href="https://www.youtube.com/watch?v=6aHXifIBHPs&feature=youtu.be">video</a>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

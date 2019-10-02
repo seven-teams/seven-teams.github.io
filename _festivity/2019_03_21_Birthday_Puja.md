@@ -160,5 +160,7 @@ Shri Mataji I have received second birth from You.</font><br>
 
 <div style="text-align: center"><img src="/images/image161.png" /></div>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>
