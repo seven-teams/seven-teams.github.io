@@ -34,9 +34,9 @@ You are the Destructive Power.</font><br>
 <div style="text-align: center"><img src="/images/image177.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Śhrī Mātājī:</b> Kavach – kavach is the cover, kavach is the cover.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b> Kavach – kavach is the cover, kavach is the cover.</font><br>
 Sahaja Yogi: Shield.<br>
-<b>Śhrī Mātājī:</b> Shield, shield, kavach. Kavach is shield, sorry kavach is shield!<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b> Shield, shield, kavach. Kavach is shield, sorry kavach is shield!</font><br>
 <b>1982-1009 Bestowing of Boons Pūjā, House of Maria Laventzi, Irchester, UK</b><br>
 Devī Kavach:<a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1">video</a>
 </p>
@@ -84,19 +84,15 @@ May You protect the universe!”<br>
 
 <font size="+1"><b>Suggested Talk:</b></font> 1991-1013 Navarātri Pūjā (6th Day), False Religion or Recognize Me, Tent, Cabella Ligure, Italy<br><a href="https://www.youtube.com/watch?time_continue=11&v=RwoLqfweBz4"> video</a><br>
 
+<font size="-2"><b>Bhajans:</b></font>
+
 <font size="-1"><b>Bhajans:</b></font>
 
-<font size="0"><b>Bhajans:</b></font>
-
 <font size="+0"><b>Bhajans:</b></font>
-
-<font size="+0.9"><b>Bhajans:</b></font>
 
 <font size="+1"><b>Bhajans:</b></font>
 
 <font size="+2"><b>Bhajans:</b></font>
-
-<font size="+0.9"><b>Bhajans:</b></font>
 
 <font size="+3"><b>Bhajans:</b></font>
 
