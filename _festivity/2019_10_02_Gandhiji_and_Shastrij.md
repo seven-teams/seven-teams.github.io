@@ -46,5 +46,7 @@ Today we are celebrating 150 years since the birth of Mahātmā Gāndhī (1869-1
 <a href="http://youtu.be/H5EqQPBpVh0">video</a>
 </p>
 
-Jai Shri Mataji!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

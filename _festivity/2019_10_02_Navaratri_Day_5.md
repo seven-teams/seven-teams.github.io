@@ -151,5 +151,7 @@ Skandamātā is four-armed and rides on a lion. She carries two lotus flowers in
 Her one hand is in a blessing posture, Abhaymudra, and with the other she holds her son Lord Skanda (Shri Kartikeya) in Her lap.</font>
 </p>
 
-Jai Śhrī Mātājī!<br>
-On behalf of the festivity team!
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>
