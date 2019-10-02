@@ -12,7 +12,7 @@ tags:
 <font color="DarkRed">"Don't worry about anything, just know that I am the Ādi Śhakti. That all the Powers of God and Goddesses and all that are within Me and they are within Me and they are all looking after you. But if that recognition is not there, they are not going to recognize you either.<br>
 So for today's Navarātri, I have to tell you that -- just try to keep in mind that today you are worshiping the Ādi Śhakti and not only Durgā. And you are worshiping Durgā and all these Goddesses to thank them because, if they had not saved you that time, you had been so frightened, you would have become bad people and would not have been here. That is why we are thankful to them for saving us and giving us this protection at that time when we were very helpless.<br>
 May God bless you!"</font><br>
-<b>1991-1013 Navarātri Pūjā (6th Day), False Religion or Recognize Me, Tent, Cabella Ligure, Italy</b>
+<font size="+0"><b>1991-1013 Navarātri Pūjā (6th Day), False Religion or Recognize Me, Tent, Cabella Ligure, Italy</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image162.png" /></div>
