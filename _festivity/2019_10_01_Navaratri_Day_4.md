@@ -79,7 +79,8 @@ May You protect the universe!”<br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font><br> 
-<font size="+0">1991-1013 Navarātri Pūjā (6th Day), False Religion or Recognize Me, Tent, Cabella Ligure, Italy</font><br><a href="https://www.youtube.com/watch?time_continue=11&v=RwoLqfweBz4"> video</a><br>
+<font size="+0">1991-1013 Navarātri Pūjā (6th Day), False Religion or Recognize Me, Tent, Cabella Ligure, Italy</font>
+<a href="https://www.youtube.com/watch?time_continue=11&v=RwoLqfweBz4"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
