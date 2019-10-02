@@ -10,7 +10,7 @@ tags:
 
 <p>
 <font color="DarkRed">"<b>Surrender is the opening of Sahasrāra, keeping it completely open so that Nirvikalpa state is established within us.</b> There should be a regular progress of improvement, regular progress of the opening."</font><br>
-<b>1985-0504 Talk to Sahaja Yogis, Nirvikalpa, the day before Sahasrāra Pūjā, Laxenburg Castle, Vienna, Austria</b>
+<font size="+0"><b>1985-0504 Talk to Sahaja Yogis, Nirvikalpa, the day before Sahasrāra Pūjā, Laxenburg Castle, Vienna, Austria</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image92.png" /></div>
@@ -25,17 +25,19 @@ There has been no religion so far which is the Religion of Truth. It practices s
 ......<br>
 Now you are grown-up people, you have to become responsible for this Mahā Yoga and for this Great Dharma that we have established. The Dharma that Integrates all the Dharmas. The Dharma that purifies anybody who comes near. It’s the Ocean of all the Rivers. All the rivers flow to this Great Ocean of Vishwa Dharma.<br>
 So we have to mold ourselves to fit into the new pattern, the new rhythm, the new music of divine flute. Unless and until that happens, I do not think that Western people have much chance. <b>If you have come for Sahasrāra, be prepared.</b>"</font><br>
-<b>1985-0504 Talk to Sahaja Yogis, Nirvikalpa, the day before Sahasrāra Pūjā, Laxenburg Castle, Vienna, Austria</b>
+<font size="+0"><b>1985-0504 Talk to Sahaja Yogis, Nirvikalpa, the day before Sahasrāra Pūjā, Laxenburg Castle, Vienna, Austria</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image93.png" /></div>
 
 <p style="text-align:center;">
-<font size="-1">(1997-0504 Sahastrara Puja, Cabella, Italy)</font><br>
+<font size="+0">(1997-0504 Sahastrara Puja, Cabella, Italy)</font><br>
 <font color="DarkGreen"><b>Om Twameva Sakshat Shri Vishwa Nirmala Dharma Prasthapini Sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namoh Namah!</b></font>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 1985-0504 Talk to Sahaja Yogis, Nirvikalpa, the day before Sahasrāra Pūjā, Laxenburg Castle, Vienna, Austria<br><a href="https://www.youtube.com/watch?time_continue=1&v=UnELWtFpbfc"> video</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 
+<font size="+0">1985-0504 Talk to Sahaja Yogis, Nirvikalpa, the day before Sahasrāra Pūjā, Laxenburg Castle, Vienna, Austria</font>
+<a href="https://www.youtube.com/watch?time_continue=1&v=UnELWtFpbfc"> video</a><br>
 
 Jai Shri Mataji!<br>
 On behalf of the festivity team!

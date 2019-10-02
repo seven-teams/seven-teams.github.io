@@ -15,7 +15,7 @@ This has to be understood that, this joy comes out of the love and affection we 
 So open your heart. Open your heart. And everything will be enjoyable, beautiful and you’ll feel the Ambros[i]a trickling into your being, into your nerves, all around you.<br>
 The joy can be only complete when you can receive it every minute, every moment. And that is what I want all of you to have. That’s My pure desire.<br>
 May God bless you all."</font><br>
-<b>1989-0722 Talk to Sahaja Yogis, before and during the Evening Program, the day before Guru Pūjā, Hotel Lago di Braies, Braies, Bolzano, Italy</b>
+<font size="+0"><b>1989-0722 Talk to Sahaja Yogis, before and during the Evening Program, the day before Guru Pūjā, Hotel Lago di Braies, Braies, Bolzano, Italy</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image8.png" /></div>
@@ -37,7 +37,9 @@ And fill me wholly with Thyself.<br></font>
 <b>Sant Tukaram (17th century poet-saint)</b><br>
 </p>  
 
-<font size="+2"><b>Suggested Video:</b></font> 1998-0711 Music Program before Guru Puja<br><a href="https://youtu.be/aHW-KTHeocU"> video</a><br>
+<font size="+2"><b>Suggested Video:</b></font> 
+<font size="+0">1998-0711 Music Program before Guru Puja</font>
+<a href="https://youtu.be/aHW-KTHeocU"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 

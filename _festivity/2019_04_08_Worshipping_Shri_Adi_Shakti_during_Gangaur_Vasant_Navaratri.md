@@ -12,7 +12,7 @@ tags:
 <p>
 <font color="DarkRed">"The way different Deities manifest themselves to do certain thing, similarly the Goddess manifests Herself as Their Power, Śhakti. Without the Śhakti no Deity could work out things, whether it is Incarnation of Rāma, Kṛiṣhṇa, Jesus Christ or anyone else. All of them had a Goddess as Their Power (Śhakti). That is the reason so much importance and respect is given to mother in our country. Indians are worshipers of Śhakti, irrespective of all the difference and problems. They are the worshipers of Śhakti.<br>
 Those who follow Viṣhṇu or Śhiva are also worshipers of Śhakti because Śhakti is the Mother and mother belongs to all. Mother is a very significant institution in our country. So we should always respect the mother."</font><br>
-<b>2000-0405 Guḍhī Pāḍavā Pūjā (Hindi), Noida Bhavan, New Delhi, India</b>
+<font size="+0"><b>2000-0405 Guḍhī Pāḍavā Pūjā (Hindi), Noida Bhavan, New Delhi, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image73.png" /></div>
@@ -29,7 +29,7 @@ majesty of the tiger and the lion."</font><br>
 <p>
 <font color="DarkRed">"We are the worshipers of Śhakti. Here we are Śhakti Dharmi [religiously devoted to Śhakti] and many kings have been worshiping Ādi Śhakti. <b>Everyone has different Deities and the names of each Deity is different. The name of the Deity of this place is also different, it is ‘Gangaur’.</b> But Ādi Śhakti was once born in Rajasthan state whose name was ‘Satī Devī’. It is Her Grace that we find our culture the dharma of wife, dharma of husband, dharma of ruling, etc. which are nourished by Her Śhakti.<br>
 <b>You all know the story of Satī Devī, I don’t have to tell you in new way but she was Gangaur.</b> She was married and while she was returning after marriage with her husband some of the bad elements surrounded them and killed her husband. She came out of the bride’s carriage, took the Rudra Form and destroyed all of them who attacked her husband and then she finished herself also. We should see in this that since childhood till marriage she did not disclose that she was Mahāmāyā in any condition."</font><br>
-<b>Version 1: 1994-1211 Śhrī Ādi Śhakti Pūjā (Hindi), Jaipur, Rajasthan, India</b>
+<font size="+0"><b>Version 1: 1994-1211 Śhrī Ādi Śhakti Pūjā (Hindi), Jaipur, Rajasthan, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image74.png" /></div>
@@ -41,7 +41,7 @@ majesty of the tiger and the lion."</font><br>
 
 <p>
 <font color="DarkGreen">"<b>They have one festival called Gangaur that is a thing where they worship Gauri.</b> That's the biggest festival where the queen, maharani has to worship the Gangauri, it's a statue; which goes round the whole of Jaipur state and everybody celebrates it. It's regarded as the biggest festival. So, in the morning she came and touched My feet. And she said, -Mother, can I worship You?" I said, -Why?" -Because You are my Gangaur, really." That's just a statue. She made me stand the same way, she did everything, she made me eat betel. I don't eat all that, but she said -You have to, You are Gangaur, so You have to eat it." And she worshipped me and her whole rituals she did for about 45 minutes and then she said, -Now I'll go and worship that statue."</font><br>
-<b>1990-0421 Talk to Sahaja Yogis, Vertical Ascent, the day before Easter Pūjā, The Burlington Hotel, Eastbourne, UK</b>
+<font size="+0"><b>1990-0421 Talk to Sahaja Yogis, Vertical Ascent, the day before Easter Pūjā, The Burlington Hotel, Eastbourne, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image75.png" /></div>
@@ -56,7 +56,9 @@ majesty of the tiger and the lion."</font><br>
 <a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&index=15&list=PLC8554007A2C98EA0"> video</a><br>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 1993-0803 Adi Shakti Puja Talk, Togliatti, Russia<br><a href="https://www.youtube.com/watch?time_continue=5013&v=sLZiyGkIDIE"> video</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 
+<font size="+0">1993-0803 Adi Shakti Puja Talk, Togliatti, Russia</font>
+<a href="https://www.youtube.com/watch?time_continue=5013&v=sLZiyGkIDIE"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 

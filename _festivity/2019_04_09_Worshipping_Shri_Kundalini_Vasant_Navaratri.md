@@ -11,7 +11,7 @@ tags:
 
 <p>
 <font color="DarkRed">"Many forms of the Devī are described in our Scriptures. There is absolutely no error in it. But to understand its depth, one has to grow deep in Sahaja Yoga. On vibrations you will achieve the power of discrimination. You will see that all the forms of the the Devī have different vibrations. This is very subtle quality. The more you go deeper in Sahaja Yoga the more you will understand it. If you are established yourself in meditation and develop your powers then you will understand it immediately. About every human being you will come to know on your vibrations."</font><br>
-<b>2000-0405 Guḍhī Pāḍavā Pūjā (Hindi), Noida Bhavan, New Delhi, India</b>
+<font size="+0"><b>2000-0405 Guḍhī Pāḍavā Pūjā (Hindi), Noida Bhavan, New Delhi, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image76.png" /></div>
@@ -26,7 +26,7 @@ You are beyond all categories and reside in the Sahasrara, and are to be found t
 
 <p>
 <font color="DarkRed">"Kuṇḍalinī is a lady. She is not, She is not a man, you can say. You have all the Avatāras [Incarnations] and everything but Kuṇḍalinī is the, what they call the reflection of the Ādi Śhakti. She’s the Śhakti. We are the Śhakti worshipers. But the way we are treating our women is very surprising. We have to understand that these women, if they are awakened, what powers you will have."</font><br>
-<b>2000-0417 Public Address to Income Tax Officers Meeting,New Delhi, India</b>
+<font size="+0"><b>2000-0417 Public Address to Income Tax Officers Meeting,New Delhi, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image77.png" /></div>
@@ -40,7 +40,7 @@ O Divine Mother, You are verily Adorned with glorious chaitanya (vibrations)</fo
 <p style="text-align:center;">
 Yogi Mahajan: Are these vibrations similar to what modern physics talks about?<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b> No, the vibrations in physics are only electromagnetic. Electro comes from Sun and magnetic comes from the Earth. They are present in the center of the mesons, but mesons act under the Ādi Śhakti. Her vibrations flow through it and are the pure vibrations which you feel as the Cool Vibrations of your Kuṇḍalinī. These vibrations are conscious, they act and organize everything, and above all they love. Love gives joy.</font><br>
-<b>1985-0329 Conversation with Yogi Mahajan, Talnoo, Naddi (11 kms NNE of Dharmaśhālā), Himachal Pradesh, India</b>
+<font size="+0"><b>1985-0329 Conversation with Yogi Mahajan, Talnoo, Naddi (11 kms NNE of Dharmaśhālā), Himachal Pradesh, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image78.png" /></div>
@@ -51,10 +51,12 @@ Yogi Mahajan: Are these vibrations similar to what modern physics talks about?<b
 I was holding the Nag champa flowers in my Hands and I told Rajesh that it depicts the Sahasrāra.<br> 
 He said that you have the Sahasrāra of all the yogis in Your hand.<br>
 I said yes, and then I got this photograph."</font><br>
-<b>1986-1225 Christmas Pūjā (English+Marathi), Pavanā Dam Camp, Pune, Maharashtra, India</b><br>
+<font size="+0"><b>1986-1225 Christmas Pūjā (English+Marathi), Pavanā Dam Camp, Pune, Maharashtra, India</b></font>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, Weilburg, Germany<br><a href="https://www.youtube.com/watch?v=7uSGgzf6Rrg"> video</a><br>
+<font size="+2"><b>Suggested Talk:</b></font>
+<font size="+0">1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, Weilburg, Germany</font>
+<a href="https://www.youtube.com/watch?v=7uSGgzf6Rrg"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 

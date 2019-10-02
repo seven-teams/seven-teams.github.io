@@ -16,7 +16,7 @@ But you have to be mine. This is necessary.<br>
 If you are mine then it'll not take for me even a single second to come to you.<br>
 May God bless you all and give you wisdom.<br>
 Lead a life of wisdom."</font><br>
-<b>1976-0527 Public Program (Hindi), Dhyān Kaise Karein (How to Meditate), Bharatiya Vidyā Bhavan, Kulapati K.M. Munshi Mārg, 3rd Floor, Gita Mandir Hall, Chowpatty, Mumbai, Maharashtra, India</b>
+<font size="+0"><b>1976-0527 Public Program (Hindi), Dhyān Kaise Karein (How to Meditate), Bharatiya Vidyā Bhavan, Kulapati K.M. Munshi Mārg, 3rd Floor, Gita Mandir Hall, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image66.png" /></div>
@@ -36,19 +36,19 @@ But deliver us from evil;<br>
 For thine is the Father,<br>
 The children and the glory,<br>
 Forever and ever, Amen.</i></b></font><br>
-<b>Mother's Prayer (1986-0713 Shrī Kārttikeya Pūjā, Grosshartpenning, Münich, Germany)</b><br>
+<font size="+0"><b>Mother's Prayer (1986-0713 Shrī Kārttikeya Pūjā, Grosshartpenning, Münich, Germany)</b></font><br>
 <a href="https://www.youtube.com/watch?v=tHm8jefq9bk">video</a>
 </p>
 
 <p>
 <font color="DarkRed">"I am telling something new for them. If you are Sahaja Yogis then it should be expressed in your behavior. Every one should know that you are Sahaj Yogis. We should know that a person is either a Sahaj Yogi or a non Sahaj Yogi. We should know the art of integrating all. With this Sahaj nature you should conquer the whole world. Register in your heart what I have said.<br>
 <b>This is My vision. You people could fulfill and relieve Me of My heartache.</b>"</font><br>
-<b>2000-0407 Śhrī Bhūmī Devī Pūjā (Hindi), Nirmal Dham, New Delhi, India</b>
+<font size="+0"><b>2000-0407 Śhrī Bhūmī Devī Pūjā (Hindi), Nirmal Dham, New Delhi, India</b></font>
 </p>
 
 <p>
 <font color="DarkRed">"The first thing in today's modern Sahaja Yoga, you have to know that you have to recognize Me. That is very important. Very humbly, I have to tell you - <b>you have to recognize Me and you have to respect Me and love Me</b>. If in these words, if I can explain to you, that you cannot have a double life. You cannot show love and another side you try to trouble Me. First thing is that so far there has been no en-masse realization, no en-masse realization and when there is no en-masse realization, we cannot blame the people if they did not recognize these incarnations, because without realization, how can they recognize?"</font><br>
-<b>1994-1227 Christmas Puja, Ganapatipule, Maharashtra, India</b>
+<font size="+0"><b>1994-1227 Christmas Puja, Ganapatipule, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image67.png" /></div>
@@ -57,12 +57,12 @@ Forever and ever, Amen.</i></b></font><br>
 <font color="Red"><b>"All My Love, all My Powers, all My wisdom<br>
 must be transferred to you people in this lifetime<br>
 or My incarnation will have been a waste of time."</b></font><br>
-<b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b><br>
+<font size="+0"><b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font>
 </p>
 
 <font size="+2"><b>Suggested Videos:</b></font>
-<font color="DarkGreen"><b>Shri Devi Puja, January 11, 1987, Paithan</b></font><a href="http://vimeo.com/25431464"> video</a><br>
-<font color="DarkGreen"><b>Supreme Source of Love</b></font><a href="https://vimeo.com/60342739"> video</a><br>
+<font size="+0"><font color="DarkGreen"><b>1987-0111 Śhrī Devī Pūjā, We Must Fully Dedicate Ourself and Complete Commitment to Sahaja Yoga (One Has to Progress Higher and Higher), Paiṭhaṇ (51 kms S of Aurangabad), Maharashtra, India</b></font></font><a href="http://vimeo.com/25431464"> video</a><br>
+<font size="+0"><font color="DarkGreen"><b>Supreme Source of Love</b></font></font><a href="https://vimeo.com/60342739"> video</a><br>
 
 
 <font size="+2"><b>Bhajans:</b></font>

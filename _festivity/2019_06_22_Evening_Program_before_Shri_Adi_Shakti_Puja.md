@@ -11,7 +11,7 @@ tags:
 
 <p>
 <font color="DarkRed">"On the subject of the Ādi Śhakti every religion will come in. So for the variety entertainment there should be the subject of the Ādi Śhakti."</font><br>
-<b>1975-0120 Talk to Sahaja Yogis (Hindi), Day 1, Session 2 (evening), Kṣham Ki Śhakti Ka Mahatav (Power of Forgiveness) or Dharm va Adharm (Dharma and Adharma), Bharatiya Vidyā Bhavan, Kulapati K.M. Munshi Mārg, 3rd Floor, Gita Mandir Hall, Chowpatty, Mumbai, Maharashtra, India</b>
+<font size="+0"><b>1975-0120 Talk to Sahaja Yogis (Hindi), Day 1, Session 2 (evening), Kṣham Ki Śhakti Ka Mahatav (Power of Forgiveness) or Dharm va Adharm (Dharma and Adharma), Bharatiya Vidyā Bhavan, Kulapati K.M. Munshi Mārg, 3rd Floor, Gita Mandir Hall, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image110.png" /></div>
@@ -29,7 +29,7 @@ the Goddess Shri Mataji Nirmala Devi<br>
 
 <p>
 <font color="DarkRed">"You see all these five elements are very important in our body and they are the body of the chakras also as I have told you. So what happens that, when you sing the music, the vibrations can go through the musical sound and can excite certain chakras. For example, for the Hṛiday [heart] chakra it is very good or also for the Vishuddhi chakra it is very good. Not for all the chakras. But certain chakras it does. But supposing you say a mantra, that’s the sound, with beautiful music and a realized Soul then it is very effective. For example, Gaṇesha you can excite him with a beautiful sloka if you are a realized Soul and if your Gaṇesha is correct, you can excite the Gaṇesha of another person very easily, I mean such a person can do it."</font><br>
-<b>1977-0126 Talk to Sahaja Yogis (28th Republic Day), Day 1, Questions on Chakras, Bordi, Maharashtra, India</b>
+<font size="+0"><b>1977-0126 Talk to Sahaja Yogis (28th Republic Day), Day 1, Questions on Chakras, Bordi, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image111.png" /></div>
@@ -45,7 +45,9 @@ Make us like the Sufis and the Gnostics adoring You at every moment.</b></font><
 <a href="https://www.youtube.com/watch?v=HFCi8x1GiPI&feature=youtu.be">video</a>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.<br><a href="https://www.youtube.com/watch?v=aN-Z4JjZqx4"> video</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 
+<font size="+0">1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</font>
+<a href="https://www.youtube.com/watch?v=aN-Z4JjZqx4"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
