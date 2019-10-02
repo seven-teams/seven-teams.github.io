@@ -58,8 +58,8 @@ If you get an accident, then know that you have done some mistakes, or something
 
 <div style="text-align: center"><img src="/images/image178.png" /></div>
 
-<p style="color:green; text-align:center;">
-<b>"Forgiveness gives you a big kavacha; is a big bandhan, is a big protection – we can say a ‘shield’ – from all kinds of evil that other’s can put on you."
+<p style="text-align:center;">
+<font color="DarkRed"><b>"Forgiveness gives you a big kavacha; is a big bandhan, is a big protection – we can say a ‘shield’ – from all kinds of evil that other’s can put on you."</b></font><br>
 <b>1982-1114 Diwālī Pūjā (Diwālī Day), Wealth and Generosity, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, South West London, UK</b><br>
 </p>
 
