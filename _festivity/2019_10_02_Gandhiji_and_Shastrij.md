@@ -46,5 +46,5 @@ On this occasion, we found this wonderful music evening held in Calabasas house 
 <a href="http://youtu.be/H5EqQPBpVh0">video</a>
 </p>
 
-Jai Shri Mataji!<br>
+Jai Shri Mataji!
 <font size="+0">On behalf of the festivity team!</font>
