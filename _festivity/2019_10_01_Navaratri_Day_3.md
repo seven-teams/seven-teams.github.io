@@ -37,7 +37,7 @@ and at the time of the Dissolution of the World, You are the Destructive Power.<
 Sahaja Yogi: Shield.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b> Shield, shield, kavach. Kavach is shield, sorry kavach is shield!</font><br>
 <b>1982-1009 Bestowing of Boons Pūjā, House of Maria Laventzi, Irchester, UK</b><br>
-Devī Kavach:<a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1">video</a>
+Devī Kavach: <a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1"> video</a>
 </p>
 
 <p>
