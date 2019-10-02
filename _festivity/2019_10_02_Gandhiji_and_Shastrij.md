@@ -38,7 +38,7 @@ He laid down the basis for Sahaja Yoga, actually. In every way he laid down. For
 <p>
 Dear Brothers and Sisters,<br>
 <br>
-Today we are celebrating 150 years since the birth of Mahātmā Gāndhī (1969-1948_ and 115 years since the birth of Lal Bahadur Shastrijī (1904-1966). Through their honesty, high standards, power of sacrifice, dedication to dharma, people and their country, love, and compassion, they have laid down the basis for Sahaja Yoga. Just remembering them and their ideas and deeds is a moment of great joy and great source of inspiration. All our respect and gratitude to them!
+Today we are celebrating 150 years since the birth of Mahātmā Gāndhī (1869-1948) and 115 years since the birth of Lal Bahadur Shastrijī (1904-1966). Through their honesty, high standards, power of sacrifice, dedication to dharma, people and their country, love, and compassion, they have laid down the basis for Sahaja Yoga. Just remembering them and their ideas and deeds is a moment of great joy and great source of inspiration. All our respect and gratitude to them!
 </p>
 
 <p>
