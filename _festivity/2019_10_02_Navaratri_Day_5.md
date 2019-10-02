@@ -62,10 +62,10 @@ But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart. But
 <font color="DarkRed">"You understand the meaning: is the ... is the praise of the Dayānī uh ... the Bhavānī, the Goddess.<br>
 Is She so knuuh compassionate and She's the One who is uh described by all the human beings, and all the great Saints, and all the Gods.<br>
 And the second [thing] is that She Herself, She, when She gets angry, She can become a volcano.<br>
-And when She's a Chaṇḍī, She's ... She's a volcano, and that is how She killed Mahiṣhāsura.</font><br>
+And when She's a Chaṇḍī, She's ... She's a volcano, and that is how She killed Mahiṣhāsura.<br>
+That is the song, is uh quite a powerful song. But My voice ......"</font><br>
 <font size="+0"><b>1985-0518 Talk to Sahaja Yogis, Evening Bhajans, the day before Śhrī Gaṇeśha Pūjā, Nirmala House, Sant'Angelo Romano (7 kms N of Guidonia), Italy</b></font><br>
 <font size="+0"><b>Shri Mataji along with Sahaja Yogis sings Bhavani Dayānī</b></font>
-That is the song, is uh quite a powerful song. But My voice ......"</font><br>
 <a href="https://www.youtube.com/watch?v=vqd4mzk44Qk">video</a><br>
 </p>
 
