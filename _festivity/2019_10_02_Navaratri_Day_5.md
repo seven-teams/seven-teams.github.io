@@ -65,7 +65,7 @@ And the second [thing] is that She Herself, She, when She gets angry, She can be
 And when She's a Chaṇḍī, She's ... She's a volcano, and that is how She killed Mahiṣhāsura.<br>
 That is the song, is uh quite a powerful song. But My voice ......"</font><br>
 <font size="+0"><b>1985-0518 Talk to Sahaja Yogis, Evening Bhajans, the day before Śhrī Gaṇeśha Pūjā, Nirmala House, Sant'Angelo Romano (7 kms N of Guidonia), Italy</b></font><br>
-<font size="+0"><b>Shri Mataji along with Sahaja Yogis sings Bhavani Dayānī</b></font>
+<font size="+0"><b>Shri Mataji along with Sahaja Yogis sings Bhavani Dayānī</b></font><br>
 <a href="https://www.youtube.com/watch?v=vqd4mzk44Qk">video</a><br>
 </p>
 
@@ -152,4 +152,4 @@ Her one hand is in a blessing posture, Abhaymudra, and with the other she holds 
 </p>
 
 Jai Śhrī Mātājī!<br>
-<font size="-1">On behalf of the festivity team!</font>
+On behalf of the festivity team!
