@@ -21,8 +21,8 @@ So again we come to the same point, that we should be aware of ourselves – com
 <font color="MidNightBlue"><b>Visṛistau sṛisti-rūpā Tvam sthiti-rūpā cha pālane,<br>
 Tathā saṁhṛiti-rūpānte jagato-sya jagan-maye ǁ 5 ǁ</b><br>
 O You, whose Form is the Universe, at the time of creation You are the Creative Force,<br>
-At the time of sustentation You are the Protective Power, and at the time of the Dissolution of the World,<br>
-You are the Destructive Power.</font><br>
+At the time of sustentation You are the Protective Power,<br> 
+and at the time of the Dissolution of the World, You are the Destructive Power.</font><br>
 </p>
 
 <p>
