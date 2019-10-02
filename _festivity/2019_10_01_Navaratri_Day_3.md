@@ -17,37 +17,43 @@ So again we come to the same point, that we should be aware of ourselves – com
 
 <div style="text-align: center"><img src="/images/image176.png" /></div>
 
-<p style="color:green; text-align:center;">
-<b></b><br>
-<br>
-<b></b><br>
-<br>
-<b></b><br>
-<br>
-<a href="">video</a>
+<p style="text-align:center;">
+<font color="MidNightBlue"><b>Visṛistau sṛisti-rūpā Tvam sthiti-rūpā cha pālane,<br>
+Tathā saṁhṛiti-rūpānte jagato-sya jagan-maye ǁ 5 ǁ<br>
+O You, whose Form is the Universe, at the time of creation You are the Creative Force,</b>><br>
+At the time of sustentation You are the Protective Power, and at the time of the Dissolution of the World,<br>
+You are the Destructive Power.</font><br>
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
-<b></b>
+<font color="DarkRed">I would say, with this, today's special celebration of Navarātri. Like yesterday you saw Śhrī Durgā's Nine Forms, also. In that, <b>one is Kuṣhmāṇḍā, is one of the forms, that you absorb all the filth in yourself, in your stomach. But the Devī does that, not you.</b> What the Devī can do, you should not do, that's her job, that She is supposed to do this, not you. What you have to do is to only be in silence so that you absorb whatever will increase that silence, will increase your depth. The Devī will look after all the rest of the things, she'll look after all the filth, all the anger, all the temper, all the everything that's going on in this world. She will absorb all that, but what you have to do is to just enjoy everything that is pure. Enjoyment is only possible when you are beyond your mind. With your mind you can never enjoy, it is like a big load. It will not act, it will not help. Enjoyment comes when you are in complete silence, in a rippleless lake, the reflection of all the joy that is created on the shores of that lake are completely reflected, they are not deflected, if they were repulsed it would have been a different image altogether, and would have been something nowhere near the image of reality. 
+"</font><br>
+<b>1995-1001 Navarātri Pūjā (cusp between 7th Day and 8th Day), You Must Project Your Depth and Not Reflect, Hangar, Cabella Ligure, Italy</b>
 </p>
 
 <div style="text-align: center"><img src="/images/image177.png" /></div>
 
 <p style="text-align:center;">
-<font size="-1"><font color="DarkGreen"><b></b><br>
-</font></font><br>
-<a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&index=15&list=PLC8554007A2C98EA0">video</a>
+<font color="DarkRed"><b>Śhrī Mātājī:</b> Kavach – kavach is the cover, kavach is the cover.<br>
+Sahaja Yogi: Shield.<br>
+<b>Śhrī Mātājī:</b> Shield, shield, kavach. Kavach is shield, sorry kavach is shield!<br>
+<b>1982-1009 Bestowing of Boons Pūjā, House of Maria Laventzi, Irchester, UK</b><br>
+Devī Kavach:<a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1">video</a>
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
-<b></b>
+<font color="DarkRed">"That’s rather, protection is abstract, but this is a protection of the Mother is a concrete stuff, you see, kavach. So you take the kavach. Kavach is something you can say that people wear those armor, inside, you see that sort of a thing, is kavach. So you must take that before going out or talking to somebody. That you don’t do. Then I find there are, I said, “From where are you coming?” “Oh Mother, I went to see my, I went to a cemetery.” I said, “For what?” “Somebody died so I went there.” “So did you take your kavach?” “No.” And you can see all the bhūts dancing here on the head. [Laughter.]
+This is the thing is that – and then you pull your ears, what’s the use? It’s just a simple thing, take your kavach when you are going out. It’s so simple, I mean, in Sahaja Yoga we don’t have to do horrible rituals that people do, nothing of the kind. Just take your bandhan in the morning when you are going out and if somebody is argumentative just give a bandhan. Anything little bandhan can work out so many things but we forget that we have entered into the Kingdom of God and all the Saints and all the angels and gaṇas are at your disposal."</font><br>
+<b>1992-0704 Śhrī Viṣhṇumāyā Pūjā, Viṣhṇumāyā's Powers, Āśhram, Everbeek, Belgiu</b>
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
-<b></b>
+<font color="DarkRed">"So we have made it short now, just take a bandhan, it is he same thing as kavacha you see. Realized Souls, if they take bandhan is the same thing. Whatever you have said here is done, yesterdays and todays, everything that has been said, all these rakṣhākari [act of protection] is done in one stroke.<br>
+But now we should know how many of us take bandhan before going from the house, before sleeping or before doing something important. How many people take bandhan. Very seldom you forget it. Very important, going on a journey, going on a road, better take a bandhan, not that we are all right, Mother is looking after us, is not the point. You must take bandhan before doing all these things.<br> 
+If you get an accident, then know that you have done some mistakes, or something otherwise, normally there should be not an accident, means there is something still lacking in you."</font><br>
+<b>1988-1014 Talk to Sahaja Yogis, Navarātri Celebrations (4th Day), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India<br>
+Śhrī Mātājī explains the bandhan</b><br>
+<a href="https://www.youtube.com/watch?v=DkW7L9veu6M">video</a>
 </p>
 
 <div style="text-align: center"><img src="/images/image178.png" /></div>
@@ -58,8 +64,8 @@ So again we come to the same point, that we should be aware of ourselves – com
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
-<b></b>
+<font color="DarkRed">"What is bandhan? It's nothing but you are attaching yourself to your Mother, you're just telephoning to Her. This is a telephone going to your Mother, that's all. You know I also play with you, I also say, ``All right, I am giving you a bandhan." I am giving bandhan to Myself! It's a telephone call, just a telephone call. But the faith has developed now that yes, this is the real faith, where you get completely detached in your emotional things."</font><br>
+<b>1984-1123 Śhrī Jesus Pūjā, Montague Hall, Hounslow, London, UK</b>
 </p>
 
 <div style="text-align: center"><img src="/images/image179.png" /></div>
