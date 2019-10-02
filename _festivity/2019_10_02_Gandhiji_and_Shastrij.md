@@ -47,4 +47,4 @@ On this occasion, we found this wonderful music evening held in Calabasas house 
 </p>
 
 Jai Shri Mataji!
-<font size="+0">On behalf of the festivity team!</font>
+On behalf of the festivity team!
