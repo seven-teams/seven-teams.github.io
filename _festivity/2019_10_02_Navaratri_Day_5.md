@@ -53,8 +53,7 @@ Salutations to You!</i><br>
 <p>
 <font color="DarkRed">"Śhrī Kārttikeya Himself has taken birth here! Śhrī Saraswatī is known as Skandamātā, She was not His mother and was virgin.
 But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart. But how great it is that Śhrī Kārttikeya found Maharashtra to take birth! The whole world becomes joyous reading what Śhrī Gyāneśhwara has written, but it is all contrary here."</font><br>
-<font size="+0"><b>1996-1221 Śhrī Kārttikeya Pūjā (Marathi+English),C.B.D. Belapur, Navi Mumbai, Maharashtra, India
-</b></font>
+<font size="+0"><b>1996-1221 Śhrī Kārttikeya Pūjā (Marathi+English), C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image185.png" /></div>
