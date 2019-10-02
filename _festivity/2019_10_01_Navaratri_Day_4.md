@@ -108,13 +108,13 @@ May You protect the universe!”<br>
 
 <p style="text-align:center;">
 <font size="-1">Śhrī Kuṣhmāṇḍa (The one whose void contains the universe). She is considered the creator of the universe.<br>
-Often She is depicted as having eight or ten hands. She holds weapons, glitter, rosary, etc, in Her hands, and She rides a lion.</font><br>
-<font color="blue"><b>Navaratri Song</b></font>  <b>(9 description of 9 avatar of the goddess and 10th is when She sits on the lion)</b><br>
+Often She is depicted as having eight or ten hands. She holds weapons, glitter, rosary, etc, in Her hands, and She rides a lion.<br>
+<font color="blue"><b>Navaratri Song</b></font>  <b>(9 description of 9 avatar of the goddess and 10th is when She sits on the lion)</b></font><br>
 <a href="www.youtube.com/watch?v=Fd4cyBJX73c"> video</a><br>
-<b>Aum Twameva Sakshat<br>
+<font color="DarkRed"><b>Aum Twameva Sakshat<br>
 Shri Kush-manda Sakshat Shri Adishakti Mataji Shri Nirmala Devyai Namo Namah!</b><br>
 <i>O Divine Mother, You are verily Shri Kush-manda, the one whose void contains the universe!<br>
-Salutations to You!</i><br>
+Salutations to You!</i></font>
 </p>
 
 Jai Śhrī Mātājī!<br>
