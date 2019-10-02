@@ -20,12 +20,12 @@ You cannot kill anyone: if you kill somebody, then may be that such a person is 
 <b>Vishw’eshwari twam paripāsi vishwam</b><br>
 O Goddess of the universe, You are its protector.<br>
 <b>Vishw’ātmikā dhārayas’īti vishwam</b><br>
-You are the universe, You are its support. 
+You are the universe, You are its support.<br> 
 <b>Vishw’esha-vandyā Bhavatī bhavanti</b><br>
 You are worshipped by the Lord of the universe.<br>
 <b>Vishw’āshrayā ye twayi bhakti-namrāhā</b><br> 
 Those who are devoted to You themselves become a refuge for all.<br>
-<font size="-1">(Devi Mahatmyam, Chapter 11, Narayani Stotram, shlokas 33 & 35)</font>
+<font size="-1"><b>(Devi Mahatmyam, Chapter 11, Narayani Stotram, shlokas 33 & 35)</b></font>
 </p>
 
 <p>
@@ -51,7 +51,7 @@ Salutations to You!</i><br>
 </p>>
 
 <p>
-<font color="DarkRed">"Śhrī Kārttikeya Himself has taken birth here! Śhrī Saraswatī is known as Skandamātā, She was not His mother and was virgin.
+<font color="DarkRed">"Śhrī Kārttikeya Himself has taken birth here! Śhrī Saraswatī is known as Skandamātā, She was not His mother and was virgin.<br>
 But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart. But how great it is that Śhrī Kārttikeya found Maharashtra to take birth! The whole world becomes joyous reading what Śhrī Gyāneśhwara has written, but it is all contrary here."</font><br>
 <font size="+0"><b>1996-1221 Śhrī Kārttikeya Pūjā (Marathi+English), C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font>
 </p>
@@ -59,10 +59,10 @@ But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart. But
 <div style="text-align: center"><img src="/images/image185.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">""You understand the meaning: is the ... is the praise of the Dayānī uh ... the Bhavānī, the Goddess.<br>
+<font color="DarkRed">"You understand the meaning: is the ... is the praise of the Dayānī uh ... the Bhavānī, the Goddess.<br>
 Is She so knuuh compassionate and She's the One who is uh described by all the human beings, and all the great Saints, and all the Gods.<br>
 And the second [thing] is that She Herself, She, when She gets angry, She can become a volcano.<br>
-And when She's a Chaṇḍī, She's ... She's a volcano, and that is how She killed Mahiṣhāsura.<br>
+And when She's a Chaṇḍī, She's ... She's a volcano, and that is how She killed Mahiṣhāsura.</font><br>
 <font size="+0"><b>1985-0518 Talk to Sahaja Yogis, Evening Bhajans, the day before Śhrī Gaṇeśha Pūjā, Nirmala House, Sant'Angelo Romano (7 kms N of Guidonia), Italy</b></font><br>
 <font size="+0"><b>Shri Mataji along with Sahaja Yogis sings Bhavani Dayānī</b></font>
 That is the song, is uh quite a powerful song. But My voice ......"</font><br>
@@ -82,7 +82,7 @@ So this rāga is so apt, absolutely apt for today's atmosphere and for today's n
 <font color="MidNightBlue"><b>Salutations to You O Goddess Chamunda Narayani,<br>
 whose mouth was dreadful with its great teeth,<br>
 Who wore a garland of human skulls as an ornament and killed the demon Munda.</b></font><br>
-<b>(Mahalakshmi Hymn, Chapter 11 of the Devi Mahatmyam)</b><br>
+<font size="+0"><b>(Mahalakshmi Hymn, Chapter 11 of the Devi Mahatmyam)</b></font><br>
 <br>
 <font color="DarkRed"><b>"She gives us the protection. She’s the Protector. And She’s the Mother of this world, Jagadambā."</b></font><br>
 <font size="+0"><b>1977-0222 Public Program, Day 1, Delhi University, North Campus, Timarpur, New Delhi, India</b><br>
@@ -103,7 +103,7 @@ The Devī destroyed ‘Chaṇḍā and Muṇḍa’, that is why She is called C
 <font color="DarkRed">"This song that you have heard has been composed in the year of 1600. And in this song the poet has sung for the rustic people, in their language. That, “Oh Mother, give us our Realization!” ‘Jogawa’ means the Yoga, the Union with the Divine and the Sahaja Yoga means spontaneous. It fills My heart to see how since long the seekers have been asking for this Union with the Divine. What a search! What a seeking!<br>
 By the very simple people of the villages. Today we have so many people who are great Seekers of Truth. At the same time there are many people who are in the market, they are selling all kinds of things in the market, in the name of the Divine or God.<br>
 One has to realize that this Union with the Divine works out through a living force. Just like a seed gets sprouted spontaneously when placed in the Mother Earth, in the same way this residual force of Kuṇḍalinī is sprouted. Now in the song when they are saying “Uday, uday, Ambe!” Then they are meaning – Ambe means the Kuṇḍalinī, ‘uday’ means now please awaken, awaken, awakend."</font><br>
-<font size="+0"><b>1988-0609 Public Program, Day 2, Kongresshaus, 5, Margaretengürtel 138-140, Vienna, Austria</b></font><br>
+<font size="+0"><b>1988-0610 Public Program, University, Graz, Austria</b></font><br>
 <font size="-1"><b>Jogwa 1, (Marathi 6), Shri Mataji explains the meaning of the bhajan.</b></font><br>
 <a href="https://www.youtube.com/watch?v=05wpMZ44Sxc">video</a>
 </p>
@@ -111,11 +111,11 @@ One has to realize that this Union with the Divine works out through a living fo
 <div style="text-align: center"><img src="/images/image187.png" /></div>
 
 <p style="text-align:center;">
-<font size="+0"><font color="MidNightBlue"><b>Victory be to You,
-O Devi Chamunda (killer of Chanda and Munda),
-victory be to You who destroys the suffering of all living beings.
-Victory be to You, O Devi Who is present everywhere.
-Salutations to you O Kalaratri (the longest night)
+<font size="+0"><font color="MidNightBlue"><b>Victory be to You,<br>
+O Devi Chamunda (killer of Chanda and Munda),<br>
+victory be to You who destroys the suffering of all living beings.<br>
+Victory be to You, O Devi Who is present everywhere.<br>
+Salutations to you O Kalaratri (the longest night)<br>
 (Argala Stotram)</b></font></font>
 </p>
 
@@ -152,4 +152,4 @@ Her one hand is in a blessing posture, Abhaymudra, and with the other she holds 
 </p>
 
 Jai Śhrī Mātājī!<br>
-On behalf of the festivity team!
+<font size="-1">On behalf of the festivity team!</font>
