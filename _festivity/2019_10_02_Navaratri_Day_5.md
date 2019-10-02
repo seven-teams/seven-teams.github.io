@@ -25,11 +25,11 @@ You are the universe, You are its support.
 You are worshipped by the Lord of the universe.<br>
 <b>Vishw’āshrayā ye twayi bhakti-namrāhā</b><br> 
 Those who are devoted to You themselves become a refuge for all.<br>
-<font size="-1">(Devi Mahatmyam (Chapter 11, Narayani stotram, shlokas 33 & 35)</font>
+<font size="-1">(Devi Mahatmyam, Chapter 11, Narayani Stotram, shlokas 33 & 35)</font>
 </p>
 
 <p>
-<font color="red">"We decided to have this Pūjā of Durgā today that all negativity should be destroyed. So many Deities build up the body of Kālī. Every part of Her body was created by a Deity, looked after by a Deity, and is also, later on, is reflected in you all. So they say that God has made human beings in His own image, I would say, I’ve made you in My own image, all the Deities at your disposal. They’re all with you, and they have created you – if you see it minutely – it is the Deities who have brought forth all the beauty that you had. They have made all this beautiful congregation, beautiful transformation, and they have created such angelic people out of you. They are always working it out, but one thing you have to do is to have the drive. You had pure desire to ascend, but for what? You want to have the light, but for what? You want to become gurus, for what? To save people, for their salvation. Only through your channels, I can work out Sahaja Yoga. If I could work out Myself, I would have. It’s not a question of killing one rākṣhasa. God knows how many there are, rākṣhasas and rākṣhasas. And they are everywhere, even within you they were. Now they’ve gone out.
+<font color="DarkRed">"We decided to have this Pūjā of Durgā today that all negativity should be destroyed. So many Deities build up the body of Kālī. Every part of Her body was created by a Deity, looked after by a Deity, and is also, later on, is reflected in you all. So they say that God has made human beings in His own image, I would say, I’ve made you in My own image, all the Deities at your disposal. They’re all with you, and they have created you – if you see it minutely – it is the Deities who have brought forth all the beauty that you had. They have made all this beautiful congregation, beautiful transformation, and they have created such angelic people out of you. They are always working it out, but one thing you have to do is to have the drive. You had pure desire to ascend, but for what? You want to have the light, but for what? You want to become gurus, for what? To save people, for their salvation. Only through your channels, I can work out Sahaja Yoga. If I could work out Myself, I would have. It’s not a question of killing one rākṣhasa. God knows how many there are, rākṣhasas and rākṣhasas. And they are everywhere, even within you they were. Now they’ve gone out.
 So you have to do full justice to Sahaja Yoga, that’s very important."</font><br>
 <font size="+0"><b>1992-0725 Śhrī Durgā Mahākālī Pūjā, Paris, France</b></font>
 </p>
@@ -46,12 +46,12 @@ Who is Saraswati, Shri Aditi (Mother of the Gods),<br>
 the Daughter of Daksha, and the Consort of Shri Shiva.</font><br>
 <font size="+0"><b>Aum twameva sākshāt Shrī Skanda-mātā sākshāt<br>
 Shrī Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah</b></font><br>
-<i>O Divine Mother, You are verily The mother of Shri Kartikeya<b> 
-Salutations to You! </i><br>
+<i>O Divine Mother, You are verily The mother of Shri Kartikeya<br> 
+Salutations to You!</i><br>
 </b>
 
 <p>
-<font color="red">"Śhrī Kārttikeya Himself has taken birth here! Śhrī Saraswatī is known as Skandamātā, She was not His mother and was virgin.
+<font color="DarkRed">"Śhrī Kārttikeya Himself has taken birth here! Śhrī Saraswatī is known as Skandamātā, She was not His mother and was virgin.
 But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart. But how great it is that Śhrī Kārttikeya found Maharashtra to take birth! The whole world becomes joyous reading what Śhrī Gyāneśhwara has written, but it is all contrary here."</font><br>
 <font size="+0"><b>1996-1221 Śhrī Kārttikeya Pūjā (Marathi+English),C.B.D. Belapur, Navi Mumbai, Maharashtra, India
 </b></font>
@@ -64,12 +64,11 @@ But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart. But
 Is She so knuuh compassionate and She's the One who is uh described by all the human beings, and all the great Saints, and all the Gods.<br>
 And the second [thing] is that She Herself, She, when She gets angry, She can become a volcano.<br>
 And when She's a Chaṇḍī, She's ... She's a volcano, and that is how She killed Mahiṣhāsura.<br>
-That is the song, is uh quite a powerful song. But My voice ......"</font><br>
-<a href="https://www.youtube.com/watch?v=vqd4mzk44Qk">video</a><br>
 <font size="+0"><b>1985-0518 Talk to Sahaja Yogis, Evening Bhajans, the day before Śhrī Gaṇeśha Pūjā, Nirmala House, Sant'Angelo Romano (7 kms N of Guidonia), Italy</b></font><br>
 <font size="+0"><b>Shri Mataji along with Sahaja Yogis sings Bhavani Dayānī</b></font>
+That is the song, is uh quite a powerful song. But My voice ......"</font><br>
+<a href="https://www.youtube.com/watch?v=vqd4mzk44Qk">video</a><br>
 </p>
-
 
 <p>
 <font color="DarkRed">"Now the Durgā's qualities are that She is protective of Her children, She's very gentle, very soft with Her children, and She's extremely horrifying to the satanic people, to the negative people. So in this rāga I think because there are, the notes are spaced out. So either you could play it slow or you could play it fast. Nothing in between. That's why it is on a Durgā's style. You see, either She is extremely gentle or She is extremely horrifying. So because She has a double function: is one to look after Her children, and another is protect Her children from the devils. So She has to be very quick about it, to fight them, and to, in every way to frighten them and to be alert about it.<br> 
@@ -84,7 +83,7 @@ So this rāga is so apt, absolutely apt for today's atmosphere and for today's n
 <font color="MidNightBlue"><b>Salutations to You O Goddess Chamunda Narayani,<br>
 whose mouth was dreadful with its great teeth,<br>
 Who wore a garland of human skulls as an ornament and killed the demon Munda.</b></font><br>
-(Mahalakshmi Hymn, chapter 11 of the Devi Mahatmyam)<br>
+<b>(Mahalakshmi Hymn, Chapter 11 of the Devi Mahatmyam)</b><br>
 <br>
 <font color="DarkRed"><b>"She gives us the protection. She’s the Protector. And She’s the Mother of this world, Jagadambā."</b></font><br>
 <font size="+0"><b>1977-0222 Public Program, Day 1, Delhi University, North Campus, Timarpur, New Delhi, India</b><br>
@@ -94,7 +93,10 @@ Today the love of Shri Jagadamba is expressed</font><br>
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"You are Sahaja Yogis.<br>
+What is your destiny? Your destiny is to achieve the spiritual success [spiritual ascent].<br>
+The Devī destroyed ‘Chaṇḍā and Muṇḍa’, that is why She is called Chāmuṇḍā. They are all back in this Kali Yuga, all of them."<br>
+[Prayer to the Devī: ‘O Devī, please give us the spiritual personality, the victory, the spiritual ascent and destroy our enemies.']</font><br>
 <font size="+0"><b>1988-1015 Talk to Sahaja Yogis, Your Destiny Is to Achieve the Spiritual Success and Have I Fulfilled My Destiny, Navarātri Celebrations (5th Day), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font>
 </p>
 
@@ -103,11 +105,21 @@ Today the love of Shri Jagadamba is expressed</font><br>
 By the very simple people of the villages. Today we have so many people who are great Seekers of Truth. At the same time there are many people who are in the market, they are selling all kinds of things in the market, in the name of the Divine or God.<br>
 One has to realize that this Union with the Divine works out through a living force. Just like a seed gets sprouted spontaneously when placed in the Mother Earth, in the same way this residual force of Kuṇḍalinī is sprouted. Now in the song when they are saying “Uday, uday, Ambe!” Then they are meaning – Ambe means the Kuṇḍalinī, ‘uday’ means now please awaken, awaken, awakend."</font><br>
 <font size="+0"><b>1988-0609 Public Program, Day 2, Kongresshaus, 5, Margaretengürtel 138-140, Vienna, Austria</b></font><br>
-<font size="-1"><b>Jogwa 1, (Marathi 6), Shri Mataji explaining the meaning of the bhajan.</b></font><br>
+<font size="-1"><b>Jogwa 1, (Marathi 6), Shri Mataji explains the meaning of the bhajan.</b></font><br>
 <a href="https://www.youtube.com/watch?v=05wpMZ44Sxc">video</a>
 </p>
 
 <div style="text-align: center"><img src="/images/image187.png" /></div>
+
+<p style="text-align:center;">
+<font size="+0"><font color="MidNightBlue"><b>Victory be to You,
+O Devi Chamunda (killer of Chanda and Munda),
+victory be to You who destroys the suffering of all living beings.
+Victory be to You, O Devi Who is present everywhere.
+Salutations to you O Kalaratri (the longest night)
+(Argala Stotram)</b></font></font>
+</p>
+
 
 <font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0">1997-1005 Navarātri Pūjā (6th Day), Your Beautiful Qualities Will Prove the Truth of Sahaja Yoga, Hangar, Cabella Ligure, Italy</font>
@@ -138,7 +150,7 @@ Mahalakshmi is the deity, and it is recited for the love of Shri Jagadamba as a 
 <b>Argala Strotrum</b><br>
 in Sanskrit: <a href="https://www.youtube.com/watch?v=lVgW5k89t44">video</a><br>
 Skandamātā is four-armed and rides on a lion. She carries two lotus flowers in her two hands.<br> 
-Her one hand is in a blessing posture, Abhaymudra, and with the other she holds her son Lord Skanda (Shri Kartikeya) in her lap.</font>
+Her one hand is in a blessing posture, Abhaymudra, and with the other she holds her son Lord Skanda (Shri Kartikeya) in Her lap.</font>
 </p>
 
 Jai Śhrī Mātājī!<br>
