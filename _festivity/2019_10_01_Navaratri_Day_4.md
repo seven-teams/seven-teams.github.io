@@ -43,7 +43,7 @@ Devī Kavach: <a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1"> vi
 <p>
 <font color="DarkRed">"That’s rather, protection is abstract, but this is a protection of the Mother is a concrete stuff, you see, kavach. So you take the kavach. Kavach is something you can say that people wear those armor, inside, you see that sort of a thing, is kavach. So you must take that before going out or talking to somebody. That you don’t do. Then I find there are, I said, “From where are you coming?” “Oh Mother, I went to see my, I went to a cemetery.” I said, “For what?” “Somebody died so I went there.” “So did you take your kavach?” “No.” And you can see all the bhūts dancing here on the head. [Laughter.]
 This is the thing is that – and then you pull your ears, what’s the use? It’s just a simple thing, take your kavach when you are going out. It’s so simple, I mean, in Sahaja Yoga we don’t have to do horrible rituals that people do, nothing of the kind. Just take your bandhan in the morning when you are going out and if somebody is argumentative just give a bandhan. Anything little bandhan can work out so many things but we forget that we have entered into the Kingdom of God and all the Saints and all the angels and gaṇas are at your disposal."</font><br>
-<font size="+0"><b>1992-0704 Śhrī Viṣhṇumāyā Pūjā, Viṣhṇumāyā's Powers, Āśhram, Everbeek, Belgiu</b></font>
+<font size="+0"><b>1992-0704 Śhrī Viṣhṇumāyā Pūjā, Viṣhṇumāyā's Powers, Āśhram, Everbeek, Belgium</b></font>
 </p>
 
 <p>
