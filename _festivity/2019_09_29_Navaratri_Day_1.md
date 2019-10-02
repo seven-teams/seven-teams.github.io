@@ -95,7 +95,9 @@ if you say in a very rational manner, but to that Love that are these Feet it ma
 <font size="-1"><b>1980-0719 Talk to Sahaja Yogis, The Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> <font size="+0">1984-0923 Navarātri Pūjā (1st Day), The Discipline, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</font><br><a href="https://www.youtube.com/watch?v=P1znzNlPCm0&vl=en "> video</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 
+<font size="+0">1984-0923 Navarātri Pūjā (1st Day), The Discipline, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</font>
+<a href="https://www.youtube.com/watch?v=P1znzNlPCm0&vl=en "> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 

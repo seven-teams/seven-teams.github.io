@@ -101,7 +101,9 @@ Sā ghaṇṭā pātu no devi pāpebhyo naḥ sutāniva.</b><br>
 <font size="-1">(Devī Māhātmyam, Chapter 11)</font>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> <font size="+0">1982-1017 Navarātri Pūjā (1st Day), Innocence and Virginity (Your Śhakti Is Your Kuṇḍalinī and She Is Virginity or A New Page Has Been Turn), Temple of All Faiths, Hampstead, London, UK</font><a href="https://www.youtube.com/watch?v=KwhRUKYdpt4"> video</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 
+<font size="+0">1982-1017 Navarātri Pūjā (1st Day), Innocence and Virginity (Your Śhakti Is Your Kuṇḍalinī and She Is Virginity or A New Page Has Been Turn), Temple of All Faiths, Hampstead, London, UK</font>
+<a href="https://www.youtube.com/watch?v=KwhRUKYdpt4"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
