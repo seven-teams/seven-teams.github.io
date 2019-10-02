@@ -90,11 +90,15 @@ May You protect the universe!”<br>
 
 <font size="+0"><b>Bhajans:</b></font>
 
-<font size="+0.5"><b>Bhajans:</b></font>
+<font size="+0.9"><b>Bhajans:</b></font>
 
 <font size="+1"><b>Bhajans:</b></font>
 
 <font size="+2"><b>Bhajans:</b></font>
+
+<font size="+0.9"><b>Bhajans:</b></font>
+
+<font size="+3"><b>Bhajans:</b></font>
 
 <p>
 <font color="green"><b>Durgati Harini Durga Ambe</b></font><br>
