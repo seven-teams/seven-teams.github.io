@@ -17,15 +17,15 @@ You cannot kill anyone: if you kill somebody, then may be that such a person is 
 <div style="text-align: center"><img src="/images/image183.png" /></div>
 
 <p style="color:MidNightBlue; text-align:center;">
-<b>Vishw’eshwari twam paripāsi vishwam</b><br>
+<b>Viśhv'eśwarī twam paripāsi viśhwam</b><br>
 O Goddess of the universe, You are its protector.<br>
-<b>Vishw’ātmikā dhārayas’īti vishwam</b><br>
+<b>Vishw’ātmikā dhārayas’īti viśhwam</b><br>
 You are the universe, You are its support.<br> 
 <b>Vishw’esha-vandyā Bhavatī bhavanti</b><br>
 You are worshipped by the Lord of the universe.<br>
 <b>Vishw’āshrayā ye twayi bhakti-namrāhā</b><br> 
 Those who are devoted to You themselves become a refuge for all.<br>
-<font size="-1"><b>(Devi Mahatmyam, Chapter 11, Narayani Stotram, shlokas 33 & 35)</b></font>
+<font size="-1"><b>(Devī Mahātmyam, Chapter 11, Nārāyanī Stotram, śhlokas 33 & 35)</b></font>
 </p>
 
 <p>
@@ -38,15 +38,15 @@ So you have to do full justice to Sahaja Yoga, that’s very important."</font><
 
 <p style="color:MidNightBlue; text-align:center;">
 <b>Kāla-rātrīm Brahma-stutām Vaishnavīm Skanda-mātaram<br>
-Saraswatīm Aditim Daksha-duhitaram namāmah pāvanām shivām</b><br>
+Saraswatīm Aditim Dakṣha-duhitaram namāmah pāvanām śhivām</b><br>
 <font size="-1">Salutations to the Goddess, Who is the darkest night,<br> 
-Who is praised even by Brahmadeva himself,<br>
-Who is the Power of Shri Vishnu, The Mother of Shri Kartikeya,<br>
-Who is Saraswati, Shri Aditi (Mother of the Gods),<br>
-the Daughter of Daksha, and the Consort of Shri Shiva.</font><br>
-<font size="+0"><b>Aum twameva sākshāt Shrī Skanda-mātā sākshāt<br>
-Shrī Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah</b></font><br>
-<i>O Divine Mother, You are verily The mother of Shri Kartikeya<br> 
+Who is praised even by Brahmadeva Himself,<br>
+Who is the Power of Śhrī Viṣhṇu, The Mother of Śhrī Kārttikeya,<br>
+Who is Saraswatī, Śhrī Aditi (Mother of the Gods),<br>
+the Daughter of Dakṣha, and the Consort of Śhrī Śhiva.</font><br>
+<font size="+0"><b>Auṃ Twameva sākshāt Śhrī Skandamātā sākshāt<br>
+Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namah</b></font><br>
+<i>O Divine Mother, You are verily The mother of Śhrī Kārttikeya<br> 
 Salutations to You!</i><br>
 </p>>
 
@@ -65,7 +65,7 @@ And the second [thing] is that She Herself, She, when She gets angry, She can be
 And when She's a Chaṇḍī, She's ... She's a volcano, and that is how She killed Mahiṣhāsura.<br>
 That is the song, is uh quite a powerful song. But My voice ......"</font><br>
 <font size="+0"><b>1985-0518 Talk to Sahaja Yogis, Evening Bhajans, the day before Śhrī Gaṇeśha Pūjā, Nirmala House, Sant'Angelo Romano (7 kms N of Guidonia), Italy</b></font><br>
-<font size="+0"><b>Shri Mataji along with Sahaja Yogis sings Bhavani Dayānī</b></font><br>
+<font size="+0"><b>Śhrī Mātājī along with Sahaja Yogis sings Bhavani Dayānī</b></font><br>
 <a href="https://www.youtube.com/watch?v=vqd4mzk44Qk">video</a><br>
 </p>
 
@@ -79,15 +79,15 @@ So this rāga is so apt, absolutely apt for today's atmosphere and for today's n
 <div style="text-align: center"><img src="/images/image186.png" /></div>
 
 <p style="text-align:center;">
-<font color="MidNightBlue"><b>Salutations to You O Goddess Chamunda Narayani,<br>
+<font color="MidNightBlue"><b>Salutations to You O Goddess Chāmuṇḍā Nārāyanī,<br>
 whose mouth was dreadful with its great teeth,<br>
-Who wore a garland of human skulls as an ornament and killed the demon Munda.</b></font><br>
-<font size="+0"><b>(Mahalakshmi Hymn, Chapter 11 of the Devi Mahatmyam)</b></font><br>
+Who wore a garland of human skulls as an ornament and killed the demon Muṇḍa.</b></font><br>
+<font size="+0"><b>(Mahālakṣhmī Hymn, Chapter 11 of the Devī Mahātmyam)</b></font><br>
 <br>
 <font color="DarkRed"><b>"She gives us the protection. She’s the Protector. And She’s the Mother of this world, Jagadambā."</b></font><br>
 <font size="+0"><b>1977-0222 Public Program, Day 1, Delhi University, North Campus, Timarpur, New Delhi, India</b><br>
-Today the love of Shri Jagadamba is expressed</font><br>
-<font color="DarkGreen"><b>Shri Jagadambe Aye re</b></font><br>
+Today the love of Śhrī Jagadamba is expressed</font><br>
+<font size="+0"><font color="DarkGreen"><b>Śhrī Jagadambe Aye re</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=6tionHDqJo4"> video</a><br>
 </p>
 
@@ -104,7 +104,7 @@ The Devī destroyed ‘Chaṇḍā and Muṇḍa’, that is why She is called C
 By the very simple people of the villages. Today we have so many people who are great Seekers of Truth. At the same time there are many people who are in the market, they are selling all kinds of things in the market, in the name of the Divine or God.<br>
 One has to realize that this Union with the Divine works out through a living force. Just like a seed gets sprouted spontaneously when placed in the Mother Earth, in the same way this residual force of Kuṇḍalinī is sprouted. Now in the song when they are saying “Uday, uday, Ambe!” Then they are meaning – Ambe means the Kuṇḍalinī, ‘uday’ means now please awaken, awaken, awakend."</font><br>
 <font size="+0"><b>1988-0610 Public Program, University, Graz, Austria</b></font><br>
-<font size="-1"><b>Jogwa 1, (Marathi 6), Shri Mataji explains the meaning of the bhajan.</b></font><br>
+<font size="-1"><b>Jogwa 1, (Marathi 6), Śhrī Mātājī explains the meaning of the bhajan.</b></font><br>
 <a href="https://www.youtube.com/watch?v=05wpMZ44Sxc">video</a>
 </p>
 
@@ -112,10 +112,10 @@ One has to realize that this Union with the Divine works out through a living fo
 
 <p style="text-align:center;">
 <font size="+0"><font color="MidNightBlue"><b>Victory be to You,<br>
-O Devi Chamunda (killer of Chanda and Munda),<br>
+O Devī Chāmuṇḍā (killer of Chaṇḍā and Muṇḍa),<br>
 victory be to You who destroys the suffering of all living beings.<br>
-Victory be to You, O Devi Who is present everywhere.<br>
-Salutations to you O Kalaratri (the longest night)<br>
+Victory be to You, O Devī Who is present everywhere.<br>
+Salutations to you O Kālarātrī (the longest night)<br>
 (Argala Stotram)</b></font></font>
 </p>
 
@@ -131,7 +131,7 @@ Salutations to you O Kalaratri (the longest night)<br>
 </p>
 
 <p>
-<font color="green"><b>Shri Jagadambe Aye re</b></font><br>
+<font color="green"><b>Śhrī Jagadambe Aye re</b></font><br>
 <a href="https://www.youtube.com/watch?v=6tionHDqJo4">video</a>
 </p>
 
@@ -143,12 +143,12 @@ Salutations to you O Kalaratri (the longest night)<br>
 <div style="text-align: center"><img src="/images/image188.png" /></div>
 
 <p style="text-align:center;">
-<font size="-1"><b>Of these Argala hymns Shri Vishnu is the rishi, Anushtup is the metre,<br>
-Mahalakshmi is the deity, and it is recited for the love of Shri Jagadamba as a part of Saptashati.</b><br>
+<font size="-1"><b>Of these Argala Hymns Śhrī Viṣhṇu is the ṛiṣhi, anuṣhṭup is the metre,<br>
+Mahālakṣhmī is the Deity, and it is recited for the love of Śhrī Jagadambā as a part of Saptaśhati.</b><br>
 <b>Argala Strotrum</b><br>
 in Sanskrit: <a href="https://www.youtube.com/watch?v=lVgW5k89t44">video</a><br>
-Skandamātā is four-armed and rides on a lion. She carries two lotus flowers in her two hands.<br> 
-Her one hand is in a blessing posture, Abhaymudra, and with the other she holds her son Lord Skanda (Shri Kartikeya) in Her lap.</font>
+Skandamātā is four-armed and rides on a lion. She carries two lotus flowers in Her two hands.<br> 
+Her one hand is in a blessing posture, Abhaya-dān Mudrā, and with the other She holds Her son Lord Skanda (Śhrī Kārttikeya) in Her lap.</font>
 </p>
 
 <p>
