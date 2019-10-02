@@ -84,7 +84,7 @@ May You protect the universe!”<br>
 
 <p>
 <font color="green"><b>Durgati Harini Durga Ambe</b></font><br>
-<a href="https://www.youtube.com/watch?v=8wJBzMrRPHA">video</a>
+<a href="https://www.youtube.com/watch?v=8wJBzMrRPHA"> video</a>
 </p>
 
 <p>
@@ -94,25 +94,25 @@ May You protect the universe!”<br>
 
 <p>
 <font color="green"><b>Isi Liye</b></font><br>
-<a href="https://www.youtube.com/watch?v=oFGGshAsz2Q">video</a>
+<a href="https://www.youtube.com/watch?v=oFGGshAsz2Q"> video</a>
 </p>
 
 <p>
 <font color="green"><b>Apne Panah Mein Hame Rakhna</b></font><br>
-<a href="https://www.youtube.com/watch?v=1zzMwHijwI0">video</a> 
+<a href="https://www.youtube.com/watch?v=1zzMwHijwI0"> video</a> 
 </p>
 
 <div style="text-align: center"><img src="/images/image180.png" /></div>
 
 <p style="color:green; text-align:center;">
-Shri Kush-manda (The one whose void contains the universe). She is considered the creator of the universe. 
-Often She is depicted as having eight or ten hands. She holds weapons, glitter, rosary, etc, in Her hands, and She rides a lion. 
-Navaratri Song  (9 description of 9 avatar of the goddess and 10th is when She sits on the lion)
-www.youtube.com/watch?v=Fd4cyBJX73c 
-Aum Twameva Sakshat 
-Shri Kush-manda Sakshat Shri Adishakti Mataji Shri Nirmala Devyai Namo Namah!
-O Divine Mother, You are verily Shri Kush-manda, the one whose void contains the universe!
-Salutations to You!
+<font size="-1">Śhrī Kuṣhmāṇḍa (The one whose void contains the universe). She is considered the creator of the universe.<br>
+Often She is depicted as having eight or ten hands. She holds weapons, glitter, rosary, etc, in Her hands, and She rides a lion.</font><br>
+<font color="green"><b>Navaratri Song</b></font>  <b>(9 description of 9 avatar of the goddess and 10th is when She sits on the lion)</b><br>
+<a href="www.youtube.com/watch?v=Fd4cyBJX73c"> video</a><br>
+<b>Aum Twameva Sakshat<br>
+Shri Kush-manda Sakshat Shri Adishakti Mataji Shri Nirmala Devyai Namo Namah!</b><br>
+<i>O Divine Mother, You are verily Shri Kush-manda, the one whose void contains the universe!<br>
+Salutations to You!</i><br>
 </p>
 
 Jai Śhrī Mātājī!<br>
