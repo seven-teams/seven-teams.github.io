@@ -120,7 +120,6 @@ Salutations to you O Kalaratri (the longest night)
 (Argala Stotram)</b></font></font>
 </p>
 
-
 <font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0">1997-1005 Navarātri Pūjā (6th Day), Your Beautiful Qualities Will Prove the Truth of Sahaja Yoga, Hangar, Cabella Ligure, Italy</font>
 <a href="https://www.youtube.com/watch?v=dugylWpq0eE"> video</a><br>
