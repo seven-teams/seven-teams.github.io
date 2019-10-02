@@ -76,13 +76,10 @@ ill-fortune in those of the vicious, intelligence in the hearts of the learned,<
 faith in the hearts of the good, and modesty in the hearts of the high-born.<br>
 May You protect the universe!”<br>
 <b>Śhrī Mātājī: This is a prayer.</b></font><br>
-<br>
-<b></b><br>
-<br>
-<b>1980-0719 Comments on the Reading from Devī Māhātmyam, before the Talk on the Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, U</b>
+<b>1980-0719 Comments on the Reading from Devī Māhātmyam, before the Talk on the Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b>
 </p>
 
-<font size="+1"><b>Suggested Talk:</b></font> 1991-1013 Navarātri Pūjā (6th Day), False Religion or Recognize Me, Tent, Cabella Ligure, Italy<br><a href="https://www.youtube.com/watch?time_continue=11&v=RwoLqfweBz4"> video</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 1991-1013 Navarātri Pūjā (6th Day), False Religion or Recognize Me, Tent, Cabella Ligure, Italy<br><a href="https://www.youtube.com/watch?time_continue=11&v=RwoLqfweBz4"> video</a><br>
 
 <font size="-2"><b>Bhajans:</b></font>
 
