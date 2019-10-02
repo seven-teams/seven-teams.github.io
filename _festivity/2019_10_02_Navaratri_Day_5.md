@@ -19,11 +19,11 @@ You cannot kill anyone: if you kill somebody, then may be that such a person is 
 <p style="color:MidNightBlue; text-align:center;">
 <b>Viśhv'eśwarī twam paripāsi viśhwam</b><br>
 O Goddess of the universe, You are its protector.<br>
-<b>Vishw’ātmikā dhārayas’īti viśhwam</b><br>
+<b>Viśhw’ātmikā dhārayas’īti viśhwam</b><br>
 You are the universe, You are its support.<br> 
-<b>Vishw’esha-vandyā Bhavatī bhavanti</b><br>
+<b>Viśhw’esha-vandyā Bhavatī bhavanti</b><br>
 You are worshipped by the Lord of the universe.<br>
-<b>Vishw’āshrayā ye twayi bhakti-namrāhā</b><br> 
+<b>Viśhw’āshrayā ye twayi bhakti-namrāhā</b><br> 
 Those who are devoted to You themselves become a refuge for all.<br>
 <font size="-1"><b>(Devī Mahātmyam, Chapter 11, Nārāyanī Stotram, śhlokas 33 & 35)</b></font>
 </p>
