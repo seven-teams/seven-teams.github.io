@@ -12,10 +12,7 @@ tags:
 <font color="DarkRed">"Today to see you on this Navarātri Day, so many people sitting to worship Me. So many people are here, so many Sahaja Yogis, it’s so remarkable, it is not My achievement, I tell you. It’s your seeking.<br>
 Because I have been on this Earth many a times before – that you know. But we never had like this, so many came and got crucified, died, this, that – but I never had people of this caliber.<br>
 So again we come to the same point, that we should be aware of ourselves – complete śhraddhā in your Self. <b>If you have some śhraddhā in your Self, you will have śhraddhā for Me also.</b>"</font><br>
-<b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Italy</b><br>
 <font size="+0"><b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Italy</b></font><br>
-<font size="+1"><b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Italy</b></font><br>
-<font size="-1"><b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Italy</b></font><br>
 </p>
 
 <div style="text-align: center"><img src="/images/image176.png" /></div>
@@ -31,7 +28,7 @@ You are the Destructive Power.</font><br>
 <p>
 <font color="DarkRed">I would say, with this, today's special celebration of Navarātri. Like yesterday you saw Śhrī Durgā's Nine Forms, also. In that, <b>one is Kuṣhmāṇḍā, is one of the forms, that you absorb all the filth in yourself, in your stomach. But the Devī does that, not you.</b> What the Devī can do, you should not do, that's her job, that She is supposed to do this, not you. What you have to do is to only be in silence so that you absorb whatever will increase that silence, will increase your depth. The Devī will look after all the rest of the things, she'll look after all the filth, all the anger, all the temper, all the everything that's going on in this world. She will absorb all that, but what you have to do is to just enjoy everything that is pure. Enjoyment is only possible when you are beyond your mind. With your mind you can never enjoy, it is like a big load. It will not act, it will not help. Enjoyment comes when you are in complete silence, in a rippleless lake, the reflection of all the joy that is created on the shores of that lake are completely reflected, they are not deflected, if they were repulsed it would have been a different image altogether, and would have been something nowhere near the image of reality. 
 "</font><br>
-<b>1995-1001 Navarātri Pūjā (cusp between 7th Day and 8th Day), You Must Project Your Depth and Not Reflect, Hangar, Cabella Ligure, Italy</b>
+<font size="+0"><b>1995-1001 Navarātri Pūjā (cusp between 7th Day and 8th Day), You Must Project Your Depth and Not Reflect, Hangar, Cabella Ligure, Italy</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image177.png" /></div>
@@ -47,15 +44,15 @@ Devī Kavach:<a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1">vide
 <p>
 <font color="DarkRed">"That’s rather, protection is abstract, but this is a protection of the Mother is a concrete stuff, you see, kavach. So you take the kavach. Kavach is something you can say that people wear those armor, inside, you see that sort of a thing, is kavach. So you must take that before going out or talking to somebody. That you don’t do. Then I find there are, I said, “From where are you coming?” “Oh Mother, I went to see my, I went to a cemetery.” I said, “For what?” “Somebody died so I went there.” “So did you take your kavach?” “No.” And you can see all the bhūts dancing here on the head. [Laughter.]
 This is the thing is that – and then you pull your ears, what’s the use? It’s just a simple thing, take your kavach when you are going out. It’s so simple, I mean, in Sahaja Yoga we don’t have to do horrible rituals that people do, nothing of the kind. Just take your bandhan in the morning when you are going out and if somebody is argumentative just give a bandhan. Anything little bandhan can work out so many things but we forget that we have entered into the Kingdom of God and all the Saints and all the angels and gaṇas are at your disposal."</font><br>
-<b>1992-0704 Śhrī Viṣhṇumāyā Pūjā, Viṣhṇumāyā's Powers, Āśhram, Everbeek, Belgiu</b>
+<font size="+0"><b>1992-0704 Śhrī Viṣhṇumāyā Pūjā, Viṣhṇumāyā's Powers, Āśhram, Everbeek, Belgiu</b></font>
 </p>
 
 <p>
 <font color="DarkRed">"So we have made it short now, just take a bandhan, it is he same thing as kavacha you see. Realized Souls, if they take bandhan is the same thing. Whatever you have said here is done, yesterdays and todays, everything that has been said, all these rakṣhākari [act of protection] is done in one stroke.<br>
 But now we should know how many of us take bandhan before going from the house, before sleeping or before doing something important. How many people take bandhan. Very seldom you forget it. Very important, going on a journey, going on a road, better take a bandhan, not that we are all right, Mother is looking after us, is not the point. You must take bandhan before doing all these things.<br> 
 If you get an accident, then know that you have done some mistakes, or something otherwise, normally there should be not an accident, means there is something still lacking in you."</font><br>
-<b>1988-1014 Talk to Sahaja Yogis, Navarātri Celebrations (4th Day), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India<br>
-Śhrī Mātājī explains the bandhan</b><br>
+<font size="+0"><b>1988-1014 Talk to Sahaja Yogis, Navarātri Celebrations (4th Day), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India<br>
+Śhrī Mātājī explains the bandhan</b></font><br>
 <a href="https://www.youtube.com/watch?v=DkW7L9veu6M">video</a>
 </p>
 
@@ -63,12 +60,12 @@ If you get an accident, then know that you have done some mistakes, or something
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Forgiveness gives you a big kavacha; is a big bandhan, is a big protection – we can say a ‘shield’ – from all kinds of evil that other’s can put on you."</b></font><br>
-<b>1982-1114 Diwālī Pūjā (Diwālī Day), Wealth and Generosity, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, South West London, UK</b><br>
+<font size="+0"><b>1982-1114 Diwālī Pūjā (Diwālī Day), Wealth and Generosity, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, South West London, UK</b></font><br>
 </p>
 
 <p>
 <font color="DarkRed">"What is bandhan? It's nothing but you are attaching yourself to your Mother, you're just telephoning to Her. This is a telephone going to your Mother, that's all. You know I also play with you, I also say, ``All right, I am giving you a bandhan." I am giving bandhan to Myself! It's a telephone call, just a telephone call. But the faith has developed now that yes, this is the real faith, where you get completely detached in your emotional things."</font><br>
-<b>1984-1123 Śhrī Jesus Pūjā, Montague Hall, Hounslow, London, UK</b>
+<font size="+0"><b>1984-1123 Śhrī Jesus Pūjā, Montague Hall, Hounslow, London, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image179.png" /></div>
@@ -79,22 +76,12 @@ ill-fortune in those of the vicious, intelligence in the hearts of the learned,<
 faith in the hearts of the good, and modesty in the hearts of the high-born.<br>
 May You protect the universe!”<br>
 <b>Śhrī Mātājī: This is a prayer.</b></font><br>
-<b>1980-0719 Comments on the Reading from Devī Māhātmyam, before the Talk on the Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b>
+<font size="+0"><b>1980-0719 Comments on the Reading from Devī Māhātmyam, before the Talk on the Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 1991-1013 Navarātri Pūjā (6th Day), False Religion or Recognize Me, Tent, Cabella Ligure, Italy<br><a href="https://www.youtube.com/watch?time_continue=11&v=RwoLqfweBz4"> video</a><br>
 
-<font size="-2"><b>Bhajans:</b></font>
-
-<font size="-1"><b>Bhajans:</b></font>
-
-<font size="+0"><b>Bhajans:</b></font>
-
-<font size="+1"><b>Bhajans:</b></font>
-
 <font size="+2"><b>Bhajans:</b></font>
-
-<font size="+3"><b>Bhajans:</b></font>
 
 <p>
 <font color="green"><b>Durgati Harini Durga Ambe</b></font><br>
