@@ -42,7 +42,7 @@ Today we are celebrating 150 years since the birth of Mahātmā Gāndhī (1869-1
 </p>
 
 <p>
-On this occasion, we found this wonderful music evening held in Calabasas house in 2006, Oct. 2nd. Please enjoy the blissful music and join in singing along with the song "Ma Teri Jai Ho" composed by Shri Mataji Herself.<br>
+<font size="+0">On this occasion, we found this wonderful music evening held in Calabasas house in 2006, Oct. 2nd. Please enjoy the blissful music and join in singing along with the song "Ma Teri Jai Ho" composed by Shri Mataji Herself.<br>
 <a href="http://youtu.be/H5EqQPBpVh0">video</a>
 </p>
 
