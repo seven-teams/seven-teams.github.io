@@ -12,7 +12,10 @@ tags:
 <font color="DarkRed">"Today to see you on this Navarātri Day, so many people sitting to worship Me. So many people are here, so many Sahaja Yogis, it’s so remarkable, it is not My achievement, I tell you. It’s your seeking.<br>
 Because I have been on this Earth many a times before – that you know. But we never had like this, so many came and got crucified, died, this, that – but I never had people of this caliber.<br>
 So again we come to the same point, that we should be aware of ourselves – complete śhraddhā in your Self. <b>If you have some śhraddhā in your Self, you will have śhraddhā for Me also.</b>"</font><br>
-<b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Italy</b>
+<b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Italy</b><br>
+<font size="+0"><b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Italy</b></font><br>
+<font size="+1"><b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Italy</b></font><br>
+<font size="-1"><b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Italy</b></font><br>
 </p>
 
 <div style="text-align: center"><img src="/images/image176.png" /></div>
