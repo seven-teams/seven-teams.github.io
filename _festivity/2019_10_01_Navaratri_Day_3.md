@@ -74,7 +74,7 @@ If you get an accident, then know that you have done some mistakes, or something
 <div style="text-align: center"><img src="/images/image179.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">O Devī, we bow before You, who are yourself good fortune in the dwellings of the virtuous, and<br>
+Sahaja Yogi [reads]:<font color="DarkRed">"O Devī, we bow before You, who are yourself good fortune in the dwellings of the virtuous, and<br>
 ill-fortune in those of the vicious, intelligence in the hearts of the learned,<br>
 faith in the hearts of the good, and modesty in the hearts of the high-born.<br>
 May You protect the universe!”<br>
