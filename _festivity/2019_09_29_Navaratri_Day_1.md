@@ -92,7 +92,7 @@ Then you apply some oil and things [to] again soothe My Feet.<br>
 Just say, ‘Mother, You have worked very hard,<br>
 Your Feet have worked very hard.’ Just saying that itself, I mean makes no difference otherwise,<br>
 if you say in a very rational manner, but to that Love that are these Feet it makes a very big difference."</font><br>
-<font size="-1"><b>1980-0719 Talk to Sahaja Yogis, The Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font>
+<font size="+0"><b>1980-0719 Talk to Sahaja Yogis, The Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
