@@ -19,8 +19,8 @@ tags:
 <font color="DarkRed"><b>Śhrī Mātājī:</b> [explains that Kattyayeni (Kātyāyanī) killed the demon Kolhāsur and this is why Kolhapur
 is called as such].</font><br>
 <font size="+0"><b>1995-03xx Conversation with K.T. Tan, Kuala Lumpur, Malaysia</b></font><br>
-<font color="MidNightBlue"><b>Aum Twameva Sakshat Śhrī <i>Kātyāyanī</i> Sakshat Śhrī Adi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
-Namostute (Mantra of Śhrī Kātyāyanī is taken):<br>
+<font color="MidNightBlue"><b>Auṃ Twameva sākshāt Śhrī <i>Kātyāyanī</i> sākshāt Śhrī Adi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
+<b>Namostute (Mantra of Śhrī Kātyāyanī is taken):</b><br>
 <a href="https://www.youtube.com/embed/xlhoVI-SylQ?hl=en&fs=1">video</a>
 </p>
 
@@ -36,13 +36,11 @@ In the same way, we have to be very, very alert; ‘dakṣha’ is the word for 
 <font color="DarkRed">Namaste Garuḍa Rudhe<br>
 Kolha Sur Bhayankari<br>
 Sarv Pap Hare Devī<br>
-Śhrī Nirmalā Devī namostute</font>
+Śhrī Nirmalā Devī namostute</font><br>
 <font size="+0"><b>Salutations to You O Devī, who is riding on Garuḍa,<br>
-Who creates terror in the demon Kolasur and<br>
+Who creates terror in the demon Kolhāsur and<br>
 Who is the Goddess removing all sins.</b><br>
 <font color="DarkGreen"><b>Śhrī Mahālakṣhmī Stotram</b></font></font><br>
-</b><br>
-</font></font><br>
 <a href="https://www.youtube.com/watch?v=OqHJsJS5zNs">video</a>
 </p>
 
@@ -58,8 +56,8 @@ With that all the dirt in your heart, let it burn in this fire. This fire can pu
 
 <p style="text-align:center;">
 <font color="DarkRed">"In Havan the fire devours everything. In the same way by tapas all the negative thoughts and wrong<br>
-boundaries (maryādās) will break away. To get joy is your right. But to share that joy you must have<br>
-that depth within."</font><br>
+boundaries (maryādās) will break away. To get joy is your right. But to share that joy you must<br>
+have that depth within."</font><br>
 <font size="+0"><b>1991-0228 Talk to Sahaja Yogis (Hindi+English), New Delhi, India</b></font>
 </p>
 
@@ -71,7 +69,7 @@ that depth within."</font><br>
 <div style="text-align: center"><img src="/images/image192.png" /></div>
 
 <p style="text-align:center;">
-<font size="-1"><font color="DarkGreen"><b>Etathe vadanam saumyam</b><br>
+<font color="DarkGreen"><b>Etathe vadanam saumyam</b><br>
 May this benign countenance of your,
 <b>Lochana-traya bhushitam</b><br>
 Adorned with three eyes,
@@ -80,7 +78,6 @@ Protect us from all the fears
 <b>Kātyāyanī namostute
 Salutations be to You, O Kātyāyanī</b><br>
 <font size="+0"><b>Sarva Mangala</b></font></font><br>
-</font></font><br>
 <a href="https://www.youtube.com/watch?v=Muz4_qCjghQ">video</a>
 </p>
 
@@ -100,7 +97,7 @@ Salutations be to You, O Kātyāyanī</b><br>
 </p>
 
 <p>
-<font color="green"><b>Ādimāyā Aṃbābāī/b></font><br>
+<font color="green"><b>Ādimāyā Aṃbābāī</b></font><br>
 <a href="https://www.youtube.com/watch?v=niuCWTNKu0k">video</a>
 </p>
 
