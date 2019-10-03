@@ -34,8 +34,8 @@ In the same way, we have to be very, very alert; ‘dakṣha’ is the word for 
 
 <p style="text-align:center;">
 <font color="DarkRed">Namaste Garuḍa Rudhe<br>
-Kolha Sur Bhayankari<br>
-Sarv Pap Hare Devī<br>
+Kolhāsur Bhayaṅkarī<br>
+Sarv Pāp Hare Devī<br>
 Śhrī Nirmalā Devī namostute</font><br>
 <font size="+0"><b>Salutations to You O Devī, who is riding on Garuḍa,<br>
 Who creates terror in the demon Kolhāsur and<br>
