@@ -70,14 +70,14 @@ have that depth within."</font><br>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Etathe vadanam saumyam</b><br>
-May this benign countenance of your,
+May this benign countenance of your,<br>
 <b>Lochana-traya bhushitam</b><br>
-Adorned with three eyes,
+Adorned with three eyes,<br>
 <b>Patu nah sarva bhuti-bhyah</b><br>
-Protect us from all the fears
-<b>Kātyāyanī namostute
+Protect us from all the fears<br>
+<b>Kātyāyanī namostute<br>
 Salutations be to You, O Kātyāyanī</b><br>
-<font size="+0"><b>Sarva Mangala</b></font></font><br>
+<font size="+0"><b>Sarva Maṅgala</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=Muz4_qCjghQ">video</a>
 </p>
 
