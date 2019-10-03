@@ -102,7 +102,7 @@ Salutations be to You, O Kātyāyanī</b><br>
 </p>
 
 <p>
-<font color="green"><b>Parameshwari Bhagawati Nirmalā</b></font><br>
+<font color="green"><b>Parameśhwarī Bhagavatī Nirmalā</b></font><br>
 <a href="https://www.youtube.com/watch?v=B-PAuhUfuv4">video</a>
 </p>
 
