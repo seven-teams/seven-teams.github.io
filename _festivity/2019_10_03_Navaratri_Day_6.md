@@ -67,15 +67,15 @@ With that all the dirt in your heart, let it burn in this fire. This fire can pu
 <div style="text-align: center"><img src="/images/image192.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Etathe vadanam saumyam</b><br>
+<font color="DarkGreen"><b>Etathe vadanam saumyam</b></font><br>
 May this benign countenance of your,<br>
-<b>Lochana-traya bhushitam</b><br>
+<font color="DarkGreen"><b>Lochana-traya bhushitam</b></font><br>
 Adorned with three eyes,<br>
-<b>Patu nah sarva bhuti-bhyah</b><br>
+<font color="DarkGreen"><b>Patu nah sarva bhuti-bhyah</b></font><br>
 Protect us from all the fears<br>
-<b>Kātyāyanī namostute<br>
-Salutations be to You, O Kātyāyanī</b><br>
-<font size="+0"><b>Sarva Maṅgala</b></font></font><br>
+<font color="DarkGreen"><b>Kātyāyanī namostute</b></font><br>
+Salutations be to You, O Kātyāyanī<br>
+<font color="DarkGreen"><font size="+0"><b>Sarva Maṅgala</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=Muz4_qCjghQ">video</a>
 </p>
 
