@@ -55,9 +55,7 @@ With that all the dirt in your heart, let it burn in this fire. This fire can pu
 <div style="text-align: center"><img src="/images/image191.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"In Havan the fire devours everything. In the same way by tapas all the negative thoughts and wrong<br>
-boundaries (maryādās) will break away. To get joy is your right. But to share that joy you must<br>
-have that depth within."</font><br>
+<font color="DarkRed">"In Havan the fire devours everything. In the same way by tapas all the negative thoughts and wrong boundaries (maryādās) will break away. To get joy is your right. But to share that joy you must have that depth within."</font><br>
 <font size="+0"><b>1991-0228 Talk to Sahaja Yogis (Hindi+English), New Delhi, India</b></font>
 </p>
 
