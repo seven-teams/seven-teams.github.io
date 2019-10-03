@@ -83,11 +83,11 @@ Salutations be to You, O Kātyāyanī</b><br>
 <font size="+0">1989-1008 Navarātri Pūjā (cusp between 8th Day and 9th Day), The Content Within (How Deeply You Have Touched the Feet of the Divine), Butlins Grand Hotel, Margate (123 kms ESE of London), UK (other day 1007)</font>
 <a href="https://www.youtube.com/watch?v=3CsCKuir8ns"> video</a><br>
 
-<font size="+1"><b>Havan for America</b></font>
+<font size="+2"><b>Havan for America</b></font>
 <font size="+0">1983-0821 Havan for America, after the Mother Earth and Śhrī Mahālakṣhmī Pūjā, Garden, Āśhram, 102 Ditton Road, Surbiton, London, UK</font>
 <a href="https://www.youtube.com/watch?v=AwnAoZGBvsM"> video</a><br>
 
-<font size="+1"><b>Bhajans:</b></font>
+<font size="+2"><b>Bhajans:</b></font>
 
 <p>
 <font color="green"><b>Nirmal Maa Nirmal Praan Karo</b></font><br>
