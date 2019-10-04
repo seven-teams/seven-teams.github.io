@@ -77,7 +77,7 @@ Sahaja Yoga, as you know, has a double action, as the Mahakali has a double acti
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b>1999-1017 Navarātri Pūjā (8th Day), The Powers of Śhrī Mahākālī, Hangar (now Nirmal Temple), Albera Ligure, Italy</b></font>
+<font size="+0">1999-1017 Navarātri Pūjā (8th Day), The Powers of Śhrī Mahākālī, Hangar (now Nirmal Temple), Albera Ligure, Italy</font>
 <a href="https://www.youtube.com/watch?v=Ck0mMuTD0cY"> video</a>
 
 <font size="+2"><b>Bhajans:</b></font>
