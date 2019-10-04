@@ -76,7 +76,7 @@ Sahaja Yoga, as you know, has a double action, as the Mahakali has a double acti
 <font size="+0"><b>1990-0912 Śhrī Mahākālī Pūjā, Qualities of Mahākālī and You Have to be Collective (Purity Means Chastity and For the Saints the Main Thing Is Their Ascent), Centre Culturel Thierry Le Luron, Le Raincy (13 kms E of Paris), France</b></font>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> <br><a href=""> video</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1999-1017 Navarātri Pūjā (8th Day), The Powers of Śhrī Mahākālī, Hangar (now Nirmal Temple), Albera Ligure, Italy</b></font>
 <a href="https://www.youtube.com/watch?v=Ck0mMuTD0cY"> video</a>
 
@@ -102,7 +102,7 @@ Sahaja Yoga, as you know, has a double action, as the Mahakali has a double acti
 <a href="https://www.youtube.com/watch?v=RtV1vuDJDnM">video</a> 
 </p>
 <p>
-<font color="green"><b>e Bhavani Bhagvati Mā</b></font><br>
+<font color="green"><b>He Bhavānī Bhagavatī Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=lA1ePxfg-Sc">video</a> 
 </p>
 
