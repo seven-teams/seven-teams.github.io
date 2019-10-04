@@ -144,7 +144,7 @@ Salutations to you O Kālarātrī (the longest night)<br>
 
 <p style="text-align:center;">
 <font size="-1"><b>Of these Argala Hymns Śhrī Viṣhṇu is the ṛiṣhi, anuṣhṭup is the metre,<br>
-Mahālakṣhmī is the Deity, and it is recited for the love of Śhrī Jagadambā as a part of Saptaśhati.</b><br>
+Mahālakṣhmī is the Deity, and it is recited for the love of Śhrī Jagadambā as a part of Saptaśhatī.</b><br>
 <b>Argala Strotrum</b><br>
 in Sanskrit: <a href="https://www.youtube.com/watch?v=lVgW5k89t44">video</a><br>
 Skandamātā is four-armed and rides on a lion. She carries two lotus flowers in Her two hands.<br> 
