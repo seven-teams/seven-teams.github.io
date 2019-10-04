@@ -45,7 +45,6 @@ You are the dark might of periodic dissolution<br>
 You are the great night of final dissolution and the terrible night of delusion<br>
 <br>
 <b>Chapter 1 of the Durgā Saptashati, verse 75, references the destructive concept personified by Goddess Kālarātrī in all Purāṇas</b><br>
-</font></font><br>
 <a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&index=15&list=PLC8554007A2C98EA0">video</a>
 </p>
 
