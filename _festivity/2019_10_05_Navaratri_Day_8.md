@@ -149,7 +149,7 @@ And that compassion will bring forth the beauty of Sahaja Yoga."</font><br>
 <b>All the Goddesses are seen mounted in chariots and very angry.<br>
 They are wielding conch, discus, mace, plough, club, javelin,</b><br>
 <font color="MidNightBlue"><b>Khetakam tomaram chaiva, paraśhum-pāśham-eva cha<br>
-Kunt’āyudham triśhūlam cha, śhārṅgam-āyudham-uttamam/b></font><br>
+Kunt’āyudham triśhūlam cha, śhārṅgam-āyudham-uttamam</b></font><br>
 <b>Axe, noose, barbed dart, halter, whip, trident, spear, bow, and arrows.</b><br>
 <font color="MidNightBlue"><b>Daityānām deha-nāśhāya, bhakt’ānāma-abhayāya cha<br>
 Dhārayanty’āyudhān’īttham, Devānām cha hitāya vai</b></font><br>
