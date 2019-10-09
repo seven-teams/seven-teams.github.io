@@ -152,7 +152,7 @@ They are wielding conch, discus, mace, plough, club, javelin,</b><br>
 Kunt’āyudham triśhūlam cha, śhārṅgam-āyudham-uttamam/b></font><br>
 <b>Axe, noose, barbed dart, halter, whip, trident, spear, bow, and arrows.</b><br>
 <font color="MidNightBlue"><b>Daityānām deha-nāśhāya, bhakt’ānāma-abhayāya cha<br>
-Dhārayanty’āyudhān’īttham, Devānām cha hitāya vai/b></font><br>
+Dhārayanty’āyudhān’īttham, Devānām cha hitāya vai</b></font><br>
 <b>These Goddesses are wielding their weapons, to destroy the bodies of demons,<br>
 For the protection of devotees and for the benevolence of the Gods.</b><br>
 <br>
