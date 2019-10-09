@@ -32,8 +32,8 @@ In a way, we can say that human beings have worked to create methods as instrume
 <font color="MidNightBlue"><b>Bhak.To kī Kalyāṇī</b></font><br>
 <font size="-1"><b>You are taking care of the benevolence of Your devotees</b></font><br> 
 <font color="MidNightBlue"><b>Mā Nirmalā kī Jay Bolo, Jay Bolo!</b></font><br> 
-<font size="-1">Let us say Nirmalā Mā kī Jai!<br>
-Mātā O Mātā</font><br>
+<font size="-1"><b>Let us say Nirmalā Mā kī Jai!<br>
+Mātā O Mātā</b></font><br>
 <a href="https://www.youtube.com/watch?v=Y03KCMh5c-s"> Mātā O Mātā</a>
 </p>
 
@@ -48,7 +48,7 @@ It’s only at the behest of the bhaktas that the Goddess took Her form and kill
 <p style="text-align:center;">
 <font color="MidNightBlue"><b>Ayi Giri Nandini Nandit. Medini</b></font><br>
 <font size="-1">O beloved Daughter of the mountains, the One who brings about great joy to the Earth</font><br>
-<font color="MidNightBlue"><b>Vishw. Vinodini Nandinute</b></font><br>
+<font color="MidNightBlue"><b>Viśhw. Vinodini Nandinute</b></font><br>
 <font size="-1">The One who brings joy to the whole universe, I I prostrate myselg before You<br>
 Who are the form of complete bliss</font><br>
 <font color="MidNightBlue"><b>Girivar. Vindhya Shirodhini Vasini</b></font><br>
@@ -72,12 +72,12 @@ Ayi Giri Nandini (Mahiṣhāsuramardinī)</font><br>
 
 <div style="text-align: center"><img src="/images/image199.png" /></div>
 
-<p style="color:green; text-align:center;">
-"Today is the eighth day of the Devī Pūjā and on this day the Power of Kālī acts and She is the one called as Saṃhāra Kālī,<br>
+<p style="text-align:center;">
+<font color="DarkRed">""Today is the eighth day of the Devī Pūjā and on this day the Power of Kālī acts and She is the one called as Saṃhāra Kālī,<br>
 meaning the one who destroys all the evil forces.<br>
 ...... on an Aṣhṭamī Day let us finish all this negativity<br>
 and let us become that special type of people who are worshiped all over all right.<br>
-May God bless you.<br>
+May God bless you.</font><br>
 <font size="+0"><b>1989-1007 Talk to Sahaja Yogis (8th Day of Navarātri), Sahaja Yoga Style and We are Sahaj Yogis of the God's Kingdom (We Are the Makers of Styles and Let Us Finish All this Negativity and Let Us Become that Special Type of People Who Are Worshiped All Over), before the Evening Program, the day before Navarātri Pūjā, Butlins Grand Hotel, Margate (123 kms ESE of London), UK</b></font><br>
 </p>
 
@@ -87,7 +87,7 @@ It’s so Sahaja that today should be Aṣhṭamī, because that is the day the 
 The war is within ourselves, is not without. First, when you ascend the seventh chakra, when you are on the eighth step, you have to remember first you have to fight those forces within ourselves.<br>
 You are all very intelligent people; bit too intelligent sometimes. So whatever I say you may twist it, and may try to use it in your own intelligence. But it is not in your well-being. It is not for your ‘hita’, for your good. You want to use it because you think you are intelligent, and maybe you do not know you are using it that way. And that is what one has to know that these forces are acting within us. They act through our intelligence, they act through our emotions, and they act through our physical being. So we have to be very careful.<br>
 When you ascend into Sahaja Yoga, we have to be very careful with our intelligence, because intelligence has capacity to cheat itself. And it will cheat us, nobody else. It is against us, against our own power. So we have to be alert and see for ourselves. So as soon as you enter onto the eighth step you should start seeing at yourself."</font><br>
-<font size="+0"><b>1984-0930 Aṣhṭamī Pūjā (8th Day of Navarātri), Discipline Has to Be Sahaja (What We Have to Do within Ourselves), Complexe Sportif René Leduc, 12 Rue du Père Brottier, Meudon (12 kms SW of Paris), France/b></font>
+<font size="+0"><b>1984-0930 Aṣhṭamī Pūjā (8th Day of Navarātri), Discipline Has to Be Sahaja (What We Have to Do within Ourselves), Complexe Sportif René Leduc, 12 Rue du Père Brottier, Meudon (12 kms SW of Paris), France</b></font>
 </p>
 
 <p>
@@ -100,23 +100,24 @@ And that compassion will bring forth the beauty of Sahaja Yoga."</font><br>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Asḥṭābhujā’s Vāhana, is a tiger as well as a lion."</b></font><br>
+<br>
 <font color="MidNightBlue"><b>Maiya Tere Charano ki</b></font><br>
 <font size="-1"><b>O Mother from Your Lotus Feet</b></font><br>
 <font color="MidNightBlue"><b>Yadi dhul. jo mil Jaye</b></font><br>
 <font size="-1"><b>Even if I could get a particle of dust</b></font><br>
-<font color="MidNightBlue"><b>Sach. kehta hu Nirmal Ma</b></font><br>
+<font color="MidNightBlue"><b>Sach. kehta hu Nirmal Mā</b></font><br>
 <font size="-1"><b>Then verily, O Mother Nirmalā.</b></font><br>
 <font color="MidNightBlue"><b>Takdir badal Jaye,</b></font><br>
 <font size="-1"><b>My life will be transformed</b></font><br>
 <font color="MidNightBlue"><b>Maiya tere Charno ki</b></font><br>
 <font size="-1"><b>O Mother, from your Lotus Feet</b></font><br>	
-<font size="-1"><font color="DarkGreen"><b>Maiyaa tere Charno Ki</b></font></font><br>
+<font size="-1"><font color="DarkGreen"><b>Maiyā tere Charno Ki</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=0OlxRe8pbEs">Maiyā tere Charno kí -- Sahaja Yoga bhajan</a>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0">1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Italy</font>
-<a href=""> video</a><br>
+<a href="https://www.youtube.com/watch?v=rtTipkbReE0"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -140,20 +141,20 @@ And that compassion will bring forth the beauty of Sahaja Yoga."</font><br>
 <a href="https://www.youtube.com/watch?v=niuCWTNKu0k">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image201.png" /></div>
+<div style="text-align: center"><img src="/images/image201.jpg" /></div>
 
 <p style="text-align:center;">
 <font color="MidNightBlue"><b>Dṛiśhyante ratham-ārudhā, Devyaḥ krodha-samā-kulāḥ<br>
 Śhaṅkham chakram gadām śhaktim, halam cha musal’āyudham</b></font><br>
-<b>All the Goddesses are seen mounted in chariots and very angry.
-They are wielding conch, discus, mace, plough, club, javelin,</b>
+<b>All the Goddesses are seen mounted in chariots and very angry.<br>
+They are wielding conch, discus, mace, plough, club, javelin,</b><br>
 <font color="MidNightBlue"><b>Khetakam tomaram chaiva, paraśhum-pāśham-eva cha<br>
 Kunt’āyudham triśhūlam cha, śhārṅgam-āyudham-uttamam/b></font><br>
-<b>Axe, noose, barbed dart, halter, whip, trident, spear, bow, and arrows.</b>
+<b>Axe, noose, barbed dart, halter, whip, trident, spear, bow, and arrows.</b><br>
 <font color="MidNightBlue"><b>Daityānām deha-nāśhāya, bhakt’ānāma-abhayāya cha<br>
 Dhārayanty’āyudhān’īttham, Devānām cha hitāya vai/b></font><br>
-<b>These Goddesses are wielding their weapons, to destroy the bodies of demons,
-For the protection of devotees and for the benevolence of the Gods.</b>
+<b>These Goddesses are wielding their weapons, to destroy the bodies of demons,<br>
+For the protection of devotees and for the benevolence of the Gods.</b><br>
 <br>
 <font color="Red"><b>Auṃ twameva sākshāt Shrī Mahāgaurī Mātā sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 </p>
