@@ -9,7 +9,7 @@ tags:
 ![PICTURE 1](/images/image1.png)
 
 <p>
-<font color="DarkRed">"Today we have gathered here to do the Pūjā of the Devī. The Devī has many forms, but is the embodiment of the Śhakti. Ādi Śhakti gives Śhakti to all these embodiments and so there are many Goddesses we have.
+<font color="DarkRed">"Today we have gathered here to do the Pūjā of the Devī. The Devī has many forms, but is the embodiment of the Śhakti. Ādi Śhakti gives Śhakti to all these embodiments and so there are many Goddesses we have.<br>
 At different times they came on this Earth and did all that was necessary for the ascent of people who were seekers. Especially the one we know of, Jagadambā, the Durgā. She was trying to protect all the Seekers of Truth and to destroy all evil forces, because without the ascent of human beings they do not know the Truth, and that’s why whatever they try to do is a mental projection, and this mental projection, if it is not substantiated by Truth, by dharma, it declines."</font><br>
 <font size="+0"><b>1993-1024 Navarātri Pūjā (Dussehra Day), Reintrospect Yourself, Tent, Cabella Ligure, Italy</b></font>
 </p>
@@ -17,7 +17,7 @@ At different times they came on this Earth and did all that was necessary for th
 <div style="text-align: center"><img src="/images/image202.png" /></div>
 
 <p style="text-align:center;">
-<font color="MidNightBlue">"<b>What is Your prowess to be compared to?<br>
+<font color="MidNightBlue"><b>What is Your prowess to be compared to?<br>
 Where can one find this beauty (of Yours) most charming, (yet) striking fear in enemies?<br>
 Compassion in heart and relentlessness in battle are seen,<br>
 O Devī, <br>
@@ -27,13 +27,13 @@ O Bestower of boons, only in You in all the three worlds!</b></font><br>
 
 <p>
 <font color="DarkRed">"Now Pūjā also people will do – just Pūjā of mine, forgetting that I am there. When you sing also, you are singing praise of Me and I am sitting before you. Doesn’t happen that way. You just sing because it is music. There should be a feeling that you are sitting before Me and singing My praise. So, identification is still there, that you are singing praises to Devī. Devī is who? That bridge has to be crossed. If you see Me and then you penetrate through Me, then it is better."</font><br>
-<font size="+0"><b>1988-1014 Talk to Sahaja Yogis, Navarātri Celebrations (4th Day), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India]</b></font>
+<font size="+0"><b>1988-1014 Talk to Sahaja Yogis, Navarātri Celebrations (4th Day), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font>
 
 <p>
 <font color="DarkRed">"Whenever you call a Brahmin for the Pūjā of the Goddess, he always denies, he doesn’t want to do it, because he gets into fits and something happens to him. So we have to have the status to worship the Goddess, you see. That’s why this song is there, “Pūjana kā adhikār. dījiye” – means, “You give us the right to worship You.” See, so it’s not an easy thing to do the worship of the Goddess, and there is a testing going on.<br>
 Now please put full attention on the Pūjā, and don’t worry about what is happening outside. You can’t do the Pūjā them you have to be relaxed, otherwise you can’t do Pūjā – absolutely relaxed."</font><br>
 <font size="+0"><b>1992-0927 Navarātri Pūjā (1st Day), 10th Position or Divine Knowledge is the Reality, Tent, Cabella Ligure, Italy</b></font><br>
-<font color="green"><b>Binati Suniye Adi Shakti Mere</b></font>
+<font color="green"><b>Binati Suniye Adi Shakti Mere</b></font><br>
 <a href="https://www.youtube.com/watch?v=dnrt5n-vjQ0&feature=youtu.be">video</a> 
 </p>
 
@@ -45,7 +45,7 @@ Vīra-var’ābhaya dāya-kare<br>
 Tri-bhuvana-mastaka śhūla-virodhi<br>
 Śhirō-’dhi kṛit’āmala śhūla-kare<br>
 Dumi-dumi-tāmara dundubhi-nādam<br>
-Aho-mukharī-kṛita diṅmakare, Jaya jaya he ......</b><br>
+Aho-mukharī-kṛita diṅmakare, Jaya jaya he ......</b></font><br>
 Giving courage, strength, boons and fearlessness to those who take refuge in You;<br>
 Your spotless Trident captures the Heads of the Rulers of the Three Worlds;<br>
 Making all directions resound with the ‘Dumi-duma’ sound of drums; Victory to You ......<br>
