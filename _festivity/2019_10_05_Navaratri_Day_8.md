@@ -73,11 +73,11 @@ Ayi Giri Nandini (Mahiṣhāsuramardinī)</font><br>
 <div style="text-align: center"><img src="/images/image199.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">""Today is the eighth day of the Devī Pūjā and on this day the Power of Kālī acts and She is the one called as Saṃhāra Kālī,<br>
+<font color="DarkRed">"Today is the eighth day of the Devī Pūjā and on this day the Power of Kālī acts and She is the one called as Saṃhāra Kālī,<br>
 meaning the one who destroys all the evil forces.<br>
 ...... on an Aṣhṭamī Day let us finish all this negativity<br>
 and let us become that special type of people who are worshiped all over all right.<br>
-May God bless you.</font><br>
+May God bless you."</font><br>
 <font size="+0"><b>1989-1007 Talk to Sahaja Yogis (8th Day of Navarātri), Sahaja Yoga Style and We are Sahaj Yogis of the God's Kingdom (We Are the Makers of Styles and Let Us Finish All this Negativity and Let Us Become that Special Type of People Who Are Worshiped All Over), before the Evening Program, the day before Navarātri Pūjā, Butlins Grand Hotel, Margate (123 kms ESE of London), UK</b></font><br>
 </p>
 
@@ -122,12 +122,12 @@ And that compassion will bring forth the beauty of Sahaja Yoga."</font><br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Narayani Stuti</b></font><br>
+<font color="green"><b>Nārāyanī Stuti</b></font><br>
 <a href="https://www.youtube.com/watch?v=T_V1ka6e4Xo"> video</a><br>
 </p>
 
 <p>
-<font color="green"><b>Jai Jagadambe (Gondhala Mandila)</b>by Ajit Kadkade</font><br>
+<font color="green"><b>Jai Jagadambe (Gondhala Mandila)</b> by Ajit Kadkade</font><br>
 <a href="https://www.youtube.com/watch?v=ggudbiYs71c">video</a>
 </p>
 
