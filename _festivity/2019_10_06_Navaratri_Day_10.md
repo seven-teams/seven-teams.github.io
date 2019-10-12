@@ -54,7 +54,7 @@ So now, <b>I have to just tell you that, on this day of this Pūjā, it's such a
 
 <p style="text-align:center;">
 <font color="MidNightBlue"><b>Sāsi-tūna-dhanur-bāna-pānim nak-tan-charāntakam</b></font><br>
-He has a sword in one hand and a bow and arrow in the other and spare arrows in His quiver to kill the rakshasas.<br>
+He has a sword in one hand and a bow and arrow in the other and spare arrows in His quiver to kill the rākṣhasas.<br>
 <font color="MidNightBlue"><b>Sva-līlayā jagatrātum-āvir-bhūtam-ajam Vibhum</b></font><br>
 He is beyond birth and death, His powers have no limits and through His own divine play (leela), 
 He has incarnated to destroy all the negative forces and to protect this world.<br>
@@ -62,7 +62,7 @@ He has incarnated to destroy all the negative forces and to protect this world.<
 </p>
 
 <p>
-<font color="DarkRed">"Śhrī Rāma was also a great Devī bhakta, that is, devotee of Śhakti. Before attacking Sri Lanka He performed Devī Pūjā for which He needed a Brahmin for conducting various rites to please the Devī. He then sent for Rāvaṇa the King of Sri Lanka, who was a Brahmin and Devī bhakta. He readily responded and helped Śhrī Rāma in performing the Pūjā of the Devī with all nine types of rites.<br>
+<font color="DarkRed"><b>"Śhrī Rāma was also a great Devī bhakta, that is, devotee of Śhakti.</b> Before attacking Sri Lanka He performed Devī Pūjā for which He needed a Brahmin for conducting various rites to please the Devī. He then sent for Rāvaṇa the King of Sri Lanka, who was a Brahmin and Devī bhakta. He readily responded and helped Śhrī Rāma in performing the Pūjā of the Devī with all nine types of rites.<br>
 Had Śhrī Rāma been of a cunning disposition, He could have killed Śhrī Rāvaṇa then and there but He was a Maryādā Puruṣhottama. He did not do such a mean and irresponsible act. They were enemies but while performing the Pūjā the enmity was completely forgotten."</font><br>
 <font size="+0"><b>1998-0405 Śhrī Rāma Pūjā (Rāma Navamī), House, Noida, Uttar Pradesh, India</b></font>
 </p>
@@ -99,7 +99,7 @@ I bow at the feet of Śhrī Rāmachandra.<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Jai He Jai He Jai He Devi</b></font><br>
+<font color="green"><b>Jai He Jai He Jai He Devī</b></font><br>
 <a href="https://www.youtube.com/watch?v=HvBIgQbSd3c"> video</a><br>
 </p>
 
