@@ -94,7 +94,7 @@ I bow at the feet of Śhrī Rāmachandra.<br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</font>
-<br><a href="https://www.youtube.com/watch?time_continue=3&v=kfJdX2Vy-eU"> video</a><br>
+<a href="https://www.youtube.com/watch?time_continue=3&v=kfJdX2Vy-eU"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
