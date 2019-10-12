@@ -82,6 +82,7 @@ O Devi, O Mahadevi, please protect us.</b></font>
 <font size="+0">2002-1027 Navarātri Pūjā (13th day after Dussehra Day), Develop Wisdom through Meditation, Bhakti and Śhraddhā, Lake Piru Recreational Area Campground, 4780 Piru Canyon Rd, Piru (87 kms NW of Los Angeles), CA, U.S.A.</font>
 <br><a href="https://www.youtube.com/watch?time_continue=4&v=DNcvMyD5YVQ"> video</a><br>
 
+<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>

@@ -40,7 +40,7 @@ Grant Us To Be Victorious In Spreading Sahaja Yoga.</b></font>
 <font color="MidNightBlue"><b>Jai jai Raghuvīra Samartha</b></font><br>
 Victory to the all-powerful Śhrī Rāma!<br>
 <font color="MidNightBlue"><b>Auṃ Twameva sākshāt Śhrī Rāma sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
-O Divine Mother, You are verily Śhrī Rāma. Salutations to You!<br><br>
+O Divine Mother, You are verily Śhrī Rāma. Salutations to You!<br>
 </p>
 
 <p>
