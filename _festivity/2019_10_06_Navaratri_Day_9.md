@@ -111,7 +111,7 @@ O Devi, O Mahadevi, please protect us.</b></font>
 
 <p>
 <font color="green"><b>Durgā Ādi Śhakti</b></font><br>
-<a href="ttps://www.youtube.com/watch?v=IZxG3j1wUyE">video</a> 
+<a href="https://www.youtube.com/watch?v=IZxG3j1wUyE">video</a> 
 </p>
 
 <p>
