@@ -1,6 +1,6 @@
 ---
 title: '2019 Celebrating Kojāgirī Pūrṇimā Day: also known as Śhārad'
-date: 2019-1013
+date: 2019-10-13
 permalink: /festivity/2019/1013
 tags:
   - Sharad
