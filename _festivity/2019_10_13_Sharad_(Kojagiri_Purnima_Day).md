@@ -16,15 +16,15 @@ tags:
 
 <div style="text-align: center"><img src="/images/image210.png" /></div>
 
-<p style="color:DarkGreen; text-align:center;">
-<font size="+0"><b>Brahma Shodhile, Brahmand. Mirlale<br>
-I was searching for Divine Vibrations, but instead found the universe<br>
-Ai, Tujhiya Dhami<br>
-Mother, at Your doorstep,<br>
-Janmojanmachi Punyayi Az. Ali Majhiya Kami<br>
-All the accumulated righteousness of many a birth today been put to proper use<br>
-Ai, Tujhiya Dhami<br>
-Mother, at Your doorstep</b></font><br>
+<p style="text-align:center;">
+<font color="Green"><font size="+0"><b>Brahma Shodhile, Brahmand. Mirlale</b></font></font><br>
+<font size="+0"><b>I was searching for Divine Vibrations, but instead found the universe</b></font><br>
+<font color="Green"><font size="+0"><b>Ai, Tujhiya Dhami</b></font></font><br>
+<font size="+0"><b>Mother, at Your doorstep,</b></font><br>
+<font color="Green"><font size="+0"><b>Janmojanmachi Punyayi Az. Ali Majhiya Kami</b></font></font><br>
+<font size="+0"><b>All the accumulated righteousness of many a birth today been put to proper use</b></font><br>
+<font color="Green"><font size="+0"><b>Ai, Tujhiya Dhami</b></font></font><br>
+<font size="+0"><b>Mother, at Your doorstep</b></font><br>
 <a href="https://www.youtube.com/watch?v=Lk_oRuRnvGo">video</a>
 </p>
 
