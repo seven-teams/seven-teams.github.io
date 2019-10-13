@@ -59,11 +59,6 @@ She asks ‘Ko jāgarti?’ [Who has not awakened yet?]"</b></font><br>
 <font size="+0"><b>1986-1018 Talk to Sahaja Yogis (Kojagiri Pūrṇimā Day), Hall, Sane Gurujī Vidyālay, Dadar, Mumbai, Maharashtra, India</b></font>
 </p>
 
-<p>
-<font color="DarkRed">""</font><br>
-
-</p>
-
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1984-0218 Śhrī Chandramā Pūjā (Marathi+English+Marathi), Vaitarna, Maharashtra, India</font>
 <br><a href="https://www.youtube.com/watch?time_continue=2093&v=lw5h5fnhqm4"> video</a><br>
