@@ -37,14 +37,14 @@ Today is Śhārad Pūrṇimā or Kojāgirī Pūrṇimā. This is a harvest festi
 
 <p>
 <font size="+0"><i>"In 82, 83 or 84 we celebrated Kojāgirī Pūrṇimā with Śhrī Mātājī at Hall in Saneguruji Vidyalay, Dadar, Mumbai where weekly Saturday meeting took place. She prepared milk also for all of us.
-She mentions in that talk "Goddess comes to every body's house late at night on that day She ask "Kojagarti" in Sanskrit mean who has not awakened yet."</i><br>
+She mentions in that talk "Goddess comes to every body's house late at night on that day She ask "Ko jāgarti" in Sanskrit mean who has not awakened yet."</i><br>
 Recollection of a Sahaja Yoginī from Mumbai, India</font>
 </p>
 
 <p>
 <font size="+0"><b>The Significance of this festivity:</b><br>
 On this auspicious day of Śhārad Pūrṇimā or Kojāgirī, moonlights are filled with Amṛut which clears negativities and all the diseases.<br>
-On this day it is believed that Śhrī Mahālakṣhmī comes on the Earth and goes about from place to place asking, "Who is awake?" ("Kojagarti" ) and She showers Her blessings on those She finds awake.<br> 
+On this day it is believed that Śhrī Mahālakṣhmī comes on the Earth and goes about from place to place asking, "Who is awake?" ("Ko jāgarti") and She showers Her blessings on those She finds awake.<br> 
 Hence, the night is spent in festivity, singing and praising in honor of the Goddess. So people sit in the moonlight singing bhajans in praise of the Devī. Thus this Kojāgirī night in India is celebrated customarily by observing a night vigil and other rituals.<br>
 All the Sahaja Yogis on this night collectively sings bhajans/praises to Śhrī Mātājī enlightening our powers within.<br>
 Tonight is a very auspicious Full Moon when we can absorb the cooling rays of the Moon to cool down our right side and absorb the blessings.<br>
@@ -74,8 +74,6 @@ The first two lines of the bhajan when translated mean:<br>
 Mother has knocked on your door<br>
 <font color="green">Houni za ata gadya par</font><br>
 Now, friend cross the ocean of Maya by getting your Realization.</font><br>
-<br>
-<br>
 </p>
 
 <p>
