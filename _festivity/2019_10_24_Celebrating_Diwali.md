@@ -76,7 +76,7 @@ This is the fourth day of Diwali celebrations. This day is one of the three and 
 
 <p>
 <font size="+0"><b>Day 5 (Tuesday 29th October ) – Bhaiduj or Bhau Beej</b></font><br>
-<font color="MediumPurple"><b>"So today is the second day. Second day is the Bīja - is the they call it the Bhau-bija is the day when the brother and the sister, who are the seeds of one tree have that pure exchange of affection."</b></font><br>
+<font color="BlueViolet"><b>"So today is the second day. Second day is the Bīja - is the they call it the Bhau-bija is the day when the brother and the sister, who are the seeds of one tree have that pure exchange of affection."</b></font><br>
 <font size="+0"><b>1980-1109 Diwālī Pūjā (Bhāūbīj Day), The Mahālakṣhmī Power, Temple of All Faiths, Hampstead, London, UK</b></font><br>
 This is the last, the fifth day of Diwali celebrations. On this day the brother and sister relationship is celebrated.
 </p>
