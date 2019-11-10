@@ -88,7 +88,7 @@ Let us enjoy the evening listening to some of the qawwalis sung in Śhrī Mātā
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="blue"><b>Mata mere Mata (Khwaja Mere Khwaja)</b></font><br>
+<font color="blue"><b>Mātā mere Mātā (Khwaja Mere Khwaja)</b></font><br>
 <a href="https://www.youtube.com/watch?v=eLsfcw5d17U"> video</a><br>
 </p>
 
