@@ -74,7 +74,7 @@ Islam Enlightened, Javed Khan, page 32.</b>
 </p>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Om Twamev Sakshat Shri Al-Hamid</b> <font size="+0"><b>(The  praiseworthy)</b></font><b> Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namo Namah!</b><br>
+<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Al-Hamid</b> <font size="+0"><b>(The  praiseworthy)</b></font><b> sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><br>
 <font size="+0"><b>(The 99 Holy names of Allah, mantra book)</b></font></font>
 </p>
 
@@ -83,7 +83,7 @@ Islam Enlightened, Javed Khan, page 32.</b>
 <a href="https://www.youtube.com/watch?v=nMa91rAg0HM"> video</a><br>
 <br>
 Qawali is a style of singing in couplets in praise of God.<br>
-Let us enjoy the evening listening to some of the qawwalis sung in Shri Mataji's presence.<br>
+Let us enjoy the evening listening to some of the qawwalis sung in Śhrī Mātājī's presence.<br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -113,7 +113,7 @@ Let us enjoy the evening listening to some of the qawwalis sung in Shri Mataji's
 </p>
 
 <p>
-<font color="blue"><b>Mataji Mataji</b></font><br>
+<font color="blue"><b>Mātājī Mātājī</b></font><br>
 <a href="https://www.youtube.com/watch?v=R52efmGoGYQ">video</a> 
 </p>
 
