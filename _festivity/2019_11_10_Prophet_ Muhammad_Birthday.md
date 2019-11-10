@@ -46,7 +46,7 @@ has done the greatest advancement as far as the Kuṇḍalinī jāgṛuti is con
 <p style="text-align:center;">
 <font color="DarkRed"><b>La illaha illallah Muhammad ur Rasul Allah</b></font><br>
 There is no god but God, and Muhammad is His Prophet<br>
-<font size="+0">(Sahjaa Yoga Mantra Book, Page 170)
+<font size="+0">(Sahaja Yoga Mantra Book, Page 170)</font>
 </p>
 
 <p>
