@@ -74,17 +74,16 @@ Islam Enlightened, Javed Khan, page 32.</b>
 </p>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Om Twamev Sakshat Shri Al-Hamid</b> <font size="+0"><b>(The  praiseworthy)</b></font><b> Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namo Namah!</b>
+<font color="DarkRed"><b>Om Twamev Sakshat Shri Al-Hamid</b> <font size="+0"><b>(The  praiseworthy)</b></font><b> Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namo Namah!</b><br>
 <font size="+0"><b>(The 99 Holy names of Allah, mantra book)</b></font></font>
 </p>
 
 <font size="+2"><b>Suggested Video:</b></font> 
-<font size="-1">Qawalis from Guru Purnima Puja in 2002:</font>
+<font size="+0">Qawalis from Guru Purnima Puja in 2002:</font>
 <a href="https://www.youtube.com/watch?v=nMa91rAg0HM"> video</a><br>
 <br>
 Qawali is a style of singing in couplets in praise of God.<br>
 Let us enjoy the evening listening to some of the qawwalis sung in Shri Mataji's presence.<br>
-</font>
 
 <font size="+2"><b>Bhajans:</b></font>
 
