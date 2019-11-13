@@ -112,12 +112,12 @@ Or sitting in a posture of meditation;<br>
 Religion consisteth not in wandering foreign countries<br> 
 Or in bathing at places of pilgrimage.<br> 
 Abide pure amidst the impurities of the world</b></font><br>  
-Aarti - Gagan Main Thaal | Guru Nanak Āratī (recited by Guru Nanak)<br> 
+Aarti - Gagan Main Thāl | Guru Nanak Āratī (recited by Guru Nanak)<br> 
 <a href="www.youtube.com/watch?v=72XrjKjT9ws">video</a><br> 
 <b>Guru Nanak Dev</b> has imagined the entire universe decorated as a prayer platter on the altar of the almighty. The starting verses of the aarti are as follows:<br>
 Gagan mein thaal, rav chand deepak bane, taarka mandal janak moti dhoop malay aan lao, pawan chavro kare sagal ban raai phulant jyoti kaisi aarti hoye, bhavkhandana teri Āratī.
 Anhat sabad bajant bheri kaisi aarti hoye, bhavkhandana teri Āratī.<br>
-<b>Means</b> - The sky is the prayer-platter, the sun and the moon are the lamps, the stars and the constellations are the pearls and jewels. The air coming from the sandal laden Malay mountain are the incense, air is the fan, entire flora of the earth are the flowers..... oh... what an aarti is it ! o destroyer of fear!<br>
+<b>Means</b> - The sky is the prayer-platter, the sun and the moon are the lamps, the stars and the constellations are the pearls and jewels. The air coming from the sandal laden Malay mountain are the incense, air is the fan, entire flora of the earth are the flowers ...... oh ... what an Āratī is it! O destroyer of fear!<br>
 (from Wikipedia)</font>
 </p>
 
