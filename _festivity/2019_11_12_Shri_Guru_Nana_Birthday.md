@@ -112,7 +112,7 @@ Or sitting in a posture of meditation;<br>
 Religion consisteth not in wandering foreign countries<br> 
 Or in bathing at places of pilgrimage.<br> 
 Abide pure amidst the impurities of the world</b></font><br>  
-Aarti - Gagan Main Thaal | Guru Nanak Aarti ( recited by Guru Nanak ) 
+Aarti - Gagan Main Thaal | Guru Nanak Āratī (recited by Guru Nanak)<br> 
 <a href="www.youtube.com/watch?v=72XrjKjT9ws">video</a><br> 
 <b>Guru Nanak Dev</b> has imagined the entire universe decorated as a prayer platter on the altar of the almighty. The starting verses of the aarti are as follows:<br>
 Gagan mein thaal, rav chand deepak bane, taarka mandal janak moti dhoop malay aan lao, pawan chavro kare sagal ban raai phulant jyoti kaisi aarti hoye, bhavkhandana teri Āratī.
