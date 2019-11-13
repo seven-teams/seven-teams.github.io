@@ -20,7 +20,7 @@ Guru Nāṇaka always talked of Sahaja Yoga. "Everything else," He said, "is jus
 <font color="DarkGreen"><b>Ik­oaŉkār saṯ nām karṯā purakẖ nirbẖa­o nirvair akāl mūraṯ ajūnī saibẖaŉ gur parsāḏ.</b></font><br>
 <font size="+0">There is One and only One God who is transcendent as well as immanent.<br>
 True and Eternal Name. Creator and Person. Without Fear and without Enmity.<br>
-Timeless Form, Unborn, Self-existent. Realized by Divine Grace.
+Timeless Form, Unborn, Self-existent. Realized by Divine Grace.<br>
 Shri Guru Nanak's Mool mantra</font><br>
 </p>
 
@@ -42,6 +42,7 @@ Muhammad was the Incarnation of the same Spirit – the Primordial Master. He ca
 Unless and until you see that, know Him within yourself, you are not going to be enlightened.<br>
 You are not going to have any knowledge. The rest of it is non-knowledge.<br>
 Knowledge is that where you feel the All-pervading Power around us."</font><br>
+<font size="+0"><b>1982-0117 Public Talk, Conference, Ashoka Hotel, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <p>
@@ -117,7 +118,7 @@ Aarti - Gagan Main Thaal | Guru Nanak Aarti ( recited by Guru Nanak )
 Gagan mein thaal, rav chand deepak bane, taarka mandal janak moti dhoop malay aan lao, pawan chavro kare sagal ban raai phulant jyoti kaisi aarti hoye, bhavkhandana teri Āratī.
 Anhat sabad bajant bheri kaisi aarti hoye, bhavkhandana teri Āratī.<br>
 <b>Means</b> - The sky is the prayer-platter, the sun and the moon are the lamps, the stars and the constellations are the pearls and jewels. The air coming from the sandal laden Malay mountain are the incense, air is the fan, entire flora of the earth are the flowers..... oh... what an aarti is it ! o destroyer of fear!<br>
-(from Wikipedia)<\font>
+(from Wikipedia)</font>
 </p>
 
 <p>
