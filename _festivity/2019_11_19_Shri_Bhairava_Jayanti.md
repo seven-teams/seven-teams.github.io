@@ -1,5 +1,5 @@
 ---
-title: '2019 Celebrating Shri Bhairava Jayanti'
+title: '2019 Celebrating Śhrī Bhairava Jayanti'
 date: 2019-11-19
 permalink: /festivity/2019/11/19
 tags:
@@ -16,14 +16,14 @@ tags:
 <div style="text-align: center"><img src="/images/image254.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Dharma sethu palakam, thwa dharma marga nasakam,<br>
-Karma pasa mochakam,susharma dayakam vibhum <br>
-Swarna varna sesha pasa shobithanga mandalam,<br>
-Kasika puradhi nadha Kalabhairavam bhaje</b></font><br>
+<font color="DarkGreen"><b>Dharma setu pālakaṃ, twa dharma mārga nāśakaṃ,<br>
+Karma pāśha mocakaṃ, suśharma dāyakaṃ vibhum |<br>
+svarṇa varṇa śheṣha pāśha śhobhitāṅga maṇḍalaṃ,<br>
+Kāśikā purādhi nātha kālabhairavaṃ bhaje</b></font><br>
 <b>I sing praise of Kalabhairav, Who is the ruler of the city Kashi, Who is the maintainer of righteousness,<br>
-Who is the destroyer of unrighteous paths, Who liberates us from the ties of Karma or deeds, Who bestows us with shyness,<br>
+Who is the destroyer of unrighteous paths, Who liberates us from the ties of karma or deeds, Who bestows us with shyness,<br>
 Who is splendid, and Whose organ-groups are decorated with a beautiful cord of golden color.</b><br>
-<font size="+0"><b>(Adi Sankaracharyas Kalabhairava Astakam)</b></font>
+<font size="+0"><b>(Śhrī Ādi Śhaṅkarāchārya's `Kālabhairavāṣṭakam')</b></font>
 </p>
 
 <p>
@@ -33,7 +33,7 @@ For example, people have a hot temper with their ego, with their liver, whatever
 </p>
 
 <p>
-<font color="DarkRed">"here are other styles of personalities like Chirañjīvas, and we have got Hanumāna. These are all Incarnations. Bhairava, Gaṇeśha. Hanumāna is nobody else, but later on, he appeared as ‘Gabriel the Angel’. And Bhairavnāth came as Saint Michael. The names are different, but they are the same people. These are the Chirañjīvas Incarnations."</font><br>
+<font color="DarkRed">"There are other styles of personalities like Chirañjīvas, and we have got Hanumāna. These are all Incarnations. Bhairava, Gaṇeśha. Hanumāna is nobody else, but later on, he appeared as ‘Gabriel the Angel’. And Bhairavnāth came as Saint Michael. The names are different, but they are the same people. These are the Chirañjīvas Incarnations."</font><br>
 <font size="+0"><b>1977-0215 Public Program (Hindi+English), Day 2, Sat-chit-ānanda, New Delhi, India</b></font>
 </p>
 
