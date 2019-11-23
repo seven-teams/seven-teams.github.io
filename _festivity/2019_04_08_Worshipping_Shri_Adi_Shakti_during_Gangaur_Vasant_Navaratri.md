@@ -3,7 +3,7 @@ title: '2019 Worshipping Shri Adi Shakti during Gangaur: Vasant Navaratri'
 date: 2019-04-08
 permalink: /festivity/2019/0408
 tags: 
-  - Gabgaur
+  - Gangaur
   - Vasant Navaratri
 ---
 
