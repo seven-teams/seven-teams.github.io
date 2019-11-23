@@ -40,7 +40,7 @@ For example, people have a hot temper with their ego, with their liver, whatever
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"...... Bhairava's Śhakti, which is also, you know what Bhairava has got as a symbol of killing, is a big swordlike thing ......"</b></font><br>
-<font size="+0"><b>1979-0928 Talk to Sahaja Yogis, Sunderbhai Hall, Mumbai, Maharashtra, India</b>
+<font size="+0"><b>1979-0928 Talk to Sahaja Yogis, Sunderbhai Hall, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <p>
