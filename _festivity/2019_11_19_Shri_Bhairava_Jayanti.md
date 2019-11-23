@@ -83,7 +83,7 @@ May God bless you."</font><br>
 <font size="+0"><b>1990-0912 Śhrī Mahākālī Pūjā, Qualities of Mahākālī and You Have to be Collective (Purity Means Chastity and For the Saints the Main Thing Is Their Ascent), Centre Culturel Thierry Le Luron, Le Raincy (13 kms E of Paris), France</b></font><br>
 <br>
 <font color="DarkBlue"><b>Auṃ Twameva sākṣhāt Śhrī Bhairava sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!<br>
-O Divine Mother, You are verily Shri Bhairava, Salutations to You!</b></font>
+O Divine Mother, You are verily Śhrī Bhairava, Salutations to You!</b></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
@@ -98,11 +98,6 @@ O Divine Mother, You are verily Shri Bhairava, Salutations to You!</b></font>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
-</p>
-
-<p>
 <font color="green"><b>Gajanana Shri Gan Raya</b></font><br>
 <a href="http://youtu.be/sDHdeRTcVjc">video</a>
 </p>
@@ -113,7 +108,7 @@ O Divine Mother, You are verily Shri Bhairava, Salutations to You!</b></font>
 </p>
 
 <p>
-<font color="green"><b>arti and the Three Great Mantras</b></font><br>
+<font color="green"><b>Āratī and the Three Great Mantras</b></font><br>
 <a href="http://youtu.be/a89XDrTOInY">video</a> 
 </p>
 
