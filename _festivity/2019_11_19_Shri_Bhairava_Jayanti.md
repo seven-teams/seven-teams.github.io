@@ -82,7 +82,7 @@ We have to join Him, all of us, and work it out.<br>
 May God bless you."</font><br>
 <font size="+0"><b>1990-0912 Śhrī Mahākālī Pūjā, Qualities of Mahākālī and You Have to be Collective (Purity Means Chastity and For the Saints the Main Thing Is Their Ascent), Centre Culturel Thierry Le Luron, Le Raincy (13 kms E of Paris), France</b></font><br>
 <br>
-<font color="DarkBlue"><b>Aum Twameva Sakshat Shri Bhairava Sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai Namo Namah!<br>
+<font color="DarkBlue"><b>Auṃ Twameva sākṣhāt Śhrī Bhairava sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!<br>
 O Divine Mother, You are verily Shri Bhairava, Salutations to You!</b></font>
 </p>
 
