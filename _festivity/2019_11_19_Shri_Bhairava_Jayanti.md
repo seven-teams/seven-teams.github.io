@@ -20,9 +20,7 @@ tags:
 Karma pāśha mocakaṃ, suśharma dāyakaṃ vibhum |<br>
 svarṇa varṇa śheṣha pāśha śhobhitāṅga maṇḍalaṃ,<br>
 Kāśikā purādhi nātha kālabhairavaṃ bhaje</b></font><br>
-<b>I sing praise of Kalabhairav, Who is the ruler of the city Kashi, Who is the maintainer of righteousness,<br>
-Who is the destroyer of unrighteous paths, Who liberates us from the ties of karma or deeds, Who bestows us with shyness,<br>
-Who is splendid, and Whose organ-groups are decorated with a beautiful cord of golden color.</b><br>
+<b>I sing praise of Kalabhairav, Who is the ruler of the city Kashi, Who is the maintainer of righteousness, Who is the destroyer of unrighteous paths, Who liberates us from the ties of karma or deeds, Who bestows us with shyness, Who is splendid, and Whose organ-groups are decorated with a beautiful cord of golden color.</b><br>
 <font size="+0"><b>(Śhrī Ādi Śhaṅkarāchārya's `Kālabhairavāṣṭakam')</b></font>
 </p>
 
