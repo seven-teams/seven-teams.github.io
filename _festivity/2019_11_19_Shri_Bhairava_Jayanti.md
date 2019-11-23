@@ -16,10 +16,10 @@ tags:
 <div style="text-align: center"><img src="/images/image254.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Dharma setu pālakaṃ, twa dharma mārga nāśakaṃ,<br>
+<font color="DarkGreen"><b>Dharma setu pālakaṃ, twa dharma mārga nāśhakaṃ<br>
 Karma pāśha mocakaṃ, suśharma dāyakaṃ vibhum |<br>
-svarṇa varṇa śheṣha pāśha śhobhitāṅga maṇḍalaṃ,<br>
-Kāśikā purādhi nātha kālabhairavaṃ bhaje</b></font><br>
+svarṇa varṇa śheṣha pāśha śhobhitāṅga maṇḍalaṃ<br>
+Kāśhikā purādhi nātha kālabhairavaṃ bhaje</b></font><br>
 <b>I sing praise of Kalabhairav, Who is the ruler of the city Kashi, Who is the maintainer of righteousness, Who is the destroyer of unrighteous paths, Who liberates us from the ties of karma or deeds, Who bestows us with shyness, Who is splendid, and Whose organ-groups are decorated with a beautiful cord of golden color.</b><br>
 <font size="+0"><b>(Śhrī Ādi Śhaṅkarāchārya's `Kālabhairavāṣṭakam')</b></font>
 </p>
