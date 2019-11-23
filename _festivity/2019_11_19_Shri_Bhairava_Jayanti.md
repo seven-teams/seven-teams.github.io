@@ -57,7 +57,7 @@ So he stands on the gate of hell and stops people from falling into hell. But if
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"...... Śhrī Mahāvīr, who was the Incarnation of Bhairava. Himself Bhairava took on this work."</b></font><br>
-<font size="+0"><b>1984-0121 Śhrī Gaṇeśha Pūjā, House of Dr. Saṃghavī, Nasik, Maharashtra, India</b>
+<font size="+0"><b>1984-0121 Śhrī Gaṇeśha Pūjā, House of Dr. Saṃghavī, Nasik, Maharashtra, India</b></font>
 </p>
 
 <p>
