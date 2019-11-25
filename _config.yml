@@ -282,7 +282,7 @@ defaults:
       path: ""
       type: festivity
     values:
-      layout: single
+      layout: festivitypost
       author_profile: true
       read_time: true
       comments: true
