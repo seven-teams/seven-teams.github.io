@@ -1,17 +1,34 @@
 ---
-layout: default
+layout: compress
 ---
 
-<div class="post">
-  <h1 class="post-title">{{ page.title }}</h1>
-  <span class="post-date">{{ page.date | date_to_string }}</span>
-  {% if page.tags %} | 
-  {% for tag in page.tags %}
-    <a href="{{ site.baseurl }}{{ site.tag_festivity }}#{{ tag | slugify }}" class="post-tag">{{ tag }}</a>
-  {% endfor %}
-  {% endif %}
-  <article>
+{% include base_path %}
+
+<!doctype html>
+<html lang="{{ site.locale | slice: 0,2 }}" class="no-js">
+  <head>
+    {% include head.html %}
+    {% include head/custom.html %}
+  </head>
+
+  <body>
+
+    {% include browser-upgrade.html %}
+    {% include masthead.html %}
+
+    {% if page.tags %} | 
+    {% for tag in page.tags %}
+      <a href="{{ site.baseurl }}{{ site.tag_festivity }}#{{ tag | slugify }}" class="post-tag">{{ tag }}</a>
+    {% endfor %}
+    {% endif %}
+
     {{ content }}
-  </article>
-</div>
+    
+
+    {% include scripts.html %}
+  <script src="https://unpkg.com/vanilla-back-to-top@7.2.1/dist/vanilla-back-to-top.min.js"></script>
+  <script>addBackToTop()</script>
+  </body>
+</html>
+
 
