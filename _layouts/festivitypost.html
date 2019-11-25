@@ -23,11 +23,6 @@ layout: default
     {% if page.date %}<meta itemprop="datePublished" content="{{ page.date | date: "%B %d, %Y" }}">{% endif %}
     {% if page.modified %}<meta itemprop="dateModified" content="{{ page.modified | date: "%B %d, %Y" }}">{% endif %}
 
-     {% if page.tags %} Tag:  
-      {% for tag in page.tags %}
-        <a href="{{ site.baseurl }}{{ site.tag_festivity }}#{{ tag | slugify }}" class="post-tag">{{ tag }}</a>
-      {% endfor %}
-      {% endif %}
 
     <div class="page__inner-wrap">
       {% unless page.header.overlay_color or page.header.overlay_image %}
@@ -43,7 +38,12 @@ layout: default
     
         </header>
       {% endunless %}
-
+      
+      {% if page.tags %} Tag:  
+      {% for tag in page.tags %}
+        <a href="{{ site.baseurl }}{{ site.tag_festivity }}#{{ tag | slugify }}" class="post-tag">{{ tag }}</a>
+      {% endfor %}
+      {% endif %}
      
 
       <section class="page__content" itemprop="text">
