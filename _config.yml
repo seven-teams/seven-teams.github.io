@@ -216,7 +216,7 @@ defaults:
       path: ""
       type: divine
     values:
-      layout: single
+      layout: divinepost
       author_profile: true
       read_time: true
       comments: true
@@ -227,7 +227,7 @@ defaults:
       path: ""
       type: scriptures
     values:
-      layout: single
+      layout: scripturespost
       author_profile: true
       read_time: true
       comments: true
@@ -238,7 +238,7 @@ defaults:
       path: ""
       type: chronology
     values:
-      layout: single
+      layout: chronologypost
       author_profile: true
       read_time: true
       comments: true
@@ -249,7 +249,7 @@ defaults:
       path: ""
       type: quotes
     values:
-      layout: single
+      layout: quotespost
       author_profile: true
       read_time: true
       comments: true
@@ -260,7 +260,7 @@ defaults:
       path: ""
       type: yearly
     values:
-      layout: single
+      layout: yearlypost
       author_profile: true
       read_time: true
       comments: true
@@ -271,7 +271,7 @@ defaults:
       path: ""
       type: compilation
     values:
-      layout: single
+      layout: compilationpost
       author_profile: true
       read_time: true
       comments: true
