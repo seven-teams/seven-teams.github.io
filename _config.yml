@@ -384,9 +384,11 @@ whitelist:
 #category_archive:
 #  type: liquid
 #  path: /categories/
-tag_archive:
-  type: liquid
-  path: /tags/
+tag_festivity: '/tag-festivity/'
+
+#tag_archive:
+#  type: liquid
+#  path: /tags/
 # https://github.com/jekyll/jekyll-archives
 # jekyll-archives:
 #   enabled:
