@@ -2,8 +2,10 @@
 title: '2019 Celebrating Śhrī Bhairava Jayanti'
 date: 2019-11-19
 permalink: /festivity/2019/11/19
+classes: wide
 tags:
   - Bhairava
+
 ---
 
 ![PICTURE 1](/images/image1.png)
