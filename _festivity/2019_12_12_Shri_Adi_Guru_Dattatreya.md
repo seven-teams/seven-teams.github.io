@@ -114,7 +114,7 @@ O my heart, please stay under the Guru’s Protection</b></font><br>
 <div style="text-align: center"><img src="/images/image268.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>"...... Dattātreya is the one who is comprising all these forces: the existence force and the evolutionary force and the creative force, all of them, in its innocence. I don't know if you understand it, but there is a story about them, is that there are three Deities which belong to these three forces. The left one is Śhiva's force, then the right one is Brahmadeva's force and the center one is Viṣhṇu's Force. "</b></font><br>
+<font color="DarkGreen"><b>"...... Dattātreya is the one who is comprising all these forces: the existence force and the evolutionary force and the creative force, all of them, in its innocence. I don't know if you understand it, but there is a story about them, is that there are three Deities which belong to these three forces. The left one is Śhiva's force, then the right one is Brahmadeva's force and the center one is Viṣhṇu's Force."</b></font><br>
 <font size="+0"><b>1979-0530 Public Program, A Higher Life, A World of Bliss and Joy (The Three Paths of Evolution), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
