@@ -16,7 +16,7 @@ tags:
 
 <div style="text-align: center"><img src="/images/image259.png" /></div>
 
-<p style="color:green; text-align:center;">
+<p style="text-align:center;">
 <font color="DarkRed">"Even William Blake has prophesized absolutely about Sahaja Yoga. He said that, "God of men [men of God] will become Prophets and they will have powers to make others Prophets." "</font>
 <font size="+0"><b>1982-1009 Public Program, Cambridge, UK
 </b></font>
@@ -49,7 +49,7 @@ Bring me my Chariot of fire!<br>
 I will not cease from Mental Fight,<br>
 Nor shall my sword sleep in my hand:<br>
 Till we have built Jerusalem,<br>
-In Englands green & pleasant Land.<b></font></font><br>
+In Englands green & pleasant Land.</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=ZaVqVTjV4po&feature=youtu.be">video</a>
 </p>
 
