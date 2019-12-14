@@ -34,9 +34,9 @@ Socrates Sai Nirmala mayi</b><br>
 <div style="text-align: center"><img src="/images/image265.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>“Gurūr Brahmā Gurūr Viṣhṇu Gurūr devo Maheshwara, Gurūr sākshāt Parabrahma tasmai Śhrī Guru
+<font color="DarkGreen">“Gurūr Brahmā Gurūr Viṣhṇu Gurūr devo Maheshwara, Gurūr sākshāt Parabrahma tasmai Śhrī Guru
 Dev namaḥ.”<br>
-"The Guru is Brahmā [creator], Viṣhṇu [sustainer] and Mahesh [destroyer] and the Guru who is himself God, I offer My obeisance to him."</b><br>
+"The Guru is Brahmā [creator], Viṣhṇu [sustainer] and Mahesh [destroyer] and the Guru who is himself God, I offer My obeisance to him."</font><br>
 <font size="+0"><b>1973-1209 Public Program (Hindi),  Birla Kreeda Kendra, Mumbai,  India</b></font>
 <font size="+0"><font color="DarkGreen">Guru Vandana</font></font><br>
 <a href="https://www.youtube.com/watch?v=xw-C4g4swo4&list=PL407136734B2B056D&index=7">video</a>
