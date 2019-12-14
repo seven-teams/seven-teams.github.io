@@ -3,8 +3,8 @@ title: '2019 Celebrating the Birthday of Śhrī William Blake'
 date: 2019-11-28
 permalink: /festivity/2019/11/28
 tags:
-  - Śhrī William Blake
-  
+  - Shri William Blake
+
 --- 
 
 ![PICTURE 1](/images/image1.png)
