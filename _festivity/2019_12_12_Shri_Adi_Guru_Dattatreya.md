@@ -5,6 +5,8 @@ permalink: /festivity/2019/12/02
 tags:
   - Shri Adi Guru Dattatreya
 
+---
+
 ![PICTURE 1](/images/image1.png)
 
 <p>
