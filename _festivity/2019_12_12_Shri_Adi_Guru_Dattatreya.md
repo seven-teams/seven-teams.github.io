@@ -37,19 +37,20 @@ Socrates Sai Nirmala mayi</b><br>
 <font color="DarkGreen">“Gurūr Brahmā Gurūr Viṣhṇu Gurūr devo Maheshwara, Gurūr sākshāt Parabrahma tasmai Śhrī Guru
 Dev namaḥ.”<br>
 "The Guru is Brahmā [creator], Viṣhṇu [sustainer] and Mahesh [destroyer] and the Guru who is himself God, I offer My obeisance to him."</font><br>
-<font size="+0"><b>1973-1209 Public Program (Hindi),  Birla Kreeda Kendra, Mumbai,  India</b></font>
+<font size="+0"><b>1973-1209 Public Program (Hindi),  Birla Kreeda Kendra, Mumbai,  India</b></font><br>
 <font size="+0"><font color="DarkGreen">Guru Vandana</font></font><br>
 <a href="https://www.youtube.com/watch?v=xw-C4g4swo4&list=PL407136734B2B056D&index=7">video</a>
 </p>
 
 <p>
-<font color="DarkRed">"You know That. All  these people can feel it within themselves. It is the religion in their stomach. They can feel it. They can find out where is the religion because I say the religion in the stomach’s looked after by the Deity of the Primordial Master, whom we call as Dattātreya in the Sanskrit language. That doesn’t mean Hinduism.<br>
-It does not mean Hinduism at all. But He is called as Dattātreya in the Sanskrit language. In English He is the Primordial Master. He is the same who incarnated on this Earth as Moses, as Abraham and incarnated as Mohammad Sahib, as Rāja Janaka, as Nanaka and also as Shirdi Sāi Nāth. Can you believe that Mohammad Sahib is the same as our Nanak ...?<br>
+<font color="DarkRed">"You know That. All  these people can feel it within themselves. It is the religion in their stomach. They can feel it. <b>They can find out where is the religion because I say the religion in the stomach’s looked after by the Deity of the Primordial Master, whom we call as Dattātreya in the Sanskrit language. That doesn’t mean Hinduism.</b><br>
+It does not mean Hinduism at all. <b>But He is called as Dattātreya in the Sanskrit language. In English He is the Primordial Master.</b> He is the same who incarnated on this Earth as Moses, as Abraham and incarnated as Mohammad Sahib, as Rāja Janaka, as Nanaka and also as Shirdi Sāi Nāth. Can you believe that Mohammad Sahib is the same as our Nanak ...?<br>
 The living religion is within us ... Your religion automatically awakens and you just do not have to bother. Nobody has to tell you ... This is the religion that is within you, which is enlightened through Kuṇḍalinī and then it works out. But it is an absolute religion in the sense that you all feel the same."</font><br>
 <font size="+0"><b>1979-0507 Public Program, Bharatiya Vidyā Bhavan, London, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image266.png" /></div>
+<br>
 
 <p>
 <font color="DarkRed">"It is stated in the Purāṇas that the Ādi Guru Dattātreya worshiped Mother along the banks of the River Tamasa. Tamasa is the same as your Thames is, and He Himself came and worshiped here. And the Druids, those who had the manifestation of the Stonehenge and all that, are originated from that time, in this great country of Śhiva, or the Spirit."</font><br>
@@ -71,9 +72,9 @@ Please sing Her praises only ...</b></font><br>
 <b>Aei maan Guru Sharan. me rahio, rahio,<br> 
 He man Ma ki Sharan. Me rahio rahio</b><br>
 <font size="+0"><b>O my heart, please stay under the Guru’s Protection,<br>
-O my heart, please stay under the Mother’s Protection</b><br>
+O my heart, please stay under the Mother’s Protection</b></font><br>
 <b>Har. Pal. Nir.mala Nir.mala kahio,<br>
-He man Guru Sharan. me rahio, rahio...</b><br>
+He man Guru Sharan. me rahio, rahio ...</b><br>
 <font size="+0"><b>Please say Nirmala Nirmala every moment, 
 O my heart, please stay under the Guru’s Protection</b></font><br>
 <a href="https://www.youtube.com/watch?v=qRDLZNVcF6M">video</a>
