@@ -105,7 +105,7 @@ When your eyes are open you have to have faith in God."</font><br>
 
 <div style="text-align: center"><img src="/images/image262.png" /></div>
 
-<p>
+<p style="text-align:center;">
 <font color="DarkBlue"><b>"I am in you and you in me, mutual in divine love."</b></font><br>
 <b>Śhrī William Blake</b>
 </p>
