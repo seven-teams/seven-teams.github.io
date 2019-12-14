@@ -54,7 +54,7 @@ In Englands green & pleasant Land.</b></font></font><br>
 </p>
 
 <p>
-<font color="DarkRed">"So many seekers have taken birth today on this Earth. Especially England it’s described by William Blake that these times are going to come when England is going to become Jerusalem. ‘Jerusalem’ means ‘where it will be pilgrimage.’ For people will think this is the Holy Land of God. That people will come to this Holy Land, to visit this place. So the people have to be holy, they have to. It’s not the trees that are going to become holy, it is not the land that is going to be holy but it’s the people. Their hearts are going to be holy.<br> 
+<font color="DarkRed">"So many seekers have taken birth today on this Earth. Especially England it’s described by William Blake that these times are going to come when England is going to become Jerusalem. <b>‘Jerusalem’ means ‘where it will be pilgrimage.’</b> For people will think this is the Holy Land of God. That people will come to this Holy Land, to visit this place. So the people have to be holy, they have to. It’s not the trees that are going to become holy, it is not the land that is going to be holy but it’s the people. Their hearts are going to be holy.<br> 
 Then how do they become holy? What happen to a person when he really becomes holy? We talk of saints. We talk of prophets. What is the difference between these revered people and ordinary people? There’s only one difference. The difference is this: that in their attention, in their central nervous system, there is the light of their Spirit. While for the other people, they live in ignorance without this light of the Spirit. The Spirit exists in every one of us. It is always there, present, all the time. It’s Omnipresent. It’s all the time present within us. But the problem is that we are not aware of it, that it is not shining in our attention, in our awareness."</font><br>
 <font size="+0"><b>1982-0730 Public Program, Community and Leisure Centre,  Mytholmroyd, Yorkshire, UK</b></font>
 </p>
@@ -64,7 +64,7 @@ Then how do they become holy? What happen to a person when he really becomes hol
 <p style="text-align:center;">
 <font color="DarkRed">"If you have faith God wants to establish it. Only your faith works it.<br>
 But the faith in Sahaja Yoga, as you know, has to be the faith of Spirit, of the experience, is not blind faith.<br>
-When your eyes are open you have to have faith in God."<br>
+When your eyes are open you have to have faith in God."</font><br>
 <font size="+0"><b>1982-1126 Talk to Sahaja Yogis, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
