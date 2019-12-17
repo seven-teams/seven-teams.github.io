@@ -1,5 +1,5 @@
 ---
-permalink: /Videos_Links
+permalink: /Videos_Links_Raw
 title: "Videos Links"
 excerpt: "Videos Links"
 author_profile: false
