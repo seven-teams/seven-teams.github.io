@@ -98,7 +98,7 @@ O my heart, please stay under the Guru’s Protection</b></font><br>
 
 <p>
 <font color="green"><b>Guru Ki Mahima (2001-0706 Evening Program, Cabella)</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=gPtkxft14L4">video</a>
 </p>
  
 <p>
