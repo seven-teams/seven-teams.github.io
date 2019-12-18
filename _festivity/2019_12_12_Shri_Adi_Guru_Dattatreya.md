@@ -95,8 +95,6 @@ O my heart, please stay under the Guru’s Protection</b></font><br>
 <font color="green"><b>Omkar Swarupa (1991-0406 Bhavasagara Puja)</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
-<a href="https://www.youtube.com/watch?v=aRQPUNzYWqA&feature=youtu.be">video</a>
-</p>
 
 <p>
 <font color="green"><b>Guru Ki Mahima (2001-0706 Evening Program, Cabella)</b></font><br>
