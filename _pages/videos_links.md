@@ -10,11 +10,6 @@ author_profile: false
 <font color="green"><b>Omkar Swarupa (1991-0406 Bhavasagara Puja)</b></font><br>
 <a href="https://www.youtube.com/watch?v=aRQPUNzYWqA&feature=youtu.be">video</a>
 </p>
-
-<p>
-<font color="green"><b>Guru Ki Mahima (2001-0706 Evening Program, Cabella)</b></font><br>
-<a href="https://www.youtube.com/watch?v=gPtkxft14L4">video</a>
-</p>
  
 <p>
 <font color="green"><b>Namanat Karo (I bow to Lotus Feet of my Guru)</b></font><br>
