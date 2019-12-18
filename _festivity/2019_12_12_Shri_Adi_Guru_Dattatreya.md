@@ -93,12 +93,14 @@ O my heart, please stay under the Guru’s Protection</b></font><br>
 
 <p>
 <font color="green"><b>Omkar Swarupa (1991-0406 Bhavasagara Puja)</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+</p>
 <a href="https://www.youtube.com/watch?v=aRQPUNzYWqA&feature=youtu.be">video</a>
 </p>
 
 <p>
 <font color="green"><b>Guru Ki Mahima (2001-0706 Evening Program, Cabella)</b></font><br>
-<a href="https://www.youtube.com/watch?v=gPtkxft14L4">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
@@ -108,7 +110,7 @@ O my heart, please stay under the Guru’s Protection</b></font><br>
 
 <p>
 <font color="green"><b>Guru Totz Mhanavi Kara Mazha (1999-0801 Guru Puja, Cabella)</b></font><br>
-<a href="https://www.youtube.com/watch?v=NmK3OTRAc2U">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <div style="text-align: center"><img src="/images/image268.png" /></div>
