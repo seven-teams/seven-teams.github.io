@@ -198,7 +198,7 @@ author_profile: false
 </p>
 
 <p>
-<font color=""><b>Mahāmāyā Mahākālī, Jay Sherawali</b></font><br>
+<font color="green"><b>Mahāmāyā Mahākālī, Jay Sherawali</b></font><br>
 <a href="https://www.youtube.com/watch?v=RtV1vuDJDnM">video</a> 
 </p>
 
@@ -793,7 +793,7 @@ Shubhmangalmaye diwas hai aaya</font><br>
 <a href="https://www.youtube.com/watch?v=VQCbvlXTQhI"> video</a><br>
 
 <p>
-<font color=""><b>Vand n Karuya Matajila</b></font><br>
+<font color="green"><b>Vand n Karuya Matajila</b></font><br>
 <a href="https://www.youtube.com/watch?v=LttGjMLmpW4">video</a> 
 </p>
 

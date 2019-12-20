@@ -97,7 +97,7 @@ Sahaja Yoga, as you know, has a double action, as the Mahakali has a double acti
 </p>
  
 <p>
-<font color=""><b>Mahāmāyā Mahākālī, Jay Sherawali</b></font><br>
+<font color="green"><b>Mahāmāyā Mahākālī, Jay Sherawali</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 

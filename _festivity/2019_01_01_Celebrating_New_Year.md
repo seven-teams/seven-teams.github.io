@@ -84,7 +84,7 @@ I appear very innocent sometimes, but My innocence is complete intelligence, I t
 </p>
  
 <p>
-<font color=""><b>Vand n Karuya Matajila</b></font><br>
+<font color="green"><b>Vand n Karuya Matajila</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
