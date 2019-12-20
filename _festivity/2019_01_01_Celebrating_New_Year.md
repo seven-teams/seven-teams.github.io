@@ -90,7 +90,7 @@ I appear very innocent sometimes, but My innocence is complete intelligence, I t
 
 <p>
 <font color="green"><b>Jaya He Jaya He Devi</b></font><br>
-<a href=https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
