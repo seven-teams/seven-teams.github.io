@@ -93,7 +93,7 @@ O Mother, please place them on my head too, taking mercy on me</font><br>
 
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
-<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
 <p>
@@ -108,8 +108,9 @@ O Mother, please place them on my head too, taking mercy on me</font><br>
  
 <p>
 <font color="green"><b>Omkar Pradhana Rup Ganeshache</b> by Saint Tukaram</font><br>
-<a href="https://www.youtube.com/watch?v=ks7SUsrbB-c">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
+
 <p>
 <font color="green"><b>Jai Jai Bolo Nirmal Ganesha Ki</b></font><br>
 (Victory to Shri Ganesha, Australian song book, Hindi supplement Page 66)<br>

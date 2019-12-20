@@ -39,13 +39,13 @@ No matter what questions you have, just stay in thoughtlessness."</font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">2000-0304 Evening Program At Mahashivaratri Puja, Pune, India</font>
-<a href="https://www.youtube.com/watch?time_continue=9634&v=ug7Z5Q88N3o"> video</a><br>
+<a href="https://www.youtube.com/watch?v=ug7Z5Q88N3o"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
 <font color="green"><b>Shiv Bhola Bhandari</b></font><br>
-<a href="https://www.youtube.com/watch?v=UbzQMIX2CaU"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
 <p>

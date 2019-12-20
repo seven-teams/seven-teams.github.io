@@ -25,7 +25,7 @@ Who is Śhrī Saraswatī, Śhrī Aditi (Mother of the Gods), the Daughter of Dak
 and the Consort of Śhrī Śhiva.</b></font><br>  
 <font size="+0">(Śhrī Devī Atharva Śhīrṣha)<br>
 <b>Śhrī Devī Atharva Śhīrṣha in the presence of Śhrī Mātājī</b></font><br>
-<a href="http://www.youtube.com/embed/_bURbs5FExs?hl=en&fs=">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -77,7 +77,7 @@ Sahaja Yoga, as you know, has a double action, as the Mahakali has a double acti
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1999-1017 Navarātri Pūjā (8th Day), The Powers of Śhrī Mahākālī, Hangar (now Nirmal Temple), Albera Ligure, Italy</font>
-<a href="https://www.youtube.com/watch?v=Ck0mMuTD0cY"> video</a>
+<a href="https://www.youtube.com/watch?v=QwyRO5tPwsw"> video</a>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -98,8 +98,9 @@ Sahaja Yoga, as you know, has a double action, as the Mahakali has a double acti
  
 <p>
 <font color=""><b>Mahāmāyā Mahākālī, Jay Sherawali</b></font><br>
-<a href="https://www.youtube.com/watch?v=RtV1vuDJDnM">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
+
 <p>
 <font color="green"><b>He Bhavānī Bhagavatī Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=lA1ePxfg-Sc">video</a> 

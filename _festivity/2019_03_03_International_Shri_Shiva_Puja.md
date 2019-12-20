@@ -47,7 +47,7 @@ Sar Tumhari Bhakti Me<br>
 Hai Koti Surya Ka Prakash<br>
 Shiv Tumhari Shakti Mein</b><br>
 Shesha (the Serpent God) is coiled around Your neck like a garland. In His devotion to You, Shesha is doing a joyful dance by rhythmically swaying His head from side to side. The power of Your Shakti (Shiv Shakti) is illuminating Your Being as well as the cosmos with the radiance of a thousand suns.</font><br>
-<a href="https://www.youtube.com/watch?v=d4l6ZiyTIHI&feature=youtu.be">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -112,7 +112,7 @@ composed by Shri Adi Shankaracharya)<br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1995-0226 Śhivarātri Pūjā, How to Get Detached and Ascend, Castle Mountain Camp, 256 Webbs Creek Road, Wisemans Ferry, New South Wales, Australia</font>
-<a href="https://www.youtube.com/watch?v=sASiZyu141g"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -124,18 +124,18 @@ composed by Shri Adi Shankaracharya)<br>
 <p>
 <font color="green"><b>Bolo Shiv Shiva Shambhu Bam Bam Bam</b></font><br>
 (Hindi 118 - Australian edition Songbook)<br>
-<a href="https://www.youtube.com/watch?v=ELUhrdEYsM8">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
 <font color="green"><b>Dam Dam  Dam Dam Damaru Baje</b></font><br>
 (Hindi 116 - Australian edition Songbook)<br>
-<a href="https://www.youtube.com/watch?v=z0KRpdPHb84">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
 <font color="green"><b>Shiva Aarti</b></font><br>
-<a href="https://www.youtube.com/watch?v=QE6J_z3g4sQ">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>

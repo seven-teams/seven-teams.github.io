@@ -21,7 +21,7 @@ is called as such].</font><br>
 <font size="+0"><b>1995-03xx Conversation with K.T. Tan, Kuala Lumpur, Malaysia</b></font><br>
 <font color="MidNightBlue"><b>Auṃ Twameva sākshāt Śhrī <i>Kātyāyanī</i> sākshāt Śhrī Adi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 <b>Namostute (Mantra of Śhrī Kātyāyanī is taken):</b><br>
-<a href="https://www.youtube.com/embed/xlhoVI-SylQ?hl=en&fs=1">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -41,7 +41,7 @@ Sarv Pāp Hare Devī<br>
 Who creates terror in the demon Kolhāsur and<br>
 Who is the Goddess removing all sins.</b><br>
 <font color="DarkGreen"><b>Śhrī Mahālakṣhmī Stotram</b></font></font><br>
-<a href="https://www.youtube.com/watch?v=OqHJsJS5zNs">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -85,7 +85,7 @@ Salutations be to You, O Kātyāyanī<br>
 
 <font size="+2"><b>Havan for America</b></font>
 <font size="+0">1983-0821 Havan for America, after the Mother Earth and Śhrī Mahālakṣhmī Pūjā, Garden, Āśhram, 102 Ditton Road, Surbiton, London, UK</font>
-<a href="https://www.youtube.com/watch?v=AwnAoZGBvsM"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -101,7 +101,7 @@ Salutations be to You, O Kātyāyanī<br>
 
 <p>
 <font color="green"><b>Parameśhwarī Bhagavatī Nirmalā</b></font><br>
-<a href="https://www.youtube.com/watch?v=B-PAuhUfuv4">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>

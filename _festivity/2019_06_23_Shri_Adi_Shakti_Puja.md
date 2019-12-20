@@ -133,7 +133,7 @@ Shri Mataji I Have received second birth from You</font></font><br>
 
 <p>
 <font color="green"><b>Tujhya Pujani 2001-0707 Guru Puja, Cabella</b></font><br>
-<a href="https://www.youtube.com/watch?v=iJiGVlWeUlA"> video</a><br>
+<a href=https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
 <p>
@@ -150,14 +150,15 @@ Shri Mataji I Have received second birth from You</font></font><br>
 <font color="green"><b>Nirmal Maa Jagdambe Maa</b></font><br>
 <a href="https://www.youtube.com/watch?v=bkuIgsoTXoo">video</a> 
 </p>
+
 <p>
 <font color="green"><b>Sabko Dua Dena Ma and Three Mahamantras</b></font><br>
-<a href="https://www.youtube.com/watch?v=lGC_kUMmabQ&index=95&list=PLC8554007A2C98EA0">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
 <font color="green"><b>Sat Janam Jo Punya kiye Hai</b></font><br>
-<a href="https://www.youtube.com/watch?v=oFGGshAsz2Q">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>

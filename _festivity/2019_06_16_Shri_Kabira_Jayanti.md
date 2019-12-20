@@ -86,7 +86,7 @@ All glory to the Guru who showed me the path to God)<br>
 Guru Bin Kaun Batave Baat.<br>
 (Who will give the divine knowledge except Guru?)</font><br>
 <b>Guru bin Kaun, 1997-0720 Guru Puja, Cabella</b><br>
-<a href="https://www.youtube.com/watch?v=7jjdlluWX8Q">video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
@@ -97,7 +97,7 @@ Guru Bin Kaun Batave Baat.<br>
 
 <p>
 <font color="green"><b>Shri Mataji enjoying some Kabira Bhajans sung during Devi Puja in Rahuri on 1987-1221</b></font><br>
-<a href="https://www.youtube.com/watch?v=BiszQxm8Wfs&list=PLB618CDA4FEC74AE6&index=27"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
 <p>

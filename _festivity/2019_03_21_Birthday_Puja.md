@@ -30,7 +30,7 @@ Aaj Prakriti Khil, Phul Rahi Hai<br>
 Phool Khile, Bhanware Khag Mil Ke<br>
 Rachaita Ke, Hi Gun Gaayen<br>
 Shubhmangalmaye diwas hai aaya</font><br>
-<a href="https://www.youtube.com/watch?v=SYNRxZSzeDk">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -129,17 +129,17 @@ Shri Mataji I have received second birth from You.</font><br>
 
 <p>
 <font color="green"><b>Tujhya pujani</b></font><br>
-<a href="https://www.youtube.com/watch?v=iJiGVlWeUlA"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
 <p>
 <font color="green"><b>Vanadana kare vandana</b></font><br>
-<a href="https://www.youtube.com/watch?v=5cvyH3ZkXJQ">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
 <font color="green"><b>Powada</b></font><br>
-<a href="https://www.youtube.com/watch?v=vTeBPNpyDmM">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>

@@ -118,7 +118,7 @@ You are the destroyer of fears and distresses<br>
 
 <p>
 <font color="green"><b>Jay Gan raya, Shri Gan raya</b></font><br>
-<a href="https://www.youtube.com/watch?v=0dit4be9pK0">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
