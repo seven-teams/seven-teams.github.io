@@ -58,7 +58,7 @@ majesty of the tiger and the lion."</font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1993-0803 Adi Shakti Puja Talk, Togliatti, Russia</font>
-<a href="https://www.youtube.com/watch?time_continue=5013&v=sLZiyGkIDIE"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 

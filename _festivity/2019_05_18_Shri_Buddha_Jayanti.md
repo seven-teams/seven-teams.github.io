@@ -59,7 +59,7 @@ Now this right side gives you a kind of a ego which troubles everyone, but you c
 today to open this chakra.<br>
 At the level of the Āgñyā chakra there are thoughts. Because you are all<br>
 connected with the same Divine Force there can be no difference of opinion."</b></font><br>
-<font size="+0"><b>1990-0514 Śhrī Buddha Pūjā, Saint Petersburg, Russia</b><,/
+<font size="+0"><b>1990-0514 Śhrī Buddha Pūjā, Saint Petersburg, Russia</b></font>
 </p>
 
 <p>

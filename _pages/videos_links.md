@@ -601,6 +601,15 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
+2019 Celebrating Palm Sunday and International Mahavira Puja
+
+<p>
+<font color="green"><b>Hallelujah Mesiah</b> by Handel</font><br>
+<a href="https://www.youtube.com/watch?time_continue=2&v=wvoCSOoTGjg"> video</a><br>
+</p>
+
+<br>
+
 2019 Worshipping Shri Kundalini: “When the Kundalini moves, She makes vibrations”
 
 <font size="+2"><b>Suggested Talk:</b></font>
