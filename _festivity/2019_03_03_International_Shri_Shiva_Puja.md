@@ -107,7 +107,7 @@ Yadnyat-Karma Karomi Tat-Tad-Akhilam Shambho Tava-Araadhanam |</b>
 ... Whatever work I do, all that is Your Aradhana (Worship), O Shambhu.<br>
 (Shiva Manasa Puja - Ratnai Kalpitam Asanam<br>
 composed by Shri Adi Shankaracharya)<br>
-<a href="https://www.youtube.com/watch?v=48S8X66Nz7c">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 

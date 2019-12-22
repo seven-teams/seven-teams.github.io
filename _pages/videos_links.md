@@ -703,6 +703,12 @@ Shubhmangalmaye diwas hai aaya</font><br>
 <a href="https://www.youtube.com/watch?v=d4l6ZiyTIHI&feature=youtu.be">video</a>
 </p>
 
+</p>
+(Shiva Manasa Puja - Ratnai Kalpitam Asanam<br>
+composed by Shri Adi Shankaracharya)<br>
+<a href="https://www.youtube.com/watch?v=48S8X66Nz7c">video</a>
+</p>
+
 <p>
 <a href="https://www.youtube.com/watch?v=sASiZyu141g"> video</a><br>
 
