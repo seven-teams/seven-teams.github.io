@@ -115,7 +115,7 @@ I bow at the feet of Śhrī Rāmachandra.<br>
  
 <p>
 <font color="green"><b>Raghu Pati Raghav</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.htmlI">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>

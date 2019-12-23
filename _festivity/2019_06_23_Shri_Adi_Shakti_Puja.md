@@ -133,7 +133,7 @@ Shri Mataji I Have received second birth from You</font></font><br>
 
 <p>
 <font color="green"><b>Tujhya Pujani 2001-0707 Guru Puja, Cabella</b></font><br>
-<a href=https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
 <p>

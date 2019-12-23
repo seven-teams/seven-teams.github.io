@@ -141,4 +141,3 @@ You bless the sanctity of the marriage union.</b><br>
 <font size="+0">Jai Śhrī Mātājī!<br>
 On behalf of the festivity team!</font>
 </p>
-On behalf of the festivity team!</font>

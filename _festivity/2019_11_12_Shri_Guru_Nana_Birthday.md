@@ -68,7 +68,7 @@ May God bless you!"</b></font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1980-1123 Śhrī Guru Nāṇaka Jayanti Pūjā,  Temple of All Faiths, Hampstead, London, UK (perhaps Caxton Hall) </font>
-<a href="https://www.youtube.com/watch?v=WxZmETTX3_M"> video</a><br>
+<a href="https://www.youtube.com/watch?v=WxZmETTX3_M"> audio</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
