@@ -19,7 +19,7 @@ So today we have to remember how He incarnated on this Earth, the innocence, the
 <div style="text-align: center"><img src="/images/image274.png" /></div>
 
 <p style="text-align:center;">
-<font size="-1"><font color="DarkGreen"><b>Let our ears hear that which is true; let our eyes see that which is pure;<br>
+<font size="-1"><font color="Blue"><b>Let our ears hear that which is true; let our eyes see that which is pure;<br>
  let our beings praise that which is divine, and let those who listen hear not my voice but the wisdom of God.<br>
 Let us worship with the auspicious song, the appropriate strength, and the propitious knowledge; and let our meditation enlighten and enrich.<br> 
 Let there be amongst us compassion and peace.</b></font></font>
@@ -62,8 +62,8 @@ Today is a very auspicious day as on Tuesday we are celebrating Christmas Eve an
 
 <p>
 <font color="blue"><b>Hark the Herald Angels Sing (sung in English and Marathi) (Shri Mataji reading and singing from the songbook)
-O come, let us adore Him<br>
-Carols 1998-1224 Christmas Eve, Gaṇapatīpuḷe</b></font><br>
+O come, let us adore Him</<br>
+<font color="MediumVioletRed">Carols 1998-1224 Christmas Eve, Gaṇapatīpuḷe</b></font><br>
 <a href="https://www.youtube.com/watch?v=rTOSAzUMN0k&feature=youtu.be"> video</a><br>
 </p>
 
