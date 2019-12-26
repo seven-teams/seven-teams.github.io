@@ -16,18 +16,6 @@ So today we have to remember how He incarnated on this Earth, the innocence, the
 <font size="+0"><b>1990-1224 Talk to Sahaja Yogis, About Śhrī Jesus, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image.png" /></div>
-
-<p style="color:green; text-align:center;">
-<b></b><br>
-<br>
-<b></b><br>
-<br>
-<b></b><br>
-<br>
-<a href="">video</a>
-</p>
-
 <div style="text-align: center"><img src="/images/image274.png" /></div>
 
 <p style="text-align:center;">
