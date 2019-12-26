@@ -10,7 +10,8 @@ tags:
 
 ![PICTURE 1](/images/image1.png)
 
-<p>Christ’s work was very unique. The whole thing was a very unique thing, was planned in such a manner that He was to be born in a place, because was very humble, very humble place. Because He came to teach us humility. The word teaching in English language means telling about it, talking about it.<br>
+<p>
+<font color="DarkRed">"Christ’s work was very unique. The whole thing was a very unique thing, was planned in such a manner that He was to be born in a place, because was very humble, very humble place. Because He came to teach us humility. The word teaching in English language means telling about it, talking about it.<br>
 But when I say ‘teach’, I mean create, you activate within us humility.<br>
 Actually He came on this Earth, first of all, to create a space within us, at the Āgñyā chakra, by removing the hurdles of the ego, hurdles of the ego. He had to talk of humility that time, because Romans were ruling and they were very arrogant, very crude, uncouth, underdeveloped, we should say, not at all evolved."</font><br>
 <font size="+0"><b>1981-1225 Christmas Pūjā, Āśhram, 44 Chelsham Road, Clapham, London, UK </b></font>
