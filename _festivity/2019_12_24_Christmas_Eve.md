@@ -1,9 +1,11 @@
 ---
-title: '2019 Celebrating'
+title: '2019 Celebrating Christmas Eve'
 date: 2019-12-24
 permalink: /festivity/2019/12/24
 tags:
-  - Diwali
+  - Christmas Eve
+  - Ganapatipule Seminar
+  
 ---
 
 ![PICTURE 1](/images/image1.png)

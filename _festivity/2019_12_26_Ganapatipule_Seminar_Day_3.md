@@ -4,7 +4,8 @@ date: 2019-12-26
 permalink: /festivity/2019/12/26
 tags:
   - Christmas 
-  - Gaṇapatīpuḷe Seminar
+  - Ganapatipule Seminar
+  
 ---
 
 ![PICTURE 1](/images/image1.png)
