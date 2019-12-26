@@ -62,7 +62,7 @@ Today is a very auspicious day as on Tuesday we are celebrating Christmas Eve an
 
 <p>
 <font color="blue"><b>Hark the Herald Angels Sing (sung in English and Marathi) (Shri Mataji reading and singing from the songbook)<br>
-O come, let us adore Him</<br>
+O come, let us adore Him<br>
 <font color="MediumVioletRed">Carols 1998-1224 Christmas Eve, Gaṇapatīpuḷe</b></font><br>
 <a href="https://www.youtube.com/watch?v=rTOSAzUMN0k&feature=youtu.be"> video</a><br>
 </p>
