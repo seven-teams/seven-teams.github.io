@@ -31,6 +31,8 @@ You are born of the Spirit.</b>
 <font size="+0"><b>1988-1224 Talk to Sahaja Yogis, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
+<div style="text-align: center"><img src="/images/image272.png" /></div>
+
 <p style="color:DarkRed; text-align:center;">
 <b>You are Lord Kārttikeya<br>
 You are Śhrī Mahāgaṇeśha.<br>
@@ -48,7 +50,7 @@ Once we attain the state of thoughtless awareness, no perversion will remain in 
 <font size="+0"><b>1986-0101 Śhrī Mahāgaṇeśha Pūjā (English+Marathi), Malgund (2.4 kms N of Gaṇapatīpuḷe), Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image272.png" /></div>
+<div style="text-align: center"><img src="/images/image273.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
 <b>You are loved by our Mother.</b>
@@ -60,9 +62,6 @@ You guard the gate of our Mother.</b>
 You are the Son of God.</b>
 You are the only way to the Kingdom of God.</b></b> 
 </p>
-
-
-<div style="text-align: center"><img src="/images/image273.png" /></div>
 
 <p>
 In words of Khalil Gibran, `The Crucified':<br>
