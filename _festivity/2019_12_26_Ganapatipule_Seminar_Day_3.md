@@ -53,14 +53,14 @@ Once we attain the state of thoughtless awareness, no perversion will remain in 
 <div style="text-align: center"><img src="/images/image273.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
-<b>You are loved by our Mother.</b>
-You are the one who is chosen.</b>
-You are awakened in all Sahaja Yogis.</b>
-You ride the white horse at the end of the age.</b>
-You are the end of our fears.</b>
-You guard the gate of our Mother.</b>
-You are the Son of God.</b>
-You are the only way to the Kingdom of God.</b></b> 
+<b>You are loved by our Mother.<br>
+You are the one who is chosen.<br>
+You are awakened in all Sahaja Yogis.<br>
+You ride the white horse at the end of the age.<br>
+You are the end of our fears.<br>
+You guard the gate of our Mother.<br>
+You are the Son of God.<br>
+You are the only way to the Kingdom of God.</b>
 </p>
 
 <p>
