@@ -5,6 +5,15 @@ excerpt: "Videos Links"
 author_profile: false
 ---
 
+2019 "Christ life is a symbolically, can be called as the Symbol of Purity and Holiness"
+
+<p>
+<font color="green"><b>He Prem Murti Jagi Ale</b></font><br>
+<a href="https://www.youtube.com/watch?v=iiiTTV9MUgY&feature=youtu.be"> video</a><br>
+</p>
+
+<br>
+
 2019 Celebrating the Birthday of Śhrī Ādi Guru Dattātreya <a href="https://seven-teams.github.io/festivity/2019/12/02">link</a>
 <p>
 <font color="green"><b>Omkar Swarupa (1991-0406 Bhavasagara Puja)</b></font><br>
