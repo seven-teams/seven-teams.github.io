@@ -5,6 +5,14 @@ excerpt: "Videos Links"
 author_profile: false
 ---
 
+2019 " ‘Peace on Earth’. He came to create peace on Earth."
+
+<font size="+2"><b>Suggested Talk:</b></font> 
+<font size="+0"><b>1987-0103 Śhrī Nirmalā Devī Pūjā (English+Marathi), Gaṇapatīpuḷe, Maharashtra, India</b></font>
+<a href="https://www.youtube.com/watch?v=NiqFR2IPsVo&feature=emb_logo"> video</a><br>
+
+<br>
+
 2019 "Christ life is a symbolically, can be called as the Symbol of Purity and Holiness"
 
 <p>
