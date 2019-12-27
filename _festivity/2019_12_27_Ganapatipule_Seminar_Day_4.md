@@ -45,8 +45,8 @@ Humble means not asking for your own comfort but comfort of others."</font><br>
 <p style="text-align:center;">
 <font color="DarkRed">Auṃ Twameva sākshāt Śhrī Śhāntā sākshāt<br>
 Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</font><br>
-<font size="+0"><b>O Divine Mother, You are verily Silence and Peace.<br>
-Salutations to You!</b></font><br>
+<font color="DarkRed"><font size="+0"><b>O Divine Mother, You are verily Silence and Peace.<br>
+Salutations to You!</b></font></font><br>
 </p>
 
 <p>
