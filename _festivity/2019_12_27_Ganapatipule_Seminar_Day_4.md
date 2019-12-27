@@ -19,7 +19,7 @@ And He would not stand any nonsense: nobody could take liberties with Him. But H
 <font size="+0"><b>1981-1225 Christmas Pūjā, You Have to Be Peaceful, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image274.png" /></div>
+<div style="text-align: center"><img src="/images/image276.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">You are peace.<br>
@@ -40,7 +40,7 @@ Humble means not asking for your own comfort but comfort of others."</font><br>
 <font size="+0"><b>1982-0607 Talk to Sahaja Yogis, Nirmala Palace Āśhram, 99 Nightingale Lane, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image275.png" /></div>
+<div style="text-align: center"><img src="/images/image277.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">Auṃ Twameva sākshāt Śhrī Śhāntā sākshāt<br>
@@ -55,7 +55,7 @@ Salutations to You!</b></font><br>
 <font size="+0"><b>1982-0704 Talk to Sahaja Yogis, Guru Pūrṇimā Seminar, Nirmala Palace Āśhram, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image276.png" /></div>
+<div style="text-align: center"><img src="/images/image278.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">We bow to the One who is the only son of His virgin mother<br> 
@@ -74,7 +74,7 @@ May God bless you."</font><br>
 <font size="+0"><b>1981-1225 Christmas Pūjā, You Have to Be Peaceful, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image277.png" /></div>
+<div style="text-align: center"><img src="/images/image279.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"There’s a mantra for the Goddess: <b>“Yā Devī sarvabhūteśhu, Śhānti rūpeṇa saṃsthitā.”</b><br>
