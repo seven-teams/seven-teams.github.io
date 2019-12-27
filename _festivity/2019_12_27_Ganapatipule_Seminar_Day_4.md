@@ -24,7 +24,7 @@ And He would not stand any nonsense: nobody could take liberties with Him. But H
 <p style="text-align:center;">
 <font color="DarkRed">You are peace.<br>
 You absorb all thought.<br>
-You abide in the Ādi Āgñyā Chakra.<br>
+You abide in the Ādi Āgñyā Chakra.</font><br>
 </p>
 
 <p>
