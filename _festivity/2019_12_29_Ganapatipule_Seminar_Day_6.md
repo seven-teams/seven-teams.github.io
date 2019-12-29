@@ -62,7 +62,7 @@ Going to the higher life, we have to see that, as we are spiritual people, we ha
 <div style="text-align: center"><img src="/images/image284.png" /></div>
 
 <p style="text-align:center;">
-<b>The bride and the bridegroom both say:</b>
+<b>The bride and the bridegroom both say:</b><br>
 <font size="-1"><font color="DarkRed"><b>Shri Adi Shakti Mataji Nirmala Devi has put us in Holy Bandhan, by our marriage, and this is a very great fortune by this act of Mataji as Mahayagnya.<br>
 We will offer everything to Her Feet that is our health, wealth, mind and heart.<br>
 We will take an oath that we will be loyal to each other.<br>
@@ -81,6 +81,11 @@ We will bring our children up in Sahaja Yoga and that is our duty.</b><br>
 <font color="green"><b>Matajinche swapna sakarile</b></font><br>
 (sung during weddings)<br>
 <a href="https://www.youtube.com/watch?v=V6gBx-pxh44"> video</a><br>
+</p>
+
+<p>
+<font color="green"><b>Qawwalis</b></font><br>
+<a href="http://vimeo.com/album/1605726/video/107291207"> video</a><br>
 </p>
 
 <p>
