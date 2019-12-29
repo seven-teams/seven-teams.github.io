@@ -47,8 +47,8 @@ So the first you have to accept that you belong to this religion. Then there won
 <div style="text-align: center"><img src="/images/image283.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Lakshmi Narayana sākṣhāt 
-Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ/b></font><br>
+<font color="DarkGreen"><b><i>Auṃ Twameva sākṣhāt Śhrī Lakshmi Narayana sākṣhāt 
+Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</i></b></font><br>
 </p>
 
 <p>
