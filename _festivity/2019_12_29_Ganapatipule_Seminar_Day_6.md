@@ -25,8 +25,8 @@ Neehara bhanu dara muchalitham vareethum,<br>
 Mohavahaam tribhuvanasya bhajamahe thwam.</font><br>
 <font size="-1"><font color="DarkRed">In your own home, you took in your hand the wedding garland,<br>
 And with slow laugh sounding, like the pretty and soft sound of anklets,<br>
-You wedded the God who wore the crescent, And attracted all the three worlds and I sing your praise.<br> 
-(Prayers by Sage Durvasa)</font></font>
+You wedded the God who wore the crescent, And attracted all the three worlds and I sing your praise.</font></font><br> 
+(Prayers by Sage Durvasa)
 </p>
 
 <p>
