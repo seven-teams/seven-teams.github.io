@@ -83,7 +83,7 @@ Shri Mataji I have received second birth from You.<br>
 </p>
 
 <p>
-<font color="green"><i>Apne Panah Mein Hame Rakhna</i></font><br>
+<font size="-1"><i>Apne Panah Mein Hame Rakhna</i></font><br>
 <a href="https://www.youtube.com/watch?v=1zzMwHijwI0">video</a>
 </p>
 
