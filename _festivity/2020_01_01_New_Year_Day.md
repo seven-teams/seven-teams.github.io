@@ -3,7 +3,7 @@ title: '2020 Celebrating New Year Day: "Start something afresh to ourselves, to 
 date: 2020-01-01
 permalink: /festivity/2020/01/01
 tags:
-  - Diwali
+  - New Year Day
 ---
 
 ![PICTURE 1](/images/image1.png)
