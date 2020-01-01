@@ -31,7 +31,7 @@ Let all the people, let all the Sahaja Yogis raise their voices from the top of 
 
 <div style="text-align: center"><img src="/images/image286.png" /></div>
 
-<p style="color:DarkRed; text-align:center;">
+<p style="color:Purple; text-align:center;">
 <b>Thank you</b> for letting us participate in the salvation of mankind.<br>
 <b>Thank you</b> for giving us the joy of introducing a yearning seeker to Your redeeming Motherly Love.<br>
 <b>Thank you</b> for inviting all of us to the court of the Goddess.<br>
