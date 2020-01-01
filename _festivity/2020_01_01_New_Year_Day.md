@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating New Year Day: "Start something afresh to ourselves, to others, to your Mother, to your Guru. '
+title: '2020 Celebrating New Year Day: "Start something afresh to ourselves, to others, to your Mother, to your Guru." '
 date: 2020-01-01
 permalink: /festivity/2020/01/01
 tags:
