@@ -9,7 +9,7 @@ tags:
 ![PICTURE 1](/images/image1.png)
 
 <p>
-<font color="DarkRed">"So today is a day of a new year and we should think why do we have new years – what is the need to have a new year? We want something new that you start something afresh to ourselves, to others, to your Mother, to your Guru. That you have to get out of the clutches of ignorance and darkness. That you have to get out of the bondage's of ego. That you have to become absolutely a free glorious personality.<br>
+<font color="DarkRed">"So today is a day of a new year and we should think why do we have new years – what is the need to have a new year? We want something new that you start something afresh to ourselves, to others, to your Mother, to your Guru. That you have to get out of the clutches of ignorance and darkness. That you have to get out of the bondages of ego. That you have to become absolutely a free glorious personality.<br>
 And that you have to fight the superego influences and all the bad conditionings should be thrown as torn clothes and should wear new beautiful clothes of Sahaja Yogis.<br>
 Let all the people, let all the Sahaja Yogis raise their voices from the top of their houses and top of their mountains, the top of their higher positions. Broadcast to the whole world, inform the whole people that you have found the Truth and everybody has to find the Truth, otherwise there is no escape. That you have found the joy and that everyone has to find it and everybody must work to get to it."</font><br>
 <font size="+0"><b>1985-1116 Talk to Sahaja Yogis, Racism, during the Evening Program, after dinner the day before Diwālī Pūjā, Tivoli, Italy</b></font>
