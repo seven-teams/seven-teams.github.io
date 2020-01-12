@@ -22,7 +22,7 @@ Let me keep my life so beautiful,<br>
 <b>"Ye chaadar rishi muni jann odhi, Odhi ke meli kini chadariya,<br>
 Daas Kabir jatan se odhi, Jaisi ki taisi rakh dini chadariya."</b></font><br>
 <font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font><br>
-<a href="https://www.youtube.com/watch?v=tZRibru_9Gw">audio</a><br>
+<a href="https://www.youtube.com/watch?v=tZRibru_9Gw">video</a><br>
 (1986 India Tour: 8 chakras and 5 elements)<br>
 </p>
 
@@ -86,18 +86,18 @@ All glory to the Guru who showed me the path to God)<br>
 Guru Bin Kaun Batave Baat.<br>
 (Who will give the divine knowledge except Guru?)</font><br>
 <b>Guru bin Kaun, 1997-0720 Guru Puja, Cabella</b><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<a href="https://www.youtube.com/watch?v=7jjdlluWX8Q">video</a><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1987-1218 Talk to Sahaja Yogis, On Kabīr, after Evening Program, Aurangabad, Maharashtra, India</font>
-<a href="https://www.youtube.com/watch?v=sboIoojWkxY&list=PLB618CDA4FEC74AE6&index=1"> audio</a><br>
+<a href="https://www.youtube.com/watch?v=sboIoojWkxY&list=PLB618CDA4FEC74AE6&index=1"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
 <font color="green"><b>Shri Mataji enjoying some Kabira Bhajans sung during Devi Puja in Rahuri on 1987-1221</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://www.youtube.com/watch?v=BiszQxm8Wfs&list=PLB618CDA4FEC74AE6&index=27"> video</a><br>
 </p>
 
 <p>

@@ -37,7 +37,7 @@ For thine is the Father,<br>
 The children and the glory,<br>
 Forever and ever, Amen.</i></b></font><br>
 <font size="+0"><b>Mother's Prayer (1986-0713 Shrī Kārttikeya Pūjā, Grosshartpenning, Münich, Germany)</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=tHm8jefq9bk">video</a>
 </p>
 
 <p>

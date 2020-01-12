@@ -47,11 +47,11 @@ It exists in everything and you have to feel it. That’s what we call as the Co
 <p style="text-align:center;">
 <font color="DarkGreen"><b>On this very auspicious day, Shri Mataji please give us the desire to have Akshaya Pad.<br>
 Please bless us with that eternal love of God.</b></font><br>
-<font size="-1"><font color="DarkRed"><b>Kuṇḍalinī Kuṇḍalinī Nirmalā Mātā, Mātā Mā<br>
+<font size="-1"><font color="DarkRed"><b>Kundalini Kundalini Nirmala Mata, Mata Ma<br>
 Jai Nirmala Shakti, Bhagawati, Nirmal Bhakti<br>
-Ādi Śhakti, Nirmalā Devī, Nirmalā Mātā Mātājī</b><br>
-Kuṇḍalinī Kuṇḍalinī</font></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+Adi Shakti, Nirmala Devi, Nirmala Mata Mataji</b><br>
+Kundalini Kundalini</font></font><br>
+<a href="https://www.youtube.com/watch?v=eA5CQ3iSK2A"> video</a><br>
 </p>
 
 <p>
@@ -63,8 +63,8 @@ Let us all worship Shri Mataji sakshat Shri Adi Shakti and pray for eternally ri
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0">1992-0621 Śhrī Ādi Kuṇḍalinī Pūjā, Pure Love, Compassion, and Morality, Tent, Cabella Ligure, Italy</font>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<font size="+0">1992-0621 Śhrī Ādi Kuṇḍalinī Pūjā, Pure Love, Compassion, and Morality, Tent, Cabella Ligure, Italy</font></font>
+<a href="https://www.youtube.com/watch?v=EPQxjElAVMI"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 

@@ -96,22 +96,22 @@ O Divine Mother, You are verily Śhrī Bhairava, Salutations to You!</b></font>
 
 <p>
 <font color="green"><b>21 names of Shri Bhairava recited during Mahavira Puja in Perth</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://www.youtube.com/watch?v=mG3SI-nAyFo"> video</a><br>
 </p>
 
 <p>
 <font color="green"><b>Gajanana Shri Gan Raya</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="http://youtu.be/sDHdeRTcVjc">video</a>
 </p>
  
 <p>
 <font color="green"><b>Tujhya Vina</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
+<a href="http://youtu.be/pzk1kA7KAwc">video</a> 
 </p>
 
 <p>
 <font color="green"><b>Āratī and the Three Great Mantras</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
+<a href="http://youtu.be/a89XDrTOInY">video</a> 
 </p>
 
 <p>

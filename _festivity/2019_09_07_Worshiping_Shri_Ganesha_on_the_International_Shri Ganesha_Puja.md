@@ -88,7 +88,7 @@ Intelligence, so-called, is not wisdom. It can make you a very cunning, very agg
 <font size="-1"><b>Verily You are the Protector and Supporter of devotees</b></font><br>
 <b>Namami Shri Gan Raj Dayal</b><br>
 <font size="-1"><b>We bow to You, Compassionate Ganesha!</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://www.youtube.com/watch?v=K1R54Pk7-70"> video</a><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
@@ -99,12 +99,12 @@ Intelligence, so-called, is not wisdom. It can make you a very cunning, very agg
 
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4"> video</a><br>
 </p>
 
 <p>
 <font color="green"><b>108 Names of Shri Ganesha</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=LEoMVTD6Zuc">video</a>
 </p>
 
 <p>
@@ -141,3 +141,4 @@ You bless the sanctity of the marriage union.</b><br>
 <font size="+0">Jai Śhrī Mātājī!<br>
 On behalf of the festivity team!</font>
 </p>
+On behalf of the festivity team!</font>

@@ -94,13 +94,13 @@ I bow at the feet of Śhrī Rāmachandra.<br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</font>
-<a href="https://www.youtube.com/watch?v=xHsHXQnB9DE"> video</a><br>
+<a href="https://www.youtube.com/watch?time_continue=3&v=kfJdX2Vy-eU"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
 <font color="green"><b>Jai He Jai He Jai He Devī</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://www.youtube.com/watch?v=HvBIgQbSd3c"> video</a><br>
 </p>
 
 <p>
@@ -115,9 +115,8 @@ I bow at the feet of Śhrī Rāmachandra.<br>
  
 <p>
 <font color="green"><b>Raghu Pati Raghav</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
+<a href="https://www.youtube.com/watch?v=q4CXST4Bt-I">video</a> 
 </p>
-
 <p>
 <font color="green"><b>Ramrangi Rangale : Bhimsen Joshi</b></font><br>
 <a href="https://www.youtube.com/watch?v=o-_qx6VXMA4">video</a> 

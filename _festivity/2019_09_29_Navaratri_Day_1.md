@@ -103,7 +103,7 @@ if you say in a very rational manner, but to that Love that are these Feet it ma
 
 <p>
 <font color="green"><b>Gaṇeśha Atharva Sheersha</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4"> video</a><br>
 </p>
 
 <p>
@@ -113,12 +113,12 @@ if you say in a very rational manner, but to that Love that are these Feet it ma
 
 <p>
 <font color="green"><b>Jay Jagadambe bhajan sung at the Pūjā</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=KbUT-S2AcBY">video</a>
 </p>
  
 <p>
 <font color="green"><b>Ghane Ghane Jangala mein</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
+<a href="https://www.youtube.com/watch?v=IV9iyQnpEGw&feature=youtu.be">video</a> 
 </p>
 
 <div style="text-align: center"><img src="/images/image169.png" /></div>
@@ -134,7 +134,7 @@ This is the first work, by which whatever She is going to create now – all the
 <font size="+0"><b>1992-0927 Navarātri Pūjā (1st Day), Tent, Cabella Ligure, Italy</b></font><br>
 <br>
 Let us sing Namostute as an aarti to Her today on this auspicious first Day of Navarātri<br></font>
-Namostute: <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+Namostute: <a href="https://www.youtube.com/embed/xlhoVI-SylQ?hl=en&fs=1">video</a>
 </p>
 
 <p>

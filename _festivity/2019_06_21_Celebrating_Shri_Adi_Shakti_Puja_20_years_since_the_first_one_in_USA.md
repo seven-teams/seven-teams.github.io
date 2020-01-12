@@ -121,11 +121,11 @@ We would like to begin a three day celebration and worshiping of Shri Mataji in 
 <font color="DarkRed"><b>O Shri Adi Shakti, O Shri Mataji, we thank You again and again! Please allow us to worship You and never to sway away from Your Vision and Path. Please deliver us from all wrong doings and shortcomings so that we can establish Your Kingdom in the Holy Land of America.</b></font>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.<br><a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.<br><a href="https://www.youtube.com/watch?time_continue=33&v=50OO4np2ers"> video</a><br>
 
 <p>
 <font color="green"><b>THE 64 ADORATIONS OF SHRI ADI SHAKTI</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://www.youtube.com/watch?v=wj74gNpcy0s&index=48&list=PLC8554007A2C98EA0"> video</a><br>
 </p>
 
 <p>

@@ -27,7 +27,7 @@ When it reaches the agnya chakra<br>
 <b>Ka Ga Visawa<br>
 Ughad. Sahastrar. Mate</b><br>
 O Mother, please open the Sahasrara!<br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=JHpK7bJV6wM">video</a>
 </p>
 
 <p>
@@ -111,7 +111,7 @@ The most effective mantra you know is Nirmala, and that works the best for Sahas
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1989-0506 Sahasrāra Pūjā, Sahaja Yoga Is Nothing but Is Love (Whole Power of Sahasrāra is Love and Jump in the Ocean of Love), Theater Cinema della Rosa, Via delle Rose, 35, Sorrento, Italy</font>
-<a href="https://seven-teams.github.io/Videos_Links.html"> Part 1</a><br> <a href="https://seven-teams.github.io/Videos_Links.html"> Part 2</a><br>
+<a href="https://www.youtube.com/watch?time_continue=1&v=FbB7lAmYpOc"> Part 1</a><br> <a href="https://www.youtube.com/watch?time_continue=4865&v=FYjcXD4x1lg"> Part 2</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -122,7 +122,7 @@ The most effective mantra you know is Nirmala, and that works the best for Sahas
 
 <p>
 <font color="green"><b>Vandan Karuya Matajila</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=LttGjMLmpW4">video</a>
 </p>
 
 <p>
@@ -132,7 +132,7 @@ The most effective mantra you know is Nirmala, and that works the best for Sahas
  
 <p>
 <font color="green"><b>Jogawa</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=v-jT4DI13cE&feature=youtu.be">video</a>
 </p>
 
 <p>

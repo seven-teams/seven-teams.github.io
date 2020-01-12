@@ -109,17 +109,17 @@ Keep the hands one minute and give the promise to Śhrī Mātājī.</b><br>
 
 <p>
 <font color="green"><b>Namostute Namostute</b> (1987-0114 Makar Saṅkrānti Pūjā)</font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://vimeo.com/28872084">video</a>
 </p>
 
 <p>
 <font color="green"><b>Brahma Shodile</b> (1988-0110 Music after Makar Saṅkrānti Pūjā)</font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="http://youtu.be/T9C8MIBqAxc">video</a>
 </p>
  
 <p>
 <font color="green"><b>Sarva Mangala Mangale</b> (1987-0114 Makar Saṅkrānti Pūjā)</font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
+<a href="http://youtu.be/T_myaTlqb4Y">video</a> 
 </p>
 
 <div style="text-align: center"><img src="/images/image159.png" /></div>

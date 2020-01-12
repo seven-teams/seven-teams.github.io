@@ -56,7 +56,7 @@ I said yes, and then I got this photograph."</font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0">1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, Weilburg, Germany</font>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://www.youtube.com/watch?v=7uSGgzf6Rrg"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -75,12 +75,12 @@ Yet it characterises Your boundless and omnipresesnt and enigmatic form<br>
 
 <p>
 <font color="green"><b>Tujhya pujani 2001-0707 Guru Puja, Cabella</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=iJiGVlWeUlA">video</a>
 </p>
 
 <p>
 <font color="green"><b>Mahur gad wari</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=OQ53PXIz4w0">video</a>
 </p>
  
 <p>

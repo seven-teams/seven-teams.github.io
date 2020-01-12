@@ -101,7 +101,7 @@ Offer Prasad and perform Aarti to Shri Mataji. Then sit in meditation collective
 <font color="DarkRed"><b>Jaya Jagadambe Mā<br>
 Victory to the Divine Mother of the Universe!</b></font><br>  
 <b>Nav Durga ki</b><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=yuxz7SjLorw">video</a>
 </p>
 
 <p>

@@ -45,8 +45,8 @@ Make us like the Sufis and the Gnostics adoring You at every moment.</b></font><
 <a href="https://www.youtube.com/watch?v=HFCi8x1GiPI&feature=youtu.be">video</a>
 </p>
 
-<font size="+2"><b>Suggested Video:</b></font> 
-<font size="+0">1999-0619 Evening Program, the day before Śhrī Ādi Śhakti Pūjā, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</font>
+<font size="+2"><b>Suggested Talk:</b></font> 
+<font size="+0">1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</font>
 <a href="https://www.youtube.com/watch?v=aN-Z4JjZqx4"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>

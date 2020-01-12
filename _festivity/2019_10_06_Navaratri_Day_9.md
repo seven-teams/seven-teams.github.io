@@ -34,7 +34,7 @@ O Bestower of boons, only in You in all the three worlds!</b></font><br>
 Now please put full attention on the Pūjā, and don’t worry about what is happening outside. You can’t do the Pūjā them you have to be relaxed, otherwise you can’t do Pūjā – absolutely relaxed."</font><br>
 <font size="+0"><b>1992-0927 Navarātri Pūjā (1st Day), 10th Position or Divine Knowledge is the Reality, Tent, Cabella Ligure, Italy</b></font><br>
 <font color="green"><b>Binati Suniye Adi Shakti Mere</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
+<a href="https://www.youtube.com/watch?v=dnrt5n-vjQ0&feature=youtu.be">video</a> 
 </p>
 
 <div style="text-align: center"><img src="/images/image203.png" /></div>
@@ -106,7 +106,7 @@ O Devi, O Mahadevi, please protect us.</b></font>
 
 <p>
 <font color="green"><b>Vishwa Vandita</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
+<a href="https://youtu.be/-1L2orIZ1DU">video</a> 
 </p>
 
 <p>

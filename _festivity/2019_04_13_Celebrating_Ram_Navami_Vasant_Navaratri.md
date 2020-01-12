@@ -75,7 +75,7 @@ He is fondly picked into the laps of King Dasharath’s queens<br>
 <font size="+0"><b>1994-0405 Talk to Sahaja Yogis, Picnic, Lane Cove National Park, Lane Cone Valley Walk, West Pymble, Sydney, New South Wales, Australia</b></font>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 1982-0402 Śhrī Rāma Pūjā, Rāma Navamī, Āśhram, 44 Chelsham Road, Clapham, London, UK<br><a href="https://www.youtube.com/watch?v=geTIFWA_qX4"> audio</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 1982-0402 Śhrī Rāma Pūjā, Rāma Navamī, Āśhram, 44 Chelsham Road, Clapham, London, UK<br><a href="https://www.youtube.com/watch?v=geTIFWA_qX4"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 

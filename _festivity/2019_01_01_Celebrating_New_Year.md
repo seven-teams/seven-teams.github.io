@@ -69,7 +69,7 @@ I appear very innocent sometimes, but My innocence is complete intelligence, I t
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">2000-1231 New Year Puja Talk, Kalwe, India</font>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://www.youtube.com/watch?v=VQCbvlXTQhI"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -84,13 +84,13 @@ I appear very innocent sometimes, but My innocence is complete intelligence, I t
 </p>
  
 <p>
-<font color="green"><b>Vand n Karuya Matajila</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
+<font color=""><b>Vand n Karuya Matajila</b></font><br>
+<a href="https://www.youtube.com/watch?v=LttGjMLmpW4">video</a> 
 </p>
 
 <p>
 <font color="green"><b>Jaya He Jaya He Devi</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=zjnjqxBR-uA">video</a>
 </p>
 
 <p>

@@ -43,7 +43,7 @@ And they are all together somehow, these five days are all put together. So they
 <font color="DeepPink"><b>"Pink is Her fragrance, I think is spread on the sky."</b></font><br>
 <font size="+0"><b>1989-1029 Diwālī Pūjā (Diwālī Pāḍavā), Be Honest to Yourself, Auditorium, Gymnasium, Montecatini Terme, Italy</b></font><br>
 <font size="+0"><b>Aiya Deepo ka Tyohar</b> (the festival of lights is here):</font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="http://youtu.be/qrB9tXyh8lc ">video</a>
 </p>
 
 <p>

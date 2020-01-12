@@ -43,14 +43,14 @@ Let us manifest these qualities. This is what is to be asked."</b></font><br>
 The blessing, rope and goad<br>
 The fourth offers food to your devotees<br>
 As they worship their innocent Lord</b></font><br>
-Om Bhur Bhuvah:<a href="https://seven-teams.github.io/Videos_Links.html"> video</a>
+Om Bhur Bhuvah:<a href="https://www.youtube.com/watch?v=W1x0tWtTk_8"> video</a>
 </p>
 
 <p>
 <font color="Maroon">"But when Parvati made Shri Ganesha, He was the son of Parvati alone. There was no Father. Parvati Herself wanted to have a child of Her own. There were angels who were dedicated either to Vishnu or to Shiva, like ganas were dedicated to Shiva alone. So, She wanted to have Her own Son who can permeate Her powers on this Earth. So to begin with when the Shakti created this universe and Sadashiva was watching Her creation, the first thing She created on this Earth was innocence and the embodiment of that innocence was Shri Ganesha. The whole Universe was covered with innocence, which we call as Aumkara. This innocence protected all the creation of the world and penetrated into all that is matter."</font><br>
 <font size="+0"><b>1986-0907 Shri Ganesha Puja, San Diego, CA, USA</b></font><br>
 <br>
-<font color="Blue"><b>Jay Jay Janani Shri Ganesh Ki:</b></font><a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<font color="Blue"><b>Jay Jay Janani Shri Ganesh Ki:</b></font><a href="https://www.youtube.com/watch?v=CDgg_m-d3CQ"> video</a><br>
 </p>
 
 <div style="text-align: center"><img src="/images/image42.png" /></div>
@@ -73,7 +73,7 @@ Is the whole universe pervaded, Your powers are unsurpassed.<br></font>
 <font color="Crimson">"So the priorities have to change if Shri Ganesha is to be worshipped. What are we worshipping today is the innocence within us. We are worshipping that is auspicious, which is innocent. Innocence, which is deep down within us - that's our character, that's our nature, that's what we are born with - is the basic of this whole Creation; is the essence of this Creation."</font><br>
 <font size="+0"><b>1985-0804 Shri Ganesha Puja, The Importance of Chastity, Brighton, UK</b></font><br>
 <br>
-<font color="Blue"><b>Gajananah Shri Ganaraya:</b></font><a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<font color="Blue"><b>Gajananah Shri Ganaraya:</b></font><a href="https://www.youtube.com/watch?v=5fCd4wODKGg"> video</a><br>
 </p>
 
 <div style="text-align: center"><img src="/images/image43.png" /></div>
@@ -96,12 +96,12 @@ please give me wisdom and discrimination.<br></font>
 
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4">video</a><br>
 </p>
 
 <p>
 <font color="green"><b>Jai Jai Bolo Nirmal Ganesha Ki</b> (Victory to Shri Ganesha, Australian Song Book, Hindi supplement p. 66)</font><br>
-<a href="https://www.youtube.com/watch?v=9r2eVWLg4mo">video</a><br>
+<a href="https://www.youtube.com/watch?v=9r2eVWLg4m">video</a><br>
 </p>
 
 <p>
@@ -111,12 +111,12 @@ please give me wisdom and discrimination.<br></font>
 
 <p>
 <font color="green"><b>Gajananah Shri Ganaraya</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<a href="https://www.youtube.com/watch?v=5fCd4wODKGg">video</a><br>
 </p>
 
 <p>
 <font color="green"><b>Jay Jagadambe</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<a href="https://www.youtube.com/watch?v=KbUT-S2AcBY">video</a><br>
 </p>
 
 <p>
@@ -126,7 +126,7 @@ please give me wisdom and discrimination.<br></font>
 
 <p>
 <font color="green"><b>Shri Ganesha jai Shri Ganesha</b></font><br>
-<a href="https://www.youtube.com/watch?v=GCgN6qnmNiA">video</a><br>
+<a href="https://www.youtube.com/watch?v=GCgN6qnmNi">video</a><br>
 </p>
 
 <p>

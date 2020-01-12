@@ -62,7 +62,7 @@ The day the complete combination of this will happen then on both chakras the si
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1991-0228 Talk to Sahaja Yogis (Hindi+English), Raṃgavalī Holī Celebrations, New Delhi, India</font>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://www.youtube.com/watch?v=bc2lyMh6Beg"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -78,7 +78,7 @@ The day the complete combination of this will happen then on both chakras the si
 
 <p>
 <font color="green"><b>Krishna Govinda</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=H_-4d_cwBjE">video</a>
 </p>
  
 <p>

@@ -38,7 +38,7 @@ The sisters tie this bondage to the wrist of the brothers, and when we do that, 
 <p style="text-align:center;">
 <font size="-1"><b>Baba Mama, (March 1990): This is what the brother has written for the sister:<br>
 "O Nirmala, my sister, how much should I praise You? Because You have given the human being the experience of God."</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">Nirmalaa, Kiti Varnaavi Tujhiga Stuti</a>
+<a href="https://www.youtube.com/watch?v=ErGWNRdwSBE">Nirmalaa, Kiti Varnaavi Tujhiga Stuti</a>
 </p>
 
 <p>
@@ -117,7 +117,7 @@ Victory be to You, O Mother India!<br>
 <a href="https://www.youtube.com/watch?time_continue=4&v=380D3C1isCYo"> video</a><br>
 
 <br>
-<font size="+1"><b>Rakhi offered to Shri Mataji from America 1993 0815 Shri Krishna Puja, Dharma, Cabella</b><br><a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<font size="+1"><b>Rakhi offered to Shri Mataji from America 1993 0815 Shri Krishna Puja, Dharma, Cabella</b><br><a href="https://www.youtube.com/watch?v=5fwXzXBnz_o&feature=youtu.be"> video</a><br>
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>

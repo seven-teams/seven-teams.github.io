@@ -116,12 +116,12 @@ You will unite the nations of the Earth at the lotus feet of Shri Adi Shakti Nir
 
 <p>
 <font color="green"><b>Vrindavani Venu</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<a href="https://www.youtube.com/watch?v=5FHWzkQAjcA">video</a><br>
 </p>
 
 <p>
 <font color="green"><b>Krishna Govind</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<a href="https://www.youtube.com/watch?v=H_-4d_cwBjE">video</a><br>
 </p>
 
 <p>
@@ -131,12 +131,12 @@ You will unite the nations of the Earth at the lotus feet of Shri Adi Shakti Nir
 
 <p>
 <font color="green"><b>He Govind he Gopala</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<a href="https://www.youtube.com/watch?v=-duFOybhebA">video</a><br>
 </p>
 
 <p>
 <font color="green"><b>Shyam nam ke tu</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<a href="https://www.youtube.com/watch?v=ELo8z9CE-3Y">video</a><br>
 </p>
 
 <p>

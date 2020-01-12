@@ -65,18 +65,18 @@ O Divine Mother, You are verily Shri Mahavira. Salutations to You!<br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1991-0328 Śhrī Mahāvīra Pūjā, Left Side and Soul, Gidgegannup, Darling Ranges (45 kms NE of Perth), WA, Australia</font>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video, Part 1</a><br>
+<a href="https://www.youtube.com/watch?time_continue=1&v=0Xe63y5hiu8"> video, Part 1</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
 <font color="green"><b>21 names of Shri Bhairava recited during Shri Mahavira Puja in Perth</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://www.youtube.com/watch?v=mG3SI-nAyFo"> video</a><br>
 </p>
 
 <p>
 <font color="green"><b>Tujhya Vina</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=pzk1kA7KAwc&index=14&list=PL2DF5CA6DDD2E1E30">video</a>
 </p>
 
 <p>

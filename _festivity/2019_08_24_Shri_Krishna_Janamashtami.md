@@ -36,7 +36,7 @@ You are the integrated brain of divinity.<br>
 Sing every day the praise of Shri Krishna<br>
 Pyara Mohan Hriday me Bithaya Karo<br>
 Establish Shri Krishna, Who is the Charming One, within your heart!</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a>
+<a href="https://www.youtube.com/watch?v=H_-4d_cwBjE"> video</a>
 </p>
 
 <p>
@@ -120,22 +120,22 @@ Stotram by Shri Vallabhacharya in sanskrit (1479–1531 CE)<br>
 
 <p>
 <font color="green"><b>Keshava Madhava 1991-0901 Shri Krishna Puja</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<a href="https://www.youtube.com/watch?v=nJzN90-qk8Q">video</a><br>
 </p>
 
 <p>
 <font color="green"><b>Radha Krishna Bhajele 1987-0816 Shri Krishna Puja</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<a href="https://www.youtube.com/watch?v=P8g8UR1ZaU8&feature=youtu.be">video</a><br>
 </p>
 
 <p>
 <font color="green"><b>Offering of 16 crowns 1986 0823 Shri Krishna Puja, Friburg, Switzerland</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<a href="https://www.youtube.com/watch?v=FHvZ3lhwjSk">video</a><br>
 </p>
 
 <p>
 <font color="green"><b>Aarti 1987-0816 Shri Krishna Puja</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<a href="https://www.youtube.com/watch?v=DEzt1vmETlk">video</a><br>
 </p>
 
 <p>
