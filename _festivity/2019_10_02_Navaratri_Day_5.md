@@ -88,7 +88,7 @@ Who wore a garland of human skulls as an ornament and killed the demon Muṇḍa
 <font size="+0"><b>1977-0222 Public Program, Day 1, Delhi University, North Campus, Timarpur, New Delhi, India</b><br>
 Today the love of Śhrī Jagadamba is expressed</font><br>
 <font size="+0"><font color="DarkGreen"><b>Śhrī Jagadambe Aye re</b></font></font><br>
-<a href="https://www.youtube.com/watch?v=6tionHDqJo4"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
 <p>
@@ -132,12 +132,12 @@ Salutations to you O Kālarātrī (the longest night)<br>
 
 <p>
 <font color="green"><b>Śhrī Jagadambe Aye re</b></font><br>
-<a href="https://www.youtube.com/watch?v=6tionHDqJo4">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
 <font color="green"><b>Tere he Gun Gate hai</b></font><br>
-<a href="https://www.youtube.com/watch?v=rHzvd5Rzfvo&t=731s">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <div style="text-align: center"><img src="/images/image188.png" /></div>

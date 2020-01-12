@@ -19,7 +19,7 @@ tags:
 <p style="text-align:center;">
 <font color="DarkRed">"...... <b>'Palm Sunday' when Christ was received with all jubilations</b> ......"</font><br>
 <font size="+0"><b>1982-0407 Talk to Sahaja Yogis, 35th Wedding Anniversary, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, South West London, UK</b></font><br>
-<a href="https://www.youtube.com/watch?time_continue=2&v=wvoCSOoTGjg"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
 <p>

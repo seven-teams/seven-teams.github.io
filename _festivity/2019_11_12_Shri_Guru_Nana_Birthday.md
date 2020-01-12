@@ -68,13 +68,13 @@ May God bless you!"</b></font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1980-1123 Śhrī Guru Nāṇaka Jayanti Pūjā,  Temple of All Faiths, Hampstead, London, UK (perhaps Caxton Hall) </font>
-<a href="https://www.youtube.com/watch?v=WxZmETTX3_M"> video</a><br>
+<a href="https://www.youtube.com/watch?v=WxZmETTX3_M"> audio</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
 <font color="green"><b>Guru Ashtakam 1993 Guru Puja Cabella</b></font><br>
-<a href="https://www.youtube.com/watch?v=H2oWRPAEY_M&list=PLUEtF2j9oNtnS3rwo7C8qwWtuiJDbbtEx&index=14"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
 <p>
@@ -113,7 +113,7 @@ Religion consisteth not in wandering foreign countries<br>
 Or in bathing at places of pilgrimage.<br> 
 Abide pure amidst the impurities of the world</b></font><br>  
 Aarti - Gagan Main Thāl | Guru Nanak Āratī (recited by Guru Nanak)<br> 
-<a href="www.youtube.com/watch?v=72XrjKjT9ws">video</a><br> 
+<a href="https://www.youtube.com/watch?v=72XrjKjT9ws">video</a><br> 
 <b>Guru Nanak Dev</b> has imagined the entire universe decorated as a prayer platter on the altar of the almighty. The starting verses of the aarti are as follows:<br>
 Gagan mein thaal, rav chand deepak bane, taarka mandal janak moti dhoop malay aan lao, pawan chavro kare sagal ban raai phulant jyoti kaisi aarti hoye, bhavkhandana teri Āratī.
 Anhat sabad bajant bheri kaisi aarti hoye, bhavkhandana teri Āratī.<br>
