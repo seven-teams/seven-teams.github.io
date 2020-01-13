@@ -65,7 +65,7 @@ As what do You exist inside the human beings?'<br>
 Now, just introspect if you have these qualities within you or not, because they are given to you by the Goddess, by the Śhakti within you."</font><br>
 <font size="+0"><b>1997-1005 Navarātri Pūjā (6th Day), Cabella Ligure, Italy</b><br>
 <b>Yā Devī Sarvabhūteśhu</b> 2000-1008 Navarātri Pūjā, Cabella</font><br>
-<a href="https://www.youtube.com/watch?v=c11jL6LzviE">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <div style="text-align: center"><img src="/images/image173.png" /></div>
@@ -81,7 +81,7 @@ Like a tender, lovely spotless Lotus-petal the crescent Moon adorns Your forehea
 Your movements are like a graceful and playful group of Swans;<br>
 Like a swarm of bees to fragrant flowers, the stars adorn Your forehead. Victory to You<br>
 <font color="green"><font size="-1"><b>Ayi Giri Nandini:</b></font></font><br>
-<a href="https://www.youtube.com/watch?time_continue=9&v=P6OoX03hPBA">video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <font color="MidNightBlue"><b>Auṃ Twameva sākṣhāt Śhrī Chandraghaṇṭā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 <i>O Divine Mother, You are verily Śhrī Chandraghaṇṭā, the One who use the Moon as Her bell</i><br>
 Salutations to You!<br>
@@ -124,7 +124,7 @@ Sā ghaṇṭā pātu no devi pāpebhyo naḥ sutāniva.</b><br>
  
 <p>
 <font color="green"><b>Ādimāyā Aṃbābāī 1985-1217 Pūjā, House of Dr. Saṃghavī, Nasik</b></font><br>
-<a href="https://www.youtube.com/watch?v=R85teBs7rSE&feature=youtu.be">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <div style="text-align: center"><img src="/images/image175.png" /></div>

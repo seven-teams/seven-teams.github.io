@@ -20,7 +20,7 @@ tags:
 <b>Gurū Param’ātmā Pareshu<br>
 The Guru is the Supreme Spirit, God Almighty</b><br> 
 <font size="-1"><b>Guru Ashtakam</b></font><br>
-<a href="https://www.youtube.com/watch?v=H2oWRPAEY_M">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -63,7 +63,7 @@ May God bless you."</font><br>
 
 <p>
 <font color="Maroon"><b>Guru bin Kaun</b></font><br>
-<a href="https://www.youtube.com/watch?v=7jjdlluWX8Q">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>

@@ -98,7 +98,7 @@ It’s like that.</font><br>
 
 <p>
 <font color="green"><b>Omkar Pradhana Rup Ganeshache</b> by Saint Tukaram</font><br>
-<a href="https://www.youtube.com/watch?v=ks7SUsrbB-c"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
 <p>
@@ -108,7 +108,7 @@ It’s like that.</font><br>
 
 <p>
 <font color="green"><b>Jai Ganraya Shri Ganaraya</b></font><br>
-<a href="https://www.youtube.com/watch?v=0dit4be9pK0">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
@@ -118,12 +118,12 @@ It’s like that.</font><br>
 
 <p>
 <font color="green"><b>108 Names of Shri Ganesha</b></font><br>
-<a href="https://www.youtube.com/watch?v=LEoMVTD6Zuc">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
 <font color="green"><b>Namami Shri Gan Raj Dayal</b></font><br>
-<a href="https://www.youtube.com/watch?v=K1R54Pk7-70">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>

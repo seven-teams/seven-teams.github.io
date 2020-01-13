@@ -87,7 +87,7 @@ Spirit, full of beauty and love.</font><br>
 
 <p>
 <font color="green"><b>Isi Liye Mataji hamko</b></font><br>
-<a href="https://www.youtube.com/watch?v=oFGGshAsz2Q">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>

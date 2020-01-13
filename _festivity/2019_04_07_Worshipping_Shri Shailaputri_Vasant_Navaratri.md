@@ -45,12 +45,12 @@ You are the Essence of Peace and Bliss.<br>
 
 <p>
 <font color="green"><b>Jai Ganesha ji ke Ma Ambe</b></font><br>
-<a href="https://www.youtube.com/watch?v=KbUT-S2AcBY"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
 <p>
 <font color="green"><b>Isi Liye 1990-0923 Navaratri Puja, Geneva</b></font><br>
-<a href="https://www.youtube.com/watch?v=oFGGshAsz2Q">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -60,7 +60,7 @@ You are the Essence of Peace and Bliss.<br>
  
 <p>
 <font color="green"><b>Gajanana Shri Gana Raya</b></font><br>
-<a href="https://www.youtube.com/watch?v=sDHdeRTcVjc">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>

@@ -37,7 +37,7 @@ and at the time of the Dissolution of the World, You are the Destructive Power.<
 Sahaja Yogi: Shield.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b> Shield, shield, kavach. Kavach is shield, sorry kavach is shield!</font><br>
 <font size="+0"><b>1982-1009 Bestowing of Boons Pūjā, House of Maria Laventzi, Irchester, UK</b></font><br>
-Devī Kavach: <a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1"> video</a>
+Devī Kavach: <a href="https://seven-teams.github.io/Videos_Links.html"> video</a>
 </p>
 
 <p>
@@ -86,7 +86,7 @@ May You protect the universe!”<br>
 
 <p>
 <font color="green"><b>Durgati Harini Durga Ambe</b></font><br>
-<a href="https://www.youtube.com/watch?v=8wJBzMrRPHA"> video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a>
 </p>
 
 <p>
@@ -96,7 +96,7 @@ May You protect the universe!”<br>
 
 <p>
 <font color="green"><b>Isi Liye</b></font><br>
-<a href="https://www.youtube.com/watch?v=oFGGshAsz2Q"> video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a>
 </p>
 
 <p>
@@ -110,7 +110,7 @@ May You protect the universe!”<br>
 <font size="-1">Śhrī Kuṣhmāṇḍa (The one whose void contains the universe). She is considered the creator of the universe.<br>
 Often She is depicted as having eight or ten hands. She holds weapons, glitter, rosary, etc, in Her hands, and She rides a lion.<br>
 <font color="blue"><b>Navaratri Song</b></font>  <b>(9 description of 9 avatar of the goddess and 10th is when She sits on the lion)</b></font><br>
-<a href="www.youtube.com/watch?v=Fd4cyBJX73c"> video</a><br>
+<a href="https://www.youtube.com/watch?v=Fd4cyBJX73c"> video</a><br>
 <font color="DarkRed"><b>Aum Twameva Sakshat<br>
 Shri Kush-manda Sakshat Shri Adishakti Mataji Shri Nirmala Devyai Namo Namah!</b><br>
 <i>O Divine Mother, You are verily Shri Kush-manda, the one whose void contains the universe!<br>

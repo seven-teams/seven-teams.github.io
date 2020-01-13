@@ -61,7 +61,7 @@ She asks ‘Ko jāgarti?’ [Who has not awakened yet?]"</b></font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1984-0218 Śhrī Chandramā Pūjā (Marathi+English+Marathi), Vaitarna, Maharashtra, India</font>
-<a href="https://www.youtube.com/watch?time_continue=2093&v=lw5h5fnhqm4"> video</a><br>
+<a href="https://www.youtube.com/watch?v=jvM_S7HNjYM"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
