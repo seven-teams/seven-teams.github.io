@@ -446,7 +446,7 @@ author_profile: false
 2019 Shri Krishna Janamashtami: “Today we have decided to have Krishna Puja because America is the Krishna bhoomi”
 
 <p>
-<font color="green"><b>Krishna Govind. Govind Gaya Karo/b></font><br>
+<font color="green"><b>Krishna Govind. Govind Gaya Karo</b></font><br>
 <a href="https://www.youtube.com/watch?v=H_-4d_cwBjE"> video</a>
 </p>
 
