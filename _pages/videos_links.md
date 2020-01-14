@@ -5,6 +5,29 @@ excerpt: "Videos Links"
 author_profile: false
 ---
 
+2020 Celebrating Makar Sankranti: "On the day of Saṅkrānti, you should know that you have to please the Goddess who is sitting within you"
+
+<p>
+<font color="green"><b>Navgraha Strotra</b> (Stotra for the nine planets. The first stanza is in praise of Shri Surya)</font><br>
+<a href="https://youtu.be/feugPtjSqVE"> video</a>
+</p>
+
+<font size="+2"><b>Suggested Talk:</b></font> 
+<font size="+0"><b>1985-0114 Makar Sankranti Puja, Suryavanshi Hall, Mumbai, India</b></font>
+<a href="https://www.youtube.com/watch?time_continue=1&v=MX8whf99iZs&feature=emb_logo"> video</a><br>
+
+<p>
+<font color="green"><b>Sarva Mangala Mangale</b>(Makarsankranti Puja, 1987, Rahuri, India)</font><br>
+<a href="http://youtu.be/T_myaTlqb4Y">video</a>
+</p>
+ 
+<p>
+<font color="green"><b>Brahma Shodile</b> (1988 Music after Sakranti Puja)</font><br>
+<a href="http://youtu.be/T9C8MIBqAxc">video</a> 
+</p>
+
+<br>
+
 2019 " ‘Peace on Earth’. He came to create peace on Earth."
 
 <font size="+2"><b>Suggested Talk:</b></font> 
@@ -17,7 +40,7 @@ author_profile: false
 
 <p>
 <font color="green"><b>He Prem Murti Jagi Ale</b></font><br>
-<a href="https://www.youtube.com/watch?v=iiiTTV9MUgY&feature=youtu.be"> video</a><br>
+<a href="https://www.youtube.com/watch?v=iiiTTV9MUgY&feature=youtu.be"> video</a>
 </p>
 
 <br>
@@ -44,7 +67,7 @@ author_profile: false
 
 <p>
 <font color="green"><b>21 names of Shri Bhairava recited during Mahavira Puja in Perth</b></font><br>
-<a href="https://www.youtube.com/watch?v=mG3SI-nAyFo"> video</a><br>
+<a href="https://www.youtube.com/watch?v=mG3SI-nAyFo"> video</a>
 </p>
 
 <p>
@@ -68,7 +91,7 @@ author_profile: false
 
 <p>
 <font color="green"><b>Guru Ashtakam 1993 Guru Puja Cabella</b></font><br>
-<a href="https://www.youtube.com/watch?v=H2oWRPAEY_M&list=PLUEtF2j9oNtnS3rwo7C8qwWtuiJDbbtEx&index=14"> video</a><br>
+<a href="https://www.youtube.com/watch?v=H2oWRPAEY_M&list=PLUEtF2j9oNtnS3rwo7C8qwWtuiJDbbtEx&index=14"> video</a>
 </p>
 
 <br>
@@ -76,14 +99,14 @@ author_profile: false
 2019 Celebrating Diwālī: “This is the day of the – they call it in Marathi Bhāūbīj or Bhāī Dūj; or that is the Dvitīyā, the second day of the Moon.”
 
 <p>
-<font size="+0"><font color="Green"><b>Nirmala, Kiti Varnavi Tujhi ga Stuti</b></font></font><br>
+<font color="Green"><b>Nirmala, Kiti Varnavi Tujhi ga Stuti</b></font><br>
 <a href="http://youtu.be/ErGWNRdwSBE">video</a>
 </p>
 
 <p>
 <font color="green"><b>Tuzhe Rupa Paahuniyaa Mi danga zhalo ai</b></font><br>
 (Seeing Your serene and majestic look, we stand stunned and astonished)<br>
-<a href="http://youtu.be/rA_-R8LsPuc"> video</a><br>
+<a href="http://youtu.be/rA_-R8LsPuc"> video</a>
 </p>
 
 <p>
@@ -97,7 +120,7 @@ author_profile: false
 
 <p>
 <font color="green"><b>Shri Mahalakshmi Stotram</b></font><br>
-<a href="https://www.youtube.com/watch?v=OqHJsJS5zNs"> video</a><br>
+<a href="https://www.youtube.com/watch?v=OqHJsJS5zNs"> video</a>
 </p>
 
 <p>
@@ -111,7 +134,7 @@ author_profile: false
 
 <p>
 <font color="green"><b>Lakṣhmī Ali</b></font><br>
-<a href="https://www.youtube.com/watch?v=QQEav2Sqdkk"> video</a><br>
+<a href="https://www.youtube.com/watch?v=QQEav2Sqdkk"> video</a>
 </p>
 
 <p>
@@ -141,7 +164,7 @@ author_profile: false
 
 <p>
 <font color="green"><b>Andhar Phar Ahe (Śhrī Mātājī gives the meaning of the bhajan and sings along)</b></font><br>
-<a href="https://www.youtube.com/watch?v=Q-9epgyvADY&feature=youtu.be"> video</a><br>
+<a href="https://www.youtube.com/watch?v=Q-9epgyvADY&feature=youtu.be"> video</a>
 </p>
 
 <p>
@@ -155,7 +178,7 @@ author_profile: false
 
 <p>
 <font color="green"><b>Pavan Utsav ayya re</b></font><br>
-<a href="https://www.youtube.com/watch?v=r5xJgkI-8DE"> video</a><br>
+<a href="https://www.youtube.com/watch?v=r5xJgkI-8DE"> video</a>
 </p>
 
 <p>
@@ -173,7 +196,7 @@ author_profile: false
 2019 Celebrating Diwālī: The five days of Diwālī
 
 <p>
-<font size="+0"><b>Aiya Deepo ka Tyohar</b> (the festival of lights is here):</font><br>
+<font color="green"><b>Aiya Deepo ka Tyohar</b> (the festival of lights is here):</font><br>
 <a href="http://youtu.be/qrB9tXyh8lc ">video</a>
 </p>
 
@@ -183,7 +206,7 @@ author_profile: false
 
 <p>
 <font color="green"><b>Jai He Jai He Jai He Devī</b></font><br>
-<a href="https://www.youtube.com/watch?v=HvBIgQbSd3c"> video</a><br>
+<a href="https://www.youtube.com/watch?v=HvBIgQbSd3c"> video</a>
 </p>
 
 <p>
@@ -224,7 +247,7 @@ author_profile: false
 2019 Celebrating Navarātri (Day 6): Worshiping Śhrī Mātājī in the form of Śhrī Kātyāyanī
 
 <p>
-<b>Namostute (Mantra of Śhrī Kātyāyanī is taken):</b><br>
+<font color="green"><b>Namostute (Mantra of Śhrī Kātyāyanī is taken):</b></font><br>
 <a href="https://www.youtube.com/embed/xlhoVI-SylQ?hl=en&fs=1">video</a>
 </p>
 
@@ -248,8 +271,8 @@ author_profile: false
 2019 Celebrating Navarātri (Day 5): Worshiping Śhrī Mātājī in the form of Śhrī Skandamātā
 
 <p>
-<font size="+0"><font color="DarkGreen"><b>Śhrī Jagadambe Aye re</b></font></font><br>
-<a href="https://www.youtube.com/watch?v=6tionHDqJo4"> video</a><br>
+<font color="DarkGreen"><b>Śhrī Jagadambe Aye re</b></font><br>
+<a href="https://www.youtube.com/watch?v=6tionHDqJo4"> video</a>
 </p>
 
 <p>
@@ -267,7 +290,8 @@ author_profile: false
 2019 Celebrating Navarātri (Day 4): Worshiping Śhrī Mātājī in the form of Śhrī Kuṣhmāṇḍa
 
 <p>
-Devī Kavach: <a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1"> video</a>
+<font color="green"><b>Devī Kavach</b></font><br> 
+<a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1"> video</a>
 </p>
 
 <p>
@@ -290,8 +314,8 @@ Devī Kavach: <a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1"> vi
 </p>
 
 <p>
-<font color="green"><font size="-1"><b>Ayi Giri Nandini:</b></font></font><br>
-<a href="https://www.youtube.com/watch?time_continue=9&v=P6OoX03hPBA">video</a><br>
+<font color="green"><b>Ayi Giri Nandini:</b></font><br>
+<a href="https://www.youtube.com/watch?time_continue=9&v=P6OoX03hPBA">video</a>
 </p>
 
 <p>
@@ -305,7 +329,7 @@ Devī Kavach: <a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1"> vi
 
 <p>
 <font color="green"><b>Gaṇeśha Atharva Sheersha</b></font><br>
-<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4"> video</a><br>
+<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4"> video</a>
 </p>
 
 <p>
@@ -319,17 +343,16 @@ Devī Kavach: <a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1"> vi
 </p>
 
 <p>
-Namostute: <a href="https://www.youtube.com/embed/xlhoVI-SylQ?hl=en&fs=1">video</a>
+<font color="green"><b>Namostute</b></font><br> 
+<a href="https://www.youtube.com/embed/xlhoVI-SylQ?hl=en&fs=1">video</a>
 </p>
 
 <br>
 
 2019 Navaratri Preparations
 
-<p style="text-align:center;">
-<font color="DarkRed"><b>Jaya Jagadambe Mā<br>
-Victory to the Divine Mother of the Universe!</b></font><br>  
-<b>Nav Durga ki</b><br>
+<p>
+	<font color="green"><b>Jaya Jagadambe Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=yuxz7SjLorw">video</a>
 </p>
 
@@ -347,14 +370,14 @@ Victory to the Divine Mother of the Universe!</b></font><br>
 2019 Worshiping Shri Ganesha on the International Shri Ganesha Puja
 
 <p>
-<b>Namami Shri Gan Raj Dayal</b><br>
+<font color="green"><b>Namami Shri Gan Raj Dayal</b></font><br>
 <font size="-1"><b>We bow to You, Compassionate Ganesha!</b></font><br>
-<a href="https://www.youtube.com/watch?v=K1R54Pk7-70"> video</a><br>
+<a href="https://www.youtube.com/watch?v=K1R54Pk7-70"> video</a>
 </p>
 
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
-<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4"> video</a><br>
+<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4"> video</a>
 </p>
 
 <p>
@@ -367,30 +390,31 @@ Victory to the Divine Mother of the Universe!</b></font><br>
 2019 Celebrating Ganesha Chaturthi
 
 <p>
-Om Bhur Bhuvah:<a href="https://www.youtube.com/watch?v=W1x0tWtTk_8"> video</a>
+<font color="green"><b>Om Bhur Bhuvah</b></font><br>
+	<a href="https://www.youtube.com/watch?v=W1x0tWtTk_8"> video</a>
 </p>
 
 <p>
-<font color="Blue"><b>Jay Jay Janani Shri Ganesh Ki:</b></font><a href="https://www.youtube.com/watch?v=CDgg_m-d3CQ"> video</a><br>
+<font color="Blue"><b>Jay Jay Janani Shri Ganesh Ki:</b></font><a href="https://www.youtube.com/watch?v=CDgg_m-d3CQ"> video</a>
 </p>
 
 <p>
-<font color="Blue"><b>Gajananah Shri Ganaraya:</b></font><a href="https://www.youtube.com/watch?v=5fCd4wODKGg"> video</a><br>
+<font color="Blue"><b>Gajananah Shri Ganaraya:</b></font><a href="https://www.youtube.com/watch?v=5fCd4wODKGg"> video</a>
 </p>
 
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
-<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4">video</a><br>
+<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4">video</a>
 </p>
 
 <p>
 <font color="green"><b>Gajananah Shri Ganaraya</b></font><br>
-<a href="https://www.youtube.com/watch?v=5fCd4wODKGg">video</a><br>
+<a href="https://www.youtube.com/watch?v=5fCd4wODKGg">video</a>
 </p>
 
 <p>
 <font color="green"><b>Jay Jagadambe</b></font><br>
-<a href="https://www.youtube.com/watch?v=KbUT-S2AcBY">video</a><br>
+<a href="https://www.youtube.com/watch?v=KbUT-S2AcBY">video</a>
 </p>
 
 <br>
@@ -399,22 +423,22 @@ Om Bhur Bhuvah:<a href="https://www.youtube.com/watch?v=W1x0tWtTk_8"> video</a>
 
 <p>
 <font color="green"><b>Vrindavani Venu</b></font><br>
-<a href="https://www.youtube.com/watch?v=5FHWzkQAjcA">video</a><br>
+<a href="https://www.youtube.com/watch?v=5FHWzkQAjcA">video</a>
 </p>
 
 <p>
 <font color="green"><b>Krishna Govind</b></font><br>
-<a href="https://www.youtube.com/watch?v=H_-4d_cwBjE">video</a><br>
+<a href="https://www.youtube.com/watch?v=H_-4d_cwBjE">video</a>
 </p>
 
 <p>
 <font color="green"><b>He Govind he Gopala</b></font><br>
-<a href="https://www.youtube.com/watch?v=-duFOybhebA">video</a><br>
+<a href="https://www.youtube.com/watch?v=-duFOybhebA">video</a>
 </p>
 
 <p>
 <font color="green"><b>Shyam nam ke tu</b></font><br>
-<a href="https://www.youtube.com/watch?v=ELo8z9CE-3Y">video</a><br>
+<a href="https://www.youtube.com/watch?v=ELo8z9CE-3Y">video</a>
 </p>
 
 <br>
@@ -422,27 +446,28 @@ Om Bhur Bhuvah:<a href="https://www.youtube.com/watch?v=W1x0tWtTk_8"> video</a>
 2019 Shri Krishna Janamashtami: “Today we have decided to have Krishna Puja because America is the Krishna bhoomi”
 
 <p>
+<font color="green"><b>Krishna Govind. Govind Gaya Karo/b></font><br>
 <a href="https://www.youtube.com/watch?v=H_-4d_cwBjE"> video</a>
 </p>
 
 <p>
 <font color="green"><b>Keshava Madhava 1991-0901 Shri Krishna Puja</b></font><br>
-<a href="https://www.youtube.com/watch?v=nJzN90-qk8Q">video</a><br>
+<a href="https://www.youtube.com/watch?v=nJzN90-qk8Q">video</a>
 </p>
 
 <p>
 <font color="green"><b>Radha Krishna Bhajele 1987-0816 Shri Krishna Puja</b></font><br>
-<a href="https://www.youtube.com/watch?v=P8g8UR1ZaU8&feature=youtu.be">video</a><br>
+<a href="https://www.youtube.com/watch?v=P8g8UR1ZaU8&feature=youtu.be">video</a>
 </p>
 
 <p>
 <font color="green"><b>Offering of 16 crowns 1986 0823 Shri Krishna Puja, Friburg, Switzerland</b></font><br>
-<a href="https://www.youtube.com/watch?v=FHvZ3lhwjSk">video</a><br>
+<a href="https://www.youtube.com/watch?v=FHvZ3lhwjSk">video</a>
 </p>
 
 <p>
 <font color="green"><b>Aarti 1987-0816 Shri Krishna Puja</b></font><br>
-<a href="https://www.youtube.com/watch?v=DEzt1vmETlk">video</a><br>
+<a href="https://www.youtube.com/watch?v=DEzt1vmETlk">video</a>
 </p>
 
 <br>
@@ -453,7 +478,6 @@ Om Bhur Bhuvah:<a href="https://www.youtube.com/watch?v=W1x0tWtTk_8"> video</a>
 <a href="https://www.youtube.com/watch?v=ErGWNRdwSBE">Nirmalaa, Kiti Varnaavi Tujhiga Stuti</a>
 </p>
 
-<br>
 <font size="+1"><b>Rakhi offered to Shri Mataji from America 1993 0815 Shri Krishna Puja, Dharma, Cabella</b><br><a href="https://www.youtube.com/watch?v=5fwXzXBnz_o&feature=youtu.be"> video</a><br>
 
 <br>
@@ -461,12 +485,12 @@ Om Bhur Bhuvah:<a href="https://www.youtube.com/watch?v=W1x0tWtTk_8"> video</a>
 2019 Guru Puja Celebration
 
 <p>
-<b>GURU EK. JAGI TRATA</b>
+<font color="green"><b>GURU EK. JAGI TRATA</b></font><br>
 <a href="https://www.youtube.com/watch?v=n50pGvJU-xs">video</a>
 </p>
 
 <p>
-<a href="https://www.youtube.com/watch?v=H2oWRPAEY_M">Guru Ashtakam 1993-0704 Guru Puja, Cabella</a><br>
+<a href="https://www.youtube.com/watch?v=H2oWRPAEY_M">Guru Ashtakam 1993-0704 Guru Puja, Cabella</a>
 </p>
 
 <p>
@@ -474,7 +498,7 @@ Om Bhur Bhuvah:<a href="https://www.youtube.com/watch?v=W1x0tWtTk_8"> video</a>
 </p>
 
 <p>
-<b>Guru Zhotz. Banavil. Mam. Mazha</b><br>
+<font color="green"><b>Guru Zhotz. Banavil. Mam. Mazha</b></font><br>
 The One who makes me my own Guru<br>
 <a href="https://www.youtube.com/watch?v=NmK3OTRAc2U">video</a>
 </p>
@@ -499,12 +523,12 @@ The One who makes me my own Guru<br>
 2019 Guru Purnima
 
 <p>
-<font size="-1"><b>Guru Ashtakam</b></font><br>
+<font color="green"><b>Guru Ashtakam</b></font><br>
 <a href="https://www.youtube.com/watch?v=H2oWRPAEY_M">video</a>
 </p>
 
 <p>
-<font color="Maroon"><b>Guru bin Kaun</b></font><br>
+<font color="green"><b>Guru bin Kaun</b></font><br>
 <a href="https://www.youtube.com/watch?v=7jjdlluWX8Q">video</a>
 </p>
 
@@ -514,7 +538,7 @@ The One who makes me my own Guru<br>
 
 <p>
 <font color="green"><b>Tujhya Pujani 2001-0707 Guru Puja, Cabella</b></font><br>
-<a href="https://www.youtube.com/watch?v=iJiGVlWeUlA"> video</a><br>
+<a href="https://www.youtube.com/watch?v=iJiGVlWeUlA"> video</a>
 </p>
 
 <p>
@@ -535,7 +559,7 @@ The One who makes me my own Guru<br>
 
 <p>
 <font color="green"><b>THE 64 ADORATIONS OF SHRI ADI SHAKTI</b></font><br>
-<a href="https://www.youtube.com/watch?v=wj74gNpcy0s&index=48&list=PLC8554007A2C98EA0"> video</a><br>
+<a href="https://www.youtube.com/watch?v=wj74gNpcy0s&index=48&list=PLC8554007A2C98EA0"> video</a>
 </p>
 
 <br>
@@ -543,13 +567,13 @@ The One who makes me my own Guru<br>
 2019 Shri Kabira Jayanti: “We become people of authority like Kabīra: how he sings, how he talks!”
 
 <p>
-<b>Guru bin Kaun, 1997-0720 Guru Puja, Cabella</b><br>
-<a href="https://www.youtube.com/watch?v=7jjdlluWX8Q">video</a><br>
+<font color="green"><b>Guru bin Kaun, 1997-0720 Guru Puja, Cabella</b></font><br>
+<a href="https://www.youtube.com/watch?v=7jjdlluWX8Q">video</a>
 </p>
 
 <p>
 <font color="green"><b>Shri Mataji enjoying some Kabira Bhajans sung during Devi Puja in Rahuri on 1987-1221</b></font><br>
-<a href="https://www.youtube.com/watch?v=BiszQxm8Wfs&list=PLB618CDA4FEC74AE6&index=27"> video</a><br>
+<a href="https://www.youtube.com/watch?v=BiszQxm8Wfs&list=PLB618CDA4FEC74AE6&index=27"> video</a>
 </p>
 
 <br>
@@ -566,8 +590,8 @@ The One who makes me my own Guru<br>
 2019 Akshaya Tritiya: “It is regarded as the most auspicious day to start anything”
 
 <p>
-Kuṇḍalinī Kuṇḍalinī<br>
-<a href="https://www.youtube.com/watch?v=eA5CQ3iSK2A"> video</a><br>
+<font color="green"><b>Kuṇḍalinī Kuṇḍalinī</b></font><br>
+<a href="https://www.youtube.com/watch?v=eA5CQ3iSK2A"> video</a>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
@@ -608,7 +632,7 @@ O Mother, please open the Sahasrara!<br>
 
 <p>
 <font color="green"><b>21 names of Shri Bhairava recited during Shri Mahavira Puja in Perth</b></font><br>
-<a href="https://www.youtube.com/watch?v=mG3SI-nAyFo"> video</a><br>
+<a href="https://www.youtube.com/watch?v=mG3SI-nAyFo"> video</a>
 </p>
 
 <p>
@@ -622,7 +646,7 @@ O Mother, please open the Sahasrara!<br>
 
 <p>
 <font color="green"><b>Hallelujah Mesiah</b> by Handel</font><br>
-<a href="https://www.youtube.com/watch?time_continue=2&v=wvoCSOoTGjg"> video</a><br>
+<a href="https://www.youtube.com/watch?time_continue=2&v=wvoCSOoTGjg"> video</a>
 </p>
 
 <br>
@@ -657,7 +681,7 @@ O Mother, please open the Sahasrara!<br>
 
 <p>
 <font color="green"><b>Jai Ganesha ji ke Ma Ambe</b></font><br>
-<a href="https://www.youtube.com/watch?v=KbUT-S2AcBY"> video</a><br>
+<a href="https://www.youtube.com/watch?v=KbUT-S2AcBY"> video</a>
 </p>
 
 <p>
@@ -676,7 +700,7 @@ O Mother, please open the Sahasrara!<br>
 
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
-<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4"> video</a><br>
+<a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4"> video</a>
 </p>
 
 <p>
@@ -695,7 +719,7 @@ O Mother, please open the Sahasrara!<br>
 
 <p>
 <font color="green"><b>Tujhya pujani</b></font><br>
-<a href="https://www.youtube.com/watch?v=iJiGVlWeUlA"> video</a><br>
+<a href="https://www.youtube.com/watch?v=iJiGVlWeUlA"> video</a>
 </p>
 
 <p>
@@ -717,7 +741,7 @@ O Mother, please open the Sahasrara!<br>
 <a href="https://www.youtube.com/watch?v=bc2lyMh6Beg"> video</a><br>
 
 <p>
-<font color="green"><b>Krishna Govinda</b></font><br>
+Suggested TalkKrishna Govinda</b></font><br>
 <a href="https://www.youtube.com/watch?v=H_-4d_cwBjE">video</a>
 </p>
 
@@ -730,12 +754,9 @@ O Mother, please open the Sahasrara!<br>
 </p>
 
 <p>
-(Shiva Manasa Puja - Ratnai Kalpitam Asanam composed by Shri Adi Shankaracharya)<br>
+<font color="green"><b>Shiva Manasa Puja - Ratnai Kalpitam Asanam</b> (composed by Shri Adi Shankaracharya)</font><br>
 <a href="https://www.youtube.com/watch?v=48S8X66Nz7c">video</a>
 </p>
-
-<p>
-<a href="https://www.youtube.com/watch?v=sASiZyu141g"> video</a><br>
 
 <p>
 <font color="green"><b>Bolo Shiv Shiva Shambhu Bam Bam Bam</b></font><br>
@@ -760,7 +781,7 @@ O Mother, please open the Sahasrara!<br>
 
 <p>
 <font color="green"><b>Shiv Bhola Bhandari</b></font><br>
-<a href="https://www.youtube.com/watch?v=UbzQMIX2CaU"> video</a><br>
+<a href="https://www.youtube.com/watch?v=UbzQMIX2CaU"> video</a>
 </p>
 
 <br>
@@ -768,7 +789,7 @@ O Mother, please open the Sahasrara!<br>
 2019 Mahasamadhi Day
 
 <p>
-<font size="+0"><b>Mother's Prayer (1986-0713 Shrī Kārttikeya Pūjā, Grosshartpenning, Münich, Germany)</b></font><br>
+<b>Mother's Prayer (1986-0713 Shrī Kārttikeya Pūjā, Grosshartpenning, Münich, Germany)</b><br>
 <a href="https://www.youtube.com/watch?v=tHm8jefq9bk">video</a>
 </p>
 
@@ -778,7 +799,7 @@ O Mother, please open the Sahasrara!<br>
 
 <p>
 <font color="green"><b>Omkar Pradhana Rup Ganeshache</b> by Saint Tukaram</font><br>
-<a href="https://www.youtube.com/watch?v=ks7SUsrbB-c"> video</a><br>
+<a href="https://www.youtube.com/watch?v=ks7SUsrbB-c"> video</a>
 </p>
 
 <p>

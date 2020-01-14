@@ -112,7 +112,7 @@ composed by Shri Adi Shankaracharya)<br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1995-0226 Śhivarātri Pūjā, How to Get Detached and Ascend, Castle Mountain Camp, 256 Webbs Creek Road, Wisemans Ferry, New South Wales, Australia</font>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://www.youtube.com/watch?v=sASiZyu141g"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 

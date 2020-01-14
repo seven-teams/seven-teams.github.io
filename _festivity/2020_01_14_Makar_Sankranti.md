@@ -73,12 +73,12 @@ Salutations to Lord Divakara (the Sun), who shines like Japakusuma (Hibiscus) fl
 who shines brilliantly, who is the enemy of darkness, and who destroys all sins.<br>
  <b>Navgraha Strotra</b><br>
 (Stotra for the Nine Planets. The first stanza is in praise of Shri Surya)<br>
-<a href="https://youtu.be/feugPtjSqVE">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1985-0114 Makar Sankranti Puja, Suryavanshi Hall, Mumbai, India</b></font>
-<a href="https://www.youtube.com/watch?time_continue=1&v=MX8whf99iZs&feature=emb_logo"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -94,12 +94,12 @@ who shines brilliantly, who is the enemy of darkness, and who destroys all sins.
 
 <p>
 <font color="green"><b>Sarva Mangala Mangale</b>(Makarsankranti Puja, 1987, Rahuri, India)</font><br>
-<a href="http://youtu.be/T_myaTlqb4Y">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
 <font color="green"><b>Brahma Shodile</b> (1988 Music after Sakranti Puja)</font><br>
-<a href="http://youtu.be/T9C8MIBqAxc">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <div style="text-align: center"><img src="/images/image296.png" /></div>
