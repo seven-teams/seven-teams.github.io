@@ -531,7 +531,7 @@ The One who makes me my own Guru<br>
 
 2019 Celebrating Shri Adi Shakti Puja: 20 years since the first Shri Adi Shakti Puja in USA, in the 114 acres land She has purchased 25 years ago in Fort Plain, Up-state New York
 
-font size="+2"><b>Suggested Talk:</b></font> 1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.<br><a href="https://www.youtube.com/watch?time_continue=33&v=50OO4np2ers"> video</a><br>
+<font size="+2"><b>Suggested Talk:</b></font> 1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.<br><a href="https://www.youtube.com/watch?time_continue=33&v=50OO4np2ers"> video</a>
 
 <p>
 <font color="green"><b>THE 64 ADORATIONS OF SHRI ADI SHAKTI</b></font><br>
@@ -566,7 +566,7 @@ font size="+2"><b>Suggested Talk:</b></font> 1999-0620 Śhrī Ādi Śhakti Pūj�
 2019 Akshaya Tritiya: “It is regarded as the most auspicious day to start anything”
 
 <p>
-Kuṇḍalinī Kuṇḍalinī</font></font><br>
+Kuṇḍalinī Kuṇḍalinī<br>
 <a href="https://www.youtube.com/watch?v=eA5CQ3iSK2A"> video</a><br>
 </p>
 
@@ -729,9 +729,8 @@ Shubhmangalmaye diwas hai aaya</font><br>
 <a href="https://www.youtube.com/watch?v=d4l6ZiyTIHI&feature=youtu.be">video</a>
 </p>
 
-</p>
-(Shiva Manasa Puja - Ratnai Kalpitam Asanam<br>
-composed by Shri Adi Shankaracharya)<br>
+<p>
+(Shiva Manasa Puja - Ratnai Kalpitam Asanam composed by Shri Adi Shankaracharya)<br>
 <a href="https://www.youtube.com/watch?v=48S8X66Nz7c">video</a>
 </p>
 
