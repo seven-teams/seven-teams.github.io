@@ -744,7 +744,7 @@ O Mother, please open the Sahasrara!<br>
 <a href="https://www.youtube.com/watch?v=bc2lyMh6Beg"> video</a><br>
 
 <p>
-Suggested TalkKrishna Govinda</b></font><br>
+<font color="green"><b>Krishna Govinda</b></font><br>
 <a href="https://www.youtube.com/watch?v=H_-4d_cwBjE">video</a>
 </p>
 
