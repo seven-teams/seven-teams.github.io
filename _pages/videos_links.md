@@ -481,7 +481,7 @@ author_profile: false
 <p>
 <b>Rakhi offered to Shri Mataji from America 1993 0815 Shri Krishna Puja, Dharma, Cabella</b><br>
 <a href="https://www.youtube.com/watch?v=5fwXzXBnz_o&feature=youtu.be"> video</a>
-</p>p
+</p>
 
 <br>
 
