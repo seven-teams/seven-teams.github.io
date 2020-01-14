@@ -210,7 +210,7 @@ author_profile: false
 2019 Celebrating Navarātri (Day 7): Worshiping Śhrī Mātājī in the form of Śhrī Kālarātrī
 
 <p>
-<b>Śhrī Devī Atharva Śhīrṣha in the presence of Śhrī Mātājī</b></font><br>
+<font color="DarkGreen"><b>Śhrī Devī Atharva Śhīrṣha in the presence of Śhrī Mātājī</b></font><br>
 <a href="http://www.youtube.com/embed/_bURbs5FExs?hl=en&fs=">video</a>
 </p>
 
@@ -229,7 +229,7 @@ author_profile: false
 </p>
 
 <p>
-<font color="DarkGreen"><b>Śhrī Mahālakṣhmī Stotram</b></font></font><br>
+<font color="DarkGreen"><b>Śhrī Mahālakṣhmī Stotram</b></font><br>
 <a href="https://www.youtube.com/watch?v=OqHJsJS5zNs">video</a>
 </p>
 
@@ -285,7 +285,7 @@ Devī Kavach: <a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1"> vi
 2019 Celebrating Navarātri (Days 2 and 3): Worshiping Śhrī Mātājī in the form of Śhrī Brahmachāriṇī and Śhrī Chandraghaṇṭā
 
 <p>
-<b>Yā Devī Sarvabhūteśhu</b> 2000-1008 Navarātri Pūjā, Cabella</font><br>
+<font color="green"><b>Yā Devī Sarvabhūteśhu</b> 2000-1008 Navarātri Pūjā, Cabella</font><br>
 <a href="https://www.youtube.com/watch?v=c11jL6LzviE">video</a>
 </p>
 
@@ -689,7 +689,7 @@ O Mother, please open the Sahasrara!<br>
 2019 Celebrating Shri Mataji’s Birthday
 
 <p>
-Shubhmangalmaye diwas hai aaya</font><br>
+<font color="green"><b>Shubhmangalmaye diwas hai aaya</b></font><br>
 <a href="https://www.youtube.com/watch?v=SYNRxZSzeDk">video</a>
 </p>
 
