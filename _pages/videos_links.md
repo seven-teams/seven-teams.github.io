@@ -633,9 +633,11 @@ O Mother, please open the Sahasrara!<br>
 
 <font color="DeepPink"><b>2019 Celebrating Mahavira Jayanti: “He is like Bhairava and the Power of Bhairava”</b></font>
 
+<p>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1991-0328 Śhrī Mahāvīra Pūjā, Left Side and Soul, Gidgegannup, Darling Ranges (45 kms NE of Perth), WA, Australia</font>
 <a href="https://www.youtube.com/watch?time_continue=1&v=0Xe63y5hiu8"> video, Part 1</a><br>
+</p>
 
 <p>
 <font color="green"><b>21 names of Shri Bhairava recited during Shri Mahavira Puja in Perth</b></font><br>
