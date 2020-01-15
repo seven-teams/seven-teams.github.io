@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating Makar Sankranti: "On the day of Saṅkrānti, you should know that you have to please the Goddess who is sitting within you" '
+title: '2020 Celebrating Makar Saṅkrānti: "On the day of Saṅkrānti, you should know that you have to please the Goddess who is sitting within you" '
 date: 2020-01-14
 permalink: /festivity/2020/01/14
 tags:
@@ -92,12 +92,12 @@ The Sun changes its direction, everybody knows about it, everybody prays for it.
 Salutations to Lord Divakara (the Sun), who shines like Japakusuma (Hibiscus) flower, who is son of Kasyapa (and Aditi, hence Aditya),<br>
 who shines brilliantly, who is the enemy of darkness, and who destroys all sins.<br>
  <b>Navgraha Strotra</b><br>
-(Stotra for the Nine Planets. The first stanza is in praise of Shri Surya)<br>
+(Stotra for the Nine Planets. The first stanza is in praise of Śhrī Sūrya)<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b>1985-0114 Makar Sankranti Puja, Suryavanshi Hall, Mumbai, India</b></font>
+<font size="+0"><b>1985-0114 Makar Saṅkrānti Pūjā, Suryavanshi Hall, Mumbai, India</b></font>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
@@ -108,17 +108,17 @@ who shines brilliantly, who is the enemy of darkness, and who destroys all sins.
 </p>
 
 <p>
-<font color="green"><b>12 names of Shri Surya</b></font><br>
+<font color="green"><b>12 names of Śhrī Sūrya</b></font><br>
 <a href="https://www.youtube.com/watch?v=jqmPOEnU9tg&list=LLOPGl9AzF9erWlM2QQXW2SA&index=20">video</a>
 </p>
 
 <p>
-<font color="green"><b>Sarva Mangala Mangale</b>(Makarsankranti Puja, 1987, Rahuri, India)</font><br>
+<font color="green"><b>Sarva Mangala Mangale</b> (Makar Saṅkrānti Pūjā, 1987, Rahuri, India)</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
-<font color="green"><b>Brahma Shodile</b> (1988 Music after Sakranti Puja)</font><br>
+<font color="green"><b>Brahma Shodile</b> (1988 Music after Makar Sakranti Pūjā)</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
@@ -130,7 +130,7 @@ who shines brilliantly, who is the enemy of darkness, and who destroys all sins.
 </p>
 
 <p>
-<b>Wishing You All A Happy Makar Sankranti!</b>
+<b>Wishing You All A Happy Makar Saṅkrānti!</b>
 </p>
 
 <p>
