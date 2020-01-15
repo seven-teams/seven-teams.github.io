@@ -18,7 +18,6 @@ tags:
 <p style="text-align:center;">
 <font color="DarkRed">"And so, from today we start our journey towards that subtlety and that sensitivity, which you can feel, which you can feel Nirānanda. Nirānanda, your Mother’s name is Nirā, and at Sahasrāra you feel the ānanda, the joy of Nirā.<br>
 May God bless you all."<br>
-</font></font><br>
 <font size="+0"><b>1984-0114 Makar Saṅkrānti Pūjā, Suryavanshi Hall (near Śhivajī Park), Dadar, Mumbai, India</b><\font>
 </p>
 
@@ -32,12 +31,35 @@ So in Saṅkrānt, this happens, that on fourteenth day [of January], today, Sun
 <div style="text-align: center"><img src="/images/image293.png" /></div>
 
 <p style="text-align:center;">
+<font color="DarkRed"><b>Today is very special day because the Sun is particularly benevolent towards us on this day. 
+And we should thank Him for all this.</b></font><br>
+<font size="+0"><b>2008-0117 Makar Saṅkrānti Pūjā,  Hall, Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b><\font>
+</p>
+
+<p>
+<font color="DarkRed">"Today is Saṅkrānti. Saṅkrānti means that today there is something new going to happen. Kuṇḍalinī has awakened within you and you have become new person compared to what you were before. But on the day of Saṅkrānti, you should know that you have to please the Goddess who is sitting within you.<br>
+What should you do to make Her happy? You distributed sesame seeds and jaggery. That is for love. To increase the love between each other, we give sesame seeds and jaggery.<br>
+Today the Sun left its place and, in its northward movement, came towards us. At this moment we should be very thankful to the Sun. It is by the grace of the Sun that so many things take place in our country. We have to do namaskār to the Sun today and His Power and His knowledge should come to us.<br>
+I would say that all of you have become realized and vibrations are flowing through you. Now you should make use of these vibrations, establish the śhakti within you, establish the peace within you and show the world that this power is within us and we have to acquire it. We have to nurture this, improve this with your good qualities and truthful speech."</font><br>
+<font size="+0"><b>2008-0117 Makar Saṅkrānti Pūjā,  Hall, Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font>
+</p>
+
+
+<div style="text-align: center"><img src="/images/image294.png" /></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>2001-0114 Makar Saṅkrānti Pūjā, Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font>
+</p>
+
+<div style="text-align: center"><img src="/images/image295.png" /></div>
+
+<p style="text-align:center;">
 <font color="DarkRed"><b>So today’s special day, a very great day. Let us ask that – when you are doing this Pūjā, ask for new religions within you to be enshrined, to be sustained within ourselves and try to imbibe them.<br>
 They will be permeating but you have to accept them. And [you] should know it’s a big fight; and it’s a very different type of a fight of peace and love.
 That’s why they say: “Speak sweetly.” Be sweet. Not to be sarcastic by any chance, nor to be harsh, but be sweet.<br>
 Sweetness which is genuine, not outward and shui [showy] and formal, but genuine sweetness.<br>
-May God bless you all.</b><br>
-</font></font><br>
+May God bless you all.</b></font><br>
 <font size="+0"><b>1981-0114 Makar Saṅkrānti Pūjā, Sadashiv Peth, Pune, Maharashtra, India</b><\font>
 </p>
 
@@ -49,14 +71,7 @@ The Sun changes its direction, everybody knows about it, everybody prays for it.
 <font size="+0"><b></b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image294.png" /></div>
-
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b>2001-0114 Makar Saṅkrānti Pūjā, Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font>
-</p>
-
-<div style="text-align: center"><img src="/images/image295.png" /></div>
+<div style="text-align: center"><img src="/images/image296.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Japa Kusuma Sankasham Kashyapeyam Mahadyutim Tamorim Sarvapapaghnam Pranatosmi Divakaram</b></font><br>
@@ -93,7 +108,7 @@ who shines brilliantly, who is the enemy of darkness, and who destroys all sins.
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image296.png" /></div>
+<div style="text-align: center"><img src="/images/image297.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"... when on the Saṅkrānti, when the day changes, on the 14th of January when the Sun changes over, then they give the sweet,[unclear] saying that, ‘We’ll give you the sweet and speak to us in the same way in a sweet manner’ -- so friendship. <b>Sugar gives you friendship. You give sweets to people to establish friendship.</b>"</font><br>
