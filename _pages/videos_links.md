@@ -678,9 +678,11 @@ O Mother, please open the Sahasrara!<br>
 
 <font color="DeepPink"><b>2019 Worshipping Shri Adi Shakti during Gangaur: Vasant Navaratri</b></font>
 
+<p>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1993-0803 Adi Shakti Puja Talk, Togliatti, Russia</font>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+</p>
 
 <br>
 
@@ -743,9 +745,11 @@ O Mother, please open the Sahasrara!<br>
 
 <font color="DeepPink"><b>2019 Celebrating Holika Dahan on Holi Purnima (full moon night)</b></font>
 
+<p>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1991-0228 Talk to Sahaja Yogis (Hindi+English), Raṃgavalī Holī Celebrations, New Delhi, India</font>
 <a href="https://www.youtube.com/watch?v=bc2lyMh6Beg"> video</a><br>
+</p>
 
 <p>
 <font color="green"><b>Krishna Govinda</b></font><br>
@@ -847,9 +851,11 @@ O Mother, please open the Sahasrara!<br>
 
 <font color="DeepPink"><b>2019 Celebrating New Year</b></font>
 
+<p>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">2000-1231 New Year Puja Talk, Kalwe, India</font>
 <a href="https://www.youtube.com/watch?v=VQCbvlXTQhI"> video</a><br>
+</p>
 
 <p>
 <font color="green"><b>Vand n Karuya Matajila</b></font><br>
