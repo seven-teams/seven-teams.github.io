@@ -1,7 +1,7 @@
 ---
 permalink: /Videos_Links_Raw
-title: "Videos Links"
-excerpt: "Links to Unlisted Videos"
+title: "Links to Unlisted Videos"
+excerpt: "Videos Links"
 author_profile: false
 ---
 
