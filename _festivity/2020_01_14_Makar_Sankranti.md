@@ -33,7 +33,7 @@ So in Saṅkrānt, this happens, that on fourteenth day [of January], today, Sun
 <p style="text-align:center;">
 <font color="DarkRed"><b>Today is very special day because the Sun is particularly benevolent towards us on this day. 
 And we should thank Him for all this.</b></font><br>
-<font size="+0"><b>2008-0117 Makar Saṅkrānti Pūjā,  Hall, Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b><\font>
+<font size="+0"><b>2008-0117 Makar Saṅkrānti Pūjā,  Hall, Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font>
 </p>
 
 <p>
@@ -47,9 +47,23 @@ I would say that all of you have become realized and vibrations are flowing thro
 
 <div style="text-align: center"><img src="/images/image294.png" /></div>
 
+<p style="text-align:center;">
+<font color="DarkRed"><b>"Saṅkrānt, krānt means revolution, saṅ means the holy. The holy revolution."</b></font><br>
+<font size="+0"><b>1986-0114 Makar Saṅkrānti Pūjā , House of Madhukar Dhumāḷ, Rāhurī, Maharashtra, India</b></font>
+</p>
+
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b>2001-0114 Makar Saṅkrānti Pūjā, Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font>
+<font color="DarkRed">"And this is the day when we celebrate it, in a way to surrender ourselves to the Sūrya, to the Sun which is, as you know, is the residence of Śhrī Lord Jesus Christ. He resides on the Sun. So how humble He was, how humble He was residing on the Sun. The more you live on the Sun, there should be much more humility. Of course, I must say in India, people are humbler. But still, the quality of Sun can make you extremely arrogant and very unpleasant person. This unpleasant person can really ruin all kinds of good relations. But the worst thing that happens to us, is that we lose our integration. Because when we say harsh things to anyone we feel guilty, so we have another problem, our heart feels bad, our liver feels bad everything is upset and thus you feel absolutely disintegrated. And this disintegrated is the sign of our not evolving at all, or we should say devolving.<br>
+This integration is such a common thing that we see, in ourselves, we see that we fight with our ego, then we fight with our superego, then we fight with our heart with our emotions and all the time we are fighting within ourselves. So at least, within ourselves we should speak sweetly on this day."</font><br>
+<font size="+0"><b>1985-0114 Makar Saṅkrānti Pūjā, Suryavanshi Hall (near Śhivajī Park), Dadar, Mumbai, India
+</b></font>
+</p>
+
+<p>
+<font color="DarkRed">"So today we decide on peace. Peace with ourselves, peace with others and that is how we worship the Sun, <b>Christ the one who was the emblem, who was the absolute practical symbol of that peace.</b> And once you understand this, I am sure you will try to follow that instead of hitting everybody, getting angry with everybody. Just forget all these things.<br>
+You have come here to ascend and your gain is your gain. Your fighting is not your gain, remember that. Your quarreling is not your gain. The gain is the peace that you have achieved, the love that you have developed, the compassion that you can emit, the amount of relationship and the rapport you can penetrate into others. This is your gain which we have to receive today, a mind, a heart like a lion and not chicken-hearted people. Not people who would be angry and this, to boast of your anger. These days are gone, we boast of our peace, we boast of our contentment, we boast of our glory and we boast of our state. And that is the state where we are now in the Kingdom of God."</font><br>
+<font size="+0"><b>1985-0114 Makar Saṅkrānti Pūjā, Suryavanshi Hall (near Śhivajī Park), Dadar, Mumbai, India
+</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image295.png" /></div>
@@ -60,7 +74,7 @@ They will be permeating but you have to accept them. And [you] should know it’
 That’s why they say: “Speak sweetly.” Be sweet. Not to be sarcastic by any chance, nor to be harsh, but be sweet.<br>
 Sweetness which is genuine, not outward and shui [showy] and formal, but genuine sweetness.<br>
 May God bless you all.</b></font><br>
-<font size="+0"><b>1981-0114 Makar Saṅkrānti Pūjā, Sadashiv Peth, Pune, Maharashtra, India</b><\font>
+<font size="+0"><b>1981-0114 Makar Saṅkrānti Pūjā, Sadashiv Peth, Pune, Maharashtra, India</b></font>
 </p>
 
 <p>
@@ -74,7 +88,7 @@ The Sun changes its direction, everybody knows about it, everybody prays for it.
 <div style="text-align: center"><img src="/images/image296.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Japa Kusuma Sankasham Kashyapeyam Mahadyutim Tamorim Sarvapapaghnam Pranatosmi Divakaram</b></font><br>
+<font color="DarkRed"><b>Japa Kusuma Sankasham Kashyapeyam Mahadyutim Tamorim Sarvapapaghnam Pranatosmi Divakaram</b></font><br>
 Salutations to Lord Divakara (the Sun), who shines like Japakusuma (Hibiscus) flower, who is son of Kasyapa (and Aditi, hence Aditya),<br>
 who shines brilliantly, who is the enemy of darkness, and who destroys all sins.<br>
  <b>Navgraha Strotra</b><br>
