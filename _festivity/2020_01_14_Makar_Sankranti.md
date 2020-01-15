@@ -17,7 +17,7 @@ tags:
 
 <p style="text-align:center;">
 <font color="DarkRed">"And so, from today we start our journey towards that subtlety and that sensitivity, which you can feel, which you can feel Nirānanda. Nirānanda, your Mother’s name is Nirā, and at Sahasrāra you feel the ānanda, the joy of Nirā.<br>
-May God bless you all."<br>
+May God bless you all."</font><br>
 <font size="+0"><b>1984-0114 Makar Saṅkrānti Pūjā, Suryavanshi Hall (near Śhivajī Park), Dadar, Mumbai, India</b><\font>
 </p>
 
