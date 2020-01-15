@@ -113,12 +113,12 @@ who shines brilliantly, who is the enemy of darkness, and who destroys all sins.
 </p>
 
 <p>
-<font color="green"><b>Sarva Mangala Mangale</b> (Makar Saṅkrānti Pūjā, 1987, Rahuri, India)</font><br>
+<font color="green"><b>Sarva Mangala Mangale</b></font> (Makar Saṅkrānti Pūjā, 1987, Rahuri, India)<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
-<font color="green"><b>Brahma Shodile</b> (1988 Music after Makar Sakranti Pūjā)</font><br>
+<font color="green"><b>Brahma Shodile</b></font> (1988 Music after Makar Sakranti Pūjā)<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
