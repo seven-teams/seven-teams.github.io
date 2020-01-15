@@ -88,8 +88,8 @@ The Sun changes its direction, everybody knows about it, everybody prays for it.
 <div style="text-align: center"><img src="/images/image296.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Japa Kusuma Sankasham Kashyapeyam Mahadyutim Tamorim Sarvapapaghnam Pranatosmi Divakaram</b></font><br>
-Salutations to Lord Divakara (the Sun), who shines like Japakusuma (Hibiscus) flower, who is son of Kasyapa (and Aditi, hence Aditya),<br>
+<font color="DarkRed"><b>Jāpakusuma Sankasham Kāśhyapeyam Mahadyutim Tamorim Sarvapapaghnam Pranatosmi Divākaram</b></font><br>
+Salutations to Lord Divākara (the Sun), who shines like Japākusuma (Hibiscus) flower, who is son of Kāśhyapa (and Aditi, hence Āditya),<br>
 who shines brilliantly, who is the enemy of darkness, and who destroys all sins.<br>
  <b>Navgraha Strotra</b><br>
 (Stotra for the Nine Planets. The first stanza is in praise of Śhrī Sūrya)<br>
