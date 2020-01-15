@@ -660,9 +660,11 @@ O Mother, please open the Sahasrara!<br>
 
 <font color="DeepPink"><b>2019 Worshipping Shri Kundalini: “When the Kundalini moves, She makes vibrations”</b></font>
 
+<p>
 <font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0">1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, Weilburg, Germany</font>
 <a href="https://www.youtube.com/watch?v=7uSGgzf6Rrg"> video</a><br>
+</p>
 
 <p>
 <font color="green"><b>Tujhya pujani 2001-0707 Guru Puja, Cabella</b></font><br>
