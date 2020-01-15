@@ -13,29 +13,20 @@ tags:
 <font size="+0"><b>1994-0508 Sahasrāra Pūjā, Mahāmāyā Swarūpa, Tent, Cabella Ligure, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image.png" /></div>
-
-<p style="color:green; text-align:center;">
-<b></b><br>
-<br>
-<b></b><br>
-<br>
-<b></b><br>
-<br>
-<a href="">video</a>
-</p>
-
 <div style="text-align: center"><img src="/images/image292.png" /></div>
 
 <p style="text-align:center;">
-<font size="-1"><font color="DarkGreen"><b></b><br>
+<font color="DarkRed">"And so, from today we start our journey towards that subtlety and that sensitivity, which you can feel, which you can feel Nirānanda. Nirānanda, your Mother’s name is Nirā, and at Sahasrāra you feel the ānanda, the joy of Nirā.<br>
+May God bless you all."<br>
 </font></font><br>
-<a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&index=15&list=PLC8554007A2C98EA0">video</a>
+<font size="+0"><b>1984-0114 Makar Saṅkrānti Pūjā, Suryavanshi Hall (near Śhivajī Park), Dadar, Mumbai, India</b><\font>
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"<b>Today we have come together on the occasion of Saṅkrānti to perform Pūjā to Sūrya.</b><br>
+In our country Sūrya Pūjā is considered very important and to give offerings is considered a tradition. In foreign countries also Sun (Sūrya) is considered important. They use astrology, etc. based on Sun.<br>
+So in Saṅkrānt, this happens, that on fourteenth day [of January], today, Sun leaves its place and goes to north. This is why people value Saṅkrānt a lot."</font><br>
+<font size="+0"><b>1996-0114 Makar Saṅkrānti Pūjā (Hindi+English+Marathi), Pune, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image293.png" /></div>
