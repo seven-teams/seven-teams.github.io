@@ -5,7 +5,7 @@ excerpt: "Links to Unlisted Videos"
 author_profile: false
 ---
 
-2020 Celebrating Makar Sankranti: "On the day of Saṅkrānti, you should know that you have to please the Goddess who is sitting within you"
+<font color="pink"><b>2020 Celebrating Makar Sankranti: "On the day of Saṅkrānti, you should know that you have to please the Goddess who is sitting within you"</b></font>
 
 <p>
 <font color="green"><b>Navgraha Strotra</b> (Stotra for the nine planets. The first stanza is in praise of Shri Surya)</font><br>
@@ -28,7 +28,7 @@ author_profile: false
 
 <br>
 
-2019 " ‘Peace on Earth’. He came to create peace on Earth."
+<font color="pink"><b>2019 " ‘Peace on Earth’. He came to create peace on Earth."</b></font>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1987-0103 Śhrī Nirmalā Devī Pūjā (English+Marathi), Gaṇapatīpuḷe, Maharashtra, India</font><br>
@@ -36,7 +36,7 @@ author_profile: false
 
 <br>
 
-2019 "Christ life is a symbolically, can be called as the Symbol of Purity and Holiness"
+<font color="pink"><b>2019 "Christ life is a symbolically, can be called as the Symbol of Purity and Holiness"</b></font>
 
 <p>
 <font color="green"><b>He Prem Murti Jagi Ale</b></font><br>
@@ -45,7 +45,8 @@ author_profile: false
 
 <br>
 
-2019 Celebrating the Birthday of Śhrī Ādi Guru Dattātreya <a href="https://seven-teams.github.io/festivity/2019/12/02">link</a>
+<font color="pink"><b>2019 Celebrating the Birthday of Śhrī Ādi Guru Dattātreya</b></font>
+
 <p>
 <font color="green"><b>Omkar Swarupa (1991-0406 Bhavasagara Puja)</b></font><br>
 <a href="https://www.youtube.com/watch?v=aRQPUNzYWqA&feature=youtu.be">video</a>
@@ -63,14 +64,13 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Śhrī Bhairava Jayanti
+<font color="pink"><b>2019 Celebrating Śhrī Bhairava Jayanti</b></font>
 
 <p>
 <font color="green"><b>21 names of Shri Bhairava recited during Mahavira Puja in Perth</b></font><br>
 <a href="https://www.youtube.com/watch?v=mG3SI-nAyFo"> video</a>
 </p>
 
-<p>
 <font color="green"><b>Gajanana Shri Gan Raya</b></font><br>
 <a href="http://youtu.be/sDHdeRTcVjc">video</a>
 </p>
@@ -87,7 +87,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Śhrī Guru Nāṇaka Jayanti: “Discover the power that is within you and establish it”
+<font color="pink"><b>2019 Celebrating Śhrī Guru Nāṇaka Jayanti: “Discover the power that is within you and establish it”</b></font>
 
 <p>
 <font color="green"><b>Guru Ashtakam 1993 Guru Puja Cabella</b></font><br>
@@ -96,7 +96,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Diwālī: “This is the day of the – they call it in Marathi Bhāūbīj or Bhāī Dūj; or that is the Dvitīyā, the second day of the Moon.”
+<font color="pink"><b>2019 Celebrating Diwālī: “This is the day of the – they call it in Marathi Bhāūbīj or Bhāī Dūj; or that is the Dvitīyā, the second day of the Moon.”</b></font>
 
 <p>
 <font color="Green"><b>Nirmala, Kiti Varnavi Tujhi ga Stuti</b></font><br>
@@ -116,7 +116,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Diwālī: Diwālī Pāḍavā “That’s the first day of the Moon.”
+<font color="pink"><b>2019 Celebrating Diwālī: Diwālī Pāḍavā “That’s the first day of the Moon.”</b></font>
 
 <p>
 <font color="green"><b>Shri Mahalakshmi Stotram</b></font><br>
@@ -130,7 +130,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Diwālī: “Diwālī is the day of real aspirations. Invoke the whole universe.”
+<font color="pink"><b>2019 Celebrating Diwālī: “Diwālī is the day of real aspirations. Invoke the whole universe.”</b></font>
 
 <p>
 <font color="green"><b>Lakṣhmī Ali</b></font><br>
@@ -160,7 +160,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Diwālī: “On the fourteenth day they are put in the Hell. So that’s called as Naraka Chaturdaśhī”
+<font color="pink"><b>2019 Celebrating Diwālī: “On the fourteenth day they are put in the Hell. So that’s called as Naraka Chaturdaśhī”</b></font>
 
 <p>
 <font color="green"><b>Andhar Phar Ahe (Śhrī Mātājī gives the meaning of the bhajan and sings along)</b></font><br>
@@ -174,7 +174,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Diwālī: “The first day of Diwālī is called as ‘Dhanatrayodaśhī’” (Dhanteras)
+<font color="pink"><b>2019 Celebrating Diwālī: “The first day of Diwālī is called as ‘Dhanatrayodaśhī’” (Dhanteras)</b></font>
 
 <p>
 <font color="green"><b>Pavan Utsav ayya re</b></font><br>
@@ -193,7 +193,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Diwālī: The five days of Diwālī
+<font color="pink"><b>2019 Celebrating Diwālī: The five days of Diwālī</b></font>
 
 <p>
 <font color="green"><b>Aiya Deepo ka Tyohar</b> (the festival of lights is here):</font><br>
@@ -202,7 +202,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Navarātri (Day 10): Worshiping Śhrī Mātājī in the form of Śhrī Ādi Śhakti
+<font color="pink"><b>2019 Celebrating Navarātri (Day 10): Worshiping Śhrī Mātājī in the form of Śhrī Ādi Śhakti</b></font>
 
 <p>
 <font color="green"><b>Jai He Jai He Jai He Devī</b></font><br>
@@ -216,7 +216,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Navarātri (Day 9): Worshiping Śhrī Mātājī in the form of Śhrī Siddhidātrī
+<font color="pink"><b>2019 Celebrating Navarātri (Day 9): Worshiping Śhrī Mātājī in the form of Śhrī Siddhidātrī</b></font>
 
 <p>
 <font color="green"><b>Binati Suniye Adi Shakti Mere</b></font><br>
@@ -230,7 +230,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Navarātri (Day 7): Worshiping Śhrī Mātājī in the form of Śhrī Kālarātrī
+<font color="pink"><b>2019 Celebrating Navarātri (Day 7): Worshiping Śhrī Mātājī in the form of Śhrī Kālarātrī</b></font>
 
 <p>
 <font color="DarkGreen"><b>Śhrī Devī Atharva Śhīrṣha in the presence of Śhrī Mātājī</b></font><br>
@@ -244,7 +244,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Navarātri (Day 6): Worshiping Śhrī Mātājī in the form of Śhrī Kātyāyanī
+<font color="pink"><b>2019 Celebrating Navarātri (Day 6): Worshiping Śhrī Mātājī in the form of Śhrī Kātyāyanī</b></font>
 
 <p>
 <font color="green"><b>Namostute (Mantra of Śhrī Kātyāyanī is taken):</b></font><br>
@@ -268,7 +268,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Navarātri (Day 5): Worshiping Śhrī Mātājī in the form of Śhrī Skandamātā
+<font color="pink"><b>2019 Celebrating Navarātri (Day 5): Worshiping Śhrī Mātājī in the form of Śhrī Skandamātā</b></font>
 
 <p>
 <font color="DarkGreen"><b>Śhrī Jagadambe Aye re</b></font><br>
@@ -287,7 +287,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Navarātri (Day 4): Worshiping Śhrī Mātājī in the form of Śhrī Kuṣhmāṇḍa
+<font color="pink"><b>2019 Celebrating Navarātri (Day 4): Worshiping Śhrī Mātājī in the form of Śhrī Kuṣhmāṇḍa</b></font>
 
 <p>
 <font color="green"><b>Devī Kavach</b></font><br> 
@@ -306,7 +306,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Navarātri (Days 2 and 3): Worshiping Śhrī Mātājī in the form of Śhrī Brahmachāriṇī and Śhrī Chandraghaṇṭā
+<font color="pink"><b>2019 Celebrating Navarātri (Days 2 and 3): Worshiping Śhrī Mātājī in the form of Śhrī Brahmachāriṇī and Śhrī Chandraghaṇṭā</b></font>
 
 <p>
 <font color="green"><b>Yā Devī Sarvabhūteśhu</b> 2000-1008 Navarātri Pūjā, Cabella</font><br>
@@ -325,7 +325,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Navarātri (Day 1): Worshipping Śhrī Mātājī in the form of Śhrī Śhailaputrī and keeping our attention on Śhrī Gaṇeśha
+<font color="pink"><b>2019 Celebrating Navarātri (Day 1): Worshipping Śhrī Mātājī in the form of Śhrī Śhailaputrī and keeping our attention on Śhrī Gaṇeśha</b></font>
 
 <p>
 <font color="green"><b>Gaṇeśha Atharva Sheersha</b></font><br>
@@ -349,7 +349,7 @@ author_profile: false
 
 <br>
 
-2019 Navaratri Preparations
+<font color="pink"><b>2019 Navaratri Preparations</b></font>
 
 <p>
 	<font color="green"><b>Jaya Jagadambe Mā</b></font><br>
@@ -358,7 +358,7 @@ author_profile: false
 
 <br>
 
-2019 Anant Chaturdashi: “The day when we visarjan, dissolve Shri Ganesha in the water”
+<font color="pink"><b>2019 Anant Chaturdashi: “The day when we visarjan, dissolve Shri Ganesha in the water”</b></font>
 
 <p>
 <font color="green"><b>Jay Gan raya, Shri Gan raya</b></font><br>
@@ -367,7 +367,7 @@ author_profile: false
 
 <br>
 
-2019 Worshiping Shri Ganesha on the International Shri Ganesha Puja
+<font color="pink"><b>2019 Worshiping Shri Ganesha on the International Shri Ganesha Puja</b></font>
 
 <p>
 <font color="green"><b>Namami Shri Gan Raj Dayal</b></font><br>
@@ -387,7 +387,7 @@ author_profile: false
 
 <br>
 
-2019 Celebrating Ganesha Chaturthi
+<font color="pink"><b>2019 Celebrating Ganesha Chaturthi</b></font>
 
 <p>
 <font color="green"><b>Om Bhur Bhuvah</b></font><br>
@@ -419,7 +419,7 @@ author_profile: false
 
 <br>
 
-2019 Shri Krishna Puja
+<font color="pink"><b>2019 Shri Krishna Puja</b></font>
 
 <p>
 <font color="green"><b>Vrindavani Venu</b></font><br>
@@ -443,7 +443,7 @@ author_profile: false
 
 <br>
 
-2019 Shri Krishna Janamashtami: “Today we have decided to have Krishna Puja because America is the Krishna bhoomi”
+<font color="pink"><b>2019 Shri Krishna Janamashtami: “Today we have decided to have Krishna Puja because America is the Krishna bhoomi”</b></font>
 
 <p>
 <font color="green"><b>Krishna Govind. Govind Gaya Karo</b></font><br>
@@ -472,7 +472,7 @@ author_profile: false
 
 <br>
 
-2019 Rakshabandhan Celebrations on India Independence Day
+<font color="pink"><b>2019 Rakshabandhan Celebrations on India Independence Day</b></font>
 
 <p>
 <a href="https://www.youtube.com/watch?v=ErGWNRdwSBE">Nirmalaa, Kiti Varnaavi Tujhiga Stuti</a>
@@ -485,7 +485,7 @@ author_profile: false
 
 <br>
 
-2019 Guru Puja Celebration
+<font color="pink"><b>2019 Guru Puja Celebration</b></font>
 
 <p>
 <font color="green"><b>GURU EK. JAGI TRATA</b></font><br>
@@ -523,7 +523,7 @@ The One who makes me my own Guru<br>
 
 <br>
 
-2019 Guru Purnima
+<font color="pink"><b>2019 Guru Purnima</b></font>
 
 <p>
 <font color="green"><b>Guru Ashtakam</b></font><br>
@@ -537,7 +537,7 @@ The One who makes me my own Guru<br>
 
 <br>
 
-2019 Shri Adi Shakti Puja: “I think if there is any Pūjā you should do, it is this one – is Ādi Śhakti”
+<font color="pink"><b>2019 Shri Adi Shakti Puja: “I think if there is any Pūjā you should do, it is this one – is Ādi Śhakti”</b></font>
 
 <p>
 <font color="green"><b>Tujhya Pujani 2001-0707 Guru Puja, Cabella</b></font><br>
@@ -556,7 +556,7 @@ The One who makes me my own Guru<br>
 
 <br>
 
-2019 Celebrating Shri Adi Shakti Puja: 20 years since the first Shri Adi Shakti Puja in USA, in the 114 acres land She has purchased 25 years ago in Fort Plain, Up-state New York
+<font color="pink"><b>2019 Celebrating Shri Adi Shakti Puja: 20 years since the first Shri Adi Shakti Puja in USA, in the 114 acres land She has purchased 25 years ago in Fort Plain, Up-state New York</b></font>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</font><br>
@@ -569,7 +569,7 @@ The One who makes me my own Guru<br>
 
 <br>
 
-2019 Shri Kabira Jayanti: “We become people of authority like Kabīra: how he sings, how he talks!”
+<font color="pink"><b>2019 Shri Kabira Jayanti: “We become people of authority like Kabīra: how he sings, how he talks!”</b></font>
 
 <p>
 <font color="green"><b>Guru bin Kaun, 1997-0720 Guru Puja, Cabella</b></font><br>
@@ -583,7 +583,7 @@ The One who makes me my own Guru<br>
 
 <br>
 
-2019 Celebrating Mother’s Day: “The most beautiful word on the lips of mankind is the word Mother” (Khalil Gibran)
+<font color="pink"><b>2019 Celebrating Mother’s Day: “The most beautiful word on the lips of mankind is the word Mother” (Khalil Gibran)</b></font>
 
 <p>
 <font color="green"><b>Isi Liye Mataji hamko</b></font><br>
@@ -592,7 +592,7 @@ The One who makes me my own Guru<br>
 
 <br>
 
-2019 Akshaya Tritiya: “It is regarded as the most auspicious day to start anything”
+<font color="pink"><b>2019 Akshaya Tritiya: “It is regarded as the most auspicious day to start anything”</b></font>
 
 <p>
 <font color="green"><b>Kuṇḍalinī Kuṇḍalinī</b></font><br>
@@ -605,7 +605,7 @@ The One who makes me my own Guru<br>
 
 <br>
 
-2019 Celebrating Sahasrara Puja : “We can say, in 1970, 5th May, [for the] first time, the Collective Spirit of God opened out”
+<font color="pink"><b>2019 Celebrating Sahasrara Puja : “We can say, in 1970, 5th May, [for the] first time, the Collective Spirit of God opened out”</b></font>
 
 <p>
 <font color="DarkGreen"><b>Ughad. Sahastrar. Mate</b></font><br>
@@ -629,7 +629,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Celebrating Mahavira Jayanti: “He is like Bhairava and the Power of Bhairava”
+<font color="pink"><b>2019 Celebrating Mahavira Jayanti: “He is like Bhairava and the Power of Bhairava”</b></font>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1991-0328 Śhrī Mahāvīra Pūjā, Left Side and Soul, Gidgegannup, Darling Ranges (45 kms NE of Perth), WA, Australia</font>
@@ -647,7 +647,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Celebrating Palm Sunday and International Mahavira Puja
+<font color="pink"><b>2019 Celebrating Palm Sunday and International Mahavira Puja</b></font>
 
 <p>
 <font color="green"><b>Hallelujah Mesiah</b> by Handel</font><br>
@@ -656,7 +656,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Worshipping Shri Kundalini: “When the Kundalini moves, She makes vibrations”
+<font color="pink"><b>2019 Worshipping Shri Kundalini: “When the Kundalini moves, She makes vibrations”</b></font>
 
 <font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0">1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, Weilburg, Germany</font>
@@ -674,7 +674,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Worshipping Shri Adi Shakti during Gangaur: Vasant Navaratri
+<font color="pink"><b>2019 Worshipping Shri Adi Shakti during Gangaur: Vasant Navaratri</b></font>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1993-0803 Adi Shakti Puja Talk, Togliatti, Russia</font>
@@ -682,7 +682,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Worshipping Shri Shailaputri: Vasant Navaratri
+<font color="pink"><b>2019 Worshipping Shri Shailaputri: Vasant Navaratri</b></font>
 
 <p>
 <font color="green"><b>Jai Ganesha ji ke Ma Ambe</b></font><br>
@@ -701,7 +701,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Worshipping Shri Ganesha and Shri Gauri on Gudi Padwa: Vasant Navaratri
+<font color="pink"><b>2019 Worshipping Shri Ganesha and Shri Gauri on Gudi Padwa: Vasant Navaratri</b></font>
 
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
@@ -715,7 +715,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Celebrating Shri Mataji’s Birthday
+<font color="pink"><b>2019 Celebrating Shri Mataji’s Birthday</b></font>
 
 <p>
 <font color="green"><b>Shubhmangalmaye diwas hai aaya</b></font><br>
@@ -739,7 +739,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Celebrating Holika Dahan on Holi Purnima (full moon night)
+<font color="pink"><b>2019 Celebrating Holika Dahan on Holi Purnima (full moon night)</b></font>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1991-0228 Talk to Sahaja Yogis (Hindi+English), Raṃgavalī Holī Celebrations, New Delhi, India</font>
@@ -752,7 +752,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 International Shri Shiva Puja: “Try to follow the qualities of Shri Mahadeva”
+<font color="pink"><b>2019 International Shri Shiva Puja: “Try to follow the qualities of Shri Mahadeva”</b></font>
 
 <p>
 <a href="https://www.youtube.com/watch?v=d4l6ZiyTIHI&feature=youtu.be">video</a>
@@ -782,7 +782,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Musical Evening before Shivaratri Puja
+<font color="pink"><b>2019 Musical Evening before Shivaratri Puja</b></font>
 
 <p>
 <font color="green"><b>Shiv Bhola Bhandari</b></font><br>
@@ -791,7 +791,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Mahasamadhi Day
+<font color="pink"><b>2019 Mahasamadhi Day</b></font>
 
 <p>
 <b>Mother's Prayer (1986-0713 Shrī Kārttikeya Pūjā, Grosshartpenning, Münich, Germany)</b><br>
@@ -800,7 +800,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Celebrating Birthday of Shri Ganesha: Shri Vinayaka Chaturthi
+<font color="pink"><b>2019 Celebrating Birthday of Shri Ganesha: Shri Vinayaka Chaturthi</b></font>
 
 <p>
 <font color="green"><b>Omkar Pradhana Rup Ganeshache</b> by Saint Tukaram</font><br>
@@ -824,7 +824,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Makar Sankranti
+<font color="pink"><b>2019 Makar Sankranti</b></font>
 
 <p>
 <font color="green"><b>Namostute Namostute</b> (1987-0114 Makar Saṅkrānti Pūjā)</font><br>
@@ -843,7 +843,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-2019 Celebrating New Year
+<font color="pink"><b>2019 Celebrating New Year</b></font>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">2000-1231 New Year Puja Talk, Kalwe, India</font>
