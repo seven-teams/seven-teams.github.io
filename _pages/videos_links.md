@@ -13,7 +13,7 @@ author_profile: false
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0">1985-0114 Makar Sankranti Puja, Suryavanshi Hall, Mumbai, India</font><br>
+<font size="+0">1985-0114 Makar Sankranti Puja, Suryavanshi Hall, Mumbai, India</font>
 <a href="https://www.youtube.com/watch?time_continue=1&v=MX8whf99iZs&feature=emb_logo"> video</a><br>
 
 <p>
@@ -28,10 +28,10 @@ author_profile: false
 
 <br>
 
-<font color="DeepPink"><b>2019 " ‘Peace on Earth’. He came to create peace on Earth."</b></font><br>
+<font color="DeepPink"><b>2019 " ‘Peace on Earth’. He came to create peace on Earth."</b></font>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0">1987-0103 Śhrī Nirmalā Devī Pūjā (English+Marathi), Gaṇapatīpuḷe, Maharashtra, India</font><br>
+<font size="+0">1987-0103 Śhrī Nirmalā Devī Pūjā (English+Marathi), Gaṇapatīpuḷe, Maharashtra, India</font>
 <a href="https://www.youtube.com/watch?v=NiqFR2IPsVo&feature=emb_logo"> video</a><br>
 
 <br>
@@ -559,7 +559,7 @@ The One who makes me my own Guru<br>
 <font color="DeepPink"><b>2019 Celebrating Shri Adi Shakti Puja: 20 years since the first Shri Adi Shakti Puja in USA, in the 114 acres land She has purchased 25 years ago in Fort Plain, Up-state New York</b></font>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0">1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</font><br>
+<font size="+0">1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</font>
 <a href="https://www.youtube.com/watch?time_continue=33&v=50OO4np2ers"> video</a>
 
 <p>
