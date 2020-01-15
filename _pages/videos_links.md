@@ -28,7 +28,7 @@ author_profile: false
 
 <br>
 
-<font color="DeepPink"><b>2019 " ‘Peace on Earth’. He came to create peace on Earth."</b></font>
+<font color="DeepPink"><b>2019 " ‘Peace on Earth’. He came to create peace on Earth."</b></font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1987-0103 Śhrī Nirmalā Devī Pūjā (English+Marathi), Gaṇapatīpuḷe, Maharashtra, India</font><br>
@@ -674,7 +674,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-<font color="DeepPink"><b>2019 Worshipping Shri Adi Shakti during Gangaur: Vasant Navaratri</b></font>
+<font color="DeepPink"><b>2019 Worshipping Shri Adi Shakti during Gangaur: Vasant Navaratri</b></font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1993-0803 Adi Shakti Puja Talk, Togliatti, Russia</font>
@@ -739,7 +739,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-<font color="DeepPink"><b>2019 Celebrating Holika Dahan on Holi Purnima (full moon night)</b></font>
+<font color="DeepPink"><b>2019 Celebrating Holika Dahan on Holi Purnima (full moon night)</b></font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1991-0228 Talk to Sahaja Yogis (Hindi+English), Raṃgavalī Holī Celebrations, New Delhi, India</font>
@@ -843,7 +843,7 @@ O Mother, please open the Sahasrara!<br>
 
 <br>
 
-<font color="DeepPink"><b>2019 Celebrating New Year</b></font>
+<font color="DeepPink"><b>2019 Celebrating New Year</b></font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">2000-1231 New Year Puja Talk, Kalwe, India</font>
