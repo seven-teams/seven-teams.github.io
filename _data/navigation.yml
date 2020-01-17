@@ -6,17 +6,17 @@ main:
   - title: "Compilations"
     url: /compilation/ 
 
-  - title: "Yearly Topics"
-    url: /yearly/
-
   - title: "Quotes"
     url: /quotes/
 
-  - title: "Chronology"
-    url: /chronology/
-
   - title: "Scriptures"
     url: /scriptures/
+
+  - title: "Chronology"
+    url: /chronology/
+    
+  - title: "Yearly Topics"
+    url: /yearly/
 
   - title: "Divine Message"
     url: /divine/
