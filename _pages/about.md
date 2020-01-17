@@ -42,19 +42,19 @@ Shri Mataji withdrew from this world on February 23, 2011.
 
 3. **<font color="mediumvioletred">Yearly Topics Team.</font>** The posts Quotes from  Shri Mataji's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Shri Mataji.  
 
-1. **<font color="pink">2020 Celebrating 50 Years of Sahaja Yoga in the World</font>**
+    1. **<font color="pink">2020 Celebrating 50 Years of Sahaja Yoga in the World</font>**
 
-2. **<font color="pink">2020 Celebrating 35 Years of Vishwa Nirmala Dharma in the World and in U.S.A.</font>**
+    2. **<font color="pink">2020 Celebrating 35 Years of Vishwa Nirmala Dharma in the World and in U.S.A.</font>**
 
-3. **<font color="pink">2019 Celebrating 30 Years of Sahaja Yoga in Nepal, Russia, Turkey and Ukraine</font>**
+    3. **<font color="pink">2019 Celebrating 30 Years of Sahaja Yoga in Nepal, Russia, Turkey and Ukraine</font>**
 
-4. **<font color="pink">2017 Celebrating 35 Years of Sahaja Yoga in Austria, Belgium and Germany</font>**
+    4. **<font color="pink">2017 Celebrating 35 Years of Sahaja Yoga in Austria, Belgium and Germany</font>**
 
-5. **<font color="pink">2016 35 Years of Sahaja Yoga in USA, Canada, Australia and Italy</font>**
+    5. **<font color="pink">2016 35 Years of Sahaja Yoga in USA, Canada, Australia and Italy</font>**
 
-6. **<font color="pink">2015 Celebrating 30 Years of Vishwa Nirmala Dharma in USA and the world</font>**
+    6. **<font color="pink">2015 Celebrating 30 Years of Vishwa Nirmala Dharma in USA and the world</font>**
 
-7. **<font color="pink">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
+    7. **<font color="pink">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
 
 4. **<font color="mediumvioletred">Quotes on Incarnations Team.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to one Incarnation, grouped in chronological order. 
 
