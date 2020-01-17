@@ -65,11 +65,11 @@ Shri Mataji withdrew from this world on February 23, 2011.
 7. **<font color="mediumvioletred">Divine Message Team.</font>** The posts will consist of pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Shri Mataji. Versions 1 and 2 were made available on July 1, 2016. and February 3, 2017. The third version will be made available soon. For other databses of transcripts please see 
 
 
-1. <a href="https://www.amruta.org/transcripts-and-translations/"> Amruta</a>
+    i. <a href="https://www.amruta.org/transcripts-and-translations/"> Amruta</a>
 
-2. <a href="https://library.sahajaworld.org/"> Sahaja World</a>
+    ii. <a href="https://library.sahajaworld.org/"> Sahaja World</a>
 
-3. <a href="https://www.nirmalavidya.org/en/"> Nirmala Vidya Portal</a>
+    iii. <a href="https://www.nirmalavidya.org/en/"> Nirmala Vidya Portal</a>
 
 
 
