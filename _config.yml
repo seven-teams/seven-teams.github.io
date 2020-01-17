@@ -386,10 +386,10 @@ whitelist:
 #  path: /categories/
 tag_festivity: '/tag-festivity/'
 tag_compilation: '/tag-compilation/'
-tag_yearly: '/tag-yearly/'
 tag_quotes: '/tag-quotes/'
-tag_chronology: '/tag-chronology/'
 tag_scriptures: '/tag-scriptures/'
+tag_chronology: '/tag-chronology/'
+tag_yearly: '/tag-yearly/'
 tag_divine: '/tag-divine/'
 
 #tag_archive:
