@@ -40,7 +40,13 @@ Shri Mataji withdrew from this world on February 23, 2011.
 
 2. **<font color="mediumvioletred">Comprehensive Compilations Teams.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.  
 
-3. **<font color="mediumvioletred">Yearly Topics Team.</font>** The posts Quotes from  Shri Mataji's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Shri Mataji.  
+4. **<font color="mediumvioletred">Quotes on Incarnations Team.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to one Incarnation, grouped in chronological order.  
+
+4. **<font color="mediumvioletred">Scriptures Team.</font>** The posts will contain selections of Quotes from all Scriptures of the World.
+
+5. **<font color="mediumvioletred">Chronology Team.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to U.S.A., grouped in chronological order. 
+
+6. **<font color="mediumvioletred">Yearly Topics Team.</font>** The posts Quotes from  Shri Mataji's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Shri Mataji.  
 
     i. **<font color="DarkGreen">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
 
@@ -56,11 +62,7 @@ Shri Mataji withdrew from this world on February 23, 2011.
 
     vii. **<font color="DarkGreen">2020 Celebrating 50 Years of Sahaja Yoga in the World</font>**
 
-4. **<font color="mediumvioletred">Quotes on Incarnations Team.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to one Incarnation, grouped in chronological order. 
 
-5. **<font color="mediumvioletred">Chronology Team.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to U.S.A., grouped in chronological order.  
-
-6. **<font color="mediumvioletred">Scriptures Team.</font>** The posts will contain selections of Quotes from all Scriptures of the World.
 
 7. **<font color="mediumvioletred">Divine Message Team.</font>** The posts will consist of pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Shri Mataji. Versions 1 and 2 were made available on July 1, 2016. and February 3, 2017. The third version will be made available soon. For other databses of transcripts please see 
 
