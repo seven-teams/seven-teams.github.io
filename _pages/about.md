@@ -33,7 +33,7 @@ Shri Mataji visited U.S.A. in 1970, 1972, and each year from 1981 until 2006 exc
 
 Shri Mataji withdrew from this world on February 23, 2011. 
 
-**<font color="mediumvioletred">Presentation of the Posts of the Seven Teams</font>**
+**<font color="mediumvioletred">On the Posts of the Seven Teams</font>**
 ======
 
 1. **<font color="mediumvioletred">Sahaja Yoga Festivity Team.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Shri Mataji) together with Photographs and links to Video/Audio talks of Shri Mataji.  
