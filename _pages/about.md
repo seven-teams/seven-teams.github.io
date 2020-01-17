@@ -42,19 +42,19 @@ Shri Mataji withdrew from this world on February 23, 2011.
 
 3. **<font color="mediumvioletred">Yearly Topics Team.</font>** The posts Quotes from  Shri Mataji's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Shri Mataji.  
 
-3a. **<font color="red">2020 Celebrating 50 Years of Sahaja Yoga in the World</font>**
+1. **<font color="red">2020 Celebrating 50 Years of Sahaja Yoga in the World</font>**
 
-3b. **<font color="red">2020 Celebrating 35 Years of Vishwa Nirmala Dharma in the World and in U.S.A.</font>**
+2. **<font color="red">2020 Celebrating 35 Years of Vishwa Nirmala Dharma in the World and in U.S.A.</font>**
 
-3c. **<font color="red">2019 Celebrating 30 Years of Sahaja Yoga in Nepal, Russia, Turkey and Ukraine</font>**
+3. **<font color="red">2019 Celebrating 30 Years of Sahaja Yoga in Nepal, Russia, Turkey and Ukraine</font>**
 
-3d. **<font color="red">2017 Celebrating 35 Years of Sahaja Yoga in Austria, Belgium and Germany</font>**
+4. **<font color="red">2017 Celebrating 35 Years of Sahaja Yoga in Austria, Belgium and Germany</font>**
 
-3e. **<font color="red">2016 35 Years of Sahaja Yoga in USA, Canada, Australia and Italy</font>**
+5. **<font color="red">2016 35 Years of Sahaja Yoga in USA, Canada, Australia and Italy</font>**
 
-3f. **<font color="red">2015 Celebrating 30 Years of Vishwa Nirmala Dharma in USA and the world</font>**
+6. **<font color="red">2015 Celebrating 30 Years of Vishwa Nirmala Dharma in USA and the world</font>**
 
-3g. **<font color="red">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
+7. **<font color="red">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
 
 4. **<font color="mediumvioletred">Quotes on Incarnations Team.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to one Incarnation, grouped in chronological order. 
 
@@ -65,11 +65,11 @@ Shri Mataji withdrew from this world on February 23, 2011.
 7. **<font color="mediumvioletred">Divine Message Team.</font>** The posts will consist of pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Shri Mataji. Versions 1 and 2 were made available on July 1, 2016. and February 3, 2017. The third version will be made available soon. For other databses of transcripts please see 
 
 
-a. <a href="https://www.amruta.org/transcripts-and-translations/"> Amruta</a>
+1. <a href="https://www.amruta.org/transcripts-and-translations/"> Amruta</a>
 
-b. <a href="https://library.sahajaworld.org/"> Sahaja World</a>
+2. <a href="https://library.sahajaworld.org/"> Sahaja World</a>
 
-c. <a href="https://www.nirmalavidya.org/en/"> Nirmala Vidya Portal</a>
+3. <a href="https://www.nirmalavidya.org/en/"> Nirmala Vidya Portal</a>
 
 
 
