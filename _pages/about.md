@@ -42,10 +42,43 @@ Shri Mataji withdrew from this world on February 23, 2011.
 
 3. **<font color="mediumvioletred">Yearly Topics Team.</font>** The posts Quotes from  Shri Mataji's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Shri Mataji.  
 
+\item
+**<font color="red">2020 Celebrating 50 Years of Sahaja Yoga in the World</font>**
+
+\item
+**<font color="red">2020 Celebrating 35 Years of Vishwa Nirmala Dharma in the World and in U.S.A.</font>**
+
+\item
+**<font color="red">2019 Celebrating 30 Years of Sahaja Yoga in Nepal, Russia, Turkey and Ukraine</font>**
+
+\item
+**<font color="red">2017 Celebrating 35 Years of Sahaja Yoga in Austria, Belgium and Germany</font>**
+
+\item
+**<font color="red">2016 35 Years of Sahaja Yoga in USA, Canada, Australia and Italy</font>**
+
+\item
+**<font color="red">2015 Celebrating 30 Years of Vishwa Nirmala Dharma in USA and the world</font>**
+
+\item
+**<font color="red">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
+
 4. **<font color="mediumvioletred">Quotes on Incarnations Team.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to one Incarnation, grouped in chronological order. 
 
 5. **<font color="mediumvioletred">Chronology Team.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to U.S.A., grouped in chronological order.  
 
 6. **<font color="mediumvioletred">Scriptures Team.</font>** The posts will contain selections of Quotes from all Scriptures of the World.
 
-7. **<font color="mediumvioletred">Divine Message Team.</font>** The posts will consist of pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Shri Mataji.
+7. **<font color="mediumvioletred">Divine Message Team.</font>** The posts will consist of pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Shri Mataji. Versions 1 and 2 were made available on July 1, 2016. and February 3, 2017. The third version will be made available soon. For other databses of transcripts please see 
+
+\item
+<a href="https://www.amruta.org/transcripts-and-translations/"> video</a>
+
+\item
+<a href="https://library.sahajaworld.org/"> video</a>
+
+\item
+<a href="https://www.nirmalavidya.org/en/"> video</a>
+
+
+
