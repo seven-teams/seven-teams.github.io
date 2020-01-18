@@ -10,7 +10,7 @@
  *
 */
 
-$background-color: green
+
 
 @import "vendor/breakpoint/breakpoint"; // media query mixins
 @import "variables";
@@ -42,6 +42,5 @@ $background-color: green
 @import "vendor/magnific-popup/magnific-popup";
 @import "print";
 
-
-.greedy-nav a { color: red; }
-.masthead__menu { color: red; }
+.greedy-nav a { background-color: red; }
+.masthead__menu { background-color: red; }
