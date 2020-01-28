@@ -13,7 +13,7 @@ redirect_from:
 **<font color="blue">Divine Treasures: an eternal token of gratitude and love</font>**
 ======
 
-The chance to meet Shri Mataji and hear Her teachings represented a dramatic turnaround in our lives. Sometimes fast, sometimes slow, visible transformation in our lives occurred, producing a lasting change infused by beauty, serenity, joy, purity, simplicity, collectivity, etc. As an eternal expression of our gratitude towards Shri Mataji, we would like to share some of the Divine Treasures we have delighted our Souls and Spirits with while following Shri Mataji and practicing Sahaja Yoga. In particular, the site includes the complete and unedited Divine Message of Shri Mataji and all its connections with the Spiritual Festivals and Scriptures of the World.
+The chance to meet Shri Mataji and to hear Her teachings represented a dramatic turnaround in our lives. Sometimes fast, sometimes slow, visible transformation in our lives occurred, producing a lasting change infused by beauty, serenity, joy, purity, simplicity, collectivity, etc. As an eternal expression of our gratitude towards Shri Mataji, we would like to share some of the Divine Treasures we have delighted our Souls and Spirits with while following Shri Mataji and practicing Sahaja Yoga. In particular, the site includes the complete and unedited Divine Message of Shri Mataji and all its connections with the Spiritual Festivals and Scriptures of the World.
 
 
 **<font color="red">Shri Mataji Nirmala Devi</font>**
