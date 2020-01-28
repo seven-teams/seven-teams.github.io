@@ -13,7 +13,7 @@ redirect_from:
 **<font color="blue">Divine Treasures: an eternal token of gratitude and love</font>**
 ======
 
-The encounter with Shri Mataji and Her teachings represented a dramatic turnaround in our lives. Sometimes fast, sometimes slow, visible transformation in our lives occurred, producing a lasting change infused by beauty, serenity, joy, purity, simplicity, collectivity, etc. As an eternal expression of our gratitude towards Shri Mataji, we would like to share some of the Divine Treasures we have delighted our Souls and Spirits with while following Shri Mataji and practicing Sahaja Yoga. In particular, the site includes the complete and unedited Divine Message of Shri Mataji and all its connections with the Spiritual Festivals and Scriptures of the World.
+The chance to meet Shri Mataji and hear Her teachings represented a dramatic turnaround in our lives. Sometimes fast, sometimes slow, visible transformation in our lives occurred, producing a lasting change infused by beauty, serenity, joy, purity, simplicity, collectivity, etc. As an eternal expression of our gratitude towards Shri Mataji, we would like to share some of the Divine Treasures we have delighted our Souls and Spirits with while following Shri Mataji and practicing Sahaja Yoga. In particular, the site includes the complete and unedited Divine Message of Shri Mataji and all its connections with the Spiritual Festivals and Scriptures of the World.
 
 
 **<font color="red">Shri Mataji Nirmala Devi</font>**
@@ -36,17 +36,17 @@ Shri Mataji withdrew from this world on February 23, 2011.
 **<font color="mediumvioletred">On the Posts of the Seven Teams</font>**
 ======
 
-1. **<font color="mediumvioletred">Sahaja Yoga Festivity Team.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Shri Mataji) together with Photographs and links to Video/Audio talks of Shri Mataji.  
+1. **<font color="mediumvioletred">Sahaja Yoga Festivity Team.</font>** Quotes from  Shri Mataji's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Shri Mataji) together with Photographs and links to Video/Audio talks of Shri Mataji.  
 
-2. **<font color="mediumvioletred">Comprehensive Compilations Teams.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.  
+2. **<font color="mediumvioletred">Comprehensive Compilations Teams.</font>** Quotes from  Shri Mataji's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.  
 
-4. **<font color="mediumvioletred">Quotes on Incarnations Team.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to one Incarnation, grouped in chronological order.  
+4. **<font color="mediumvioletred">Quotes on Incarnations Team.</font>** Quotes from  Shri Mataji's talks and writings pertaining to one Incarnation, grouped in chronological order.  
 
-4. **<font color="mediumvioletred">Scriptures Team.</font>** The posts will contain selections of Quotes from all Scriptures of the World.
+4. **<font color="mediumvioletred">Scriptures Team.</font>** Quotes from all Scriptures of the World.
 
-5. **<font color="mediumvioletred">Chronology Team.</font>** The posts will contain Quotes from  Shri Mataji's talks and writings pertaining to U.S.A., grouped in chronological order. 
+5. **<font color="mediumvioletred">Chronology Team.</font>** Quotes from  Shri Mataji's talks and writings pertaining to U.S.A., grouped in chronological order. 
 
-6. **<font color="mediumvioletred">Yearly Topics Team.</font>** The posts Quotes from  Shri Mataji's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Shri Mataji.  
+6. **<font color="mediumvioletred">Yearly Topics Team.</font>** Quotes from  Shri Mataji's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Shri Mataji.  
 
     i. **<font color="DarkGreen">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
 
@@ -64,7 +64,7 @@ Shri Mataji withdrew from this world on February 23, 2011.
 
 
 
-7. **<font color="mediumvioletred">Divine Message Team.</font>** The posts will consist of pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Shri Mataji. Versions 1 and 2 were made available on July 1, 2016. and February 3, 2017. The third version will be made available soon in 2020. For other databses of transcripts please see 
+7. **<font color="mediumvioletred">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Shri Mataji. Versions 1 and 2 were made available on July 1, 2016. and February 3, 2017. The third version will be made available soon in 2020. For other databses of transcripts please see 
 
 
     i. <a href="https://www.amruta.org/transcripts-and-translations/"> Amruta</a>
