@@ -19,12 +19,12 @@ author_profile: false
 <font color="DeepPink"><b>2020 Celebrating Śhrī Vināyaka Chaturthī: Birthday of Śhrī Gaṇeśha</b></font>
 
 <p>
-<font color="green"><b>Omkar Pradhana Rup Gaṇeśche by Saint Tukaram</b></font><br>
+<font color="green"><b>Auṃkār Pradhāna Rūp Gaṇeśche by Saint Tukaram</b></font><br>
 <a href="https://www.youtube.com/watch?v=ks7SUsrbB-c"> video</a><br>
 </p>
 
 <p>
-<font color="green"><b>Jay Ganraya Śhrī Ganaraya</b></font><br>
+<font color="green"><b>Jay Gaṇarāyā, Śhrī Gaṇarāyā</b></font><br>
 <a href="https://www.youtube.com/watch?v=0dit4be9pK0"> video</a>
 </p>
 
@@ -34,7 +34,7 @@ author_profile: false
 </p>
 
 <p>
-<font color="green"><b>Namami Śhrī Gan raj Dayal</b></font><br>
+<font color="green"><b>Namami Śhrī Gaṇarāj Dayal</b></font><br>
 <a href="https://www.youtube.com/watch?v=K1R54Pk7-70"> video</a> 
 </p>
 

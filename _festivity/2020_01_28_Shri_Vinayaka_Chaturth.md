@@ -78,7 +78,7 @@ It’s like that."</font><br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Omkar Pradhana Rup Gaṇeśche by Saint Tukaram</b></font><br>
+<font color="green"><b>Auṃkār Pradhāna Rūp Gaṇeśche by Saint Tukaram</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
@@ -88,7 +88,7 @@ It’s like that."</font><br>
 </p>
 
 <p>
-<font color="green"><b>Jay Ganraya Śhrī Ganaraya</b></font><br>
+<font color="green"><b>Jay Gaṇarāyā, Śhrī Gaṇarāyā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a>
 </p>
  
@@ -103,7 +103,7 @@ It’s like that."</font><br>
 </p>
 
 <p>
-<font color="green"><b>Namami Śhrī Gan raj Dayal</b></font><br>
+<font color="green"><b>Namami Śhrī Gaṇarāj Dayal</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a> 
 </p>
 
