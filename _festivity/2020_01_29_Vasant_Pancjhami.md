@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating Vasant Panchami: Worshipping Shri Mahasaraswati the Counsellor'
+title: '2020 Celebrating Vasant Pañchamī: Worshipping Śhrī Mahāsaraswatī the Counselor'
 date: 2020-01-29
 permalink: /festivity/2020/01/29
 tags:
@@ -58,7 +58,7 @@ all its words and the tune, comes from You.<br>
 <b>Ham pār Sahaj mein, teri kripa se</b><br>
 Only with Your compassion we become paar in Sahaj.<br>
 <b>Nirmal Vidya ka vardan de ma</b><br>
-Please grant us the boon of Shri Nirmala Vidya.</font><br>
+Please grant us the boon of Śhrī Nirmala Vidya.</font><br>
 <a href="https://www.youtube.com/watch?v=v7T1xpKkYFU"> video</a><br>
 </p>
 
@@ -99,25 +99,25 @@ to know what is the truth and what is not</b> – penetration power to understan
 <font color="DarkGreen"><b>Yā shweta padm’āsanā</b></font><br>
 <b>She who resides in a white lotus;</b><br> 
 <font color="DarkGreen"><b>Yā Brahm’āchyuta Shaṅkara Prabhṛutibhir</b></font><br>
-<b>She whom Shri Brahma, Shri Vishnu, Shri Shiva and all the Deities</b><br> 
+<b>She whom Śhrī Brahma, Śhrī Vishnu, Śhrī Shiva and all the Deities</b><br> 
 <font color="DarkGreen"><b>Devaihi sadā vanditā</b></font><br>
 <b>Constantly praise and worship;</b><br> 
-<font color="DarkGreen"><b>Sā mām pātu Saraswatī Bhagawati</b></font><br>
-<b>O You, who are that Goddess Saraswati Bhagawati, please bless us and protect us.</b><br> 
+<font color="DarkGreen"><b>Sā mām pātu Saraswatī Bhagavatī</b></font><br>
+<b>O You, who are that Goddess Saraswatī Bhagawati, please bless us and protect us.</b><br> 
 <font color="DarkGreen"><b>Nishesha jādy’āpahā</b></font><br>
-Shrī Saraswatī Vandanā (Prayer to Shrī Saraswatī)
+Śhrī Saraswatī Vandanā (Prayer to Śhrī Saraswatī)
 </p>	
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b>1983-0114 Shri Saraswati Puja, Dhule, India</b></font>
+<font size="+0"><b>1983-0114 Śhrī Saraswatī Pūjā, Dhule, India</b></font>
 <a href="https://www.youtube.com/watch?time_continue=1395&v=IF6hSZB7GqY&feature=emb_logo"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="blueviolet">"... the second one is Mahasaraswati, is at Mahurgad. We always sing Mahurgad. Wari song, that is the one - is Mahasaraswati, which is also called as Renuka Devi, that's the right-sided Mahasaraswati."</font><br>
+<font color="blueviolet">"Now the second one is Mahāsaraswatī, is at Māhūragaḍ. We always sing Māhūragaḍ. Wari song, that is the one -- is Mahāsaraswatī, which is also called as Reṇukā Devī, that's the right-sided Mahāsaraswatī."</font><br>
 <font size="-1">1990-1221 Śhrī Mahālakṣhmī Pūjā, Kolhapur, Maharashtra, India</font><br>
-<font color="green"><b>Mahur gad wari</b></font><br>
+<font color="green"><b>Māhūragaḍ. Wari</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -127,22 +127,22 @@ Shrī Saraswatī Vandanā (Prayer to Shrī Saraswatī)
 </p>
 
 <p>
-<font color="green"><b>Gyan De, Ma Nirmal</b></font><br>
+<font color="green"><b>Gyan De, Mā Nirmal</b></font><br>
 <a href="https://www.youtube.com/watch?v=cvUBcvkzN7c"> video</a>
 </p>
  
 <p>
-<font color="green"><b>Shri Mataji Devi Saraswati Sharada Mata</b></font> by Ajit Kadkade<br>
+<font color="green"><b>Śhrī Mātājī Devī Saraswatī Sharada Mātā</b></font> by Ajit Kadkade<br>
 <a href="https://www.youtube.com/watch?v=g6WFX08bB6E"> video</a> 
 </p>
 
 <p>
-Pt. Bhimsen Joshi - <font color="green"><b>Jai Jagdishwari Mata Saraswati - Savai Gandharva</b></font><br>
+Pt. Bhimsen Joshi - <font color="green"><b>Jai Jagdishwari Mātā Saraswatī - Savai Gandharva</b></font><br>
 <a href="https://www.youtube.com/watch?v=JgZ9Muu3qaA"> video</a> 
 </p>
 
 <p>
-<font color="green"><b>Mata Saraswati Sharde</b></font><br>
+<font color="green"><b>Mātā Saraswatī Sharde</b></font><br>
 <a href="https://www.youtube.com/watch?v=ObgRifcW6ao"> video</a> 
 </p>
 
