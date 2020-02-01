@@ -73,7 +73,7 @@ So even Śhrī Kṛiṣhṇa has to use Her Power. Everybody has to use Her Powe
 <p style="text-align:center;">
 <font color="DarkRed">"So one must learn how to respect the books, specially the Scriptures.<br>
 <b>And She’s the One Who gives you the penetration power into these books, 
-to know what is the truth and what is not</b> – penetration power to understand what is written between the lines,<br>what is the subtle meaning of the whole thing – <b>that is the Power of Saraswatī.</b>"</font><br>
+to know what is the truth and what is not</b> – penetration power to understand what is written between the lines, what is the subtle meaning of the whole thing – <b>that is the Power of Saraswatī.</b>"</font><br>
 <font size="+0"><b>1990-0811 Śhrī Saraswatī Pūjā, Lyons Bay (near Vancouver), BC, Canada</b></font>
 </p>
 
