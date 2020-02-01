@@ -21,7 +21,7 @@ Mahākālī, Mahāsaraswatī and Mahālakṣhmī, and three of Them put together
 <p style="text-align:center;">
 <font color="DarkRed">"Now another blessings of Saraswatī is that you can have knowledge of Sahaja Yoga."</font><br>
 <font size="+0"><b>1990-0811 Śhrī Saraswatī Pūjā, Lyons Bay (near Vancouver), BC, Canada</b></font><br>
-<font color="DarkGreen">Aum twameva sākshāt Shrī Turīyā sākshāt Shrī Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah!</font><br>
+<font color="DarkGreen">Auṃ Twameva sākshāt Śhrī Turīyā sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</font><br>
 <font size="+0"><b>O Divine Mother, You are verily the Fourth State of Meditation (Union with the Divine), Salutations to You!</b></font>
 </p>
 
