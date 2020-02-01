@@ -6,7 +6,7 @@ tags:
   - Shri Vinayaka Chaturthi
 ---
 
-<div style="text-align: left"><img src="/images00.png" width="250" /></div><br>
+<div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
 <font color="DarkRed">"Today is a very important day for all of us Sahaja Yogis, because today Śhrī Gaṇeśha was born. Śhrī Gaṇeśha is whom we worship and because of whom we got our Realization. However much you may remember Him, until you do not know His special qualities, you cannot attain Him. His special quality is that He is the Embodiment of Purity (Śhuddha Swarūp) and Complete Master of the Universe. He is the Incarnation of the Supreme, of Brahman."</font><br>
