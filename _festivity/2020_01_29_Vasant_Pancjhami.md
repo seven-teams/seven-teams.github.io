@@ -105,7 +105,7 @@ to know what is the truth and what is not</b> – penetration power to understan
 <font color="DarkGreen"><b>Sā mām pātu Saraswatī Bhagawati</b></font><br>
 <b>O You, who are that Goddess Saraswati Bhagawati, please bless us and protect us.</b><br> 
 <font color="DarkGreen"><b>Nishesha jādy’āpahā</b></font><br>
-<b>Shrī Saraswatī Vandanā (Prayer to Shrī Saraswatī)
+Shrī Saraswatī Vandanā (Prayer to Shrī Saraswatī)
 </p>	
 
 <font size="+2"><b>Suggested Talk:</b></font> 
