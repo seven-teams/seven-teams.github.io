@@ -5,36 +5,36 @@ excerpt: "Videos Links"
 author_profile: false
 ---
 
-<font color="DeepPink"><b>2020 Celebrating Vasant Panchami: Worshipping Shri Mahasaraswati the Counsellor</b></font>
+<font color="DeepPink"><b>2020 Celebrating Vasant Panchami: Worshipping Śhrī Mahāsaraswatī the Counselor</b></font>
 
 <p>
-<font color="blueviolet">"... the second one is Mahasaraswati, is at Mahurgad. We always sing Mahurgad. Wari song, that is the one - is Mahasaraswati, which is also called as Renuka Devi, that's the right-sided Mahasaraswati."</font><br>
+<font color="blueviolet">"Now the second one is Mahāsaraswatī, is at Māhūragaḍ. We always sing Māhūragaḍ. Wari song, that is the one -- is Mahāsaraswatī, which is also called as Reṇukā Devī, that's the right-sided Mahāsaraswatī."</font><br>
 <font size="-1">1990-1221 Śhrī Mahālakṣhmī Pūjā, Kolhapur, Maharashtra, India</font><br>
-<font color="green"><b>Mahur gad wari</b></font><br>
+<font color="green"><b>Māhūragaḍ. Wari</b></font><br>
 <a href="https://www.youtube.com/watch?v=OQ53PXIz4w0">video</a>
 </p>
 
 <br>
 
-<font color="DeepPink"><b>2020 Celebrating Shri Vinayaka Chaturthi: Birthday of Shri Ganesha</b></font>
+<font color="DeepPink"><b>2020 Celebrating Śhrī Vināyaka Chaturthī: Birthday of Śhrī Gaṇeśha</b></font>
 
 <p>
-<font color="green"><b>Omkar Pradhana Rup Ganeshache by Saint Tukaram</b></font><br>
+<font color="green"><b>Omkar Pradhana Rup Gaṇeśche by Saint Tukaram</b></font><br>
 <a href="https://www.youtube.com/watch?v=ks7SUsrbB-c"> video</a><br>
 </p>
 
 <p>
-<font color="green"><b>Jai Ganraya Shri Ganaraya</b></font><br>
+<font color="green"><b>Jay Ganraya Śhrī Ganaraya</b></font><br>
 <a href="https://www.youtube.com/watch?v=0dit4be9pK0"> video</a>
 </p>
 
 <p>
-<font color="green"><b>108 Names of Shri Ganesha</b></font><br>
+<font color="green"><b>108 Names of Śhrī Gaṇeśha</b></font><br>
 <a href="https://www.youtube.com/watch?v=LEoMVTD6Zuc"> video</a> 
 </p>
 
 <p>
-<font color="green"><b>Namami Shri Gan raj Dayal</b></font><br>
+<font color="green"><b>Namami Śhrī Gan raj Dayal</b></font><br>
 <a href="https://www.youtube.com/watch?v=K1R54Pk7-70"> video</a> 
 </p>
 

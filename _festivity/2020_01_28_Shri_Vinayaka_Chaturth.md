@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating Shri Vinayaka Chaturthi: Birthday of Shri Ganesha'
+title: '2020 Celebrating Śhrī Vināyaka Chaturthī: Birthday of Śhrī Gaṇeśha'
 date: 2020-01-28
 permalink: /festivity/2020/01/28
 tags:
@@ -78,7 +78,7 @@ It’s like that."</font><br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Omkar Pradhana Rup Ganeshache by Saint Tukaram</b></font><br>
+<font color="green"><b>Omkar Pradhana Rup Gaṇeśche by Saint Tukaram</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
@@ -88,22 +88,22 @@ It’s like that."</font><br>
 </p>
 
 <p>
-<font color="green"><b>Jai Ganraya Shri Ganaraya</b></font><br>
+<font color="green"><b>Jay Ganraya Śhrī Ganaraya</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a>
 </p>
  
 <p>
-<font color="green"><b>Jai Jai Bolo Nirmal Ganesha Ki</b></font><br>
+<font color="green"><b>Jai Jai Bolo Nirmal Gaṇeśha kī</b></font><br>
 <a href="https://www.youtube.com/watch?v=9r2eVWLg4mo"> video</a> 
 </p>
 
 <p>
-<font color="green"><b>108 Names of Shri Ganesha</b></font><br>
+<font color="green"><b>108 Names of Śhrī Gaṇeśha</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a> 
 </p>
 
 <p>
-<font color="green"><b>Namami Shri Gan raj Dayal</b></font><br>
+<font color="green"><b>Namami Śhrī Gan raj Dayal</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a> 
 </p>
 
@@ -113,7 +113,7 @@ It’s like that."</font><br>
 </p>
 
 <p>
-<font color="green"><b>Sukhkarta dukhharta Shri Ganesh Aarti</b></font><br>
+<font color="green"><b>Sukhkarta dukhharta Śhrī Gaṇeśh Āratī</b></font><br>
 <a href="https://www.youtube.com/watch?v=HNv44APLhL8&list=PL8E57180C36478F98&index=2"> video</a> 
 </p>
 
