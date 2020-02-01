@@ -36,8 +36,8 @@ It is mentioned in the almanac [calendar] that today is the day of special Yoga,
 </p>
 
 <p>
-<font color="DarkRed">"As human beings are created in the image of God as Primordial Being (Virāṭa), this center is also expressed first at birth in every human being. The Mūlādhāra chakra is placed in the lowest region of the human trunk about one inch above the center of the ‘seat’. This most vital and important center exists in subtle form. Its gross expression, in medical terminology, is the pelvic plexus which surrounds it.
-It is said that God made the creation in seven days. Monday is the day of Ādi Śhakti, and also of Lord Śhiva. Tuesday is the day realized Souls (Sahaja Yogis) should worship Śhrī Gaṇeśha in the Mūlādhāra chakra. Hanumāna, who controls the preconscious mind (chetan mana), should also be worshiped on Tuesday.
+<font color="DarkRed">"As human beings are created in the image of God as Primordial Being (Virāṭa), this center is also expressed first at birth in every human being. The Mūlādhāra chakra is placed in the lowest region of the human trunk about one inch above the center of the ‘seat’. This most vital and important center exists in subtle form. Its gross expression, in medical terminology, is the pelvic plexus which surrounds it.<br>
+It is said that God made the creation in seven days. Monday is the day of Ādi Śhakti, and also of Lord Śhiva. Tuesday is the day realized Souls (Sahaja Yogis) should worship Śhrī Gaṇeśha in the Mūlādhāra chakra. Hanumāna, who controls the preconscious mind (chetan mana), should also be worshiped on Tuesday.<br>
 Śhrī Gaṇeśha was created out of the earth element. His manifestation differs from soul to soul depending on their state of evolution:"</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 12: Mūlādhāra Chakra</b></font>
 </p>
@@ -56,7 +56,7 @@ It is said that God made the creation in seven days. Monday is the day of Ādi �
 
 <p>
 <font color="DarkRed">"He is omnipotent, omnipresent and in everything, but you cannot recognize Him until you are realized. After your Realization you can recognize what Śhrī Gaṇeśha is. Śhrī Gaṇeśha is purity, the Pure Spirit.<br>
-When He is awakened within us, then we have no questions left. Then we are successful, in whichever task we undertake. We find joy in everything we do. He is the Embodiment of Joy and gives joy to everyone.
+When He is awakened within us, then we have no questions left. Then we are successful, in whichever task we undertake. We find joy in everything we do. He is the Embodiment of Joy and gives joy to everyone.<br>
 To serve Him is the Paramadharma [Ultimate Dharma]. To serve Him means to look after small children, to serve them, to make sure there is no cruelty towards them. This pleases Him very much. Such an Embodiment of Love, such a pure-hearted Śhrī Gaṇeśha was born today.<br>
 This is the importance of this day. Today if you ask for any wish, then Śhrī Gaṇeśha will fulfill it. It is His right to fulfill all your desires, because you are all realized. Ask Him with all your heart and He will help you in every way, every moment, every instant."</font><br>
 <font size="+0"><b>2008-0210 Śhrī Gaṇeśha’s Birthday Pūjā (Hindi), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font>
@@ -66,8 +66,8 @@ This is the importance of this day. Today if you ask for any wish, then Śhrī G
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"Now there is a thing called Saṅkalp.
-Means that you have now say, why do you want to do the Pūjā of Śhrī Gaṇeśha. It’s called Saṅkalp. At this time you have to say this, that, ‘I do worshiping Śhrī Gaṇeśha for developing Sahaja Yoga and for working out Sahaja Yoga within myself, with all my friends, with all my relations, with all my country men, with all the world.’ 
-It’s like that."</b></font><br>
+Means that you have now say, why do you want to do the Pūjā of Śhrī Gaṇeśha. It’s called Saṅkalp. At this time you have to say this, that, <b>‘I do worshiping Śhrī Gaṇeśha for developing Sahaja Yoga and for working out Sahaja Yoga within myself, with all my friends, with all my relations, with all my country men, with all the world.’</b> 
+It’s like that."</font><br>
 <font size="+0"><b>1984-0902 Śhrī Gaṇeśha Pūjā, Buffet Area, Hotel Riffelberg, Zermatt, Switzerland</b></font>
 </p>
 
