@@ -132,12 +132,12 @@ Shrī Saraswatī Vandanā (Prayer to Shrī Saraswatī)
 </p>
  
 <p>
-<font color="green"><b>Shri Mataji Devi Saraswati Sharada Mata</b> by Ajit Kadkade</font><br>
+<font color="green"><b>Shri Mataji Devi Saraswati Sharada Mata</b></font> by Ajit Kadkade<br>
 <a href="https://www.youtube.com/watch?v=g6WFX08bB6E"> video</a> 
 </p>
 
 <p>
-<font color="green">Pt. Bhimsen Joshi - <b>Jai Jagdishwari Mata Saraswati - Savai Gandharva</b></font><br>
+Pt. Bhimsen Joshi - <font color="green"><b>Jai Jagdishwari Mata Saraswati - Savai Gandharva</b></font><br>
 <a href="https://www.youtube.com/watch?v=JgZ9Muu3qaA"> video</a> 
 </p>
 
