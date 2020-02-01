@@ -65,7 +65,7 @@ This is the importance of this day. Today if you ask for any wish, then Śhrī G
 <div style="text-align: center"><img src="/images/image304.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>"Now there is a thing called Saṅkalp.
+<font color="DarkGreen">"Now there is a thing called Saṅkalp.
 Means that you have now say, why do you want to do the Pūjā of Śhrī Gaṇeśha. It’s called Saṅkalp. At this time you have to say this, that, <b>‘I do worshiping Śhrī Gaṇeśha for developing Sahaja Yoga and for working out Sahaja Yoga within myself, with all my friends, with all my relations, with all my country men, with all the world.’</b> 
 It’s like that."</font><br>
 <font size="+0"><b>1984-0902 Śhrī Gaṇeśha Pūjā, Buffet Area, Hotel Riffelberg, Zermatt, Switzerland</b></font>
