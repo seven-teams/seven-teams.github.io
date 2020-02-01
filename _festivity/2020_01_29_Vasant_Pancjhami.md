@@ -6,7 +6,7 @@ tags:
   - Vasant Panchami
 ---
 
-<div style="text-align: left"><img src="/images00.png" width="250" /></div><br>
+<div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
 <font color="DarkRed">""</font><br>
