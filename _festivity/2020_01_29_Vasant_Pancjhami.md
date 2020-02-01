@@ -43,19 +43,19 @@ With the help of this second power, we will get Gyān [Knowledge], we will know 
 
 <p>
 <font color="DarkRed">"<b>Śhāradā, the Goddess of Saraswatī</b> is the One who carries the message of Virāṭa within and tells us how to sing. She tells us what is appealing to God. How these rāgas were made also? Just think of it. Because first they chose the notes, the āroha [crescendo] and avarohas [decrescendos], the going up and down [ascending melody and descending melody], which was appealing to God. So the melodies were created. Melodies are fixed. You cannot change the melodies the notes because they found out that, at this point, the Spirit awakened; on the vibrations they found out. They found out that, when they sang this way it worked out. The vīṇā [Primordial Instrument of Śhrī Saraswatī] they played and they found out the exact swaras. Exact swaras which would really make you feel nice. Now, you know that, those people have come from the West, don't understand any Indian music on the mental level but they understand at the spiritual level because their Spirits get filled with joy and the vibrations starts flowing."</font><br>
-<font size="+0"><b>1983-0202 Public Program, The Vishuddhi Chakra, New Delhi, India</b></font>
+<font size="+0"><b>1983-0202 Public Program, The Viśhuddhi Chakra, New Delhi, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image307.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">"Only for hymns to be sung in the praise of God. All music should be in the praise of God. All ragas should be in the praise of God."</font><br>
-<font size="+0"><b>1983-0202 Public Program, The Vishuddhi Chakra, New Delhi, India</b></font><br>
+<font size="+0"><b>1983-0202 Public Program, The Viśhuddhi Chakra, New Delhi, India</b></font><br>
 <font color="DarkRed"><b>Tu swar ki devi, ye sangeet, tujh se,</b><br>
 You are the goddess of music, and this song,<br>
 <b>Har Shabd tera hai har geet tujh se,</b><br>
 all its words and the tune, comes from You.<br>
-<b>Ham paar Sahaj mein, teri kripa se</b><br>
+<b>Ham pār Sahaj mein, teri kripa se</b><br>
 Only with Your compassion we become paar in Sahaj.<br>
 <b>Nirmal Vidya ka vardan de ma</b><br>
 Please grant us the boon of Shri Nirmala Vidya.</font><br>
