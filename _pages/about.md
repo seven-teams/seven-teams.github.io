@@ -63,7 +63,6 @@ Shri Mataji withdrew from this world on February 23, 2011.
     vii. **<font color="DarkGreen">2020 Celebrating 50 Years of Sahaja Yoga in the World</font>**
 
 
-
 7. **<font color="mediumvioletred">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Shri Mataji. Versions 1 and 2 were made available on July 1, 2016. and February 3, 2017. The third version will be made available soon in 2020. For other databses of transcripts please see 
 
 
