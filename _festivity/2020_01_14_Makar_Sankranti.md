@@ -6,7 +6,7 @@ tags:
   - Makar Sankranti
 ---
 
-![PICTURE 1](/images/image0.png)
+<div style="text-align: left"><img src="/images0.png" width="250" /></div><br>
 
 <p>
 <font color="DarkRed">"Sahasrāra is the most powerful chakra because it is the seven chakras combination and many others. With the Sahasrāra you can do anything: you can manage the Sun, you can manage the Moon, you can manage the Earth, you can manage the temperatures, everything."</font><br>

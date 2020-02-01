@@ -7,7 +7,7 @@ tags:
 title: '2020 Celebrating Vasant Panchami
 ---
 
-![PICTURE 1](/images/image00.png)
+<div style="text-align: left"><img src="/images00.png" width="250" /></div><br>
 
 <p>
 <font color="DarkRed">""</font><br>
