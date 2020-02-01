@@ -22,7 +22,7 @@ Mahākālī, Mahāsaraswatī and Mahālakṣhmī, and three of Them put together
 <font color="DarkRed">"Now another blessings of Saraswatī is that you can have knowledge of Sahaja Yoga."</font><br>
 <font size="+0"><b>1990-0811 Śhrī Saraswatī Pūjā, Lyons Bay (near Vancouver), BC, Canada</b></font><br>
 <font color="DarkGreen">Aum twameva sākshāt Shrī Turīyā sākshāt Shrī Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah!</font><br>
-<font size="+0"><b>O Divine Mother, You are verily the fourth state of meditation (union with the Divine) Salutations to You!</b></font>
+<font size="+0"><b>O Divine Mother, You are verily the Fourth State of Meditation (Union with the Divine), Salutations to You!</b></font>
 </p>
 
 <p>
@@ -36,13 +36,13 @@ This creation power is the blessing of Saraswatī by which many arts have been g
 
 <p style="text-align:center;">
 <font color="DarkRed">"The second power, which He gave us, which He sent to us, was Mahāsaraswatī and to this Mahāsaraswatī Power, 
-He called Counselor, the one who will counsel you – that means, who helps us for Yoganirūpaṇ [to see the form of Yoga]. 
+<b>He called Counselor, the one who will counsel you – that means, who helps us for Yoganirūpaṇ [to see the form of Yoga].</b> 
 With the help of this second power, we will get Gyān [Knowledge], we will know the subtle knowledge."</font><br>
 <font size="+0"><b>1996-0414 Easter Pūjā (Hindi), Kolkata, West Bengal, India</b></font>
 </p>
 
 <p>
-<font color="DarkRed">"<b>Sharada the Goddess of Saraswati</b> is the one who carries the message of Viraata within and tells us how to sing. She tells us what is appealing to God. How these ragas were made also? Just think of it. Because first, they chose the notes the aroha and avrohas, the going up and down (ascending melody and descending melody), which was appealing to God. So the melodies were created. Melodies are fixed. You cannot change the melodies the notes because they found out that, at this point, the Spirit awakened; on the vibrations they found out. They found out that, when they sang this way it worked out. The Veena (primordial instrument of Shri Saraswati) they played and they found out the exact swaras. Exact swaras which would really make you feel nice. Now, you know that those people have come from the West, don’t understand any Indian music on the mental level but they understand at the Spiritual level because their Spirits get filled with joy and the vibrations starts flowing."</font><br>
+<font color="DarkRed">"<b>Śhāradā, the Goddess of Saraswatī is the one who carries the message of Virāṭa within and tells us how to sing. She tells us what is appealing to God. How these rāgas were made also? Just think of it. Because first they chose the notes, the āroha [crescendo] and avarohas [decrescendos], the going up and down [ascending melody and descending melody], which was appealing to God. So the melodies were created. Melodies are fixed. You cannot change the melodies the notes because they found out that, at this point, the Spirit awakened; on the vibrations they found out. They found out that, when they sang this way it worked out. The vīṇā [Primordial Instrument of Śhrī Saraswatī] they played and they found out the exact swaras. Exact swaras which would really make you feel nice. Now, you know that, those people have come from the West, don't understand any Indian music on the mental level but they understand at the spiritual level because their Spirits get filled with joy and the vibrations starts flowing."</font><br>
 <font size="+0"><b>1983-0202 Public Program, The Vishuddhi Chakra, New Delhi, India</b></font>
 </p>
 
@@ -72,7 +72,8 @@ So even Śhrī Kṛiṣhṇa has to use Her Power. Everybody has to use Her Powe
 
 <p style="text-align:center;">
 <font color="DarkRed">"So one must learn how to respect the books, specially the Scriptures.<br>
-<b>And She’s the One Who gives you the pe</b> – penetration power to understand what is written between the lines,<br>what is the subtle meaning of the whole thing – <b>that is the Power of Saraswatī.</b>"</font><br>
+<b>And She’s the One Who gives you the penetration power into these books, 
+to know what is the truth and what is not</b> – penetration power to understand what is written between the lines,<br>what is the subtle meaning of the whole thing – <b>that is the Power of Saraswatī.</b>"</font><br>
 <font size="+0"><b>1990-0811 Śhrī Saraswatī Pūjā, Lyons Bay (near Vancouver), BC, Canada</b></font>
 </p>
 
@@ -89,21 +90,21 @@ So even Śhrī Kṛiṣhṇa has to use Her Power. Everybody has to use Her Powe
 <div style="text-align: center"><img src="/images/image309.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Yā kundendu tushāra hāra dhavalā</b></font>
+<font color="DarkGreen"><b>Yā kundendu tushāra hāra dhavalā</b></font><br>
 <b>She who is as fair as fragrant white Kunda flowers, the moon, the fine misty spray of the waterfall and the white garland;</b><br> 
-<font color="DarkGreen"><b>Yā shubhra vastrā vṛutā/b></font>
+<font color="DarkGreen"><b>Yā shubhra vastrā vṛutā</b></font><br>
 <b>She who is covered with white garments;</b><br>  
-<font color="DarkGreen"><b>Yā vīnā vara danda mandita karā/b></font>
+<font color="DarkGreen"><b>Yā vīnā vara danda mandita karā</b></font><br>
 <b>She whose hands are decorated with the vina’s slender neck;</b><br>  
-<font color="DarkGreen"><b>Yā shweta padm’āsanā/b></font>
+<font color="DarkGreen"><b>Yā shweta padm’āsanā</b></font><br>
 <b>She who resides in a white lotus;</b><br> 
-<font color="DarkGreen"><b>Yā Brahm’āchyuta Shaṅkara Prabhṛutibhir/b></font> 
+<font color="DarkGreen"><b>Yā Brahm’āchyuta Shaṅkara Prabhṛutibhir</b></font><br>
 <b>She whom Shri Brahma, Shri Vishnu, Shri Shiva and all the Deities</b><br> 
-<font color="DarkGreen"><b>Devaihi sadā vanditā</b></font> 
+<font color="DarkGreen"><b>Devaihi sadā vanditā</b></font><br>
 <b>Constantly praise and worship;</b><br> 
-<font color="DarkGreen"><b>Sā mām pātu Saraswatī Bhagawati</b></font> 
+<font color="DarkGreen"><b>Sā mām pātu Saraswatī Bhagawati</b></font><br>
 <b>O You, who are that Goddess Saraswati Bhagawati, please bless us and protect us.</b><br> 
-<font color="DarkGreen"><b>Nishesha jādy’āpahā</b></font>
+<font color="DarkGreen"><b>Nishesha jādy’āpahā</b></font><br>
 <b>Shrī Saraswatī Vandanā (Prayer to Shrī Saraswatī)
 </p>	
 
@@ -114,7 +115,7 @@ So even Śhrī Kṛiṣhṇa has to use Her Power. Everybody has to use Her Powe
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="purple">"... the second one is Mahasaraswati, is at Mahurgad. We always sing Mahurgad. Wari song, that is the one - is Mahasaraswati, which is also called as Renuka Devi, that's the right-sided Mahasaraswati."</font><br>
+<font color="blueviolet">"... the second one is Mahasaraswati, is at Mahurgad. We always sing Mahurgad. Wari song, that is the one - is Mahasaraswati, which is also called as Renuka Devi, that's the right-sided Mahasaraswati."</font><br>
 <font size="-1">1990-1221 Śhrī Mahālakṣhmī Pūjā, Kolhapur, Maharashtra, India</font><br>
 <font color="green"><b>Mahur gad wari</b></font><br>
 <a href="https://www.youtube.com/watch?v=OQ53PXIz4w0">video</a>
