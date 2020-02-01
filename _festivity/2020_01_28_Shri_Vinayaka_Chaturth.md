@@ -30,8 +30,8 @@ After crossing the Āgñyā chakra, the attention of the seeker enters the limbi
 <div style="text-align: center"><img src="/images/image302.png" /></div>
 
 <p style="text-align:center;">
-<font color="green"><b>"Today is [an] auspicious day, especially since it is Vināyaka Chaturthī [fourth day of a Moon fortnight]. It is [a] very beautiful day.<br>
-It is mentioned in the almanac [calendar] that today is the day of special Yoga, i.e., coincidence, and so it is an excellent occasion when we have started such auspicious work."</b></font><br>
+<font color="green">"Today is [an] auspicious day, especially since it is Vināyaka Chaturthī [fourth day of a Moon fortnight]. It is [a] very beautiful day.<br>
+It is mentioned in the almanac [calendar] that today is the day of special Yoga, i.e., coincidence, and so it is an excellent occasion when we have started such auspicious work."</font><br>
 <font size="+0"><b>1985-0204 Śhrī Ādi Bhūmī Devī Pūjā (Marathi), Pune, Maharashtra, India</b></font>
 </p>
 
