@@ -118,32 +118,32 @@ to know what is the truth and what is not</b> – penetration power to understan
 <font color="blueviolet">"... the second one is Mahasaraswati, is at Mahurgad. We always sing Mahurgad. Wari song, that is the one - is Mahasaraswati, which is also called as Renuka Devi, that's the right-sided Mahasaraswati."</font><br>
 <font size="-1">1990-1221 Śhrī Mahālakṣhmī Pūjā, Kolhapur, Maharashtra, India</font><br>
 <font color="green"><b>Mahur gad wari</b></font><br>
-<a href="https://www.youtube.com/watch?v=OQ53PXIz4w0">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
 <font color="green"><b>Aisa Do Hamein Gyan</b></font><br>
-<a href="https://www.youtube.com/watch?v=Tb5y7wHCFwk">video</a>
+<a href="https://www.youtube.com/watch?v=Tb5y7wHCFwk"> video</a>
 </p>
 
 <p>
 <font color="green"><b>Gyan De, Ma Nirmal</b></font><br>
-<a href="https://www.youtube.com/watch?v=cvUBcvkzN7c">video</a>
+<a href="https://www.youtube.com/watch?v=cvUBcvkzN7c"> video</a>
 </p>
  
 <p>
 <font color="green"><b>Shri Mataji Devi Saraswati Sharada Mata</b> by Ajit Kadkade</font><br>
-<a href="https://www.youtube.com/watch?v=g6WFX08bB6E">video</a> 
+<a href="https://www.youtube.com/watch?v=g6WFX08bB6E"> video</a> 
 </p>
 
 <p>
 <font color="green">Pt. Bhimsen Joshi - <b>Jai Jagdishwari Mata Saraswati - Savai Gandharva</b></font><br>
-<a href="https://www.youtube.com/watch?v=JgZ9Muu3qaA">video</a> 
+<a href="https://www.youtube.com/watch?v=JgZ9Muu3qaA"> video</a> 
 </p>
 
 <p>
 <font color="green"><b>Mata Saraswati Sharde</b></font><br>
-<a href="https://www.youtube.com/watch?v=ObgRifcW6ao">video</a> 
+<a href="https://www.youtube.com/watch?v=ObgRifcW6ao"> video</a> 
 </p>
 
 <p>
