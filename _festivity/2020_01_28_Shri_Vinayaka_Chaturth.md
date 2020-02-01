@@ -1,5 +1,4 @@
 ---
----
 title: '2020 Celebrating Shri Vinayaka Chaturthi: Birthday of Shri Ganesha'
 date: 2020-01-28
 permalink: /festivity/2020/01/28

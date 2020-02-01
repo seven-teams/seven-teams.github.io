@@ -3,8 +3,7 @@ title: '2020 Celebrating Vasant Panchami: Worshipping Shri Mahasaraswati the Cou
 date: 2020-01-29
 permalink: /festivity/2020/01/29
 tags:
-  - Shri 
-title: '2020 Celebrating Vasant Panchami
+  - Vasant Panchami
 ---
 
 <div style="text-align: left"><img src="/images00.png" width="250" /></div><br>
