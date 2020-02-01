@@ -33,20 +33,20 @@ Shri Mataji visited U.S.A. in 1970, 1972, and each year from 1981 until 2006 exc
 
 Shri Mataji withdrew from this world on February 23, 2011. 
 
-**<font color="mediumvioletred">On the Posts of the Seven Teams</font>**
+**<font color="blue">On the Posts of the Seven Teams</font>**
 ======
 
-1. **<font color="mediumvioletred">Sahaja Yoga Festivity Team.</font>** Quotes from  Shri Mataji's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Shri Mataji) together with Photographs and links to Video/Audio talks of Shri Mataji.  
+1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from  Shri Mataji's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Shri Mataji) together with Photographs and links to Video/Audio talks of Shri Mataji.  
 
-2. **<font color="mediumvioletred">Comprehensive Compilations Teams.</font>** Quotes from  Shri Mataji's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.  
+2. **<font color="blue">Comprehensive Compilations Teams.</font>** Quotes from  Shri Mataji's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.  
 
-4. **<font color="mediumvioletred">Quotes on Incarnations Team.</font>** Quotes from  Shri Mataji's talks and writings pertaining to one Incarnation, grouped in chronological order.  
+4. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from  Shri Mataji's talks and writings pertaining to one Incarnation, grouped in chronological order.  
 
-4. **<font color="mediumvioletred">Scriptures Team.</font>** Quotes from all Scriptures of the World.
+4. **<font color="blue">Scriptures Team.</font>** Quotes from all Scriptures of the World.
 
-5. **<font color="mediumvioletred">Chronology Team.</font>** Quotes from  Shri Mataji's talks and writings pertaining to U.S.A., grouped in chronological order. 
+5. **<font color="blue">Chronology Team.</font>** Quotes from  Shri Mataji's talks and writings pertaining to U.S.A., grouped in chronological order. 
 
-6. **<font color="mediumvioletred">Yearly Topics Team.</font>** Quotes from  Shri Mataji's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Shri Mataji.  
+6. **<font color="blue">Yearly Topics Team.</font>** Quotes from  Shri Mataji's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Shri Mataji.  
 
     i. **<font color="DarkGreen">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
 
@@ -63,7 +63,7 @@ Shri Mataji withdrew from this world on February 23, 2011.
     vii. **<font color="DarkGreen">2020 Celebrating 50 Years of Sahaja Yoga in the World</font>**
 
 
-7. **<font color="mediumvioletred">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Shri Mataji. Versions 1 and 2 were made available on July 1, 2016. and February 3, 2017. The third version will be made available soon in 2020. For other databses of transcripts please see 
+7. **<font color="blue">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Shri Mataji. Versions 1 and 2 were made available on July 1, 2016. and February 3, 2017. The third version will be made available soon in 2020. For other databses of transcripts please see 
 
 
     i. <a href="https://www.amruta.org/transcripts-and-translations/"> Amruta</a>
