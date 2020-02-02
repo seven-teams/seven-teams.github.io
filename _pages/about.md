@@ -13,7 +13,7 @@ redirect_from:
 **<font color="blue">Divine Treasures: an eternal token of gratitude and love</font>**
 ======
 
-The chance to meet Śhrī Mātājī and to hear Her teachings represented a dramatic turnaround in our lives. Sometimes fast, sometimes slow, visible transformation in our lives occurred, producing a lasting change infused by beauty, serenity, joy, purity, simplicity, collectivity, etc. As an eternal expression of our gratitude towards Śhrī Mātājī, we would like to share some of the Divine Treasures we have delighted our Souls and Spirits with while following Śhrī Mātājī and practicing Sahaja Yoga. In particular, the site includes the complete and unedited Divine Message of Śhrī Mātājī and all its connections with the Spiritual Festivals and Scriptures of the World.
+The chance to meet Śhrī Mātājī and to hear Her teachings represented a dramatic turnaround in our lives. Sometimes fast, sometimes slow, visible transformation took place, producing a lasting change infused by beauty, serenity, joy, purity, simplicity, collectivity, etc. As an eternal expression of our gratitude towards Śhrī Mātājī, we would like to share some of the Divine Treasures we have delighted our Souls and Spirits with while following Śhrī Mātājī and practicing Sahaja Yoga. In particular, the site includes the complete and unedited Divine Message of Śhrī Mātājī and all its connections with the Spiritual Festivals and Scriptures of the World.
 
 
 **<font color="red">Śhrī Mātājī Nirmalā Devī</font>**
@@ -21,11 +21,11 @@ The chance to meet Śhrī Mātājī and to hear Her teachings represented a dram
 
 Nirmala Salve was born at noon on March 21, 1923. Nirmala means immaculate, and the whole name translates: O Immaculate One, salutations to You.
 
-Her childhood and adolescence, especially Her stay in Mahatma Gandhi's ashram and involvement in India's freedom movement, are documented by family members and several public speeches of different personalities. 
+Her childhood and adolescence, especially Her stay in Mahātmā Gandhi's āśhram and involvement in India's freedom movement, are documented by family members and several public speeches of different personalities. 
 
 Married in 1947 with Chandrika Prasad Srivastava, She became the mother of two daughters: Kalpana born in 1948 and Sadhana born in 1950. 
 
-Her lifelong mission started publicly on May 5, 1970, when in the early morning hours, while meditating on a beach near Nargol, Gujarat, She witnessed the Primordial Kundalini rising and opening the Primordial Sahasrara Chakra, a culmination point in the spiritual evolution of the mankind. Known since then as Śhrī Mātājī Nirmala Devi, meaning the Holy Mother Immaculate Goddess, the purity emanating from Her being or from Her Photographs in the form of vibrations, the infinite Divine Knowledge contained in Her teachings (talks and writings), and the miracles experienced have deeply touched the lives of seekers. 
+Her lifelong mission started publicly on May 5, 1970, when in the early morning hours, while meditating on a beach near Nargol, Gujarat, She witnessed the Primordial Kuṇḍalinī rising and opening the Primordial Sahasrāra Chakra, a culmination point in the spiritual evolution of the mankind. Known since then as Śhrī Mātājī Nirmalā Devī, meaning the Holy Mother Immaculate Goddess, the purity emanating from Her being or from Her Photographs in the form of vibrations, the infinite Divine Knowledge contained in Her teachings (talks and writings), and the miracles experienced have deeply touched thousand of Seekers of Truth. 
 
 Śhrī Mātājī founded Sahaja Yoga in 1970. She established various organizations around the world, including The Life Eternal Trust in India in 1972 and Vishwa Nirmala Dharma in U.S.A. in 1985. 
 
@@ -50,7 +50,7 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 
     i. **<font color="DarkGreen">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
 
-    ii. **<font color="DarkGreen">2015 Celebrating 30 Years of Vishwa Nirmala Dharma in USA and the world</font>**vi. **<font color="DarkGreen">2020 Celebrating 35 Years of Vishwa Nirmala Dharma in the World and in U.S.A.</font>**
+    ii. **<font color="DarkGreen">2015 Celebrating 30 Years of Vishwa Nirmala Dharma in USA and the world</font>**
 
     iii. **<font color="DarkGreen">2016 35 Years of Sahaja Yoga in USA, Canada, Australia and Italy</font>**
 
