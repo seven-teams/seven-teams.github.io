@@ -10,7 +10,7 @@ tags:
 
 <p>
 <font color="DarkRed"><b>"It’s My vision that the whole world is transformed and every human being becomes Sahaja Yogi.
-My blessing to you all."</font><br>
+My blessing to you all."</b></font><br>
 <font size="+0"><b>2000-0405 Guḍī Pāḍwā Pūjā  New Delhi, India</b></font>
 </p>
 
