@@ -65,7 +65,7 @@ But if you people really join hands with Me, with full effort, it will work out.
 <p>
 <font color="DarkRed">"It is very important – because you know My vision is too big and you have to really work hard to fulfill My vision. And to give Realization to people as many as possible. You have to think what is your mind doing. There are many people who are waiting to come in Sahaja Yoga. You should have the light of spirituality; you have to feel that you are spiritual, you have to grow it, and also make others grow.<br>
 Sahaja Yoga is not limited with you. It’s not meant for one individual, not at all for one person but for the whole world. We have Sahaja Yogis all over the world, but they don’t spread Sahaja Yoga. They are satisfied with their own motives. This is not Sahaja Yoga. You must openly talk about and say about it. But Sahaja Yogis are very shy, they don’t talk about Sahaja Yoga. They can do it, no doubt."</font><br>
-<font size="+0"><b>2001-0114 Makar Saṅkrānti Pūjā , Pratishthan, Pune, Maharashtra, India</b></font>
+<font size="+0"><b>2001-0114 Makar Saṅkrānti Pūjā, Pratiṣhṭhān, Pune, Maharashtra, India</b></font>
 </p>
 
 <p>
