@@ -10,8 +10,7 @@ tags:
 
 <p>
 <font color="DarkRed"><b>"It’s My vision that the whole world is transformed and every human being becomes Sahaja Yogi.
-My blessing to you all.</b><br>
-Lead a life of wisdom."</font><br>
+My blessing to you all."</font><br>
 <font size="+0"><b>2000-0405 Guḍī Pāḍwā Pūjā  New Delhi, India</b></font>
 </p>
 
@@ -37,27 +36,27 @@ Forever and ever, Amen.</b></font><br>
 </p>
 
 <p>
-<font size="+0"><b>Sahaja Yogi:</b> Mother, what is Your vision for Sahaja Yoga?<br>
+<font size="+0"><b>Sahaja Yogi:</b> Mother, what is Your vision for Sahaja Yoga?</font><br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b> This is the one, started already! <b>My vision for Sahaja Yoga</b> is that, that all the good people, righteous people, God-loving people will rise above all that is useless, worldly, and reside in the Heavens with all the blessings of God, for ever and ever.</font><br>
 <font size="+0"><b>1987-0506 Talk to Sahaja Yogis,  Sydney, New South Wales, Australia</b></font>
 </p>
 
 <p>
-<font color="DarkRed">"I hope you’ll understand My vision and you’ll stand by Me, and you’ll come up to that. <b>I depend on you entirely for My vision.</b> We have to change this whole world into a beautiful place, and for that not much sacrifice is needed. You’re already blessed, you don’t have to do much; only thing is keep your attention on the Source of power.
-May God bless you.
+<font color="DarkRed">"I hope you’ll understand My vision and you’ll stand by Me, and you’ll come up to that. <b>I depend on you entirely for My vision.</b> We have to change this whole world into a beautiful place, and for that not much sacrifice is needed. You’re already blessed, you don’t have to do much; only thing is keep your attention on the Source of power.<br>
+May God bless you.<br>
 Thank you."</font><br>
 <font size="+0"><b>1990-0923 Navarātri Pūjā Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
 </p>
 
 <p style="text-align:center;">
-<font color="Red">"You are the petals, you are the corona, you are the color, you are the beauty, you are the pollen of that beautiful lotus which is My vision of this world."</font><br>
+<font color="DarkRed">"You are the petals, you are the corona, you are the color, you are the beauty, you are the pollen of that beautiful lotus which is My vision of this world."</font><br>
 <font size="+0"><b>1993-0321 Birthday Pūjā, Satya Yuga, New Delhi, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image323.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"Because in My vision, we have to change the whole world.<br>
+<font color="DarkRed"><b>"Because in My vision, we have to change the whole world.</b><br>
 I don’t know in My lifetime if I can achieve it or not.<br>
 But if you people really join hands with Me, with full effort, it will work out."</font><br>
 <font size="+0"><b>2000-1231 New Year Pūjā , Kalwa, Thane, Maharashtra, India</b></font>
