@@ -9,12 +9,12 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkGreen">"Thank You for letting us participate in the salvation of mankind.<br>
+<font color="DarkGreen">Thank You for letting us participate in the salvation of mankind.<br>
 Thank You for giving us the joy of introducing a yearning seeker to Your redeeming Motherly Love.<br>
 Thank You for inviting all of us to the court of the Goddess.<br>
 Thank You for establishing the Kingdom of God on Earth.<br>
 Thank You for accepting our offerings and prayers.<br>
-Thank You for showering Your blessings endlessly upon us."</font>
+Thank You for showering Your blessings endlessly upon us.</font>
 </p>
 
 <div style="text-align: center"><img src="/images/image326.png" /></div>
@@ -27,7 +27,7 @@ and reside in the Heavens with all the blessings of God, forever and ever."</fon
 </p>
 
 <p>
-<font color="DarkGreen">"Thank You for opening the gateway to Heaven within us.<br>
+<font color="DarkGreen">Thank You for opening the gateway to Heaven within us.<br>
 Thank You for bestowing the gift of yoga upon us.<br>
 Thank You for making us.<br>
 Thank You for baptizing us.<br>
@@ -38,7 +38,7 @@ Thank You for being gentle.<br>
 Thank You for being wonderful.<br>
 Thank You for being in our hearts.<br>
 Thank You for being our Guru.<br>
-Thank You for being our Mother."</font>
+Thank You for being our Mother.</font>
 </p>
 
 <div style="text-align: center"><img src="/images/image327.png" /></div>
@@ -53,7 +53,7 @@ May God bless you all and give you wisdom."</font><br>
 
 <font size="+2"><b>Suggested Video:</b></font> 
 <font size="+0"><b>Supreme Source of Love</b></font>
-<a href=""> video</a><br>
+<a href="https://vimeo.com/60342739"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
