@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkFreen">"Thank You for letting us participate in the salvation of mankind.<br>
+<font color="DarkGreen">"Thank You for letting us participate in the salvation of mankind.<br>
 Thank You for giving us the joy of introducing a yearning seeker to Your redeeming Motherly Love.<br>
 Thank You for inviting all of us to the court of the Goddess.<br>
 Thank You for establishing the Kingdom of God on Earth.<br>
