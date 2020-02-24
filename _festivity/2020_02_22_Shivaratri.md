@@ -39,7 +39,7 @@ Na dharmo, na ch’ārtho, na kāmo, na mokshah<br>
 Neither duty, nor riches, desire, nor release,<br>
 Chid’ānanda rūpah, Śhiv’oham, Śhiv’oham<br>
 Eternal bliss and awareness am I, I am Śhiva, I am Śhiva!</b><br>
-<a href="https://www.youtube.com/watch?v=egus1kFtNYg ">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.htm">video</a>
 </p>
 
 <p>
@@ -197,7 +197,7 @@ Salutations to You!
 
 <p>
 <font color="DarkSlateBlue"><b>Bolo Śhiv Śhiva Śhambhu Bam Bam Bam</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.ht">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.htm">video</a> 
 </p>
 
 <p>
