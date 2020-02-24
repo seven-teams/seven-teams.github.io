@@ -108,8 +108,8 @@ The Goddess is the Power, Śhakti, but He makes the vibrations. It’s like thes
 <font color="DarkRed">"So now this so-called limited love, what is the solution which takes you to destruction is the Unlimited Love. 
 Because Śhiva is nothing but Love, He’s Love. Love is that corrects, that nourishes, that wants your benevolence. 
 That’s what Śhiva is. It wants your benevolence. It looks after your benevolence."</font><br> 
-<font size="+0"><b>1991-0216 Śhivarātri Pūjā, Cinema Garden Theater, Chianciano Terme, Italy</b></font>
-<font color="DarkSlateBlue"><b>Auṃ twameva sākshāt Śhrī Karunā-sāgara sākshāt Śhrī Ādi Śhakti Mātājī Shrī Nirmalā Devyai namo namaḥ! 
+<font size="+0"><b>1991-0216 Śhivarātri Pūjā, Cinema Garden Theater, Chianciano Terme, Italy</b></font><br>
+<font color="DarkSlateBlue"><b>Auṃ twameva sākshāt Śhrī Karunā-sāgara sākshāt Śhrī Ādi Śhakti Mātājī Shrī Nirmalā Devyai namo namaḥ!<br> 
 O Divine Mother, You are verily the Ocean of Compassion,  
 Salutations to You!</b></font>
 </p>
@@ -144,9 +144,9 @@ I am Śhiva, I am Śhiva!</b></font>
 From Him came the desire for our emancipation.</b></font><br>
 <br>
 <font color="DarkRed">"<b>Auṃ twameva sākshāt Śhrī Nirmal’ātmā sākshāt Śhrī Ādi Śhakti Mātājī Shrī Nirmalā Devyai namo namaḥ!</b></font></br>
-<p style="text-align:center;">
+<br>
 <font color="DarkSlateBlue">O Divine Mother, You are verily the Primordial Self of Śhrī Mātājī,<br>
-Salutations to You!
+Salutations to You!</font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
