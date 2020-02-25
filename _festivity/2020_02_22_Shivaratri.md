@@ -124,11 +124,11 @@ So as it is He is the spectator of the work of Ādi Śhakti. He allows Her to do
 <div style="text-align: center"><img src="/images/image320.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"[The] fourth one is the most important for all of us is to know that there’s a nāḍī which passes through left Viśhuddhi into the heart. 
+<font color="DarkRed">"[The] <b>fourth one is the most important for all of us</b> is to know that there’s a nāḍī which passes through left Viśhuddhi into the heart. 
 Starts from the heart, goes up, passes through Āgñyā. It has four petals, and opens up. This is the one which gives you the state which is called as Turīya."</font><br> 
 <font size="+0"><b>1991-0216 Śhivarātri Pūjā, Cinema Garden Theater, Chianciano Terme, Italy</b></font>
 <font color="DarkSlateBlue"><b>Sat-chid’ānanda rūpah, Śhivo’ham, Śhivo’ham 
-I am in the form of Sat (truth, Self or existence), Chit (awareness or consciousness) and Ānanda (bliss or pure joy) 
+I am in the form of Sat (truth, Self or existence), Chit (awareness or consciousness) and Ānanda (bliss or pure joy),<br>
 I am Śhiva, I am Śhiva!</b></font>
 </p>
 
@@ -143,8 +143,7 @@ I am Śhiva, I am Śhiva!</b></font>
 <font color="DarkSlateBlue"><b>We, the children, bow with complete devotion and adoration to the Sacred One who resides in the heart of Śhrī Mātājī Nirmalā Devī.<br> 
 From Him came the desire for our emancipation.</b></font><br>
 <br>
-<font color="DarkRed">"<b>Auṃ twameva sākshāt Śhrī Nirmal’ātmā sākshāt Śhrī Ādi Śhakti Mātājī Shrī Nirmalā Devyai namo namaḥ!</b></font></br>
-<br>
+<font color="DarkRed">"<b>Auṃ twameva sākshāt Śhrī Nirmal’ātmā sākshāt Śhrī Ādi Śhakti Mātājī Shrī Nirmalā Devyai namo namaḥ!</b></font><br>
 <font color="DarkSlateBlue">O Divine Mother, You are verily the Primordial Self of Śhrī Mātājī,<br>
 Salutations to You!</font>
 </p>
