@@ -68,7 +68,7 @@ May God bless you all and give you wisdom."</font><br>
 </p>
  
 <p>
-<font color="green"><b>He adi ma he anti ma</b></font><br>
+<font color="green"><b>He Ādi Mā he Anti Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=7xjFWTP_110">video</a> 
 </p>
 

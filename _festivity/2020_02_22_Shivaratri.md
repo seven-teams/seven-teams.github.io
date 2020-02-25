@@ -39,7 +39,7 @@ Na dharmo, na ch’ārtho, na kāmo, na mokshah<br>
 Neither duty, nor riches, desire, nor release,<br>
 Chid’ānanda rūpah, Śhiv’oham, Śhiv’oham<br>
 Eternal bliss and awareness am I, I am Śhiva, I am Śhiva!</b><br>
-<a href="https://seven-teams.github.io/Videos_Links.htm">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -162,17 +162,17 @@ Salutations to You!</font>
 
 <p>
 <font color="DarkSlateBlue"><b>Śhiva Manasa</b> (composed by Śhrī Ādi Śhaṅkarāchārya)</font><br>
-<a href="https://seven-teams.github.io/Videos_Links.htm">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
 <font color="DarkSlateBlue"><b>Śhiva Aṣhṭakam</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.htm">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
 <font color="DarkSlateBlue"><b>Bhole baba Chale Kailash</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.htm">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
@@ -187,7 +187,7 @@ Salutations to You!</font>
 
 <p>
 <font color="DarkSlateBlue"><b>Lalat.pe Hai Chandra Mā</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.htm">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
@@ -197,12 +197,12 @@ Salutations to You!</font>
 
 <p>
 <font color="DarkSlateBlue"><b>Bolo Śhiv Śhiva Śhambhu Bam Bam Bam</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.htm">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
 <font color="DarkSlateBlue"><b>Śhiv Bhola Bhandari</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.htm">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
