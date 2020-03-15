@@ -10,7 +10,7 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"As you know, <b>on the Day of Holī, Holikā was burnt</b>. Agni [God of Fire] had a very big blessing and task, because Agni Devatā had given Holikā a boon that in any circumstance, she will not burn, that death could come to her in any form, but not by fire. And after giving this boon, he regretted a lot because she took Prahlād in her lap and sat in the fire. And Agni Devatā had a big dilemma, that “I have given this promise to her, that I will not burn her and how can I fulfill this promise? And Prahlād, is Himself innocence personified, He is Himself an Incarnation of Śhrī Gaṇeśha and how can I burn Him? Nobody can burn Him. And He is also beyond my powers. He is formed from my power.” So he thought, “What is this ego? that in front of such a Great Power what can I talk about my power? I have no such power which can face Him. His Power is so great that I cannot burn Him whatsoever I may try. But at this time I have a very big dilemma in front of me.”
+<font color="DarkRed">"As you know, <b>on the Day of Holī, Holikā was burnt</b>. Agni [God of Fire] had a very big blessing and task, because Agni Devatā had given Holikā a boon that in any circumstance, she will not burn, that death could come to her in any form, but not by fire. And after giving this boon, he regretted a lot because she took Prahlād in her lap and sat in the fire. And Agni Devatā had a big dilemma, that “I have given this promise to her, that I will not burn her and how can I fulfill this promise? And Prahlād, is Himself innocence personified, He is Himself an Incarnation of Śhrī Gaṇeśha and how can I burn Him? Nobody can burn Him. And He is also beyond my powers. He is formed from my power.” So he thought, “What is this ego? that in front of such a Great Power what can I talk about my power? I have no such power which can face Him. His Power is so great that I cannot burn Him whatsoever I may try. But at this time I have a very big dilemma in front of me.”<br>
 So in between duty and dharma the dilemma is in between these two. In this situation, we must understand that dharma is higher than duty. <b>The duty of dharma is higher than a normal duty and even higher is the Dharma of the Ātmā.</b>"</font><br>
 <font size="+0"><b>1983-0329 Talk to Sahaja Yogis (Hindi),  Holī Celebrations, Universal Sahaja Yoga Temple, Āśhram, Safdarjung Enclave, New Delhi, India</b></font>
 </p>
@@ -18,7 +18,7 @@ So in between duty and dharma the dilemma is in between these two. In this situa
 <div style="text-align: center"><img src="/images/image331.png" /></div>
 
 <p style="text-align:center;">
-<font color="RebeccaPurple">"So, today, on the Holi day if you only say the mantra of Holika Dahan, then with the mantra of Holikamardinī you can wash My Feet."<br>
+<font color="RebeccaPurple">"So, today, on the Holi day if you only say the mantra of Holika Dahan, then with the mantra of Holikamardinī you can wash My Feet."</font><br>
 <font size="+0"><b>1983-0329 Talk to Sahaja Yogis (Hindi),  Holī Celebrations, Universal Sahaja Yoga Temple, Āśhram, Safdarjung Enclave, New Delhi, India</b></font>
 </p>
 
