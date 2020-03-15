@@ -57,7 +57,7 @@ For example, when Prahlād, in whose presence Narasiṃha incarnated, was asked,
 
 
 <font size="+2"><b>Suggested Video:</b></font> 
-<font size="+0"><b>1982-0815 Havan on the day of Puja to Shri Krishna as Yogeshwara, London, England</b></font>
+<font size="+0"><b>1982-0815 Havan, the day of Śhrī Yogeśhwara Pūjā, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 
 <p>
