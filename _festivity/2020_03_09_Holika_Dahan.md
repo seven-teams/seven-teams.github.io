@@ -41,7 +41,8 @@ April 1980), Page 17</b></font>
 </p>
 
 <p>
-<font color="Blue"><b>"On Holī we should burn all those things which spoil our attention and damage the Āgñyā. Then this attention will clear out and we will celebrate Holī with joy and understanding. The day the complete combination of this will happen then on both chakras the similarity will come. Then at Sahasrāra the question does not arise."</b></font><br>
+<font color="Blue"><b>[SYNOPSIS!]<br>
+[On Holī we should burn all those things which spoil our attention and damage the Āgñyā. Then this attention will clear out and we will celebrate Holī with joy and understanding. The day the complete combination of this will happen then on both chakras the similarity will come. Then at Sahasrāra the question does not arise.]</b></font><br>
 <font size="+0"><b>1991-0228 Talk to Sahaja Yogis (Hindi+English), Raṃ- gavalī Holī Celebrations, New Delhi, India</b></font>
 </p>
 
@@ -50,7 +51,7 @@ April 1980), Page 17</b></font>
 <p style="text-align:center;">
 <font color="DarkGreen">"The experience of God’s Love has been described in many books of ours but nobody believes in them. 
 For example, when Prahlād, in whose presence Narasiṃha incarnated, was asked, “What do you want?” he replied, 
-<b>“Tav Charaṇa arvinde prīti [The love of Your Lotus Feet]” that is “O God, give me the love of Your Lotus Feet.”</b> "</font><br>	
+<b>“Tav Charaṇa arvinde prīti" [The love of Your Lotus Feet], that is, “O God, give me the love of Your Lotus Feet.”</b> "</font><br>	
 <font size="+0"><b>1975-1222 Public Program (Hindi), Bharatiya Vidyā Bhavan, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>	
 
