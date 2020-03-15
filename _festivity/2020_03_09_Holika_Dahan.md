@@ -23,8 +23,8 @@ So in between duty and dharma the dilemma is in between these two. In this situa
 </p>
 
 <p>
-<font color="DarkGreen">"<b>Today, the great day of Holikā Dahan, where the symbolism of this occasion is that the satanic forces were burnt by the innocence of Prahlāda.</b>
-[SYNOPSIS!]
+<font color="DarkGreen">"<b>Today, the great day of Holikā Dahan, where the symbolism of this occasion is that the satanic forces were burnt by the innocence of Prahlāda.</b><br>
+[SYNOPSIS!]<br>
 [People Celebrate Holī only on the outside, the real Holī is to be burnt within first. This means the negativity within has to be burnt first. Delhi being the capital is full of politics. Sahaja Yogis absorb this politics and it spreads in the Sahaja collectivity like flu. We cannot ascend by it. We should not form any groups or believe to any caste. Someone like Nārad Muni comes along and fans the flames of animosity one against the other. But we should not play into the hands of such people. We should realize that our relationship is with Mother only.]"</font><br>
 <font size="+0"><b>1995-0318 Holī Pūjā (the day after the Raṃgavalī Holī), Holī Message, Sahaja Yoga Temple, C-17, Qutub Institutional Area behind Qutub Hotel, New Delhi, India</b></font>
 </p>
@@ -32,7 +32,7 @@ So in between duty and dharma the dilemma is in between these two. In this situa
 <div style="text-align: center"><img src="/images/image332.png" /></div>
 
 <p style="text-align:center;">
-[1979-0314 Havan, before or after the Holī Pūjā, New Delhi, India]	
+[1979-0314 Havan, before or after the Holī Pūjā, New Delhi, India]<br>	
 <font color="DarkOrange">"Agni is the best purifier. It also enlightens, glows and destroys the evil. It is the best of all earth
 elements and the worst also.
 It can burn you as well."</font><br>
