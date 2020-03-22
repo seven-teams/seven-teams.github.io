@@ -157,11 +157,6 @@ May the Divine Mother bless us all with the strength and courage to keep to the 
 <a href="https://www.youtube.com/watch?v=XiRNwWH3g28&feature=emb_logo">video</a> 
 </p>
 
-<p>
-<font color="green"><b></b></font><br>
-<a href="https://www.youtube.com/watch?v=zYUo0DT9z3s">video</a> 
-</p>
-
 <div style="text-align: center"><img src="/images/image345.png" /></div>
 
 <p style="color:green; text-align:center;">
