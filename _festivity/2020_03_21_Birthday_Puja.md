@@ -165,7 +165,7 @@ May the Divine Mother bless us all with the strength and courage to keep to the 
 <div style="text-align: center"><img src="/images/image345.png" /></div>
 
 <p style="color:green; text-align:center;">
-<font color="red"><b>Happy</b></font> <b>Birthday</b> <font color="Purple"<b>Śhrī Mātājī</b></font><br>
+<font color="red"><b>Happy</b></font> <b>Birthday</b> <font color="Purple"><b>Śhrī Mātājī</b></font><br>
 <a href="https://www.youtube.com/watch?v=qHt7_SEvKco">video</a>
 </p>
 
