@@ -25,7 +25,7 @@ Thank You for inviting all of us to the court of the Goddess.<br>
 Thank You for establishing the Kingdom of God on Earth.<br>
 Thank You for accepting our offerings and prayers.<br>
 Thank You for showering Your blessings endlessly upon us.</b></font><br>
-<font size="-1"><font color="DarkGreen"><b>Binati Suniye Ādi Śhakti Meri </b><br>
+<font size="+0"><font color="DarkGreen"><b>Binati Suniye Ādi Śhakti Meri </b><br>
 O Ādi Śhakti, please listen to my request<br>
 <b>Pūjan ka adhikar dijiye</b><br>
 Please give me the authority to do Your Pūjā</font></font><br>
@@ -48,8 +48,8 @@ Thank You for giving Sahaja Yoga to a confused and self-destructive humanity.<br
 Thank You for revealing to us the meaning of creation and evolution.<br> 
 Thank You for revealing to us the actual existence of God.<br>
 Thank You for giving divine meaning to human existence.<br>
-Thank You for revealing to us within the human body the reflection of the Vishwa-rupa (universal form).</b></font><br>
-<font size="-1"><font color="DarkGreen"><b>Shubhmangalmaye diwas hai āya</b></font><br>
+Thank You for revealing to us within the human body the reflection of the Viśhwa-rūpa (universal form).</b></font><br>
+<font size="+0"><font color="DarkGreen"><b>Shubhmangalmaye diwas hai āya</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=SYNRxZSzeDk">video</a>
 </p>
 
