@@ -69,10 +69,10 @@ Thank You for correcting us.<br>
 Thank You for never abandoning us.<br>
 Thank You for saving us.<br>
 Thank You for gathering us.</b></font><br>
-<font size="+0"><b>Janam. din. ayo, Ādiśhakti ka</b><br>
+<font size="+0"><font color="DarkGreen"><b>Janam. din. ayo, Ādiśhakti ka</b><br>
 Ādi Śhakti's birthday has come!<br>
 <b>Smaran. din. ayo, Nirmal. bhakti ka</b><br>
-The day of recollection of Divine devotion has come!</font><br>
+The day of recollection of Divine devotion has come!</font></font><br>
 <a href="https://www.youtube.com/watch?v=4GAqyLEuQ24&feature=youtu.be">video</a>
 </p>
 
