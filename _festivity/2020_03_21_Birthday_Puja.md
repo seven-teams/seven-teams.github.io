@@ -29,7 +29,7 @@ Thank You for showering Your blessings endlessly upon us.</b></font><br>
 O Ādi Śhakti, please listen to my request<br>
 <b>Pūjan ka adhikar dijiye</b><br>
 Please give me the authority to do Your Pūjā</font></font><br>
-<a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&index=15&list=PLC8554007A2C98EA0">video</a>
+<a href="https://www.youtube.com/watch?v=EZrPkSAk8lE&feature=youtu.be">video</a>
 </p>
 
 <p>
