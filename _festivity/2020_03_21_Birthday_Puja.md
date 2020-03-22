@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating the Birthday of our Divine Mother: "Pūjā on a birthday should be such that it should be more deep, more heartfelt, more joyous"'
+title: '2020 Celebrating the Birthday of our Divine Mother: "Pūjā on a birthday should be such that it should be more deep, more heartfelt, more joyous" '
 date: 2020-03-21
 permalink: /festivity/2020/03/21
 tags:
@@ -50,7 +50,7 @@ Thank You for revealing to us the actual existence of God.<br>
 Thank You for giving divine meaning to human existence.<br>
 Thank You for revealing to us within the human body the reflection of the Viśhwa-rūpa (universal form).</b></font><br>
 <font size="+0"><font color="DarkGreen"><b>Shubhmangalmaye diwas hai āya</b></font></font><br>
-<a href="https://www.youtube.com/watch?v=SYNRxZSzeDk">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -96,7 +96,7 @@ Thank You for protecting us.<br>
 Thank You for encouraging us.<br>
 Thank You for guiding us.</b></font><br>
 <font size="+0"><b>Arpan Ye Tan Man</b></font><br>
-<a href="https://www.youtube.com/watch?v=Hx5ek4VAgG8">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 
@@ -133,23 +133,23 @@ May the Divine Mother bless us all with the strength and courage to keep to the 
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1990-0321 Birthday Pūjā, Sydney, Australia</b></font>
-<a href=""> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
 <font color="green"><b>Tujhya pujani</b></font><br>
-<a href="https://www.youtube.com/watch?v=iJiGVlWeUlA">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
 <font color="green"><b>Vanadana kare vandana</b></font><br>
-<a href="https://www.youtube.com/watch?v=5cvyH3ZkXJQ">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
 <font color="green"><b>Powada</b></font><br>
-<a href="https://www.youtube.com/watch?v=vTeBPNpyDmM">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
