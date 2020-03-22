@@ -128,7 +128,7 @@ The world will know that You came<br>
 To give the meaning to Thy creation. Aum. Amen.<br>
 <br>
 May the Divine Mother bless us all with the strength and courage to keep to the pledge always.</b></font><br>
-<font size="+0">This pledge was read to Śhrī Mātājī at Her Birthday Pūjā, London, on 1982-0321<\font><br>
+<font size="+0">This pledge was read to Śhrī Mātājī at Her Birthday Pūjā, London, on 1982-0321</font><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
