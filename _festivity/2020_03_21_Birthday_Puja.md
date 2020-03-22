@@ -69,7 +69,7 @@ Thank You for correcting us.<br>
 Thank You for never abandoning us.<br>
 Thank You for saving us.<br>
 Thank You for gathering us.</b></font><br>
-<font size="-1"><b>Janam. din. ayo, Ādiśhakti ka</b><br>
+<font size="+0"><b>Janam. din. ayo, Ādiśhakti ka</b><br>
 Ādi Śhakti's birthday has come!<br>
 <b>Smaran. din. ayo, Nirmal. bhakti ka</b><br>
 The day of recollection of Divine devotion has come!</font><br>
@@ -128,7 +128,7 @@ The world will know that You came<br>
 To give the meaning to Thy creation. Aum. Amen.<br>
 <br>
 May the Divine Mother bless us all with the strength and courage to keep to the pledge always.</b></font><br>
-<font size="-1">This pledge was read to Śhrī Mātājī at Her Birthday Pūjā, London, on 1982-0321<br>
+<font size="+0">This pledge was read to Śhrī Mātājī at Her Birthday Pūjā, London, on 1982-0321<\font><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
