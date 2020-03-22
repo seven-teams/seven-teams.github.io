@@ -111,7 +111,7 @@ So, in every Pūjā what we have to do is to awaken Them, ask Them to be kind to
 
 <p style="text-align:center;">
 <font size="+0"><b>Śhrī Mātājī Vandu Tav. Charna</b></font><br>
-<a href="https://www.youtube.com/watch?v=gO8ITyclHVE">video</a>
+<a href="https://www.youtube.com/watch?v=gO8ITyclHVE">video</a><br>
 <br>
 <font color="DarkGreen"><b>Most worshipful and beloved Mother,<br>
 Thou art birthless.<br>
