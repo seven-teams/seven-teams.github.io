@@ -15,7 +15,7 @@ tags:
 
 <div style="text-align: center"><img src="/images/image360.png" /></div>
 
-<p style="color:green; text-align:center;">
+<p style="color:DarkGreen; text-align:center;">
 Bhaya kāya tayā Prabhu jyāchā re<br>
 When belonging to God, what is there to fear?
 lti nirdhana parasra zyāchā<br> 
@@ -44,9 +44,8 @@ Forget all that was there. That elevation, that ascent becomes fast quick trip.<
 A very fast thing. If you just try this every moment, anything that goes against the Spirit must be given up. And that Spirit is what? The pure desire.<br>
 We have to be one with the Spirit, and all the rest is not important. You are in the beautiful Kingdom of God where all ugliness drops out like when the lotus opens out; all the mud drops out from it.<br>
 In the same beautiful way, let My children become fragrant beautiful offering to Lord Sadāśhiva.<br>
-May God bless you."</b></font><br>
-<font size="+0"><b>1900-0000 Prayer to the Spirit (Left Heart) from Prayers and Praises Book, Page 49 (1990 edition)
-</b></font>
+May God bless you."</font><br>
+<font size="+0"><b>1900-0000 Prayer to the Spirit (Left Heart) from Prayers and Praises Book, Page 49 (1990 edition)</b></font>
 </p>
 
 <p>
@@ -65,7 +64,7 @@ In the Sahasrāra, the Heart chakra and the heart itself, the Ātmā, coincide.<
 </p>
 
 <p>
-<font color="DarkRed">"So, this center is the center of heart. Here the Jagadambā, the Mother of the Universe, resides. The One who is alone. She is alone. She ... She does not have any male Deity with Her. She is alone. She is the Mother. And She looks after the people who are struggling in this Ocean of Illusion. She is the One who is the protector. She incarnates. It’s said that She has incarnated thousand times, but She has incarnated many a times.
+<font color="DarkRed">"So, this center is the center of heart. Here the Jagadambā, the Mother of the Universe, resides. The One who is alone. She is alone. She ... She does not have any male Deity with Her. She is alone. She is the Mother. And She looks after the people who are struggling in this Ocean of Illusion. She is the One who is the protector. She incarnates. It’s said that She has incarnated thousand times, but She has incarnated many a times.<br>
 Now, this Jagadambā is the One who resides there at that point. And when you are a child, say about twelve years of age, She creates the antibodies in the sternum bone. And these antibodies spread into the whole body and protect you from the outer problems. Now, those people who have the problem of this, specially in ladies, comes from insecurities in life."</font><br>
 <font size="+0"><b>1981-1018 Public Program, Day 2, Session 1 (morning), Heartwood Community Center, Santa Cruz, CA, U.S.A.</b></font>
 </p>
@@ -74,7 +73,7 @@ Now, this Jagadambā is the One who resides there at that point. And when you ar
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Tujhya Pujani Archani Lin. Vhave</b></font><br>
-<font size="+0">We are totally lost in prayer at Your Lotus Feet while doing Your Pūjā</font>
+<font size="+0">We are totally lost in prayer at Your Lotus Feet while doing Your Pūjā</font><br>
 <font color="DarkGreen"><b>Tujhe Nirmala Nam. Amhi Smarave</b></font><br>
 <font size="+0">Then we chant Your name Nirmala in all reveence.</font>
 </p>
