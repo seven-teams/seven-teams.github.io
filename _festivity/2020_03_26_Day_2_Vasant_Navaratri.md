@@ -18,7 +18,7 @@ tags:
 <p style="text-align:center;">
 <font color="LightSalmon">"In the process of creation Brahmadeva was made the Deity of the second chakra.
 ..From the Nābhī, Brahmadeva was created."</font><br>
-<font size="+0"><b>1973-1125 Public Program (Hindi), Day 7, New Delhi, India</b></font>
+<font size="+0"><b>1973-1125 Public Program (Hindi), Day 7, New Delhi, India</b></font><br>
 <font color="DarkGreen"><b>Auṃ Twameva sākshāt Śhrī Brahmadeva-Saraswatī sākshāt Śhrī Ādi Śhakti Mātājī Shrī Nirmalā Devyai namo namaḥ</b></font><br>
 <b>O Divine Mother, You are verily Shri Brahmadeva-Saraswati. Salutations to You!</b>
 </p>
@@ -35,7 +35,7 @@ tags:
 enlightens all the chakras and pure elements are established in you, means all the Deities get awakened. 
 They are awakened and you start getting their attributes."</font><br>
 <font size="+0"><b>1979-0924 Talk to Sahaja Yogis (Marathi), Amar Rundal Mandal Bhadar, Mumbai, Maharashtra, India</b></font>
-<font color="green"><b>Auṃ Twameva sākshāt Śhrī Nirmala Vidyā, Śhri Śhuddha Icchā sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
+<font color="DarkGreen"><b>Auṃ Twameva sākshāt Śhrī Nirmala Vidyā, Śhri Śhuddha Icchā sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
 </p>
 
 <p>
@@ -51,7 +51,7 @@ They are awakened and you start getting their attributes."</font><br>
 <div style="text-align: center"><img src="/images/image353.png" /></div>
 
 <p style="text-align:center;">
-<font color="DakRed">"According to me, Hazrate [Hazarat] Muhammad was one of the greatest incarnations because he was even greater than a Prophet. 
+<font color="DarkRed">"According to me, Hazrate [Hazarat] Muhammad was one of the greatest incarnations because he was even greater than a Prophet. 
 He announced some prophecies which none of the incarnations, such as Jesus, had described."</font><br>
 <font size="+0"><b>1901-0000 Letter Published in the Turkish Newspaper Bursa</b></font>
 <font color="DarkGreen"><b>Auṃ Twameva sākshāt Śhrī Fāṭima Hazrat-Ãli, sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
@@ -66,7 +66,7 @@ He announced some prophecies which none of the incarnations, such as Jesus, had 
 <div style="text-align: center"><img src="/images/image354.png" /></div>
 
 <p style="text-align:center;">
-<font color="green"><b>"When you wash My Feet, you must know that they were given to Me by Brahmadeva Himself.<br>
+<font color="DarkRed"><b>"When you wash My Feet, you must know that they were given to Me by Brahmadeva Himself.<br>
 And by taking water out of it you clear all the problems of your five elements which are in the control of the Creator Himself.<br>
 So <b>My Feet are the more important; they can cure your ailments of the five elements</b>; even mental ailments are cured because that part of you is formed from ākāśh, the firmament."</b></font><br>
 <font size="+0"><b>1976-1000 Pūjā, Śhrī Mātājī’s House, 2, Parklands, Ice House Wood, Hurst Green, Oxted, Surrey, UK (month not sure; also listed as 1974 or 1975)</b></font>
