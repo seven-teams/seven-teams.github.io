@@ -87,16 +87,16 @@ That’s the day also of the Gaurī, because Virgin is the first form of the God
 <p>
 <font color="DarkRed">"<b>So this day is celebrated because it’s a new year day and also because the New Moon appears on this day. It’s ... is called Guḍhī Pāḍavā.</b> On this day they put up a small pitcher on a stick with a small flag. The pitcher represents the Kuṇḍalinī.<br>
 Śhālivāhana Kings were worshipers of the Goddess and it is said that they used to present Shawl to the Goddess and they were also called as Sāt[a]vāhanas in the beginning because they recognized the seven chakras [Sāt[a]vāhana means seven chakras]. That’s why they were earlier called as Sāt[a]vāhana but later it changed to Śhālivāhana. But the symbol of Śhālivāhana used to be guḍhī means a flag and above that a pitcher having a particular shape, which represented the Kuṇḍalinī. They were worshipers of Kuṇḍalinī and recognized it.<br>
-That is the reason that they have made this thing like that and all those, who accept it, put up a ‘guḍhī’ in their houses. They [Śhālivāhans] wanted to welcome Kuṇḍalinī on this day and Kuṇḍalinī [in the form of pitcher] was exhibited specially on that day"</font><br>
+That is the reason that they have made this thing like that and all those, who accept it, put up a ‘guḍhī’ in their houses. They [Śhālivāhans] wanted to welcome Kuṇḍalinī on this day and Kuṇḍalinī [in the form of pitcher] was exhibited specially on that day."</font><br>
 <font size="+0"><b>2002-0413 Guḍhī Pāḍavā Pūjā (Hindi),  Palam Vihar, Gurgaon, New Delhi, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image350.png" /></div>
 
-<p style="color:green; text-align:center;">
+<p style="text-align:center;">
 <font color="DarkRed"><b>"So when you soothe My Feet, wash Them, clean Them, you know what They mean: you recognize.<br>
 That recognition, how are you to show?<br>
-You see, these ceremonies, little ceremonies are important because they express your recognition." </b></font><br>
+You see, these ceremonies, little ceremonies are important because they express your recognition."</b></font><br>
 <font size="+0"><b>1980-0719 Talk to Sahaja Yogis, The Meaning of Pūjā, Brighton, East Sussex, UK</b></font>
 </p>
 
@@ -123,7 +123,7 @@ You see, these ceremonies, little ceremonies are important because they express 
  
 <p>
 <font color="green"><b>Omkar Pradhana Rup Gaṇeśhache by Saint Tukaram</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html>video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
@@ -133,7 +133,7 @@ You see, these ceremonies, little ceremonies are important because they express 
 </p>
 
 <p>
-<font color="green"><b>Jay. Jay. Janani Śhrī Ganesh. Ki</b></font><br>
+<font color="green"><b>Jay. Jay. Janani Śhrī Gaṇeśh. Ki</b></font><br>
 <a href="https://www.youtube.com/watch?v=osyZMyvmqfA">video</a> 
 </p>
 
