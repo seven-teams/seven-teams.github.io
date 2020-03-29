@@ -35,9 +35,9 @@ We can go into ourselves, we can go into – our permeation is like water is mov
 <div style="text-align: center"><img src="/images/image357.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
-<b>Auṃ̣ Twameva sākshāt Śhrī Viṣhṇu sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ<br>
+<b>Auṃ̣ Twameva sākshāt Śhrī Viṣhṇu sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b><br>
 O Divine Mother, You are verily Śhrī Viṣhṇu. Salutations to You!<br>
-Shayan’āmbudhau Nirmale Taw’aiwa N’aikyam pranat’osmi rūpam<br> 
+<b>Shayan’āmbudhau Nirmale Taw’aiwa N’aikyam pranat’osmi rūpam</b><br> 
 To the form of the pure and shining one reclining on the ocean (upon Śhrī Śheṣha),<br>
 known indeed as the refuge of humanity, we bow with the greatest reverence and humility.</b>
 </p>
