@@ -127,8 +127,7 @@ Now, this Jagadambā is the One who resides there at that point. And when you ar
 <div style="text-align: center"><img src="/images/image364.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"But today in Sahaja Yoga, you have seen that when Kuṇḍalinī rises and stops at the center Nābhī [Heart],<br>
-you have to say the mantra of ‘Jagadambā’, and the Kuṇḍalinī rises.<br>
+<font color="DarkRed"><b>"But today in Sahaja Yoga, you have seen that when Kuṇḍalinī rises and stops at the center Nābhī [Heart], you have to say the mantra of Jagadambā, and the Kuṇḍalinī rises.<br>
 That means, She resides in the center Heart, and when She is being worshiped, the Kuṇḍalinī rises.<br>
 This center has got twelve petals.<br>
 But the Goddess has thousand hands and thousand eyes.<br> 
