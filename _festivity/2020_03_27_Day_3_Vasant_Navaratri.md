@@ -91,12 +91,12 @@ In the name of Śhrī Viṣhṇu there are at least fifteen names which say that
  
 <p>
 <font color="green"><b>Jay Jagadambe</b></font><br>
-<a href="https://www.youtube.com/watch?v=AzP5qYA8viw">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
 <font color="green"><b>Śhrī Kuṇḍalinī Stuti Stotram</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
+<a href="https://www.youtube.com/watch?v=dKQR9NozR64">video</a> 
 </p>
 
 <p>
