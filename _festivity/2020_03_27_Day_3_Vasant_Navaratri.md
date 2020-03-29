@@ -55,8 +55,7 @@ So Nābhī chakra is surrounded by Ten Gurus, the Prophets who give you the bala
 <div style="text-align: center"><img src="/images/image358.png" /></div>
 
 <p style="text-align:center;">
-<font size="+0"><b>Sahaja Yogi: </b></font><font color="DarkGreen"><b>Śhrī Mātājī, we all the Sahaja Yogis here, we pray to You and we promise You that we will be one,<br> 
-just one flower so that when You can see us,<br> 
+<font size="+0"><b>Sahaja Yogi: </b></font><font color="DarkGreen"><b>Śhrī Mātājī, we all the Sahaja Yogis here, we pray to You and we promise You that we will be one, just one flower so that when You can see us,<br> 
 You will see only one flower, one color, one perfume and one flower offered at Your Divine Lotus Feet.<br>
 And we pray Shrī Mātājī in our heart that Your Divine Lotus Feet will dwell forever in our being.<br>
 Amen. Jai Shrī Mātājī!</b></font><br>
