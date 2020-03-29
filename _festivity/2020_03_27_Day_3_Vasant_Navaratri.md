@@ -25,6 +25,7 @@ and are to be found through inner worship You are devoted to those who worship Y
 <font size="+0"><b>(Śhrī Lalitā Sahasrānama, verse 37) </b></font>
 </p>
 
+<p>
 <font color="DarkRed">"So today for water should really know that the <b>water is a very holy thing and in our Pūjās also we use specially this dignifies the Kuṇḍalinī that means the Kuṇḍalinī is the water jar the carrier of Aquarius.</b> And this is the age of the Aquarius.<br>
 So how important is this water and the water is the carrier of Divine Love, is the best carrier. And this is the time of Aquarius means the Kuṇḍalinī is made of Divine Water. So the whole idea of celebrating today the Lakṣhmī’s day is to understand that in us She has become the Mahālakṣhmī. By that we have so many powers of which we are not aware, I mean we do not know that we are realized Souls. Some of us, we do not know and that we have those powers within us that we can permeate into others. We can project our personalities to others. We can find out what’s wrong with them. We can find out about ourselves.<br>
 We can go into ourselves, we can go into – our permeation is like water is moving, is flowing all the time. And this is a very important thing that we should be aware of: our powers that we have achieved. Then we will start respecting ourselves then the Rājalakṣhmī comes in and then the Gṛuhalakṣhmī comes in and everything comes within when we become aware of what we have achieved of our self-esteem, of our dignity. So it gives us dignity, Mahālakṣhmī gives us dignity."</font><br>
