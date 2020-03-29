@@ -17,7 +17,7 @@ tags:
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Kul’angana Kul’anta-stha, Kaulinı Kula-yoginı,<br> 
-Akula Samayanta-stha, Samayachara-tatpara.</b>
+Akula Samayanta-stha, Samayachara-tatpara.</b><br>
 O Chaste Lady, residing in the Sacrum bone, whose creation is the chakras,<br> 
 and who knows all the secret techniques of the path to Self-realization;<br> 
 You are beyond all categories and reside in the Sahasrāra,<br>
