@@ -67,7 +67,7 @@ Mooladhara meaning the support of the root is the abode of the mother Kund[a]lin
 </p>
 
 <p>
-<font color="DarkRed">"<b>Today we are going to worship Śhrī Gaṇeśha.</b>
+<font color="DarkRed">"<b>Today we are going to worship Śhrī Gaṇeśha.</b><br>
 Śhrī Gaṇeśha resides in Mūlādhāra, on the chakra, Mūlādhāra chakra. And not on Mūlādhār.<br>
 In the Mūlādhār is placed the Kuṇḍalinī. She is the Mother of Śhrī Gaṇeśh, we call her Gaurī. Yesterday you saw the picture, the drama, how Śhrī Gaṇeśha got his head of an elephant. All these things have happened in another world. There are many worlds of which we know of this world, is a question of our awareness. Now we are at a human awareness, and we have risen to a higher awareness which is called as the fourth dimension. Without Śhrī Gaṇeśha it is not possible. As you know he is the symbol of innocence within us. This innocence never gets destroyed because it is eternal. But it may happen that it will get covered with some clouds by our mistakes that we commit. But once you get your Realization, your innocence is re-established, it manifests. And you become innocent, your attention becomes innocent. It is impossible to follow your religion, either Christ or Muhammad Sāhib or Jews, if you do not have enlightenment. This is one thing they did not realize because they were of a very high-level people. They did not know what is the condition of human beings."</font><br>
 <font size="+0"><b>1994-0911 Śhrī Gaṇeśha Pūjā, Innocence and Love, Moscow, Russia
@@ -139,6 +139,6 @@ You see, these ceremonies, little ceremonies are important because they express 
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>
-<font color="DarkRed"><b>Wishing you all a happy Guḍhī Pāḍavā</b></font><br>
+<font color="DarkRed"><b>Wishing you all a happy Guḍhī Pāḍavā!</b></font><br>
 On behalf of the festivity team!</font>
 </p>

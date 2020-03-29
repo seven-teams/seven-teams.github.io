@@ -53,7 +53,7 @@ They are awakened and you start getting their attributes."</font><br>
 <p style="text-align:center;">
 <font color="DarkRed">"According to me, Hazrate [Hazarat] Muhammad was one of the greatest incarnations because he was even greater than a Prophet. 
 He announced some prophecies which none of the incarnations, such as Jesus, had described."</font><br>
-<font size="+0"><b>1901-0000 Letter Published in the Turkish Newspaper Bursa</b></font>
+<font size="+0"><b>1901-0000 Letter Published in the Turkish Newspaper Bursa</b></font><br>
 <font color="DarkGreen"><b>Auṃ Twameva sākshāt Śhrī Fāṭima Hazrat-Ãli, sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
 </p>
 
