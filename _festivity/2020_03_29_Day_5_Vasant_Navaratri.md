@@ -31,7 +31,7 @@ The effectiveness of this power is that the Kuṇḍalinī comes there. <b>When 
 <div style="text-align: center"><img src="/images/image366.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkBlue"><b>"The left Heart is connected to our worldly mother, the right Heart is connected with relationship we have with our worldly father."</b></font><br>
+<font color="blue">"The left Heart is connected to our worldly mother, <b>the right Heart is connected with relationship we have with our worldly father."</b></font><br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 11: The Subtle System</b></font>
 </p>
 
@@ -49,11 +49,6 @@ This center has got twelve ... twelve petals. This is with ... the ruler of this
 <div style="text-align: center"><img src="/images/image367.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<p>
 <font color="DarkRed"><b>"And if you are today worshiping Me as the Jagadambā, then
 know that the Jagadambā Itself is nothing else but Ādi Śhakti."</b></font><br>
 <font size="+0"><b>1992-0927 Navarātri Pūjā, Tent, Cabella Ligure, Italy</b></font>
@@ -96,9 +91,7 @@ For that, we decided to have this Pūjā of Durgā today that all negativity sho
 
 <p style="text-align:center;">
 Guido Lanza [resumes the reading]:<br>
-<font color="DarkRed"><b>"Salutations always to Durgā who takes one across in difficulties, who is essence, who is the author of everything,<br>
-who is knowledge and discrimination, and who is blue-black<br>
-and also smoke-light [smokelike] in complexion.<br>
+<font color="DarkRed"><b>"Salutations always to Durgā who takes one across in difficulties, who is essence, who is the author of everything, who is knowledge and discrimination, and who is blue-black and also smoke-light [smokelike] in complexion.<br>
 We prostrate before Her who is at once most gentle and most terrible; we salute Her again and again.<br>
 Salutation to Her who is the support of all the world. Salutation to the Devī who is [of] the form of volition."</b></font><br>
 <font size="+0"><b>1985-0705 Śhrī Bhūmī Devī Pūjā, Huis (Manor) Overvoorde, Rijswijk (6 kms SSE of The Hague), Netherlands</b></font>
