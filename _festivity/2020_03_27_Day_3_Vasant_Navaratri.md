@@ -107,14 +107,13 @@ In the name of Śhrī Viṣhṇu there are at least fifteen names which say that
 
 <div style="text-align: center"><img src="/images/image359.png" /></div>
 
-<p style="color:green; text-align:center;">
-<b></b><br>
-<br>
-<b></b><br>
-<br>
-<b></b><br>
-<br>
-<a href="">video</a>
+<p style="text-align:center;">
+<font color="DarkGreen"><b>"Because Viṣhṇu is the one
+who is, the one who cures. We call Him a Dhanvantari – means a doctor. He is the One who cures because
+He is our preserver; He is the preserver of human beings. So if He preserve your dharma, then you don’t
+get sick. And if you get sick, it is Viṣhṇu who will preserve, who will cure you. So He is the one who is,
+we can call, Dhanvantari – is a doctor."</b></font><br>
+<font size="+0"><b>1994-0713 Śhrī Viṣhṇu Pūjā, Paris, France</b></font>
 </p>
 
 <p>
