@@ -63,7 +63,7 @@ Amen. Jai Shrī Mātājī!</b></font><br>
 </p>
 
 <p>
-<font color="DarkRed">"While it is written in all the ancient Scriptures that God is fond of flowers.
+<font color="DarkRed">"While it is written in all the ancient Scriptures that God is fond of flowers.<br>
 In the name of Śhrī Viṣhṇu there are at least fifteen names which say that He is mad after flowers, He’s very fond of flowers, He must smell the flowers. And we also know that God is fond of flowers. <b>Somehow we know through our Unconscious understanding that God is fond of everything that is beautiful. He doesn’t like ugliness, but beauty that is sublime.</b>"</font><br>
 <font size="+0"><b>1983-0317 Public Program, Maccabean Hall, 146, Darlinghurst Road, New South Wales, Australia</b></font>
 </p>
