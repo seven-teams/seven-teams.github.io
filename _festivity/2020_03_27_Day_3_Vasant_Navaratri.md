@@ -16,7 +16,7 @@ tags:
 <div style="text-align: center"><img src="/images/image356.png" /></div>
 
 <p style="text-align:center;">
-<font color="DargGreen"><b>Kul’angana Kul’anta-stha, Kaulinı Kula-yoginı, 
+<font color="DarkGreen"><b>Kul’angana Kul’anta-stha, Kaulinı Kula-yoginı, 
 Akula Samayanta-stha, Samayachara-tatpara.</b>
 O Chaste Lady, residing in the Sacrum bone, whose creation is the chakras, 
 and who knows all the secret techniques of the path to Self-realization; 
