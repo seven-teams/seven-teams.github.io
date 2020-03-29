@@ -9,22 +9,22 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkGreen">"Chaitra is the month. And this is the time when – [Marathi] – <b>Gaurī is the Chaitra</b>. So the establishment of the Gaurī is taken place during these nine days. But Gaṇeśha has to  be established before anything else. Though first Gaurī had to come, you can see that. Gaurī had to come first to establish Gaṇeśha. But Gaṇeśha is always put before even Gaurī. Before the Pūjana of the, worship of the Gaṇeśha, nothing starts; because He’s the one who takes out all the obstacles, all the negativities, all the hurdles that are going to come up, all the attentions that are here and there. So that’s why we first worship Gaṇeśha, just to ask Him to protect us."</font><br>
+<font color="DarkGreen">"<b>Chaitra is the month.</b> And this is the time when – [Marathi] – <b>Gaurī is the Chaitra</b>. So the establishment of the Gaurī is taken place during these nine days. But Gaṇeśha has to  be established before anything else. Though first Gaurī had to come, you can see that. Gaurī had to come first to establish Gaṇeśha. But Gaṇeśha is always put before even Gaurī. Before the Pūjana of the, worship of the Gaṇeśha, nothing starts; because He’s the one who takes out all the obstacles, all the negativities, all the hurdles that are going to come up, all the attentions that are here and there. So that’s why we first worship Gaṇeśha, just to ask Him to protect us."</font><br>
 <font size="+0"><b>1981-0404 Śhrī Gaṇeśha Gaurī Pūjā, Burwood Āśhram, Sydney, New South Wales, Australia</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image346.png" /></div>
 
-<p style="color:DarkGreen; text-align:center;">
-<b>Kumara-gan.a-nath’ amba, Tushtih. Pushtir-matir-dhritih., Shantih.<br>
-Swasti-matı  Kantir, Nandinı Vighna-na´shinı.</b><br>
-Mother of Śhrī Kārttikeya and Gaṇeśha,<br>
+<p style="text-align:center;">
+<font color="DarkGreen"><b>Kumara-gan.a-nath’ amba, Tushtih. Pushtir-matir-dhritih., Shantih.<br>
+Swasti-matı  Kantir, Nandinı Vighna-na´shinı.</b></font><br>
+<font size="+0">Mother of Śhrī Kārttikeya and Gaṇeśha,<br>
 You are Enjoyment, Nourishment, Intelligence and Steadfastness;<br> 
 You are Peace, Good Fortune, Love,<br>
 O joy-giving Destroyer of obstacles<br>
-<font size="-1"><b>(Śhrī Lalita Sahasranama, verse 94)</b></font><br>
-<b>Auṃ Twameva sākshāt Śhrī Gaurī Kundalinī Mātā <br>
-Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b><br>
+<b>(Śhrī Lalita Sahasranama, verse 94)</b></font><br>
+<font color="DarkGreen"><b>Auṃ Twameva sākshāt Śhrī Gaurī Kundalinī Mātā <br>
+Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font>br>
 </p>
 
 <p>
