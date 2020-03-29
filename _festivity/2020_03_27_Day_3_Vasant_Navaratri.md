@@ -16,11 +16,11 @@ tags:
 <div style="text-align: center"><img src="/images/image356.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Kul’angana Kul’anta-stha, Kaulinı Kula-yoginı, 
+<font color="DarkGreen"><b>Kul’angana Kul’anta-stha, Kaulinı Kula-yoginı,<br> 
 Akula Samayanta-stha, Samayachara-tatpara.</b>
-O Chaste Lady, residing in the Sacrum bone, whose creation is the chakras, 
-and who knows all the secret techniques of the path to Self-realization; 
-You are beyond all categories and reside in the Sahasrāra, 
+O Chaste Lady, residing in the Sacrum bone, whose creation is the chakras,<br> 
+and who knows all the secret techniques of the path to Self-realization;<br> 
+You are beyond all categories and reside in the Sahasrāra,<br>
 and are to be found through inner worship You are devoted to those who worship You internally.</font><br>
 <font size="+0"><b>(Śhrī Lalitā Sahasrānama, verse 37) </b></font>
 </p>
