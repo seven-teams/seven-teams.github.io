@@ -10,7 +10,7 @@ tags:
 
 <p>
 <font color="DarkSlateBlue">"In the same way, when the Kuṇḍalinī is rising, She rises spontaneously and passes through these six centers. That time she also at Viśhuddhi, she opens the Viśhuddhi and when she emerges through it at that time the tongue is a little bit pulled in just to keep the flow on. This reaction is called as khecharī so when people are very deeply in meditation, those who have achieved great heights in meditation, they find suddenly they get into khecharī situation, or we call as mudrā in that state as if some nectar starts flowing from your palate. If you move your tongue upward like that you’ll feel the cool coming down your tongue: try that.<br>
-Now this, you don’t have to do when you are in deep meditative state. It starts cooling down your tongue slowly as automatically you get into khecharī state. <b>As far as Sahaja Yogis are concerned today, there are very few who really feel that way. The reason is you do not meditate. We do not pay attention to our Realization, also.</b> We talk about it quite a lot, in the West specially we discuss it more than to do something about it. We have to meditate every day, just like washing our hands or just like cleaning our teeth, we have to in the morning time meditate and also in the evening we have to meditate We have to meditate both the times otherwise we cannot rise, we cannot grow. Just to think that we are realized Souls you do not become. This cleansing has to be done every day, every day in and out"</font><br>
+Now this, you don’t have to do when you are in deep meditative state. It starts cooling down your tongue slowly as automatically you get into khecharī state. <b>As far as Sahaja Yogis are concerned today, there are very few who really feel that way. The reason is you do not meditate. We do not pay attention to our Realization, also.</b> We talk about it quite a lot, in the West specially we discuss it more than to do something about it. We have to meditate every day, just like washing our hands or just like cleaning our teeth, we have to in the morning time meditate and also in the evening we have to meditate We have to meditate both the times otherwise we cannot rise, we cannot grow. Just to think that we are realized Souls you do not become. This cleansing has to be done every day, every day in and out."</font><br>
 <font size="+0"><b></b></font>
 </p>
 
@@ -36,12 +36,13 @@ You grant the power to communicate and convince.</b></font>
 <div style="text-align: center"><img src="/images/image371.png" /></div>
 
 <p style="text-align:center;">
-<font color="FireBrick">"Even at Kuṇḍalinī when it reaches here at the Viśhuddhi chakra it makes all the sounds, ‘am, ām, em, īm, um, ūm, rim, rīm, lrim, lrīm, aye, ayī, ao, aou, ang, ah’.<br>
+<font color="FireBrick">"Even at Kuṇḍalinī when it reaches here at the Viśhuddhi chakra it makes all the sounds,<br> 
+‘am, ām, em, īm, um, ūm, rim, rīm, lrim, lrīm, aye, ayī, ao, aou, ang, ah’.<br>
 All these sixteen vowels are coming from the sixteen chakras or the sub-chakras or the petals of this Viśhuddhi chakra.<br>
 <b>These are Bīja Mantras of the Viśhuddhi chakra.</b>"</font><br>
 <font size="+0"><b>1983-0202 Public Program, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
 <br>
-<font color="blue"><b>Auṃ̣ Twameva sākshāt Śhrī Rādhā-Kṛiṣhṇa sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font>
+<font color="blue"><b>Auṃ̣ Twameva sākshāt Śhrī Rādhā-Kṛiṣhṇa sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
 <b>O Divine Mother, You are verily Śhrī Rādhā-Kṛiṣhṇa. Salutations to You!</b>
 </p>
 
@@ -61,7 +62,7 @@ All these sixteen vowels are coming from the sixteen chakras or the sub-chakras 
 <p style="text-align:center;">
 <font color="IndianRed">"...... the another problem comes, of left Viśhuddhi, when people do not have proper sense of womanhood and manhood. 
 Is very common in England and other countries, Western countries, like America is much worse: you cannot make out a man from a woman.</font><br>
-<font size="+0"><b>1981-0209 Public Program, Sansad Mārg Area,  New Delhi, India</b></font>
+<font size="+0"><b>1981-0209 Public Program, Sansad Mārg Area,  New Delhi, India</b></font><br>
 <font color="blue"><b>Auṃ̣ Twameva sākshāt Śhrī Viśhuddhi padm’ālayā sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
 <b>O Divine Mother, You are verily The one who dwells in the lotus of the Viśhuddhi chakra</b>
 </p>
@@ -76,7 +77,7 @@ Now the left Viśhuddhi problem starts when we get confused about sisters’ rel
 <div style="text-align: center"><img src="/images/image373.png" /></div>
 
 <p style="text-align:center;">
-<font color="IndianRed">"The another quality which Śhrī Kṛiṣhṇa has, which kī [of], we can express through our right Viśhuddhi, is diplomacy.<br>
+<font color="Maroon">"The another quality which Śhrī Kṛiṣhṇa has, which kī [of], we can express through our right Viśhuddhi, is diplomacy.<br>
 <b>But there are two types of diplomacies: one is genuine, one who is artificial."</b></font><br>
 <font size="+0"><b>1993-0815 Śhrī Kṛiṣhṇa Pūjā, Tent, Cabella Ligure, Italy </b></font><br>
 <br>
@@ -110,33 +111,33 @@ I have seen this in uuuh Russia or specially in Eastern Blocs where people, they
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Madhurāṣṭakam (Śhrī Kṛiṣhṇa song)</b></font><br>
+<font color="blue"><b>Madhurāṣṭakam (Śhrī Kṛiṣhṇa song)</b></font><br>
 Stotram by Śhrī Vallabhāchārya (1479–1531 CE) in Sanskrit<br>
 <a href="https://www.youtube.com/watch?v=e986Ho3yag8&list=PLA223369282044EC4&index=5"> video</a><br>
 </p>
 
 <p>
-<font color="green"><b>Śhrī Kṛiṣhṇa Stuti</b></font><br>
+<font color="blue"><b>Śhrī Kṛiṣhṇa Stuti</b></font><br>
 <a href="https://www.youtube.com/watch?v=MjRsfTSdTGk&list=PLA223369282044EC4&index=6&spfreload=5">video</a>
 </p>
 
 <p>
-<font color="green"><b>Keshava Mādhava</b></font><br>
+<font color="blue"><b>Keśhava Mādhava</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
-<font color="green"><b>Hari bol Hari Bol</b></font><br>
+<font color="blue"><b>Hari bol Hari Bol</b></font><br>
 <a href="https://www.youtube.com/watch?v=_-22CYddCmc">video</a> 
 </p>
 
 <p>
-<font color="green"><b>He Govinda He Gopala</b></font><br>
+<font color="blue"><b>He Govinda He Gopala</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
-<font color="green"><b>Jay Rādhā Mādhav</b></font><br>
+<font color="blue"><b>Jay Rādhā Mādhav</b></font><br>
 <a href="https://www.youtube.com/watch?v=HbA1jA7yMCA">video</a> 
 </p>
 
