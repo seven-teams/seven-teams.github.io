@@ -20,7 +20,8 @@ Now this, you don’t have to do when you are in deep meditative state. It start
 <font color="FireBrick">"When you will clear your Viśhuddhi, your vision will change and you will receive the help from the Divine.<br> 
 You will help to change the situation, to join the things together."</font><br>
 <font size="+0"><b>1996-1207 Śhrī Rājalakṣhmī Pūjā (Hindi), Bharat Scouts Ground, Nizamuddin,  New Delhi, India</b></font>
-<font color="DarkBlue"><b>You grant the power of auspicious vision.<br>
+<font color="blue"><b><br>
+You grant the power of auspicious vision.<br>
 You grant the power of leadership.<br>
 You granted abundance to America.<br>
 You grant then power of plenitude<br>
