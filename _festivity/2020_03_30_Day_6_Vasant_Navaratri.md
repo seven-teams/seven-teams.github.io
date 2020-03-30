@@ -82,7 +82,7 @@ Now the left Viśhuddhi problem starts when we get confused about sisters’ rel
 <font size="+0"><b>1993-0815 Śhrī Kṛiṣhṇa Pūjā, Tent, Cabella Ligure, Italy </b></font><br>
 <br>
 <font color="blue"><b>Auṃ̣ Twameva sākshāt Śhrī Raja-niti nipuna sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā devyai namo namaḥ!</b><br>
-You are the expert in the art of divine diplomacy,<br> 
+<b>You are the Expert</b> in the art of divine diplomacy,<br> 
 without which the world would lose balance and<br>
 prosperity cannot be sustained</font><br>
 </p>
