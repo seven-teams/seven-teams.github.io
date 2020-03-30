@@ -40,8 +40,8 @@ All these sixteen vowels are coming from the sixteen chakras or the sub-chakras 
 <b>These are Bīja Mantras of the Viśhuddhi chakra.</b>"</font><br>
 <font size="+0"><b>1983-0202 Public Program, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
 <br>
-<font color="blue"><b>Aum twameva sākshāt Shrī Radha-Krishna sākshāt Shrī Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah</b></font>
-<b>O Divine Mother, You are verily Shri Radha-Krishna. Salutations to You!</b>
+<font color="blue"><b>Auṃ̣ Twameva sākshāt Śhrī Rādhā-Kṛiṣhṇa sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font>
+<b>O Divine Mother, You are verily Śhrī Rādhā-Kṛiṣhṇa. Salutations to You!</b>
 </p>
 
 <p>
@@ -61,7 +61,7 @@ All these sixteen vowels are coming from the sixteen chakras or the sub-chakras 
 <font color="IndianRed">"...... the another problem comes, of left Viśhuddhi, when people do not have proper sense of womanhood and manhood. 
 Is very common in England and other countries, Western countries, like America is much worse: you cannot make out a man from a woman.</font><br>
 <font size="+0"><b>1981-0209 Public Program, Sansad Mārg Area,  New Delhi, India</b></font>
-<font color="blue"><b>Aum twameva sākshāt Shrī  Vishuddhi padm’ālayā sākshāt Shrī Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah </b></font><br>
+<font color="blue"><b>Auṃ̣ Twameva sākshāt Śhrī Viśhuddhi padm’ālayā sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
 <b>O Divine Mother, You are verily The one who dwells in the lotus of the Viśhuddhi chakra</b>
 </p>
 
@@ -79,7 +79,7 @@ Now the left Viśhuddhi problem starts when we get confused about sisters’ rel
 <b>But there are two types of diplomacies: one is genuine, one who is artificial."</b></font><br>
 <font size="+0"><b>1993-0815 Śhrī Kṛiṣhṇa Pūjā, Tent, Cabella Ligure, Italy </b></font><br>
 <br>
-<font color="blue"><b>Aum twameva sakshat Shri Raja- niti nipuna sakshat Shri Adi Shakti Mataji Shri Nirmala devyai Namo Namah!</b><br>
+<font color="blue"><b>Auṃ̣ Twameva sākshāt Śhrī Raja-niti nipuna sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā devyai namo namaḥ!</b><br>
 You are the expert in the art of divine diplomacy,<br> 
 without which the world would lose balance and<br>
 prosperity cannot be sustained</font><br>
@@ -109,18 +109,18 @@ I have seen this in uuuh Russia or specially in Eastern Blocs where people, they
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Madhurashtakam (Shri Krishna song)</b></font><br>
-Stotram by Shri vallabhacharya (1479–1531 CE) in Sanskrit<br>
+<font color="green"><b>Madhurāṣṭakam (Śhrī Kṛiṣhṇa song)</b></font><br>
+Stotram by Śhrī Vallabhāchārya (1479–1531 CE) in Sanskrit<br>
 <a href="https://www.youtube.com/watch?v=e986Ho3yag8&list=PLA223369282044EC4&index=5"> video</a><br>
 </p>
 
 <p>
-<font color="green"><b>Shri Krishna Stuti</b></font><br>
+<font color="green"><b>Śhrī Kṛiṣhṇa Stuti</b></font><br>
 <a href="https://www.youtube.com/watch?v=MjRsfTSdTGk&list=PLA223369282044EC4&index=6&spfreload=5">video</a>
 </p>
 
 <p>
-<font color="green"><b>Keshava Madhava</b></font><br>
+<font color="green"><b>Keshava Mādhava</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
@@ -135,7 +135,7 @@ Stotram by Shri vallabhacharya (1479–1531 CE) in Sanskrit<br>
 </p>
 
 <p>
-<font color="green"><b>Jai Radha Madhav</b></font><br>
+<font color="green"><b>Jay Rādhā Mādhav</b></font><br>
 <a href="https://www.youtube.com/watch?v=HbA1jA7yMCA">video</a> 
 </p>
 
