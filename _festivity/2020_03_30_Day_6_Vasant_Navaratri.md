@@ -11,7 +11,7 @@ tags:
 <p>
 <font color="DarkSlateBlue">"In the same way, when the Kuṇḍalinī is rising, She rises spontaneously and passes through these six centers. That time she also at Viśhuddhi, she opens the Viśhuddhi and when she emerges through it at that time the tongue is a little bit pulled in just to keep the flow on. This reaction is called as khecharī so when people are very deeply in meditation, those who have achieved great heights in meditation, they find suddenly they get into khecharī situation, or we call as mudrā in that state as if some nectar starts flowing from your palate. If you move your tongue upward like that you’ll feel the cool coming down your tongue: try that.<br>
 Now this, you don’t have to do when you are in deep meditative state. It starts cooling down your tongue slowly as automatically you get into khecharī state. <b>As far as Sahaja Yogis are concerned today, there are very few who really feel that way. The reason is you do not meditate. We do not pay attention to our Realization, also.</b> We talk about it quite a lot, in the West specially we discuss it more than to do something about it. We have to meditate every day, just like washing our hands or just like cleaning our teeth, we have to in the morning time meditate and also in the evening we have to meditate We have to meditate both the times otherwise we cannot rise, we cannot grow. Just to think that we are realized Souls you do not become. This cleansing has to be done every day, every day in and out."</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1991-0408 Śhrī Gaurī Pūjā, Residence near Āśhram, Parnell, Auckland, New Zealand</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image370.png" /></div>
