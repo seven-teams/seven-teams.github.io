@@ -61,7 +61,7 @@ All these sixteen vowels are coming from the sixteen chakras or the sub-chakras 
 
 <p style="text-align:center;">
 <font color="IndianRed">"...... the another problem comes, of left Viśhuddhi, when people do not have proper sense of womanhood and manhood. 
-Is very common in England and other countries, Western countries, like America is much worse: you cannot make out a man from a woman.</font><br>
+Is very common in England and other countries, Western countries, like America is much worse: you cannot make out a man from a woman."</font><br>
 <font size="+0"><b>1981-0209 Public Program, Sansad Mārg Area,  New Delhi, India</b></font><br>
 <font color="blue"><b>Auṃ̣ Twameva sākshāt Śhrī Viśhuddhi padm’ālayā sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 <b>O Divine Mother, You are verily The one who dwells in the lotus of the Viśhuddhi chakra</b>
