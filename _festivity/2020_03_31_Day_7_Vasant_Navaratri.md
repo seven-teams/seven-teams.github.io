@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"<b>This Kuṇḍalinī is your mother, your individual mother. She knows everything about Me.</b> She has everything recorded in Her inner coils just like a tape recorder, you can say. She knows everything and She is very anxious to give you your Realization. She is the reflection of the Primordial Mother, the Holy Ghost, and She’s just waiting for this time.<nr>
+<font color="DarkRed">"<b>This Kuṇḍalinī is your mother, your individual mother. She knows everything about Me.</b> She has everything recorded in Her inner coils just like a tape recorder, you can say. She knows everything and She is very anxious to give you your Realization. She is the reflection of the Primordial Mother, the Holy Ghost, and She’s just waiting for this time.<br>
 So you leave it, the judgment to Her, you don’t judge yourself. This is very important because if by this chakra, this chakra gets blocked, the Kuṇḍalinī won’t rise."</font><br>
 <font size="+0"><b>1993-1005 Public Program, Earl Haig Secondary School, 100 Princess Avenue, North York (23 kms N of Toronto), ON, Canada</b></font>
 </p>
@@ -71,7 +71,7 @@ That’s why it is said don’t bow your head to wrong type of people. If you bo
 
 <p>
 <font color="DarkRed">"<b>In Sahaja Yoga, how do you avoid all this, that you take out your attentions from the Collective Subconscious, from the past subconscious, from the present subconscious, from the today subconscious, into the center. But for that, one has to be determined person. His willpower must be strong.</b> But all left-sided people have a very, very poor willpower. You do what you like, but they’ll go back to their habits. You try your level best. Slowly, slyly you see. All these things they do not understand, they’ll tell it to the camp of their enemies. As a matter of fact, they’ll go into such problems there, that they will suffer and suffer and suffer.
-So now, the theory comes out of human intelligence, that we must suffer. But there are no solutions. So theories like this: that we must suffer and suffering is godly"</font><br>
+So now, the theory comes out of human intelligence, that we must suffer. But there are no solutions. So theories like this: that we must suffer and suffering is godly."</font><br>
 <font size="+0"><b>1987-1201 Talk to Sahaja Yogis, Pune, Maharashtra, India</b></font>
 </p>
 
