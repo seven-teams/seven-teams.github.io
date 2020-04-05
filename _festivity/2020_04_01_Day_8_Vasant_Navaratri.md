@@ -86,7 +86,7 @@ So these eyes which you see are the windows of your being, of your heart. When t
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Shrī Mātājī:</b> Now what are good My feet for?<br></font>
-Sahaja Yogi: Āgñyā.<br>
+<b>Sahaja Yogi: Āgñyā.</b><br>
 <font color="DarkRed"><b>Shrī Mātājī:</b> Very good for ego. And also superego. Is very good for people who suffer from ego or superego, My Feet.<br>
 Because, such people are very gross. And the Feet solve the problem.<br>
 <b>So just use My Feet.</b><br>
