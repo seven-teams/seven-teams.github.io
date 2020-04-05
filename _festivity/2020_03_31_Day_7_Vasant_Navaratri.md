@@ -50,7 +50,7 @@ And that’s the point they call the ‘third eye’ and that’s a very importa
 <b>This is the point where you see this red mark [bindi] is the point of Christ and when the Kuṇḍalinī rises She awakens all these Deities.</b>"</font><br>
 <font size="+0"><b>1979-0720 Public Program, Cardiff, Wales, UK</b></font><br>
 <font color="Maroon"><b>You guard the gate of our Mother.<br>
-You are the Son of God.><br>
+You are the Son of God.<br>
 You are the only way to the Kingdom of God.</b></font><br>
 </p>
 
