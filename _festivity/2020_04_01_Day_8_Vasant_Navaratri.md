@@ -18,8 +18,8 @@ tags:
 
 <p style="text-align:center;">
 <font color="blue"><b>"Many people among you have become thoughtlessly aware. I know this. 
-It means that upon closing your eyes if you look at your mind then there is no thought.</b> 
-If there is only thoughtless awareness then you should know that the Kuṇḍalinī has crossed the Āgñyā chakra and has spread in the Sahasrāra chakra but has not pierced through here. 
+It means that upon closing your eyes if you look at your mind then there is no thought.</b><br>
+If there is only thoughtless awareness then you should know that the Kuṇḍalinī has crossed the Āgñyā chakra and has spread in the Sahasrāra chakra but has not pierced through here.<br> 
 But if someone is getting a Cool Breeze in their hands then they should know that the Brahmarandhra has been opened."</font><br>
 <font size="+0"><b>1975-1222 Public Program, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -52,12 +52,12 @@ The right-hand side is the ego, which is real problem, you understand that!<br>
 <font color="blue">"God has created you, you have not created yourself. 
 Who are you to destroy yourself? You have no business. 
 <b>And this is what is to be understood by Sahaja Yogis that you have no business to destroy yourselves and you have no business to spoil yourselves.</b>
-You have to understand that now you are ... If you understand really, in the way that I call it part and parcel, what is a Bodha – that is, it becomes a part and parcel of your nervous system, that you are a Yogi then no virus can attack. What is virus? Nothing can attack you, nothing can trouble you. And even if they attack, it will come for a short time and will go away. Even if they attack, it will come and go away. But it will not stay in your body. It cannot stay long ......"</b></font><br>
+You have to understand that now you are ... If you understand really, in the way that I call it part and parcel, what is a Bodha – that is, it becomes a part and parcel of your nervous system, that you are a Yogi then no virus can attack. What is virus? Nothing can attack you, nothing can trouble you. And even if they attack, it will come for a short time and will go away. Even if they attack, it will come and go away. But it will not stay in your body. It cannot stay long ......"</font><br>
 <font size="+0"><b>1987-1201 Talk to Sahaja Yogis, Treatment of Virus Infections, Pune, Maharashtra, India</b></font>
 </p>
 
 <p>
-<font color="DarkRed">"But the most surprising thing is that when it happens to you, when the Kuṇḍalinī rises piercing all these centers and opens out of the fontanel bone, then you start feeling the vibrations flowing in your hands, is the actualization. What flows through you is the pulsation of the Spirit. And you can see the pulsation flowing through you through which you can judge your own centers and the centers of the others, because you jump into a new awareness called as collective consciousness. Actually, it is actualization.<br>
+<font color="DarkRed">"But the most surprising thing is that when it happens to you, <b>when the Kuṇḍalinī rises piercing all these centers and opens out of the fontanel bone, then you start feeling the vibrations flowing in your hands, is the actualization</b>. What flows through you is the pulsation of the Spirit. And you can see the pulsation flowing through you through which you can judge your own centers and the centers of the others, because you jump into a new awareness called as collective consciousness. Actually, it is actualization.<br>
 ......<br>
 It’s an actualization within you that you start feeling others within you, that you know that we are part of the whole. Not through your brain, but through actualization in your awareness it happens. Unless and until that happens to you, you are not to believe anybody. We are seeking the wholesomeness, our wholesomeness. We are seeking our relation with the whole. We have to become the whole. For that, there is this mechanism placed within you, and when this happens, you start feeling the whole. And this is what is you are seeking.<br>
 But actually what happens [is] that it works on you like a human awareness, you get another awareness which you can call as superconsciousness. But there are other consciousness which we can call as the subconscious mind and the supraconscious.<br>
@@ -87,7 +87,7 @@ So these eyes which you see are the windows of your being, of your heart. When t
 <p style="text-align:center;">
 <font color="DarkRed"><b>Shrī Mātājī:</b> Now what are good My feet for?<br></font>
 Sahaja Yogi: Āgñyā.<br>
-<font color="blue"><b>Shrī Mātājī:</b>Very good for ego. And also superego. Is very good for people who suffer from ego or superego, My Feet.<br>
+<font color="DarkRed"><b>Shrī Mātājī:</b> Very good for ego. And also superego. Is very good for people who suffer from ego or superego, My Feet.<br>
 Because, such people are very gross. And the Feet solve the problem.<br>
 <b>So just use My Feet.</b><br>
 If they see My Face, the ego will start working, “This Face is like that, it should be like that – this, that.”<br> 

@@ -142,7 +142,7 @@ I surrender at the feet of Shri Rama-chandra.
 
 <div style="text-align: left"><img src="/images/image391.png" /></div>
 
-<p style="text-align:left;">
+<p style="text-align:center;">
 <font color="blue">"So any time you see a statue – how to make out if it’s a Rāma statue, 
 is to see if there’s an arrow and a bow, then it’s a Rāma’s statue."</font><br>
 <font size="+0"><b>1982-0402 Śhrī Rāma Pūjā, Chelsham Road, Clapham, London, UK</b></font>
