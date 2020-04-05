@@ -55,7 +55,7 @@ On the contrary, they are horrid people. Some of them are nothing but satanic pe
 <font color="blue">[Śhrī Mātājī revealed that the most important thing about Śhrī Rāma’s life was ‘puruṣhārth’
 – the will to rise above all difficulties in life and adhere to one’s duties.]</font><br>
 <font size="+0"><b>1998-0405 Śhrī Rāma Pūjā (Rāma Navamī), House, Noida, Uttar Pradesh, India</b></font><br>
-<font color="blue"><b>Aum Twameva sākshāt Śhrī Purush’ottama sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namah</b></font><br>
+<font color="blue"><b>Auṃ̣ Twameva sākshāt Śhrī Puruṣh’ottama sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
 <b>The highest among the Purushas (ideal human beings)</b>
 </p>
 
@@ -90,17 +90,17 @@ After achieving His ideals, we reach another because He was human ideal. <b>It i
 
 <p style="color:blue; text-align:center;">
 <b>Shrī Rāma-chandra charanau manasā smarāmi</b><br>
-I worship the feet of Shri Rama-chandra in my heart.<br>
+I worship the feet of Śhrī Rāma-chandra in my heart.<br>
 <b>Shrī Rāma-chandra charanau vachasā gṛunāmi</b><br>
-Through my songs and prayers I praise the feet of Shri Rama-chandra.<br> 
+Through my songs and prayers I praise the feet of Śhrī Rāma-chandra.<br> 
 <b>Shrī Rāma-chandra charanau shirasā namāmi</b><br>
-I bow at the feet of Shri Rama-chandra.<br>
+I bow at the feet of Śhrī Rāma-chandra.<br>
 <b>Shrī Rāma-chandra charanau sharanam prapadye</b><br>
-I surrender at the feet of Shri Rama-chandra.
+I surrender at the Feet of Śhrī Rāma-chandra.
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b>1982-0402 Shri Rama Navami Puja, Chelsham Road, London, UK</b></font>
+<font size="+0"><b>1982-0402 Śhrī Rāma Pūjā, Chelsham Road, London, UK</b></font>
 <a href="https://www.youtube.com/watch?v=klN3-IPr6zw"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
@@ -116,22 +116,22 @@ I surrender at the feet of Shri Rama-chandra.
 </p>
 
 <p>
-<font color="green"><b>Shri Ram Kahe Samjhaye</b></font><br>
+<font color="green"><b>Śhrī Rām Kahe Samjhaye</b></font><br>
 <a href="https://www.youtube.com/watch?v=MmAH-1btUxc">video</a>
 </p>
 
 <p>
-<font color="green"><b>Shri Mataji singing Raghupati Rām</b></font><br>
+<font color="green"><b>Śhrī Mātājī singing Raghupati Rām</b></font><br>
 <a href="https://www.youtube.com/watch?v=6cK5TEzmE7Q">video</a>
 </p>
  
 <p>
-<font color="green"><b>Shri Ram Kavach Part 1 by Pt.B.Subramanian</b></font><br>
+<font color="green"><b>Śhrī Rām Kavach Part 1 by Pt.B.Subramanian</b></font><br>
 <a href="https://www.youtube.com/watch?v=jU0lTR3Rdg8">video</a>
 </p>
 
 <p>
-<font color="green"><b>Shri Ram Kavach Part 2 by Pt.B.Subramanian</b></font><br>
+<font color="green"><b>Śhrī Rām Kavach Part 2 by Pt.B.Subramanian</b></font><br>
 <a href="https://www.youtube.com/watch?v=VIexvFle7iQ">video</a> 
 </p>
 

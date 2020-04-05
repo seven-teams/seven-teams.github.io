@@ -25,8 +25,8 @@ You know everything around you but there are no thought waves from your ego or s
 You are in peace and joy. In such a state this Kuṇḍalinī energy flows from you."</b></font><br>
 <font size="+0"><b>1977-0108 Public Program (Hindi), Chowpatty, Mumbai, Maharashtra, India</b></font><br>
 <br>
-<font color="Maroon"><b>Aum Twameva sākshāt Śhrī Nirvichāra-samādhi viśhwa vyāpinī sākshāt<br>
-Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namah<br>
+<font color="Maroon"><b>Auṃ̣Twameva sākshāt Śhrī Nirvichāra-samādhi viśhwa vyāpinī sākshāt<br>
+Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ<br>
 (The bestower of Nirvichara samadhi, the silent power of the universe)</b></font><br>
 </p>
 
@@ -88,7 +88,7 @@ Just watch the Photograph and slowly close your eyes while meditating and do not
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b>1982-0411 Easter Puja Talk, The Creation of Lord Jesus Christ, London, UK</b></font>
+<font size="+0"><b>1982-0411 Easter Pūjā, The Creation of Lord Jesus Christ, London, UK</b></font>
 <a href="https://www.youtube.com/watch?time_continue=2&v=JgN22plZW-o&feature=emb_logo"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>

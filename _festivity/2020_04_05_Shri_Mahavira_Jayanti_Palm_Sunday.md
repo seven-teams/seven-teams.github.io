@@ -1,9 +1,11 @@
 ---
-title: '2020 Celebrating Mahavira Jayanti & Palm Sunday: "Sahaj Yoga is not just for you. It is meant for the whole world."'
+title: '2020 Celebrating Śhrī Mahāvīra Jayanti & Palm Sunday: "Sahaj Yoga is not just for you. It is meant for the whole world."'
 date: 2020-04-05
 permalink: /festivity/2020/04/05
 tags:
-  - Diwali
+  - Mahavira Jayanti
+  - Shri Mahavira
+  - Palm Sunday
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
@@ -33,9 +35,9 @@ Tirveni Pe Haun Nahaunga nahungaaa</b><br>
 <div style="text-align: center"><img src="/images/image393.png" /></div>
 
 <p style="color:blue; text-align:center;">
-<b>Aum Twameva sākshāt Shrī Mahāvīra sākshāt<br>
-Shrī Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah!</b><br>
-O Divine Mother, You are verily Shri Mahavira. Salutations to You!
+<b>Auṃ̣ Twameva sākshāt Śhrī Mahāvīra sākshāt<br>
+Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><br>
+O Divine Mother, You are verily Śhrī Mahāvīra. Salutations to You!
 </p>
 
 <p>
@@ -54,14 +56,14 @@ But His asceticism was there because of the Brahminism that was so prevalent in 
 <div style="text-align: center"><img src="/images/image394.png" /></div>
 
 <p style="text-align:center;">
-<font color="blue">"Now, why was He called Mahavira?<br>
+<font color="blue">"Now, why was He called Mahāvīra?<br>
 Because only a person like Him – Vir means a person who is brave, who is chivalrous – because only He could do this, 
 so only He could enter into the being fully and could kill or, you can say, destroy those horrible rakshasas, devils, all these negative things that come to us."</font><br>
 <font size="+0"><b>1991-0328 Śhrī Mahāvīra Pūjā, Gidgegannup, Darling Ranges (45 kms NE of Perth), WA, Australia</b></font>
 </p>
 
 <p>
-<font color="DarkRed">"So we have to thank really very much Mahavira who has given us this power to remove our left-sided problems, who has given us this light in our hand which He Himself vibrates, and He Himself tries to throw some light on the obscure things – about Me also. Because of Him only we can get cured of so many physical and mental troubles. <b>You know that the left side can be easily cured if you use three-candle treatment. That shows Mahavira is only fond of light, He doesn’t like darkness.</b> And His idea is, I think that way, is to now fully go all the way to clear the left side as far as possible, to help Sahaja Yoga to be established in countries where I find still lot of this negativity is there, lot of it."</font><br>
+<font color="DarkRed">"So we have to thank really very much Mahāvīra who has given us this power to remove our left-sided problems, who has given us this light in our hand which He Himself vibrates, and He Himself tries to throw some light on the obscure things – about Me also. Because of Him only we can get cured of so many physical and mental troubles. <b>You know that the left side can be easily cured if you use three-candle treatment. That shows Mahāvīra is only fond of light, He doesn’t like darkness.</b> And His idea is, I think that way, is to now fully go all the way to clear the left side as far as possible, to help Sahaja Yoga to be established in countries where I find still lot of this negativity is there, lot of it."</font><br>
 <font size="+0"><b>1991-0328 Śhrī Mahāvīra Pūjā, Gidgegannup, Darling Ranges (45 kms NE of Perth), WA, Australia</b></font>
 </p>
 
@@ -81,13 +83,13 @@ We all sing Your glory together<br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b>1990-0617 Mahavira Puja Talk, Barcelona, Spain</b></font>
+<font size="+0"><b>1990-0617 Śhrī Mahāvīra Pūjā, Barcelona, Spain</b></font>
 <a href="https://www.youtube.com/watch?v=vjHXNpb8sVk"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
  
 <p>
-<font color="green"><b>21 names of Shri Bhairava recited (1991-0328 Shri Mahavira Puja in Perth, Australi)</b></font><br>
+<font color="green"><b>21 names of Śhrī Bhairava recited (1991-0328 Śhrī Mahāvīra Pūjā, Perth, Australia)</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
