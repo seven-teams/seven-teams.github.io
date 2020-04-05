@@ -34,7 +34,7 @@ You are in peace and joy. In such a state this Kuṇḍalinī energy flows from 
 <font color="DarkRed">"Above this chakra is the Āgñyā chakra, which is a very, very important chakra, which is the door, which is the door of the Sahasrāra. At the Āgñyā chakra resides Mahāviṣhṇu. Those who have read about Mahāviṣhṇu in the Mārkaṇḍeya Purāṇa or in the Devī Bhāgavat[am] you will know what I am talking about but you will not know when He incarnated and who He was. He was nobody else but Jesus Christ.<br>
 Jesus Christ was the only Son of Mary who was Rādhā. She was Mahālakṣhmī. It was Mahālakṣhmī who incarnated as Mary and Jesus Christ was nobody else but Mahāviṣhṇu. If you want to know about Mahāviṣhṇu you must read Devī Bhāgavat[am]. There it’s described in all elaboration. But whether He is there or not, whether it’s a fact or not can be seen because [if] somebody’s Āgñyā chakra is caught up we have to take the name of Jesus Christ. <b>He is Auṃkār Swarūp so you can even take the name of Auṃkāra but you have to take the name of Jesus Christ. If you do not take His name, if you do not accept Him I cannot open your Āgñyā chakra.</b><br>
 ...... In the Āgñyā chakra He resides. He controls your ego and superego, both. He removes the entities that are in you and He kills your darpa, your ego. He looks after your ego."</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1976-0205 Public Program (Vasant Pañchamī), Day 2, Description of Kuṇḍalinī, after Śhrī Viṣhnu Havan, New Delhi, India</b></font>
 </p>
 
 <p>
@@ -49,7 +49,7 @@ Jesus Christ was the only Son of Mary who was Rādhā. She was Mahālakṣhmī. 
 And that’s the point they call the ‘third eye’ and that’s a very important point, and this is the point of Christ. 
 <b>This is the point where you see this red mark [bindi] is the point of Christ and when the Kuṇḍalinī rises She awakens all these Deities.</b>"</font><br>
 <font size="+0"><b>1979-0720 Public Program, Cardiff, Wales, UK</b></font><br>
-<font color="DMaroon"><b>You guard the gate of our Mother.><br>
+<font color="Maroon"><b>You guard the gate of our Mother.<br>
 You are the Son of God.><br>
 You are the only way to the Kingdom of God.</b></font><br>
 </p>
