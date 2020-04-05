@@ -24,7 +24,7 @@ Nobody knew about it, it was all underground. All the knowledge about Kuṇḍal
 
 <p>
 <font color="DarkRed">"<b>We have gathered here on the occasion of Rām Navamī.</b> Everybody has said, “Mother please tell us about Śhrī Rām.”<br>
-You know that Śhrī Rāma has a very important place on our chakra, He is situated on our right Heart. Śhrī Rāma has taken the place of father hence if there is lack in the responsibility or love from father this chakra is caught. In Sahaja Yoga we to understand that Śhrī Rāma and all other Deities have taken the form to fulfill their divine work, in all Śhrī Rāma had a special task. As it was said by Socrates that the Benevolent King has to come the same way Śhrī Rāma had come on this Earth as benevolent king, He came in the form of human being, He even forgot that He was Incarnation of Śhrī Viṣhṇu, forgot about Him but for all world He was Puruṣhottama Rāma.
+You know that Śhrī Rāma has a very important place on our chakra, He is situated on our right Heart. Śhrī Rāma has taken the place of father hence if there is lack in the responsibility or love from father this chakra is caught. In Sahaja Yoga we to understand that Śhrī Rāma and all other Deities have taken the form to fulfill their divine work, in all Śhrī Rāma had a special task. As it was said by Socrates that the Benevolent King has to come the same way Śhrī Rāma had come on this Earth as benevolent king, He came in the form of human being, He even forgot that He was Incarnation of Śhrī Viṣhṇu, forgot about Him but for all world He was Puruṣhottama Rāma.<br>
 <b>In Sahaja Yoga we need to know when we pray any Deity, we have imbibed the specialties and qualities of the particular Deity within us, Śhrī Rāma had many qualities.</b><br>
 You all know his childhood life and you have already heard about his qualities, he was Puruṣhottama he had another quality that in his ruling, he did not care for his wife or children’s in front of his subjects view."</font><br>
 <font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi), Kolkata, West Bengal, India</b></font>
@@ -45,7 +45,7 @@ He has incarnated to destroy all the negative forces and to protect this world.<
 <p>
 <font color="DarkRed">"<b>Śhrī Rāma came on this Earth to establish the institution of benevolent king.</b> The political development and the political evolution started from this [right] side. He is the one who gave leadership as a benevolent king, the one who represents God and who is a king. The idea of a king related to God came from Śhrī Rāma. But the modern kings are not like that, they have no relation with God.<br>
 On the contrary, they are horrid people. Some of them are nothing but satanic people, absolutely Satan is there and you can see from the way they lead their lives, and they have led their life before. So the benevolence of Śhrī Rāma is here [shows the right Heart] to be followed by all the political leaders and all the people who are at the helm of affairs. He is the ideal that was created for human beings, to run their authority as the head, or the loving compassionate benevolent leader of the people, who has to govern them by making them respectful, by respect. And if human beings create such things who are not respectable, those who have no human values, those who have no moral courage, those who are selfish, those who are self-centered, then they have nothing to do to be there.<br>
-So this is the position of Rāma who is the Father. So the head of every state has to be the father of his subjects, that’s what He has tried to show by His life. So much so that He had to sacrifice His beloved Wife, whom He loved so much."</font><br>
+<b>So this is the position of Rāma who is the Father.</b> So the head of every state has to be the father of his subjects, that’s what He has tried to show by His life. So much so that He had to sacrifice His beloved Wife, whom He loved so much."</font><br>
 <font size="+0"><b>1981-0929 Public Program, East-West Center, 141 5th Avenue, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -54,9 +54,9 @@ So this is the position of Rāma who is the Father. So the head of every state h
 <p style="text-align:center;">
 <font color="blue">[Śhrī Mātājī revealed that the most important thing about Śhrī Rāma’s life was ‘puruṣhārth’
 – the will to rise above all difficulties in life and adhere to one’s duties.]</font><br>
-<font size="+0"><b>1998-0405 Śhrī Rāma Pūjā (Rāma Navamī), House, Noida, Uttar Pradesh, India</b></font>
+<font size="+0"><b>1998-0405 Śhrī Rāma Pūjā (Rāma Navamī), House, Noida, Uttar Pradesh, India</b></font><br>
 <font color="blue"><b>Aum Twameva sākshāt Śhrī Purush’ottama sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namah</b></font><br>
-The highest among the Purushas (ideal human beings)
+<b>The highest among the Purushas (ideal human beings)</b>
 </p>
 
 <p>
@@ -70,8 +70,8 @@ First the leader has to sacrifice and show how far he can go in sacrificing to k
 <div style="text-align: center"><img src="/images/image389.png" /></div>
 
 <p style="text-align:center;">
-<font color="blue">Also you must protect yourself, all of you: always give yourself a bandhan; always lead a clean life. 
-There are certain hygienic rules of Sahaja Yoga, please try to follow them. Do not neglect it.</font><br>
+<font color="blue">"Also you must protect yourself, all of you: always give yourself a bandhan; always lead a clean life. 
+There are certain hygienic rules of Sahaja Yoga, please try to follow them. Do not neglect it."</font><br>
 <font size="+0"><b>1992-0725 Śhrī Durgā Mahākālī Pūjā, France on the Verge of Destruction, Paris, France</b></font>
 </p>
 
@@ -81,7 +81,7 @@ There are certain hygienic rules of Sahaja Yoga, please try to follow them. Do n
 </p>
 
 <p>
-<font color="DarkRed">"Śhrī Rāma was born at midnight so let’s have Pūjā late. Śhrī Rāma Pūjā is not a specially long one. As He is in a human form He is humanity within us by which we understand our intellect and our thoughts get changed. Śhrī Rāma is that through Him we can change our thoughts. Our nature can change because He is our ideal.
+<font color="DarkRed">"Śhrī Rāma was born at midnight so let’s have Pūjā late. Śhrī Rāma Pūjā is not a specially long one. As He is in a human form He is humanity within us by which we understand our intellect and our thoughts get changed. Śhrī Rāma is that through Him we can change our thoughts. Our nature can change because He is our ideal.<br>
 After achieving His ideals, we reach another because He was human ideal. <b>It is great that God came to this world in a human form to became our ideal. He has gone through all the hardships to show us strength to keep dharma. That is Viśhwa Dharma and the State of Yoga.</b>"</font><br>
 <font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi), Kolkata, West Bengal, India</b></font>
 </p>
@@ -90,11 +90,11 @@ After achieving His ideals, we reach another because He was human ideal. <b>It i
 
 <p style="color:blue; text-align:center;">
 <b>Shrī Rāma-chandra charanau manasā smarāmi</b><br>
-I worship the feet of Shri Rama-chandra in my heart. 
+I worship the feet of Shri Rama-chandra in my heart.<br>
 <b>Shrī Rāma-chandra charanau vachasā gṛunāmi</b><br>
-Through my songs and prayers I praise the feet of Shri Rama-chandra. 
+Through my songs and prayers I praise the feet of Shri Rama-chandra.<br> 
 <b>Shrī Rāma-chandra charanau shirasā namāmi</b><br>
-I bow at the feet of Shri Rama-chandra. 
+I bow at the feet of Shri Rama-chandra.<br>
 <b>Shrī Rāma-chandra charanau sharanam prapadye</b><br>
 I surrender at the feet of Shri Rama-chandra.
 </p>
@@ -140,11 +140,12 @@ I surrender at the feet of Shri Rama-chandra.
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
-<div style="text-align: left"><img src="/images/image390.png" /></div>
+<div style="text-align: left"><img src="/images/image391.png" /></div>
 
 <p style="text-align:left;">
-<font color="blue"><b></b></font><br>
-<font size="+0"><b></b></font>
+<font color="blue">"So any time you see a statue – how to make out if it’s a Rāma statue, 
+is to see if there’s an arrow and a bow, then it’s a Rāma’s statue."</font><br>
+<font size="+0"><b>1982-0402 Śhrī Rāma Pūjā, Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
 <p>
