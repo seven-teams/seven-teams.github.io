@@ -106,7 +106,7 @@ Reality is the Self Itself, the Universal Spirit, immersed in the Ocean of Necta
 <b>In Sahaja Yoga penance means meditation, for dedication you must know when to get up, that must be the most important thing for a Sahaja Yogi.</b> The rest of the things work out automatically.<br>
 <b>To grow in-depth you have to meditate.</b>"</font><br>
 <font size="+0"><b>1900-0000 Three Quotes from the booklet Sahaja Yoga, Easter Pūjā 1996</b></font><br>
-<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Sarva Granthi Vibhedini sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
+<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Sarva Granthi Vibhedinī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 Breaking Easter Eggs (1992-0419 Easter Pūjā, Italy)<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
