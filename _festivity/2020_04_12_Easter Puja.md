@@ -21,13 +21,13 @@ So, it was a very sad time when He was crucified. But when <b>He got resurrected
 <div style="text-align: center"><img src="/images/image398.png" /></div>
 
 <p style="text-align:center;">
-<font color="red">"Christ was concerned all the time with the benevolence of the world. 
+<font color="DarkRed">"Christ was concerned all the time with the benevolence of the world. 
 Christ was knowledge.<br>
 He knew His goal.<br>
 He spoke the Truth with complete courage, intensity and dedication."</font><br>
 <font size="+0"><b>1900-0000 Quote on Śhrī Jesus Christ from Akashwani, Volume I, Issue IV (May 2000), Page 3</b></font><br>
-<font color="DarkGreen"><b>Jai Shrī Īsha-putra, jagi Tāraka janmā ālā<br>
-Victory to the Son of God, the Saviour born on the Earth!</b></font>
+<font color="DarkGreen"><b>Jai Śhrī Īsha-putra, jagi Tāraka janmā ālā<br>
+Victory to the Son of God, the Savior born on the Earth!</b></font>
 </p>
 
 <p>
@@ -58,8 +58,8 @@ His crossing has helped us today to open your Sāhasr... open your Āgñyā. <b>
 <div style="text-align: center"><img src="/images/image400.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
-<b>You promised the comforter who is Shri Mataji, the Holy Spirit.<br>
-You return as a king. You are Shri Kalki.<br>
+<b>You promised the comforter who is Śhrī Mātājī, the Holy Spirit.<br>
+You return as a king. You are Śhrī Kalki.<br>
 You are the principle of evolution.<br>
 You are the support of our evolution.</b>
 </p>
@@ -77,11 +77,11 @@ So, that is going to work out what I call the collective ascent of human beings.
 <div style="text-align: center"><img src="/images/image401.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
-<b></b>You are the end of evolution.<br>
+<b>You are the end of evolution.<br>
 You are the evolution from collective subconscious to collective consciousness.<br> 
 You are the narrow gate.<br>
 You are the way to the Kingdom of Heaven.<br>
-You are the silence.
+You are the silence.</b>
 </p>
 
 <p>
@@ -106,8 +106,8 @@ Reality is the Self Itself, the Universal Spirit, immersed in the Ocean of Necta
 <b>In Sahaja Yoga penance means meditation, for dedication you must know when to get up, that must be the most important thing for a Sahaja Yogi.</b> The rest of the things work out automatically.<br>
 <b>To grow in-depth you have to meditate.</b>"</font><br>
 <font size="+0"><b>1900-0000 Three Quotes from the booklet Sahaja Yoga, Easter Pūjā 1996</b></font><br>
-<font color="DarkGreen"><b>Aum twameva sakshat Shri Sarva Granthi Vibhedini sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai namo namah!</b></font><br>
-Breaking Easter Eggs (1992 0419 Easter Puja, Italy)<br>
+<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Sarva Granthi Vibhedini sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
+Breaking Easter Eggs (1992-0419 Easter Pūjā, Italy)<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -118,18 +118,18 @@ Breaking Easter Eggs (1992 0419 Easter Puja, Italy)<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Gajanana Shri Gan Raya</b></font><br>
+<font color="green"><b>Gajanana Śhrī Gan Raya</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b>Shri Ganesha jai Shri Ganesha</b></font><br>
+<font color="green"><b>Śhrī Gaṇeśha jai Śhrī Gaṇeśha</b></font><br>
 <a href="https://www.youtube.com/watch?v=GCgN6qnmNiA">video</a>
 </p>
 
 <p>
-<font color="green"><b>Ek Ganapati Ek Isā, Dono Ne Ādi Mā Ko Dhyāyā, Antar Kyā Dono Ki Śhakti Mein Bolo, Ek Gauri Ke Dulare Ek Radhaji Ke Pyāre</b></font><br>
-(One is Ganapati. One is Jesus Christ. Both meditate on the Primordial Mother. So tell, what is the difference in the Powers that support Them. One is the loving child of Shri Gauri and the other is the beloved son of Shri Radhajī)<br>
+<font color="green"><b>Ek Gaṇapati Ek Īsā, Dono Ne Ādi Mā Ko Dhyāyā, Antar Kyā Dono Ki Śhakti Mein Bolo, Ek Gauri Ke Dulare Ek Radhaji Ke Pyāre</b></font><br>
+(One is Gaṇapati. One is Jesus Christ. Both meditate on the Primordial Mother. So tell, what is the difference in the Powers that support Them? One is the loving child of Śhrī Gaurī and the other is the beloved son of Śhrī Rādhājī)<br>
 <a href="https://www.youtube.com/watch?v=Dg41OjGhrU8&list=PLuAVZW42aaCl9pNxB0HDBVhjALrGm2Od_"> video</a><br>
 </p>
 
