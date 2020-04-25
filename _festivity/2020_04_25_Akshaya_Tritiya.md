@@ -16,7 +16,7 @@ tags:
 <div style="text-align: center"><img src="/images/image405.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>"Akṣhay Tṛitīya. That’s the day, when, I mean it is regarded as the most auspicious day to start anything."</b></font><br>
+<font color="Red"><b>Shrī Mātājī:</b></font> <font color="RedGreen">Akṣhay Tṛitīya. That's the day, when, I mean it is regarded as the most auspicious day to start anything.</b></font><br>
 <font size="+0"><b>1988-0610 Conversation with Sahaja Yogis, About Music, Photographs and False Gurus, Lunch before the evening Public Program in Graz, Gleißenfeld (75 kms S of Vienna), Austria</b></font>
 </p>
 
