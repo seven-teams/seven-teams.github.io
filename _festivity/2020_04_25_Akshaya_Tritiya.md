@@ -94,7 +94,7 @@ Now You are in form<br>
 </p>
  
 <p>
-<font color="green"><b>Jai Ambe Kuṇḍalinī Mā</b></font><br>
+<font color="green"><b>Jay Ambe Kuṇḍalinī Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=7dqX2ZNiG5I">video</a>
 </p>
 
@@ -109,7 +109,7 @@ Now You are in form<br>
 </p>
 
 <p style="text-align:center;">
-<font color="red"><b>Aum Twamev Sakshat Śhrī Kuṇḍalinī Mata Sakshat Śhrī Adi Shakti Śhrī Mataji Śhrī Nirmala Devyai Namo Namaha!</b></font>
+<font color="red"><b>Auṃ Twameva sākṣhāt Śhrī Kuṇḍalinī Mātā sākṣhāt Śhrī Ādi Śhakti Śhrī Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font>
 </p>
 
 <p>
