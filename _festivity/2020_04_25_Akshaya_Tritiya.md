@@ -33,13 +33,15 @@ Once the instrument is all right, then you project outside. And now how do you p
 <font color="DarkGreen"><b>Kuṇḍalinī Kuṇḍalinī Nirmalā Mātā, Mātā Mā<br>
 Jay Nirmala Śhakti, Bhagavatī, Nirmal Bhakti<br>	
 Ādi Śhakti, Nirmalā Devī, Nirmalā Mātā Mātājī</b></font><br>
-<font size="+0"><font color="DarkGreen"><b>Kuṇḍalinī Kuṇḍalinī</b></font></font><br>
+<font size="-1"><font color="DarkGreen"><b>Kuṇḍalinī Kuṇḍalinī</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="DarkRed">"Had a very nice Pūjā in Pune which I had to perform on the thirteenth because it is the date called <b>Akshaya Tritiya, means un-destructible [indestructible] third day of the moon. That’s actually nobody knew, but it is the Pūjā of the Kundalinī.</b> That day everybody felt very, very clear. Very clear. Pūjā was hardly for about half an hour, the real Pūjā of the Kuṇḍalinī. But everybody felt extremely clear and beautiful. So, that sort of Pūjā we should do tomorrow also, if possible, so that we’ll have the feelings of Sahasrāra completely opened out because even if Sahasrāra is opened, the rest of the chakras, if they are caught up then you have problems. It’s better to clear out all the chakras and then the Sahasrāra. So, tomorrow we’ll do the Pūjā in that fashion and I hope it will work out very well for all of you."</font><br>
-<font size="+0"><b>1987-0502 Talk to Sahaja Yogis, On Arrival before the Evening Program, the day before Saha
+<font color="DarkRed">"Had a very nice Pūjā in Pune which I had to perform on the thirteenth because it is the date called <b>Akṣhaya Tṛitīya, means un-destructible [indestructible] third day of the moon. That’s actually nobody knew, but it is the Pūjā of the Kundalinī.</b> That day everybody felt very, very clear. Very clear. Pūjā was hardly for about half an hour, the real Pūjā of the Kuṇḍalinī. But everybody felt extremely clear and beautiful. So, that sort of Pūjā we should do tomorrow also, if possible, so that we’ll have the feelings of Sahasrāra completely opened out because even if Sahasrāra is opened, the rest of the chakras, if they are caught up then you have problems. It’s better to clear out all the chakras and then the Sahasrāra. So, tomorrow we’ll do the Pūjā in that fashion and I hope it will work out very well for all of you."</font><br>
+<font size="+0"><b>1987-0502 Talk to Sahaja Yogis, On Arrival before the Evening Program, the day before Sahasrāra Pūjā, Thredbo Village, Kosciuszko National Park, New South Wales, Australia
+</b></font>
+</p>
 
 <div style="text-align: center"><img src="/images/image407.png" /></div>
 
