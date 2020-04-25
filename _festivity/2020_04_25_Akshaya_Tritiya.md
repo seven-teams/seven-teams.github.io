@@ -60,19 +60,19 @@ May God bless you all."</font><br>
 <div style="text-align: center"><img src="/images/image408.png" /></div>
 
 <p style="text-align:center;">
-<b>Aarti Nirmala Mata</b><br>
+<font color="DarkRed"><b>Aarti Nirmala Mata</b></font><br>
 Aarti of Nirmala Mata<br>
-<b>Charni Thevila Me Matha</b><br>
+<font color="DarkRed"><b>Charni Thevila Me Matha</b></font><br>
 I bow my head at Your Feet<br>
-<b>Aarti Nirmala Mata</b><br>
+<font color="DarkRed"><b>Aarti Nirmala Mata</b></font><br>
 Aarti of Nirmala Mata<br>
-<b>Adi Shakti Kuṇḍalinī</b><br>
+<font color="DarkRed"><b>Adi Shakti Kuṇḍalinī</b></font><br>
 Primordial Energy Kuṇḍalinī<br>
-<b>Sarva Vishwachi Janani</b><br>
+<font color="DarkRed"><b>Sarva Vishwachi Janani</b></font><br>
 Mother of the entire Universe<br>
-<b>Nirguna He Rupa Tuzhe</b><br>
+<font color="DarkRed"><b>Nirguna He Rupa Tuzhe</b></font><br>
 Your form is formless<br>
-<b>Zahli Saguna Tu Ata</b><br>
+<font color="DarkRed"><b>Zahli Saguna Tu Ata</b></font><br>
 Now You are in form<br>
 <a href="https://www.youtube.com/watch?v=2btBuq4VYL4">video</a>
 </p>
