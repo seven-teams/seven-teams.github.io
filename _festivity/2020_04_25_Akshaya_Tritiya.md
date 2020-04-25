@@ -78,7 +78,7 @@ Now You are in form<br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b>[1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b></font>
+<font size="+0"><b>1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b></font>
 <a href="https://www.youtube.com/watch?time_continue=1&v=axdEEF-R8jk&feature=emb_logo"> video</a><br>
 
 <font size="+2"><b>Let's offer stotra and songs in praise of our Holy Mother!</b></font>
