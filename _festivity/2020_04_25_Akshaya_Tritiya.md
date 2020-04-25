@@ -9,10 +9,8 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"Today we have gathered here to do the Pūjā of Ādi Kuṇḍalinī as well as your own Kuṇḍalinī.
-First of all, I think this is the most important thing to understand about your own Kuṇḍalinī, as Self-realization is Self-knowledge. And the one who gives you Self-knowledge is this, your own Kuṇḍalinī, because when She rises She points it out what are the problems on your chakras.<br>
-Now, we say that it is pure desire, but we do not know what purity means. It means your chaste desire. It means it has no lust, greed, anything in it. That power is your own mother and is settled in your triangular bone. She’s your own mother. She knows everything about you, it’s like a tape recorder. She knows everything about you and She is absolutely the knowledge – because She’s so pure."</font><br>
-<font size="+0"><b>1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b></font>
+<font color="DarkRed">"Today we have gathered here to worship the Ādi Kuṇḍalinī and your own Kuṇḍalinī, both of them because your Kuṇḍalinī is the reflection of the Ādi Kuṇḍalinī. We have understood a lot about Kuṇḍalinī and also we know that through Her awakening only, through Her ascent only, we have ascended into a very higher realm of consciousness. It’s not only that we have risen to a very higher realm of awareness but that it has granted us so many powers that, never before in the history of spirituality people had this power of awakening of Kuṇḍalinī."</font><br>
+<font size="+0"><b>1992-0621 Śhrī Ādi Kuṇḍalinī Pūjā, Tent, Cabella Ligure, Italy</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image405.png" /></div>
