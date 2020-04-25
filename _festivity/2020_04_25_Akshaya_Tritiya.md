@@ -1,0 +1,118 @@
+---
+title: '2020 Celebrating Akṣhaya Tṛitīya: "Akṣhaya Tṛitīya, means un-destructible third day of the moon. That’s actually nobody knew, but it is the Pūjā of the Kundalinī." '
+date: 2020-04-25
+permalink: /festivity/2020/04/25
+tags:
+  - Akshaya Tritiya
+---
+
+<div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
+
+<p>
+<font color="DarkRed">"Today we have gathered here to do the Pūjā of Ādi Kuṇḍalinī as well as your own Kuṇḍalinī.
+First of all, I think this is the most important thing to understand about your own Kuṇḍalinī, as Self-realization is Self-knowledge. And the one who gives you Self-knowledge is this, your own Kuṇḍalinī, because when She rises She points it out what are the problems on your chakras.<br>
+Now, we say that it is pure desire, but we do not know what purity means. It means your chaste desire. It means it has no lust, greed, anything in it. That power is your own mother and is settled in your triangular bone. She’s your own mother. She knows everything about you, it’s like a tape recorder. She knows everything about you and She is absolutely the knowledge – because She’s so pure."</font><br>
+<font size="+0"><b>1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b></font>
+</p>
+
+<div style="text-align: center"><img src="/images/image405.png" /></div>
+
+<p style="text-align:center;">
+<font color="DarkGreen"><b>"Akṣhay Tṛitīya. That’s the day, when, I mean it is regarded as the most auspicious day to start anything."</b></font><br>
+<font size="+0"><b>1988-0610 Conversation with Sahaja Yogis, About Music, Photographs and False Gurus, Lunch before the evening Public Program in Graz, Gleißenfeld (75 kms S of Vienna), Austria</b></font>
+</p>
+
+<p>
+<font color="DarkRed">"So first, your vibrations must improve, to receive. If the reception is not good what’s the use of any Pūjā or projection? So first of all we, sort of, prepare our instrument, or prepare our projecting instrument.<br>
+<b>That preparation is done by praying to different Deities, as we call that: a Kuṇḍalinī Pūjā. By praying to My Kuṇḍalinī you improve your reflection. Because then the vibrations from Me start flowing into yours and they awaken it. This is the projection as far as you are concerned.</b><br>
+Once the instrument is all right, then you project outside. And now how do you project? By worshiping the Goddess as the Protector of the whole Universe, praising Her different attributes, even Her Face, Her Hands, everything has a meaning. Praising Her Powers."</font><br>
+<font size="+0"><b>1980-0719 Talk to Sahaja Yogis, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font>
+</p>
+
+<div style="text-align: center"><img src="/images/image406.png" /></div>
+
+<p style="text-align:center;">
+<font color="DarkGreen"><b>Kuṇḍalinī Kuṇḍalinī Nirmalā Mātā, Mātā Mā<br>
+Jay Nirmala Śhakti, Bhagavatī, Nirmal Bhakti <br>	
+Ādi Śhakti, Nirmalā Devī, Nirmalā Mātā Mātājī</b></font><br>
+<font size="+0"><font color="DarkGreen"><b>Kuṇḍalinī Kuṇḍalinī</b><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+</p>
+
+<p>
+<font color="DarkRed">"Had a very nice Pūjā in Pune which I had to perform on the thirteenth because it is the date called <b>Akshaya Tritiya, means un-destructible [indestructible] third day of the moon. That’s actually nobody knew, but it is the Pūjā of the Kundalinī.</b> That day everybody felt very, very clear. Very clear. Pūjā was hardly for about half an hour, the real Pūjā of the Kuṇḍalinī. But everybody felt extremely clear and beautiful. So, that sort of Pūjā we should do tomorrow also, if possible, so that we’ll have the feelings of Sahasrāra completely opened out because even if Sahasrāra is opened, the rest of the chakras, if they are caught up then you have problems. It’s better to clear out all the chakras and then the Sahasrāra. So, tomorrow we’ll do the Pūjā in that fashion and I hope it will work out very well for all of you."</font><br>
+<font size="+0"><b>1987-0502 Talk to Sahaja Yogis, On Arrival before the Evening Program, the day before Saha
+
+<div style="text-align: center"><img src="/images/image407.png" /></div>
+
+<p style="color:DarkGreen; text-align:center;">
+<b>On this very auspicious day, 
+Śhrī Mātājī please give us the desire to have Akṣhaya Pad.
+Please bless us with that eternal love of God.</b><br>
+</p>
+
+<p>
+<font color="DarkRed">"So this is what it gives you discretion; and Love is Truth. So to this Kuṇḍalinī, which is nothing but, is the River, as yesterday they described Nirvaj, which doesn’t accept any compensation. The River of that Pure Love which has awakened us with such love, kindness and tenderness, we should try to use that power within ourselves to be like that because our job is, She has given us Realization for the emancipation of the whole world, not only our own. So everyone has to give Realization to others otherwise their Kuṇḍalinī will settle back. Talk about Sahaja Yoga. Sahaja Yoga is not part-time, it is not a side issue, it should be always with you. Wherever you get a chance you have to talk about Sahaja Yoga, you have to work it out, you have to give Realization, otherwise no use.<br>
+May God bless you all."</font><br>
+<font size="+0"><b>1992-0621 Śhrī Ādi Kuṇḍalinī Pūjā, Tent, Cabella Ligure, Italy</b></font>
+</p>
+
+<div style="text-align: center"><img src="/images/image408.png" /></div>
+
+<p style="text-align:center;">
+<b>Aarti Nirmala Mata</b><br>
+Aarti of Nirmala Mata<br>
+<b>Charni Thevila Me Matha</b><br>
+I bow my head at Your Feet<br>
+<b>Aarti Nirmala Mata</b><br>
+Aarti of Nirmala Mata<br>
+<b>Adi Shakti Kuṇḍalinī</b><br>
+Primordial Energy Kuṇḍalinī<br>
+<b>Sarva Vishwachi Janani</b><br>
+Mother of the entire Universe<br>
+<b>Nirguna He Rupa Tuzhe</b><br>
+Your form is formless<br>
+<b>Zahli Saguna Tu Ata</b><br>
+Now You are in form<br>
+<a href="https://www.youtube.com/watch?v=2btBuq4VYL4">video</a>
+</p>
+
+<font size="+2"><b>Suggested Talk:</b></font> 
+<font size="+0"><b>[1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b></font>
+<a href="https://www.youtube.com/watch?time_continue=1&v=axdEEF-R8jk&feature=emb_logo"> video</a><br>
+
+<font size="+2"><b>Let's offer stotra and songs in praise of our Holy Mother!</b></font>
+
+<p>
+<font color="green"><b>Śhrī Kuṇḍalinī Stuti Stotra</b></font><br>
+<a href="https://www.youtube.com/watch?v=dKQR9NozR64">video</a>
+</p>
+
+<p>
+<font color="green"><b>Kuṇḍalinī Chadhi Badhi</b></font><br>
+<a href="https://www.youtube.com/watch?v=KOKeT0HOmXU&list=RDKOKeT0HOmXU">video</a>
+</p>
+ 
+<p>
+<font color="green"><b>Jai Ambe Kuṇḍalinī Mā</b></font><br>
+<a href="https://www.youtube.com/watch?v=7dqX2ZNiG5I">video</a>
+</p>
+
+<p>
+<font color="green"><b>Sat Janam Jo Punya kiye Hai</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
+</p>
+
+<p>
+<font color="green"><b>Pinjare Wali Munia</b></font><br>
+<a href="https://www.youtube.com/watch?v=en_WVhHFufI">video</a> 
+</p>
+
+<p style="text-align:center;">
+<font color="red"><b>Aum Twamev Sakshat Śhrī Kuṇḍalinī Mata Sakshat Śhrī Adi Shakti Śhrī Mataji Śhrī Nirmala Devyai Namo Namaha!</b></font>
+</p>
+
+<p>
+<font size="+0">Jai Śhrī Mātājī!<br>
+On behalf of the festivity team!</font>
+</p>

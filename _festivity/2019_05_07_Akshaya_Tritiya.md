@@ -18,7 +18,7 @@ Now, we say that it is pure desire, but we do not know what purity means. It mea
 <div style="text-align: center"><img src="/images/image95.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>"Akshay Tritiya. That’s the day, when – I mean it is regarded as the most auspicious day to start anything."</b></font><br>
+<font color="DarkGreen"><b>"Akshay Tritiya. That’s the day, when, I mean it is regarded as the most auspicious day to start anything."</b></font><br>
 <font size="+0"><b>1988-0610 Conversation with Sahaja Yogis, About Music, Photographs and False Gurus, Lunch before the evening Public Program in Graz, Gleißenfeld (75 kms S of Vienna), Austria</b></font>
 </p>
 
@@ -30,8 +30,8 @@ Now, we say that it is pure desire, but we do not know what purity means. It mea
 <div style="text-align: center"><img src="/images/image96.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>"So when you worship the Adi Kundalini,<br>
-what you are trying to do is to cleanse your Kundalini as well as please the Deities.<br>
+<font color="DarkGreen"><b>"So when you worship the Ādi Kuṇḍalinī,<br>
+what you are trying to do is to cleanse your Kuṇḍalinī as well as please the Deities.<br>
 Because this is an object, it is [an] object, it is not to be changed –  but the reflection can change."</b></font><br>
 <font size="+0"><b>1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b></font>
 </p>
@@ -69,7 +69,7 @@ Let us all worship Shri Mataji sakshat Shri Adi Shakti and pray for eternally ri
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Jago Kundalini Ma</b></font><br>
+<font color="green"><b>Jago Kuṇḍalinī Ma</b></font><br>
 <a href="https://www.youtube.com/watch?v=QIWysa18CGY&list=RDv7T1xpKkYFU">video, Part 1</a>
 </p>
 
@@ -79,12 +79,12 @@ Let us all worship Shri Mataji sakshat Shri Adi Shakti and pray for eternally ri
 </p>
 
 <p>
-<font color="green"><b>Kundalini Chadhi Badhi</b></font><br>
+<font color="green"><b>Kuṇḍalinī Chadhi Badhi</b></font><br>
 <a href="https://www.youtube.com/watch?v=KOKeT0HOmXU&list=RDKOKeT0HOmXU">video</a>
 </p>
  
 <p>
-<font color="green"><b>Jai Ambe Kundalini Ma</b></font><br>
+<font color="green"><b>Jai Ambe Kuṇḍalinī Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=V98lTrcSZec">video</a>
 </p>
 
