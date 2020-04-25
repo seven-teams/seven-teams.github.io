@@ -46,8 +46,8 @@ Jay Nirmala Śhakti, Bhagavatī, Nirmal Bhakti<br>
 <div style="text-align: center"><img src="/images/image407.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
-<b>On this very auspicious day, 
-Śhrī Mātājī please give us the desire to have Akṣhaya Pad.
+<b>On this very auspicious day,<br>
+Śhrī Mātājī please give us the desire to have Akṣhaya Pad.<br>
 Please bless us with that eternal love of God.</b><br>
 </p>
 
