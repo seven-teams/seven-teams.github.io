@@ -31,9 +31,9 @@ Once the instrument is all right, then you project outside. And now how do you p
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Kuṇḍalinī Kuṇḍalinī Nirmalā Mātā, Mātā Mā<br>
-Jay Nirmala Śhakti, Bhagavatī, Nirmal Bhakti <br>	
+Jay Nirmala Śhakti, Bhagavatī, Nirmal Bhakti<br>	
 Ādi Śhakti, Nirmalā Devī, Nirmalā Mātā Mātājī</b></font><br>
-<font size="+0"><font color="DarkGreen"><b>Kuṇḍalinī Kuṇḍalinī</b><br>
+<font size="+0"><font color="DarkGreen"><b>Kuṇḍalinī Kuṇḍalinī</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
