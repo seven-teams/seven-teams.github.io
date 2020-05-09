@@ -41,8 +41,8 @@ Now, this right side gives you a kind of a ego which troubles everyone, but you 
 </p>
 
 <p>
-<font color="DarkRed">"When Lord Buddha came on this Earth, He found the problem very intricate about God: everybody was talking that they know God and everybody's God was different, and in the name of God they were raising wars. So, He decided that, `Don't talk of God anymore now because everybody wants to talk at Him. Better not talk of God at this moment when they are not knowing about their Spirit.'<br>
-So He just talked of the Self, the Spirit. What He says: ``Buddham śharaṇaṃ gacchāmi." [As Marie has no reaction in translating:] ``Buddham śharaṇaṃ gacchāmi," ``I surrender myself to Buddha," Buddha means the one who knows, the one who has the knowledge -- it's a realized Soul.<br> 
+<font color="DarkRed">"When Lord Buddha came on this Earth, He found the problem very intricate about God: everybody was talking that they know God and everybody's God was different, and in the name of God they were raising wars. So, He decided that, 'Don't talk of God anymore now because everybody wants to talk at Him. Better not talk of God at this moment when they are not knowing about their Spirit.'<br>
+So He just talked of the Self, the Spirit. What He says: "Buddham śharaṇaṃ gacchāmi." [As Marie has no reaction in translating:] "Buddham śharaṇaṃ gacchāmi," "I surrender myself to Buddha," Buddha means the one who knows, the one who has the knowledge -- it's a realized Soul.<br> 
 In Sahaja Yoga also, we go step by step. First of all, we have to know our Spirit, not through mental projection but with a spontaneous happening, which is a living happening. They think that human beings cannot do it."<br></font><br>
 <font size="+0"><b>1983-0616 Public Program, Day 1, Paris, France</b></font>
 </p>
@@ -57,8 +57,8 @@ Thou art Śhrī Mahāmāyā, the Mother of the Ādi Ahaṅkāra, the Primordial
 </p>
 
 <p>
-<font color="DarkRed">"<b>Today's Pūjā is very important</b>, because I feel Western countries have gone off with their ego, and they need Buddha very much, and they like also this so-called Buddhism very much, because you see, they can then just hide behind that camouflage. ``We are Buddhist, you see." They'll worry about Afghanistan and they'll worry about lama. They'll worry about all other people, because, ``You see, we are Buddhist." But there's no truth in it, no truth.<br>
-<b>Sahaja Yogis have to establish that truth, that dedication. So Buddha has said, ``Buddham śharaṇaṃ gacchāmi." I bow to all those who are realized Souls. ``Dhammam śharaṇaṃ gacchāmi." ``I bow myself, to my dharma." That is Vishwa Nirmala Dharma. And then lastly is, ``Saṅghaṃ śharaṇaṃ gacchāmi." ``I bow to collectivity."</b>"</font><br>
+<font color="DarkRed">"<b>Today's Pūjā is very important</b>, because I feel Western countries have gone off with their ego, and they need Buddha very much, and they like also this so-called Buddhism very much, because you see, they can then just hide behind that camouflage. "We are Buddhist, you see." They'll worry about Afghanistan and they'll worry about lama. They'll worry about all other people, because, "You see, we are Buddhist." But there's no truth in it, no truth.<br>
+<b>Sahaja Yogis have to establish that truth, that dedication. So Buddha has said, "Buddham śharaṇaṃ gacchāmi." I bow to all those who are realized Souls. "Dhammam śharaṇaṃ gacchāmi." "I bow myself, to my dharma." That is Vishwa Nirmala Dharma. And then lastly is, "Saṅghaṃ śharaṇaṃ gacchāmi." "I bow to collectivity."</b>"</font><br>
 <font size="+0"><b>1989-0520 Śhrī Buddha Pūjā, Barcelona, Spain</b></font>
 </p>
 
