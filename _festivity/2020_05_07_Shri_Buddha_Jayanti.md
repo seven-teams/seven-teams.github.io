@@ -9,23 +9,21 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed"><b>"The Pūjā to Shrī Buddha is being performed today to open this chakra. At the level of the Āgñyā chakra there are thoughts. Because you are all connected with the same Divine Force there can be no difference of opinion."</b></font><br>
-<font size="+0"><b>1990-0514 Shrī Buddha Pūjā, Saint Petersburg, Russia</b></font>
+<font color="DarkRed"><b>"The Pūjā to Śhrī Buddha is being performed today to open this chakra. At the level of the Āgñyā chakra there are thoughts. Because you are all connected with the same Divine Force there can be no difference of opinion."</b></font><br>
+<font size="+0"><b>1990-0514 Śhrī Buddha Pūjā, Saint Petersburg, Russia</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image430.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>"And ultimately, He was sitting under a banyan tree 
-when suddenly His kundalini was awakened by Adi Shakti and He got His realization. 
-Then He realized that the reason for all this is the desire."</b></font><br>
+<font color="DarkGreen"><b>"And ultimately, He was sitting under a banyan tree when suddenly His Kuṇḍalinī was awakened by Ādi Śhakti and He got His Realization. Then He realized that the reason for all this is the desire."</b></font><br>
 <font size="+0"><b>1991-0804 Śhrī Buddha Pūjā, Brielpoort Sports Hall, Deinze, Belgium</b></font>
 </p>
 
 <p>
 <font color="DarkRed">"So, this special thing is that we are worshiping a Deity on the right Āgñyā which makes you think too much, first of all, and also it makes you aggressive, and also it makes you a very right-sided. By this worship, you will become very mild, very gentle, very beautiful people and you’ll be able to see things much more clearly.<br>
-Now, this right side gives you a kind of a ego which troubles everyone, but you could never feel the trouble till you get into a very serious state. It gives you the overactivity of the brain and conscious mind works too hard. For that you are, you are not very hard working people, but you can see, first of all, that your mind is more active than your body. So, this Āgñyā chakra has to be controlled by Buddha, and that’s why we do Pūjā today."</font><br>
-<font size="+0"><b>1990-0514 Shrī Buddha Pūjā, Saint Petersburg, Russia</b></font>
+Now, this right side gives you a kind of a[n] ego which troubles everyone, but you could never feel the trouble till you get into a very serious state. It gives you the overactivity of the brain and conscious mind works too hard. For that you are, you are not very hard working people, but you can see, first of all, that your mind is more active than your body. So, this Āgñyā chakra has to be controlled by Buddha, and that’s why we do Pūjā today."</font><br>
+<font size="+0"><b>1990-0514 Śhrī Buddha Pūjā, Saint Petersburg, Russia</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image431.png" /></div>
@@ -71,14 +69,14 @@ You all have become now Buddhas without giving up anything, because whatever He 
 <div style="text-align: center"><img src="/images/image433.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Aum Shri Mataji, salutations to Thee again and again.
-Shri Mataji, may all aspects of the bodhi-chitta, the enlightened consciousness, be awakened at Thy command.
+<font color="DarkGreen"><b>Aum Śhrī Mataji, salutations to Thee again and again.
+Śhrī Mataji, may all aspects of the bodhi-chitta, the enlightened consciousness, be awakened at Thy command.
 May all bodhisattvas perform Thy arti.
 May Thy grace prevail! Amen.</b></font><br>
 <br>
-<font color="DarkRed"><b>Aum twameva sākshāt Shrī Siddhārtha Gautama Buddha sākshāt<br>
-Śhrī Ādi Shakti Mātājī Śhrī Nirmalā Devyai namo namah</b></font><br>
-O Divine Mother, You are verily Shri Buddha. Salutations to You!
+<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Siddhārtha Gautama Buddha sākṣhāt<br>
+Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
+O Divine Mother, You are verily Śhrī Buddha. Salutations to You!
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
@@ -103,7 +101,7 @@ O Divine Mother, You are verily Shri Buddha. Salutations to You!
 </p>
  
 <p>
-<font color="green"><b>Maa Hai Ek. Rup Anek (1991-0804 Shri Buddha Puja, Belgium)</b></font><br>
+<font color="green"><b>Maa Hai Ek. Rup Anek (1991-0804 Śhrī Buddha Pūjā, Belgium)</b></font><br>
 <a href="https://soundcloud.com/sahaja-yoga-music/maa-hai-ek-rup-anek-1991-0804">video</a> 
 </p>
 
