@@ -13,7 +13,7 @@ tags:
 <font size="+0"><b></b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image410.png" /></div>
+<div style="text-align: center"><img src="/images/image411.png" /></div>
 
 <p style=" text-align:center;">
 <b></b><br>
@@ -26,7 +26,7 @@ tags:
 <font size="+0"><b></b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image411.png" /></div>
+<div style="text-align: center"><img src="/images/image412.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b></b></font><br>
@@ -38,7 +38,7 @@ tags:
 <font size="+0"><b></b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image412.png" /></div>
+<div style="text-align: center"><img src="/images/image413.png" /></div>
 
 <p style="text-align:center;">
 <b></b><br>
@@ -55,7 +55,7 @@ tags:
 <font size="+0"><b></b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image413.png" /></div>
+<div style="text-align: center"><img src="/images/image414.png" /></div>
 
 <p style="text-align:center;">
 <b></b><br>
@@ -81,7 +81,7 @@ tags:
 <a href="">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image414.png" /></div>
+<div style="text-align: center"><img src="/images/image415.png" /></div>
 
 <p style="text-align:center;">
 Bombay Beach house, 1970: after the opening of the Sahasrāra)<br>
