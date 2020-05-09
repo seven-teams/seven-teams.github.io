@@ -73,15 +73,15 @@ The play of Sahaja Yoga can be very mischievous, and creates many miraculous hap
 
 <div style="text-align: center"><img src="/images/image428.png" /></div>
 
-<p style="color:DarkRed; text-align:center;">
+<p style="text-align:center;">
 <font color="DarkGreen"><b>Amhi Matajinchya Char.nasi Alo</b></font><br>
-As we have come to the Feet of Mother
+As we have come to the Feet of Mother<br>
 <font color="DarkGreen"><b>Chaitanya Sange Amrutat. Nhalo</b></font><br>
-We have been bathed in the Nectar of Chaitanya
+We have been bathed in the Nectar of Chaitanya<br>
 <font color="DarkGreen"><b>Janiv. Ti Jiva Kadhi Nahi Zhali</b></font><br>
-Such recognition has never before happened to the Spirit
+Such recognition has never before happened to the Spirit<br>
 <font color="DarkGreen"><b>Śhakti Kuṇḍalinī Sharir. Vyapili</b></font><br>
-And as we come to Your Feet the Power of Kuṇḍalinī drenches us completely
+And as we come to Your Feet the Power of Kuṇḍalinī drenches us completely<br>
 <font color="DarkGreen"><b>Char.nasi Yeta Jagrutis. Alo</b></font><br>
 By coming to Your Lotus Feet we got our realization.<br>
 <a href="https://www.youtube.com/watch?v=HFCi8x1GiPI">video</a>
