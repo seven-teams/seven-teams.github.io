@@ -48,7 +48,7 @@ In Sahaja Yoga also, we go step by step. First of all, we have to know our Spiri
 <div style="text-align: center"><img src="/images/image432.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Shri Mataji, salutations to Thee again and again.<br>
+<font color="DarkGreen"><b>Śhrī Mātājī, salutations to Thee again and again.<br>
 Thou art the Primordial Splendor of God, the Ādi Śhakti and Mother of the Devatas.<br> 
 Thou art the roots of all action, the success in any action and the sole and only Doer in the countless universes of Thy creation.<br>
 Thou art Śhrī Mahāmāyā, the Mother of the Ādi Ahaṅkāra, the Primordial Ego of God, the Prince of Kapilavastu who became, by Thy Grace, the Buddha. </b></font><br>
@@ -70,9 +70,9 @@ You all have become now Buddhas without giving up anything, because whatever He 
 <div style="text-align: center"><img src="/images/image433.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Aum Śhrī Mataji, salutations to Thee again and again.
-Śhrī Mataji, may all aspects of the bodhi-chitta, the enlightened consciousness, be awakened at Thy command.
-May all bodhisattvas perform Thy arti.
+<font color="DarkGreen"><b>Aum Śhrī Mātājī, salutations to Thee again and again.<br>
+Śhrī Mātājī, may all aspects of the bodhi-chitta, the enlightened consciousness, be awakened at Thy command.<br>
+May all bodhisattvas perform Thy Āratī.<br>
 May Thy grace prevail! Amen.</b></font><br>
 <br>
 <font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Siddhārtha Gautama Buddha sākṣhāt<br>
