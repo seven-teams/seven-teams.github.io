@@ -103,7 +103,7 @@ What am I doing for Sahaja Yoga? What am I working for Sahaja Yoga? All this has
 
 <p>
 <font color="green"><b>Mā He Sahasrār Swāminī</b></font><br>
-<a href="">video</a>
+<a href="https://www.youtube.com/watch?v=qWKprw2fe58">video</a>
 </p>
 
 <p>
