@@ -65,7 +65,7 @@ It’s a great experience to give Realization to others. Not only that you give 
 </p>
 
 <p>
-<font color="DarkRed">"<b>Sahaja Yoga teaches how to love and adore the human body as the temple of God Almighty.<b><br>
+<font color="DarkRed">"<b>Sahaja Yoga teaches how to love and adore the human body as the temple of God Almighty.</b><br>
 Sahaja Yoga is the working of the Unconscious and there are some very stupid people who think they can cheat God. In return they are cheated by Sahaja Yoga, and to their surprise, find themselves outwitted.<br>
 The play of Sahaja Yoga can be very mischievous, and creates many miraculous happenings as well as a great deal of uproarious humor."</font><br>
 <font size="+0"><b>The Book of Adi Shakti, Chapter 8: Sahaja Yoga</b></font>
