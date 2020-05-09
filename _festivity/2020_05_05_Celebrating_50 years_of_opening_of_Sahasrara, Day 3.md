@@ -9,15 +9,16 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"I have to tell ... I’ll have to tell you the story about the Sahasrāra Day, about which it was decided, long time back, before I incarnated. They had a big meeting in the Heavens, all the thirty-five karoṛs [350 millions] of Gods, the Deities were there present to decide what is to be done. <b<'This is the ultimate that we have to do to human beings: is to open their Sahasrāra, to open their awareness to the Spirit, to the Real Knowledge of the Divine, to remove the darkness of ignorance.'</b> And it had to be spontaneously because it has to work the living force of God. Also it had to be very quick. So all the Gods requested that now, I, the Ādi Śhakti has to take the birth.
+They all tried Their best. They did whatever was possible. The Saints were made by Them but very few. They incarnated and people made religions out of Them which were perverted, brought Them bad name. No reality in those religions. These religions were money-oriented or power-oriented. There was no Divine Force working, actually it was all anti-Divine."</font><br>
+<font size="+0"><b>1988-0508 Sahasrāra Pūjā, Fregene (40 kms E of Rome), Italy</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image421.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
 <b></b><br>
-<a href="">video</a>
+<a href="https://www.youtube.com/watch?v=7jLDenmw7So">video</a>
 </p>
 
 <p>
@@ -60,9 +61,9 @@ tags:
 <font size="+0"><b></b></font>
 </p>
 
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<p style="color:DarkRed; text-align:center;">
+<b></b><br>
+<a href="">video</a>
 </p>
 
 <div style="text-align: center"><img src="/images/image424.png" /></div>
