@@ -128,7 +128,7 @@ every particle is filled with Nirmal Anand)<br>
 <div style="text-align: center"><img src="/images/image429.png" /></div>
 
 <p style="text-align:center;">
-<font color="RebeccaPurple"><b>You have to become the lotuses, beautiful lotuses of Mine.</b></font><br>
+<font color="RebeccaPurple"><b>"You have to become the lotuses, beautiful lotuses of Mine."</b></font><br>
 <font size="+0"><b>1988-0214 Śhivarātri Pūjā, Mumbai, India</b></font>
 </p>
 
