@@ -13,27 +13,10 @@ tags:
 <font size="+0"><b></b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image429.png" /></div>
-
-<p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
 <div style="text-align: center"><img src="/images/image430.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b></b></font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<p>
-<font color="DarkRed">""</font><br>
 <font size="+0"><b></b></font>
 </p>
 
@@ -60,6 +43,23 @@ tags:
 </p>
 
 <div style="text-align: center"><img src="/images/image432.png" /></div>
+
+<p style="text-align:center;">
+<font color="DarkRed"><b></b></font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div style="text-align: center"><img src="/images/image433.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b></b></font><br>
@@ -107,7 +107,7 @@ tags:
 <a href="">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image433.png" /></div>
+<div style="text-align: center"><img src="/images/image434.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b></b></font><br>
