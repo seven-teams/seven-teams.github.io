@@ -76,7 +76,7 @@ May all bodhisattvas perform Thy Āratī.<br>
 May Thy grace prevail! Amen.</b></font><br>
 <br>
 <font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Siddhārtha Gautama Buddha sākṣhāt<br>
-Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
+Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 O Divine Mother, You are verily Śhrī Buddha. Salutations to You!
 </p>
 
