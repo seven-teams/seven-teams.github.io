@@ -62,7 +62,7 @@ Thou art Śhrī Mahāmāyā, the Mother of the Ādi Ahaṅkāra, the Primordial
 </p>
 
 <p>
-<font color="DarkRed">"So the Buddha's main thing -- `Buddha' itself means Bodh, from Bodha. And the Bodh means, `to know the reality on your central nervous system' is the Bodha.<br> 
+<font color="DarkRed">"So the Buddha's main thing -- 'Buddha' itself means Bodh, from Bodha. And the Bodh means, 'to know the reality on your central nervous system' is the Bodha.<br> 
 You all have become now Buddhas without giving up anything, because whatever He gave up was all nonsense. It was a myth. If it was a myth ....... But still one has to know that we have to have that Principle of Buddha within ourselves. And what is that Principle of Buddha is that we have to do Tapaḥ. "</font><br>
 <font size="+0"><b>1992-0531 Śhrī Buddha Pūjā, Shudy Camps, Cambridgeshire, UK</b></font>
 </p>
