@@ -72,7 +72,7 @@ You all have become now Buddhas without giving up anything, because whatever He 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Aum Śhrī Mātājī, salutations to Thee again and again.<br>
 Śhrī Mātājī, may all aspects of the bodhi-chitta, the enlightened consciousness, be awakened at Thy command.<br>
-May all bodhisattvas perform Thy Āratī.<br>
+May all Bodhisattvas perform Thy Āratī.<br>
 May Thy grace prevail! Amen.</b></font><br>
 <br>
 <font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Siddhārtha Gautama Buddha sākṣhāt<br>
@@ -102,7 +102,7 @@ O Divine Mother, You are verily Śhrī Buddha. Salutations to You!
 </p>
  
 <p>
-<font color="green"><b>Maa Hai Ek. Rup Anek (1991-0804 Śhrī Buddha Pūjā, Belgium)</b></font><br>
+<font color="green"><b>Mā Hai Ek. Rup Anek (1991-0804 Śhrī Buddha Pūjā, Belgium)</b></font><br>
 <a href="https://soundcloud.com/sahaja-yoga-music/maa-hai-ek-rup-anek-1991-0804">video</a> 
 </p>
 
