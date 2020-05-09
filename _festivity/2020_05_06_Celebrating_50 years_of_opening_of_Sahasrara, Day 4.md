@@ -35,17 +35,17 @@ When the Kuṇḍalinī passes through the five centers it enters into the area 
 
 <div style="text-align: center"><img src="/images/image427.png" /></div>
 
-<p style="color:DarkRed; text-align:center;">
+<p style="text-align:center;">
 <font color="DarkGreen"><b>Jagat. Janani Nirmalā</b></font><br>
-Mother of the whole world, giver of birth to everybody,
+Mother of the whole world, giver of birth to everybody,<br>
 <font color="DarkGreen"><b>Mulaprakriti Akhileshwar.ki</b></font><br>
-You are behind the whole Nature created by God
+You are behind the whole Nature created by God<br>
 <font color="DarkGreen"><b>Nitya Satya Sanatana</b></font><br>
-You are all the time everywhere, ever fresh, You are the Truth
+You are all the time everywhere, ever fresh, You are the Truth<br>
 <font color="DarkGreen"><b>Parashakti Parameshwar.ki</b></font><br>
-You are from the beginning to the end the Power of God Almighty.
+You are from the beginning to the end the Power of God Almighty.<br>
 <font color="DarkGreen"><b>Vishwadharini, Mangalakarini</b></font><br>
-You are the one who supports the whole world & takes care of the benevolence of Her devotees
+You are the one who supports the whole world & takes care of the benevolence of Her devotees<br>
 <font color="DarkGreen"><b>Shubhadam Varadam Namo Namaḥ</b></font><br>
 Giver of auspiciousness, benevolence, and boons, we bow to You.<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
