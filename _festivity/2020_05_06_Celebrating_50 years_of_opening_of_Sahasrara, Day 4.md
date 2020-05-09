@@ -112,7 +112,7 @@ What am I doing for Sahaja Yoga? What am I working for Sahaja Yoga? All this has
 my heart is filled with Sat-Chit-Anand.<br>
 The joy is so great, and there is no derth of happiness and well being.<br>
 every particle is filled with Nirmal Anand)<br>
-<a href=""> video</a><br>
+<a href="https://www.youtube.com/watch?v=b30MtjwiJDY"> video</a><br>
 </p>
 
 <p>
