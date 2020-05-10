@@ -38,7 +38,7 @@ Then again they asked Him, He said: "Only the Mother." Again they asked Him, He 
 I'm sure He must have said about the Divine Mother, because worldly mothers may not be complete mothers, perhaps. They are a[n] embodied, or, we can say, examples of Mother's Love, of the Divine Mother's Love, but they are human.<br>
 So they can be conditioned, influenced or could be egoistical, especially if they are living in a particular country for a long time and have no idea of Divine Love.<br>
 In Divine Love there is no expectations, it just flows, it doesn't think how to judge a person or what to do for a person, it just flows."</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>2001-0513 Talk to Sahaja Yogis (Mother’s Day), Living Room, Palazzo Doria, Cabella Ligure, Italy</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image436.png" /></div>
