@@ -140,7 +140,7 @@ To the Great Power, to the Giver of Sahaja Yoga<br>
 
 <p style="text-align:center;">
 <b>Sahaja Yoginī: Can you give people Realization in their sleep?</b><br>
-<font color="DarkRed">"<b>Śhrī Mātājī:</b>No. No. I cannot. I do not even want to give Realization to people when they are not facing Me, either My Photograph or Sahaja Yogis.<br>
+<font color="DarkRed">"<b>Śhrī Mātājī:</b> No. No. I cannot. I do not even want to give Realization to people when they are not facing Me, either My Photograph or Sahaja Yogis.<br>
 That should not be. Because recognition is the only point in Sahaja Yoga.<br>
 Modern Sahaja Yoga is only going to work out if you recognize Me.<br>
 If you do not recognize Me, it’s not going to work out. This is the only way. This is the only key.<br> 
