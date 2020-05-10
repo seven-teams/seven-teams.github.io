@@ -22,8 +22,8 @@ In the human beings, it is a very important center because this is the only cent
 <div style="text-align: center"><img src="/images/image411.png" /></div>
 
 <p style=" text-align:center;">
-<b>Sahaja Yogi:</b><font color="Green">Salutations to the Queen of Sahasrāra, salutations to the Queen of the Seven Peaks.<br>
-Today, on this great, great day, we see the Universe at Your Feet.<br>
+<b>Sahaja Yogi:</b><font color="Purple"> Salutations to the Queen of Sahasrāra, salutations to the Queen of the Seven Peaks.</font><br>
+<font color="DarkGreen">Today, on this great, great day, we see the Universe at Your Feet.<br>
 Nothing ever had a meaning nor a life, everyone so dry and so weak, then You came, O Mother, so caring, so sweet.<br>
 You taught Your children even to walk and to speak.<br>
 We thank You, O Mother, for bringing us up, opening the doors of Heaven for all of us.<br>
