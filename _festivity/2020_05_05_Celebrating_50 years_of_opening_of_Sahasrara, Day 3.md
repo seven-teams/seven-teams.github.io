@@ -145,9 +145,16 @@ Grant me in good will benign | Your Benevolent Grace Divine<br
 <div style="text-align: center"><img src="/images/image425.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b></b></font><br>
+<font color="DarkRed"><b>Śhrī Mātājī: Now say the Sahasraras mantras, three, Sahasrara Swamini, Moksha Pradayani, Sahaja Yoga Dayini.</b></font><br>
+Sahaja Yogis: Om Twameva Sakshat Shri Sahasrara Swamini Moksha Pradayani Sakshat Shri Adishakti Mataji Shri Nirmala Devi Namo Namah.<br>
+<font color="DarkRed"><b>Śhrī Mātājī: Sahaja Yoga Dayini.</b></font><br>
+Sahaja Yogis: Om Twameva Sakshat Shri Sahaja Yoga Dayini Sakshat Shri Adishakti Mataji Shri Nirmala Devi Namo Namah. 
+<font color="DarkRed"><b>Śhrī Mātājī: Now, after saying all these mantras you have reached up to Sahasrāra and you have also pierced through the Sahasrāra.<br> 
+The most effective mantra you know is `Nirmalā' and that works the best for Sahasrāra.</b></font><br>
+<font size="+0"><b>1985-0611 Talk to Sahaja Yogis, Arrival, Founex, Switzerland</b></font>
+Śhrī Mātājī gives the Sahasrāra Mantras</b></font><br>
 <font size="+0"><b></b></font><br>
-<a href="">video</a>
+<a href="https://www.youtube.com/watch?v=mPBwtVUOHKg">video</a>
 </p>
 
 <p>
