@@ -115,7 +115,7 @@ To the Great Power, to the Giver of Sahaja Yoga<br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b>1989-0506 Sahasrāra Pūjā, Theater Cinema della Rosa, Via delle Rose, 35, Sorrento, Ital</b></font>
+<font size="+0"><b>1989-0506 Sahasrāra Pūjā, Theater Cinema della Rosa, Via delle Rose, 35, Sorrento, Italy</b></font>
 <a href="https://www.youtube.com/watch?time_continue=2&v=VmOaddXWDlQ&feature=emb_logo"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
