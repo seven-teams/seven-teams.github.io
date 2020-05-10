@@ -149,7 +149,7 @@ But if you refuse to recognize Me or you go slow with it, your progress will be 
 Though it’s rather [an] embarrassing job, but I have to tell you. This is a fact.<br>
 So in dream you cannot give Realization. But in dream you might see the situation in which will be giving thing, how you should give.<br>
 Your solutions will be suggested to you, how to approach a particular person. But you cannot give Realization to any one.<br> 
-<b>They have to know that they have got Realization through Mātājī Nirmalā Devī.</b><br> 
+<b>They have to know that they have got Realization through Mātājī Nirmalā Devī.</b></font><br> 
 As it is, when you give them Realization, they have no value. If they don’t know Me, they will have no value.<br>
 <font size="+0"><b>1980-0526 Talk to Sahaja Yogis, Attention, Questions on Joy, Dreams, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
