@@ -129,7 +129,7 @@ Let us thus spread Sahaja Yoga in the whole world<br>
 </p>
 
 <p>
-<font color="green"><b>He Nirmala Ma, He Nirmala Ma</b></font><br>
+<font color="green"><b>He Nirmala Mā, He Nirmala Mā</b></font><br>
 Tera pyar. moksha ka Anand. hai Mā<br>
 O Divine Mother, Your unbounded love is the bliss of liberation<br>
 <a href="https://www.youtube.com/watch?v=v7T1xpKkYFU">video</a>
@@ -138,7 +138,7 @@ O Divine Mother, Your unbounded love is the bliss of liberation<br>
 <div style="text-align: center"><img src="/images/image415.png" /></div>
 
 <p style="text-align:center;">
-Bombay Beach house, 1970: after the opening of the Sahasrāra)<br>
+(Bombay Beach house, 1970: after the opening of the Sahasrāra)<br>
 <font color="DarkMagenta"><b>Thank you for revealing to us the true meaning of good and evil.<br>
 Thank you for awakening Mother Kundalini in us.<br>
 Thank you for opening the dimension of collective consciousness to us.<br>
