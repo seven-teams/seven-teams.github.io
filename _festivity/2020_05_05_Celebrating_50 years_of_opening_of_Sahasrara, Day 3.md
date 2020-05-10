@@ -152,7 +152,7 @@ Sahaja Yogis: Om Twameva Sakshat Shri Sahaja Yoga Dayini Sakshat Shri Adishakti 
 <font color="DarkRed"><b>Śhrī Mātājī: Now, after saying all these mantras you have reached up to Sahasrāra and you have also pierced through the Sahasrāra.<br> 
 The most effective mantra you know is `Nirmalā' and that works the best for Sahasrāra.</b></font><br>
 <font size="+0"><b>1985-0611 Talk to Sahaja Yogis, Arrival, Founex, Switzerland</b></font>
-Śhrī Mātājī gives the Sahasrāra Mantras</b></font><br>
+<font color="DarkGreen"><b>Śhrī Mātājī gives the Sahasrāra Mantras</b></font><br>
 <font size="+0"><b></b></font><br>
 <a href="https://www.youtube.com/watch?v=mPBwtVUOHKg">video</a>
 </p>
