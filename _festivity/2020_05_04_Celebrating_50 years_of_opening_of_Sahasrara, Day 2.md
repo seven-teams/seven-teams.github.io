@@ -33,8 +33,8 @@ Having granted this Sahaja Yoga to me, please keep my attention forever on You.<
 Śhrī Nirmala Devī, Salutations to You<br>
 <br>
 <font size="+0">[The 350 Sahaja Yogis present had just finished singing ‘Namostute’.]</font><br>
-<font color="DarkRed">"<b>"Beautifully rendered! It’s a song written much before, I think just after the first Sahasrāra Day.</b></font><br>
-I mean, it’s a very ancient song. And still is maintained so well."
+<font color="DarkRed"><b>"Beautifully rendered! It’s a song written much before, I think just after the first Sahasrāra Day.<br>
+I mean, it’s a very ancient song. And still is maintained so well."</b></font><br>
 <font size="+0"><b>1987-0502 Talk to Sahaja Yogis, after the Evening Program, Thredbo Village, New South Wales, Australia</b></font><br>
 Namostute<br>
 <a href="https://www.youtube.com/watch?v=30F02gXLuGw">video</a>

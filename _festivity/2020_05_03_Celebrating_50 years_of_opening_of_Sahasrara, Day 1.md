@@ -58,7 +58,7 @@ May God bless you all."</font><br>
 <font color="DarkRed"><b>"Just to say, ‘Mother, it’s all Yours,’ to start it – 'It’s all Yours.<br>
 I am Yours, my heart is Yours, all my things are Yours, my life is Yours.'<br>
 Even saying that is a big mantra for Sahasrāra.</b><br>
-The deity of Sahasrāra is a very simple person, extremely simple, and can be moved with very little actions,<br> 
+The Deity of Sahasrāra is a very simple person, extremely simple, and can be moved with very little actions,<br> 
 can be pleased with very few little actions here and there.<br> 
 Not much is needed to please the deity of Sahasrāra.<br>
 It’s a very simple person. Little things make Her happy."</font><br>
