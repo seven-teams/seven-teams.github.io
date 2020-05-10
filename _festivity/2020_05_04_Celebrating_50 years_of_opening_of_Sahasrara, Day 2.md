@@ -76,7 +76,7 @@ May God bless you all."</font><br>
 
 <div style="text-align: center"><img src="/images/image418.png" /></div>
 
-<p style="color:DarkRed; text-align:center;">
+<p style="color:Purple; text-align:center;">
 <b>Thank You for introducing us to a relationship to the Divine.<br> 
 Thank You for finding us worthy.<br>
 Thank You for letting us participate in the salvation of mankind.<br>
