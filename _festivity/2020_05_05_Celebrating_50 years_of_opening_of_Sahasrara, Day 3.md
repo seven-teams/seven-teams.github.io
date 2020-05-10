@@ -25,8 +25,8 @@ In the form of the Universe You are its receptacle.<br>
 You are worshipped by the lords of the universe.<br>
 <b>Vishw'ashraya ye twayi bhakti namraha</b><br>
 Those who are devoted to You themselves become supporters of the universe<br>
-<b>Prayer to Śhrī Raja-rajeshwari.<br>
-(79 names of Śhrī raja-rajeshwari created by Śhrī Mātājī Herself and read out during 2000-0507 Sahasrāra Pūjā, Albera Ligure, Italy)</b><br>
+<b>Prayer to Śhrī Rājarājeśhwarī.<br>
+(79 names of Śhrī Rājarājeśhwarī created by Śhrī Mātājī Herself and read out during 2000-0507 Sahasrāra Pūjā, Albera Ligure, Italy)</b><br>
 <a href="https://www.youtube.com/watch?v=7jLDenmw7So">video</a>
 </p>
 
