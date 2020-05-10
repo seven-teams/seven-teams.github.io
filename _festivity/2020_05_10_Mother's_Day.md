@@ -75,7 +75,7 @@ So, in your own way, when you are doing Sahaja Yoga, there also you have to be a
 <b>Thank You</b> for being our Mother.</b><br>
 <br>
 <b>Sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
-(The 108 Thank You's offered to Śhrī Mātājī during 1996-0505 Sahasrāra Pūjā, Cabella Ligure, Italy)<br>
+(The 108 Thank You's offered to Śhrī Mātājī during 1996-0505 Sahasrāra Pūjā, Italy)<br>
 <a href="https://www.youtube.com/watch?v=wP_R9tpOVag"> video</a>
 </p>
 
