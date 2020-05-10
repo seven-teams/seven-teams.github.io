@@ -61,18 +61,18 @@ So, in your own way, when you are doing Sahaja Yoga, there also you have to be a
 <div style="text-align: center"><img src="/images/image437.png" /></div>
 
 <p>
-<font color="DarkRed"><b>Thank You  for letting us participate in the salvation of mankind.</b><br>
-<b>Thank You for giving us the joy of introducing a yearning seeker to Your redeeming Motherly Love.</b><br>
-<b>Thank You for inviting all of us to the court of the Goddess</b><br>
-<b>Thank You for establishing the Kingdom of God on Earth.</b><br>
-<b>Thank You for accepting our offerings and prayers.</b><br>
-<b>Thank You for showering Your blessings endlessly upon us.</b><br>
-<b>Thank You for being ever-present.</b><br>
-<b>Thank You for being gentle.</b><br>
-<b>Thank You for being wonderful.</b><br>
-<b>Thank You for being in our hearts.</b><br>
-<b>Thank You for being our Guru.</b><br>
-<b>Thank You for being our Mother.</b><br>
+<font color="DarkRed"><b>Thank You</b> for letting us participate in the salvation of mankind.<br>
+<b>Thank You</b> for giving us the joy of introducing a yearning seeker to Your redeeming Motherly Love.<br>
+<b>Thank You</b> for inviting all of us to the court of the Goddess.<br>
+<b>Thank You</b> for establishing the Kingdom of God on Earth.<br>
+<b>Thank You</b> for accepting our offerings and prayers.<br>
+<b>Thank You</b> for showering Your blessings endlessly upon us.<br>
+<b>Thank You</b> for being ever-present.<br>
+<b>Thank You</b> for being gentle.<br>
+<b>Thank You</b> for being wonderful.<br>
+<b>Thank You</b> for being in our hearts.<br>
+<b>Thank You</b> for being our Guru.<br>
+<b>Thank You</b> for being our Mother.</b><br>
 <br>
 <b>Sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 (The 108 Thank You's offered to Śhrī Mātājī during 1996-0505 Sahasrāra Pūjā, Cabella Ligure, Italy)<br>
