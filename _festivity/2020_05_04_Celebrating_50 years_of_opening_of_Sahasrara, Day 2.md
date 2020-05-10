@@ -18,21 +18,21 @@ This pattern was on for some time. These few people who got Realization did lots
 <div style="text-align: center"><img src="/images/image416.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed">"<b>Tucha Kharokhar. Hya Vishwachi, Karati An Karaviti</b></font><br>
+<font color="DarkGreen">"<b>Tucha Kharokhar. Hya Vishwachi, Karati An Karaviti</b></font><br>
 You verily are the Creator of the Universe<br>
 <font color="DarkRed">"<b>Tucha Kharokhar. Hari Apada, Deun. Dhan. Sampatti</b></font><br>
 You verily are the One who takes away all the sorrows by granting us wealth<br>
-<font color="DarkRed">"<b>Samarth. Tuchi Samarth. Kari Maj. Divyatvachi Murti</b></font><br>
+<font color="DarkGreen">"<b>Samarth. Tuchi Samarth. Kari Maj. Divyatvachi Murti</b></font><br>
 O, most omnipresent! Please make me powerful too<br>
-<font color="DarkRed">"<b>Param.mangala Yugandhara Tu, Tuchi Ādi Śhakti</b></font><br>
+<font color="DarkGreen">"<b>Param.mangala Yugandhara Tu, Tuchi Ādi Śhakti</b></font><br>
 O, embodiment of total Auspiciousness through ages, only You are Ādi Śhakti<br>
-<font color="DarkRed">"<b>Tujhya Thayi Man. Lago Deun. Sahaj. Yog. Mate </b></font><br>
+<font color="DarkGreen">"<b>Tujhya Thayi Man. Lago Deun. Sahaj. Yog. Mate </b></font><br>
 Having granted this Sahaja Yoga to me, please keep my attention forever on You.<br>
-<font color="DarkRed">"<b>Namostute, Namostute<br>
+<font color="DarkGreen">"<b>Namostute, Namostute<br>
 Śhrī Nirmala Devī, Namostute </b></font><br>
 Śhrī Nirmala Devī, Salutations to You<br>
 <br>
- [The 350 Sahaja Yogis present had just finished singing ‘Namostute’.]<br>
+<font size="+0">[The 350 Sahaja Yogis present had just finished singing ‘Namostute’.]</font><br>
 <font color="DarkRed">"<b>"Beautifully rendered! It’s a song written much before, I think just after the first Sahasrāra Day.</b></font><br>
 I mean, it’s a very ancient song. And still is maintained so well."
 <font size="+0"><b>1987-0502 Talk to Sahaja Yogis, after the Evening Program, Thredbo Village, New South Wales, Australia</b></font><br>
