@@ -88,7 +88,8 @@ Thank You for showering Your blessings endlessly upon us.</b><br>
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"<b>One thing we have to realize that Sahaja Yoga is Love and Divine Love, and it is not attachment, it is not possession, but it is a giving love. It is not love of the flesh. It is not love of any material thing, nor is the love of your faith, but is the Love of the Divine.</b><br>
+This transformation really takes place if you really try to witness everything in its reality and see for yourself that, how, and why are you attached to something. Once it is discovered that we are detached in our witnessing state, then automatically the pure love starts flowing. As soon as you get your light, the sunlight, all the fog disappears. In the same way, as soon as you get Spirit shining in your attention, all your doubts, all your mistakes, disappear. This is what I told you today that you have to be aware of yourself because now you are friends of your Self, your Spirit."</font><br>
 <font size="+0"><b>1988-0521 Talk to Sahaja Yogis, Evening Program with Dance, after Pūjā, Barcelona, Spain</b></font>
 </p>
 
