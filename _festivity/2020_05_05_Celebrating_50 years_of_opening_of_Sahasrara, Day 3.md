@@ -3,6 +3,7 @@ title: '2020 Celebrating 50 years of opening of Sahasrara: "When we enter into t
 date: 2020-05-05
 permalink: /festivity/2020/05/05
 tags:
+  -  Sahasrara Day
   -  Sahasrara Puja
 ---
 
