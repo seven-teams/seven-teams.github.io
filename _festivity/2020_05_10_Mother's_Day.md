@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"It's nice today it's Mother's Day, and You find so many people waiting for You. 
+<font color="DarkRed">"It's nice today it's Mother's Day, and You find so many people waiting for You.<br>
 And also You see Yourself as a Mother, the heart which is pining to meet, then You can't get out of some things. And then You enjoy that pining, that longing to see Your own, Your own children whom You love so much. Is such a great joy.<br>
 In these modern times, it is described that in this Kali Yuga everything will go upside down because people will not recognize the motherhood. The mothers won't be respected and won't be respectable either. Is a fact.<br>
 And imagine now this has brought this Mother's Day to this country. It's something, such a recognition from the Divine that one has to remember that motherhood is very important.<br>
