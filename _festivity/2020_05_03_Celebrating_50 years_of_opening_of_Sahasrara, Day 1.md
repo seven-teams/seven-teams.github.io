@@ -70,7 +70,7 @@ It’s a very simple person. Little things make Her happy."</font><br>
 Any kind of insincerity which comes into you is extremely detrimental. So you must know that, as your Mother has sincerity about you, you must also have sincerity about yourself. Then you will start enjoying Sahaj Yog. That [sincerity] is very important to create integration within you. Because if it is sincerity, it comes from your heart. If it is coming from your heart, then your body, your mind, your intelligence, everything willed [will] work hard to fulfill it. But if it is not coming from your heart, it is going [to be] just [a] sufer-ficial [superficial] thing.<br>
 So you try to feel it from your heart: that’s what it means sincerity. Do not depend on anyone: your wife, husband, children, nothing, mother, father. It’s your own!<br>
 So, you have to work in such a way that you get complete integration. And the driving force towards integration is a very simple one: is sincerity. Thus, you will know that automatically you are getting integrated."</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1980-0505 Sahasrāra Pūjā, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image413.png" /></div>
