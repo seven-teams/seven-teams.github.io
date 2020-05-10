@@ -25,6 +25,11 @@ tags:
 <a href="">video</a>
 </p>
 
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
 <div style="text-align: center"><img src="/images/image436.png" /></div>
 
 <p style="text-align:center;">
@@ -42,27 +47,18 @@ tags:
 
 <p>
 <font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<br>
+<a href=""> video</a>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b></b></font>
 <a href=""> video</a><br>
+and<br>
+<font size="+0"><b></b></font><br>
+<a href=""> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
-
-<p>
-<font color="green"><b></b></font><br>
-<br>
-<br>
-<br>
-<a href=""> video</a><br>
-</p>
-
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
-</p>
 
 <p>
 <font color="green"><b></b></font><br>
