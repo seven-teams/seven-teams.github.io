@@ -15,7 +15,7 @@ Now, these petals are kept ready for our enlightenment, and these are really the
 And that’s why it is called as Sahastrāra [Sahasrāra]. In [is] the center of Strahasrāra [Sahasrāra].<br>
 In the human beings, it is a very important center because this is the only center by which we think and we try to stop whatever we don’t like.<br>
 ......<br>
-<b>But you cannot become your Self unless and until this Sahasrāra, this brain, is opened out and the Kuṇḍalinī becomes with the ... one with the Paramachaitanya.>/b> Before that, you are in complete ignorance about what is good and what is bad. Whatever you think for this brain is good you do it. But whatever is really good you do not know, because you do not know the Reality."</font><br>
+<b>But you cannot become your Self unless and until this Sahasrāra, this brain, is opened out and the Kuṇḍalinī becomes with the ... one with the Paramachaitanya.</b> Before that, you are in complete ignorance about what is good and what is bad. Whatever you think for this brain is good you do it. But whatever is really good you do not know, because you do not know the Reality."</font><br>
 <font size="+0"><b>1999-0509 Sahasrāra Pūjā, Hangar, Albera Ligure, Italy</b></font>
 </p>
 
@@ -83,11 +83,10 @@ As it touches the seven chakras, they become enlightened<br>
 <font color="DarkGreen">Adnyasthani Yeta Mate</b></font><br>
 When it reaches the agnya chakra <br>
 <font color="DarkGreen">Ka Ga Visawa<br>
-Ughad. Sahastrar. Mate</b></font><br>
+Ughad. Sahastrār. Mate</b></font><br>
 O Mother, please open the Sahasrāra!<br>
-<a href="https://www.youtube.com/watch?v=JHpK7bJV6wM">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="DarkRed">"So all these centers are in the brain, so the essence of Sahasrāra is integration, unity, complete integration. You cannot integrate nonsensical things together. Integration is only possible of the people who are of the same style, or of the Deities who stand for God. You cannot have satanic people and godly people integrated, can you? You cannot unite these people. You try it and you’ll have problem. That’s the best way you see the destruction of every unity. So in Sanskrit is a very good, good word got for integration, samagra, beautiful word which means, agra is the, agra is the hole in the needle, and when a thread passes through this needles, it passes through the agra, so it is samagra. And this integration has to take place as soon as you cross over. And because of this you get your Realization and you feel all the chakras are enlightened. Unless and until you pass through this fontanel area you cannot feel the All-pervading Power."</font><br>
