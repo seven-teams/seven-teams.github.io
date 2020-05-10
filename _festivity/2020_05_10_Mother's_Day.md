@@ -14,8 +14,8 @@ And also You see Yourself as a Mother, the heart which is pining to meet, then Y
 In these modern times, it is described that in this Kali Yuga everything will go upside down because people will not recognize the motherhood. The mothers won't be respected and won't be respectable either. Is a fact.<br>
 And imagine now this has brought this Mother's Day to this country. It's something, such a recognition from the Divine that one has to remember that motherhood is very important.<br>
 ......<br>
-So the power that your Mother has, of giving birth, the spiritual birth, be bestowed upon all of you so that you do this work with the same grace and with the same patience and love and enjoyment.<br>
-May God bless you."</font><br>
+<b>So the power that your Mother has, of giving birth, the spiritual birth, be bestowed upon all of you so that you do this work with the same grace and with the same patience and love and enjoyment.<br>
+May God bless you.</b>"</font><br>
 <font size="+0"><b>1980-0316 Talk to Sahaja Yogis (Mother’s Day in UK),  Āśhram, Dollis Hill, North London, UK</b></font>
 </p>
 
