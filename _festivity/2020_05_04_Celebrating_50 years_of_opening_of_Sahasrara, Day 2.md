@@ -127,7 +127,7 @@ To the Great Power, to the Giver of Sahaja Yoga<br>
 </p>
 
 <p>
-<font color="green"><b>Sahasrara Swamini</b></font><br>
+<font color="green"><b>Sahasrāra Swāminī</b></font><br>
 <a href="https://www.youtube.com/watch?v=6qFvyIk1tm8">video</a>
 </p>
 
