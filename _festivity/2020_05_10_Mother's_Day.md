@@ -73,8 +73,8 @@ So, in your own way, when you are doing Sahaja Yoga, there also you have to be a
 <b>Thank You for being our Guru.</b><br>
 <b>Thank You for being our Mother.</b><br>
 <br>
-<b>Sākshāt Shrī Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah!</b></font><br>
-(The 108 Thank You's offered to Shri Mataji during 1996-0505 Sahasrāra Pūjā, Cabella Ligure, Italy)<br>
+<b>Sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
+(The 108 Thank You's offered to Śhrī Mātājī during 1996-0505 Sahasrāra Pūjā, Cabella Ligure, Italy)<br>
 <a href="https://www.youtube.com/watch?v=wP_R9tpOVag"> video</a>
 </p>
 
@@ -93,12 +93,12 @@ and<br>
 </p>
  
 <p>
-<font color="green"><b>Isi Liye Mataji hamko</b></font><br>
+<font color="green"><b>Isi Liye Mātājī hamko</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
-<font color="green"><b>Vandan Karuya Matajila</b></font><br>
+<font color="green"><b>Vandan Karuya Mātājīla</b></font><br>
 <a href="https://www.youtube.com/watch?v=ybCnMcQi2ZQ">video</a> 
 </p>
 

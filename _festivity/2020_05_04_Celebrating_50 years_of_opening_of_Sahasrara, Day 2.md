@@ -29,8 +29,8 @@ O, embodiment of total Auspiciousness through ages, only You are Ādi Śhakti<br
 <font color="DarkRed">"<b>Tujhya Thayi Man. Lago Deun. Sahaj. Yog. Mate </b></font><br>
 Having granted this Sahaja Yoga to me, please keep my attention forever on You.<br>
 <font color="DarkRed">"<b>Namostute, Namostute<br>
-Shri Nirmala Devi, Namostute </b></font><br>
-Shri Nirmala Devi, Salutations to You<br>
+Śhrī Nirmala Devī, Namostute </b></font><br>
+Śhrī Nirmala Devī, Salutations to You<br>
 <br>
  [The 350 Sahaja Yogis present had just finished singing ‘Namostute’.]<br>
 <font color="DarkRed">"<b>"Beautifully rendered! It’s a song written much before, I think just after the first Sahasrāra Day.</b></font><br>
@@ -106,10 +106,10 @@ Your fame reaches the three worlds<br>
 You are the form of Pure Love<br>
 <font color="DarkGreen"><b>Āratī Tav Charana</b></font><br>
 We offer aarti to Your Lotus Feet<br>
-<font color="DarkGreen"><b>Vandan. Karuya Matajila</b></font><br>
-Let us pay homage to Shri Mataji<br>
-<font color="DarkGreen"><b>Mahashaktila Sahajyoginila</b></font><br>
-To the great Power, to the Giver of Sahaja Yoga<br>
+<font color="DarkGreen"><b>Vandan. Karuya Mātājīla</b></font><br>
+Let us pay homage to Śhrī Mātājī<br>
+<font color="DarkGreen"><b>Mahāśhaktila Sahajyoginila</b></font><br>
+To the Great Power, to the Giver of Sahaja Yoga<br>
 <a href="https://www.youtube.com/watch?v=ybCnMcQi2ZQ">video</a>
 </p>
 
