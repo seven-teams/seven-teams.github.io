@@ -81,8 +81,8 @@ So, in your own way, when you are doing Sahaja Yoga, there also you have to be a
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1980-0316 Talk to Sahaja Yogis (Mother’s Day in UK),  Āśhram, Dollis Hill, North London, UK</b></font>
-<a href="https://www.youtube.com/watch?v=OzZQ4Kn4SpU"> video</a>
-and<br>
+<a href="https://www.youtube.com/watch?v=OzZQ4Kn4SpU"> video</a><br>
+and
 <font size="+0"><b>1987-0510 Talk to Sahaja Yogis, Mother's Day Picnic, Galston (36 kms NW of Sydney), New South Wales, Australia</b></font>
 <a href="https://www.youtube.com/watch?v=F7ezzMPrC3A"> video</a><br>
 
