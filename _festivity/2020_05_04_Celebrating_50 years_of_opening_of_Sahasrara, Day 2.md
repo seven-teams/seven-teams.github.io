@@ -20,7 +20,7 @@ This pattern was on for some time. These few people who got Realization did lots
 <p style=" text-align:center;">
 <font color="DarkGreen">"<b>Tucha Kharokhar. Hya Vishwachi, Karati An Karaviti</b></font><br>
 You verily are the Creator of the Universe<br>
-<font color="DarkRed">"<b>Tucha Kharokhar. Hari Apada, Deun. Dhan. Sampatti</b></font><br>
+<font color="DarkGreen">"<b>Tucha Kharokhar. Hari Apada, Deun. Dhan. Sampatti</b></font><br>
 You verily are the One who takes away all the sorrows by granting us wealth<br>
 <font color="DarkGreen">"<b>Samarth. Tuchi Samarth. Kari Maj. Divyatvachi Murti</b></font><br>
 O, most omnipresent! Please make me powerful too<br>
