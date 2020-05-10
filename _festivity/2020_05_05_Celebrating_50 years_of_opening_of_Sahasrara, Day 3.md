@@ -110,7 +110,7 @@ we are in the path of Sushumna and very close to Your Divine form.<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Namami Śhrī Gan raj Dayal</b></font><br>
+<font color="green"><b>Namami Śhrī Gaṇarāj Dayal</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -131,8 +131,8 @@ we are in the path of Sushumna and very close to Your Divine form.<br>
 
 <p>
 <font color="green"><b>Pasaydan</b></font><br>
-'O' God, The entire Cosmos Divine , Be pleased with this pious word offering of mine,<br>
-Grant me in good will benign | Your Benevolent Grace Divine<br
+'O' God, The entire Cosmos Divine, Be pleased with this pious word offering of Mine,<br>
+Grant Me in good will benign, Your Benevolent Grace Divine<br
 (Gyāneśhwarī is considered to be a masterpiece in Marathi literature. At the end of which Śhrī Gyāneśhwar asks for the blessings of the Almighty through this Pasaydān)<br>
 <a href="https://www.youtube.com/watch?v=IcphtsDeZmM"> video</a><br>
 </p>
@@ -148,7 +148,7 @@ Grant me in good will benign | Your Benevolent Grace Divine<br
 <font color="DarkRed"><b>Śhrī Mātājī: Now say the Sahasraras mantras, three, Sahasrara Swamini, Moksha Pradayani, Sahaja Yoga Dayini.</b></font><br>
 Sahaja Yogis: Om Twameva Sakshat Shri Sahasrara Swamini Moksha Pradayani Sakshat Shri Adishakti Mataji Shri Nirmala Devi Namo Namah.<br>
 <font color="DarkRed"><b>Śhrī Mātājī: Sahaja Yoga Dayini.</b></font><br>
-Sahaja Yogis: Om Twameva Sakshat Shri Sahaja Yoga Dayini Sakshat Shri Adishakti Mataji Shri Nirmala Devi Namo Namah. 
+Sahaja Yogis: Om Twameva Sakshat Shri Sahaja Yoga Dayini Sakshat Shri Adishakti Mataji Shri Nirmala Devi Namo Namah.<br>
 <font color="DarkRed"><b>Śhrī Mātājī: Now, after saying all these mantras you have reached up to Sahasrāra and you have also pierced through the Sahasrāra.<br> 
 The most effective mantra you know is `Nirmalā' and that works the best for Sahasrāra.</b></font><br>
 <font size="+0"><b>1985-0611 Talk to Sahaja Yogis, Arrival, Founex, Switzerland</b></font>
