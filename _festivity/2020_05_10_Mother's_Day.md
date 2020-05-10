@@ -32,7 +32,7 @@ And the Mother, the prototype of all existence, is the Eternal Spirit, full of b
 </p>
 
 <p>
-<font color="DarkRed">"[Mother is] a very special institution ...... especially in this country [Italy], they have such respect for their mothers.<br>
+<font color="DarkRed">"[Mother's is] a very special institution ...... especially in this country [Italy], they have such respect for their mothers.<br>
 <b>Mother is the Source of Love.</b> In the Qur'ān they asked Muhammad Sāhab whom should we bow after Allah? So He said "to Mother" -- "to the Mother."<br>
 Then again they asked Him, He said: "Only the Mother." Again they asked Him, He said: "Only the Mother."<br>
 I'm sure He must have said about the Divine Mother, because worldly mothers may not be complete mothers, perhaps. They are a[n] embodied, or, we can say, examples of Mother's Love, of the Divine Mother's Love, but they are human.<br>
