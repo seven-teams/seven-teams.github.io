@@ -9,8 +9,10 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"<b>We can say, in 1970, fifth May, [for the] first time, the Collective Spirit of God opened out.</b><br>
+So far, the blessings of God came to human beings individually as Grace and they received their Self-realization individually, one by one. And the method for individual Realization was just the opposite of the collective. First, they had to establish their dharma, cleanse themselves fully, desiring all the time for their salvation, putting their attention to their salvation, as you call it Īśhwarapraṇidhān [desire for God], thinking of God, asking for His Grace and acting in a scrupulous, dhārmik ways to keep themselves pure. They had to control their mind, control their desires, control their action in such a manner that they absolutely kept to the center path. And when they could get through all that testing and immunity, I mean they deserved, then only the Grace of Mother gave them Realization.<br>
+This pattern was on for some time. These few people who got Realization did lots of wonderful things to prepare for Sahaj Yog. They were in every field of life, but very few and unique."</font><br>
+<font size="+0"><b>1980-0505 Sahasrāra Pūjā, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image416.png" /></div>

@@ -25,8 +25,8 @@ In the form of the Universe You are its receptacle.
 You are worshipped by the lords of the universe.
 <b>Vishw'ashraya ye twayi bhakti namraha</b><br>
 Those who are devoted to You themselves become supporters of the universe
-<b>Prayer to Shri Raja-rajeshwari.
-(79 names of Shri raja-rajeshwari created by Shri Mataji Herself and read out during 2000-0507 Sahasrāra Pūjā, Albera Ligure, Italy)</b><br>
+<b>Prayer to Śhrī Raja-rajeshwari.
+(79 names of Śhrī raja-rajeshwari created by Śhrī Mātājī Herself and read out during 2000-0507 Sahasrāra Pūjā, Albera Ligure, Italy)</b><br>
 <a href="https://www.youtube.com/watch?v=7jLDenmw7So">video</a>
 </p>
 
@@ -110,7 +110,7 @@ we are in the path of Sushumna and very close to Your Divine form.<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Namami Shri Gan raj Dayal</b></font><br>
+<font color="green"><b>Namami Śhrī Gan raj Dayal</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -133,7 +133,7 @@ we are in the path of Sushumna and very close to Your Divine form.<br>
 <font color="green"><b>Pasaydan</b></font><br>
 'O' God, The entire Cosmos Divine , Be pleased with this pious word offering of mine,<br>
 Grant me in good will benign | Your Benevolent Grace Divine<br
-(Gyaneshwari is considered to be a masterpiece in Marathi literature. At the end of which Gyaneshwar asks for the blessings of the Almighty through this Pasaydān)<br>
+(Gyāneśhwarī is considered to be a masterpiece in Marathi literature. At the end of which Śhrī Gyāneśhwar asks for the blessings of the Almighty through this Pasaydān)<br>
 <a href="https://www.youtube.com/watch?v=IcphtsDeZmM"> video</a><br>
 </p>
 
