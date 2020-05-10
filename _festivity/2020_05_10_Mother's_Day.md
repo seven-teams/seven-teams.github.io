@@ -23,7 +23,8 @@ May God bless you.</b>"</font><br>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>The Mother is everything</b> — She is our consolation in sorrow, our hope in misery, and our strength in weakness.<br>
-She is the source of love, mercy, sympathy, and forgiveness. And this Earth is the Mother of the trees and flowers.<br>
+She is the source of love, mercy, sympathy, and forgiveness.<br> 
+And this Earth is the Mother of the trees and flowers.<br>
 It produces them, nurses them, and weans them.<br>
 The trees and flowers become kind mothers of their great fruits and seeds.<br> 
 And the Mother, the prototype of all existence, is the Eternal Spirit, full of beauty and love.</font><br>
