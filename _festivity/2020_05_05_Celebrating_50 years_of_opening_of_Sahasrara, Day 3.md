@@ -70,12 +70,12 @@ The Joy which I feel is beyond any description<br>
 </p>
 
 <p>
-<font color="DarkRed"><b>"Now Sahaja Yoga is a actualization. Sahaja Yoga is a Sakshat, is actualization; in which you know whom to worship and whom to surrender."</b></font><br>
+<font color="DarkRed"><b>"Now Sahaja Yoga is a actualization. Sahaja Yoga is a Sakshat, is actualization, in which you know whom to worship and whom to surrender."</b></font><br>
 <font size="+0"><b>2002-1027 Navaratri Puja, Los Angeles, CA, U.S.A.</b></font>
 </p>
 
 <p>
-<font color="DarkRed">"It's a work of Adi Shakti. Try to understand this. It's not work of any saint. It's not work of any incarnation. It's not work of any politician. And not work of any big leader. It is the work of Adi Shakti, which is so transparently showing its results in you.
+<font color="DarkRed">"It's a work of Adi Shakti. Try to understand this. It's not work of any saint. It's not work of any incarnation. It's not work of any politician. And not work of any big leader. It is the work of Adi Shakti, which is so transparently showing its results in you.<br>
 Now it is for you to see. <b>To please Me is your ardent desire, I know. I see how you love Me and how you want to do for Me. The greatest thing you can do for Me is to spread Sahaja Yoga.</b> [It] is a very special, extremely difficult blessings you have got. You didn't have to do any efforts. You didn't have to pay any money. You don't have to get sick with rituals. You got it spontaneously. But that doesn't mean that it's sort of your birthright to get it. [It] is the work of Adi Shakti. And the work of Adi Shakti has to be shown in your life. [It] is the compassion, without any reward."</font><br>
 <font size="+0"><b>2001-0603 Śhrī Ādi Śhakti Pūjā, Albera Ligure, Italy</b></font>
 </p>
