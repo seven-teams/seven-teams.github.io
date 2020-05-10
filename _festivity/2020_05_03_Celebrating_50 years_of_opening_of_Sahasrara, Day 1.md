@@ -78,11 +78,11 @@ So, you have to work in such a way that you get complete integration. And the dr
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Tuzhya Krupe Nid.Rit. Śhakti Urdhvamukhe Yei</b></font><br>
 The energy which is awakened with your blessings start to rise<br>
-<font color="DarkGreen">Sat. Chakre Tichya Sparshe Jagrut. Ti Hoi</b></font><br>
+<font color="DarkGreen"><b>Sat. Chakre Tichya Sparshe Jagrut. Ti Hoi</b></font><br>
 As it touches the seven chakras, they become enlightened<br>
-<font color="DarkGreen">Adnyasthani Yeta Mate</b></font><br>
+<font color="DarkGreen"><b>Adnyasthani Yeta Mate</b></font><br>
 When it reaches the agnya chakra <br>
-<font color="DarkGreen">Ka Ga Visawa<br>
+<font color="DarkGreen"><b>Ka Ga Visawa<br>
 Ughad. Sahastrār. Mate</b></font><br>
 O Mother, please open the Sahasrāra!<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
