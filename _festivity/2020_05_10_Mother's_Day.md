@@ -60,7 +60,7 @@ So, in your own way, when you are doing Sahaja Yoga, there also you have to be a
 
 <div style="text-align: center"><img src="/images/image437.png" /></div>
 
-<p>
+<p style="text-align:center;">
 <font color="Purple"><b>Thank You</b> for letting us participate in the salvation of mankind.<br>
 <b>Thank You</b> for giving us the joy of introducing a yearning seeker to Your redeeming Motherly Love.<br>
 <b>Thank You</b> for inviting all of us to the court of the Goddess.<br>
