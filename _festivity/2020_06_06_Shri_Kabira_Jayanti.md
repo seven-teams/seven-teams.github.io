@@ -62,7 +62,7 @@ Ek Hi Dor Lagaunga ||<br>
 Shunya Shikhar Par Anhad Baje-ji<br>
 Raag Chattis Sunaunga ||<br>
 Kahat Kabir Suno Bhai Sadho-ji<br>
-Jeet Nishan Ghuraunga ||</b></font><br>
+Jeet Nishan Ghuraunga ||</font><br>
 <font size="+0"><b>Nirbhay Nirgun gun re</b></font><br>
 <a href="https://www.youtube.com/watch?v=_buuncAm9Ts&list=RD_buuncAm9Ts#t=0">video</a>
 </p>
