@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating 50 years of opening of Sahasrara: "Sahaja Yoga teaches how to love and adore the human body as the temple of God Almighty." '
+title: '2020 Celebrating 50 years of opening of Sahasrāra: "Sahaja Yoga teaches how to love and adore the human body as the temple of God Almighty." '
 date: 2020-05-06
 permalink: /festivity/2020/05/06
 tags:

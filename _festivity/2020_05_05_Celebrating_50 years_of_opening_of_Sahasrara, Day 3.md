@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating 50 years of opening of Sahasrara: "When we enter into the Realm of Sahasrāra, then only we have right to do the Sahasrāra Pūjā" '
+title: '2020 Celebrating 50 years of opening of Sahasrāra: "When we enter into the Realm of Sahasrāra, then only we have right to do the Sahasrāra Pūjā" '
 date: 2020-05-05
 permalink: /festivity/2020/05/05
 tags:

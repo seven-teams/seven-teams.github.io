@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating 50 years of opening of Sahasrara: "Now, this Sahasrāra is to be looked after by you. Is the Temple of your Mother." '
+title: '2020 Celebrating 50 years of opening of Sahasrāra: "Now, this Sahasrāra is to be looked after by you. Is the Temple of your Mother." '
 date: 2020-05-04
 permalink: /festivity/2020/05/04
 tags:

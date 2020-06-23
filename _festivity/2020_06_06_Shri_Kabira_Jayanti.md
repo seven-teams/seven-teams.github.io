@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating Śhrī Kabīra Jayanti: "He brought forth so many fundamental truths in his poetry and he talked about it" '
+title: '2020 Celebrating Śhrī Kabīra Jayanti: "He brought forth so many fundamental truths in His poetry and He talked about it" '
 date: 2020-06-06
 permalink: /festivity/2020/06/06
 tags:
@@ -54,8 +54,8 @@ Nirbhay Nirgun Gun Re Gaunga ||<br>
 Mool Kamal Dradh Aasan Bandhu-ji<br>
 Ulti Pavan Chadaunga ||<br>
 Man Mamta Ko Thir Kar Laun-ji<br>
-Pancho Tat Milaunga ||<br>
-Ingala Pingala Sukhman Nadi-ji<br>
+<b>Pancho Tat Milaunga ||</b><br>
+<b>Ingala Pingala Sukhman Nadi-ji</b><br>
 Tirveni Pe Haun Nahaunga ||<br>
 Panch Pachhison Pakad Mangaun-ji<br>
 Ek Hi Dor Lagaunga ||<br>
@@ -97,7 +97,7 @@ Dāsa Kabīr jatan se odhi, Jaisi ki taisi rakha dinī chadariya."</font><br>
 </p>
  
 <p>
-<font color="green"><b>Jhini Re Jhini Kabīra Kabīr (Sahaja Yoga) Śhrī Mātājī Birthday (Delhi 1993)</b></font><br>
+<font color="green"><b>Jhini Re Jhini Kabīra Kabīr (Sahaja Yoga) Śhrī Mātājī's Birthday (Delhi 1993)</b></font><br>
 <a href="https://www.youtube.com/watch?v=1qbhKhLMxLY&list=PLB618CDA4FEC74AE6&index=20">video</a> 
 </p>
 

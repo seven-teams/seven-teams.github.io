@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating 50 years of opening of Sahasrara: "Sahaj Yog is the Union between you and God, and the sincerity must be full, must be complete" '
+title: '2020 Celebrating 50 years of opening of Sahasrāra: "Sahaj Yog is the Union between you and God, and the sincerity must be full, must be complete" '
 date: 2020-05-03
 permalink: /festivity/2020/05/03
 tags:
