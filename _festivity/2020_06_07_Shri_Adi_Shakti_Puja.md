@@ -31,11 +31,11 @@ So, sucking should be more. Sucking should be more. And just before the Pūjā y
 </p>
 
 <p style="color:DarkRed; text-align:center;">
-<b>Vin.ti Suniye Adi Shakti Meri</b><br>
-Oh Adi Shakti, please listen to my request<br>
-<b>Pujan . ka adhikar. dijiye</b><br>
-Please give me the authority to do Your Puja<br>
-<b>Sharanagat. hai hriday. pujari</b><br>
+<b>Binatī Suniye Ādi Śhakti Meri</b><br>
+O Ādi Śhakti, please listen to my request<br>
+<b>Pūjana kā adhikār. dījiye</b><br>
+Please give me the authority to do Your Pūjā<br>
+<b>Śharaṇāgat. hai hṛiday. pujārī</b><br>
 Your worshipper is surrendered to You from the heart.</b><br>
 <a href="https://www.youtube.com/watch?v=hMK6gaaQ1hU">video</a>
 </p>
