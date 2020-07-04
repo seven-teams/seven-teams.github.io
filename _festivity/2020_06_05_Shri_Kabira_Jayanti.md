@@ -1,7 +1,7 @@
 ---
 title: '2020 Celebrating Śhrī Kabīra Jayanti: "He brought forth so many fundamental truths in His poetry and He talked about it" '
-date: 2020-06-06
-permalink: /festivity/2020/06/06
+date: 2020-06-05
+permalink: /festivity/2020/06/05
 tags:
   - Shri Kabira Jayanti
 ---
