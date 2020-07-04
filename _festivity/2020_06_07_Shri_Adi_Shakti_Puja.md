@@ -20,7 +20,7 @@ This is Her great work [done] with such love and affection, and with very great 
 <div style="text-align: center"><img src="/images/image452.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Today it’s a different day altogether for all of you because this is the Pūjā of Ādi Śhakti, and Ādi Śhakti is a complete personality.</b></font><br>
+<font color="DarkRed"><b>"Today it’s a different day altogether for all of you because this is the Pūjā of Ādi Śhakti, and Ādi Śhakti is a complete personality."</b></font><br>
 <font size="+0"><b>2002-0623 Śhrī Ādi Śhakti Pūjā, Albera Ligure, Italy</b></font>
 </p>
 
