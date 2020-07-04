@@ -1,5 +1,5 @@
 ---
-title: '2020 Worshiping Shri Ādi Śhakti: "Ādi Śhakti is a complete personality." '
+title: '2020 Worshiping Śhrī Ādi Śhakti: "Ādi Śhakti is a complete personality." '
 date: 2020-06-07
 permalink: /festivity/2020/06/07
 tags:
@@ -63,7 +63,7 @@ O Primordial Mother, O Eternal Mother<br>
 </p>
 
 <p>
-<font color="DarkRed">"<b>You perhaps do not realize that all the Deities who reside in you and who are controlled in your Sahasrara are not at all interested in people who are not completely surrendered to me. I do not know how to convince them. They only look after those who take my name and accept that I am the Adi Shakti. This is the only way you can progress. What can I do? Even the people who are cured by me have to keep the protocol otherwise the Deities sleep and they go back to their previous position.
+<font color="DarkRed">"<b>You perhaps do not realize that all the Deities who reside in you and who are controlled in your Sahasrara are not at all interested in people who are not completely surrendered to me. I do not know how to convince them. They only look after those who take my name and accept that I am the Adi Shakti. This is the only way you can progress. What can I do? Even the people who are cured by me have to keep the protocol otherwise the Deities sleep and they go back to their previous position.</b><br>
 So far I have not said this to anyone because I thought there was no need. Those who were wise realized it and those who are foolish have lost their chance in Sahaja Yoga.</b>"</font><br>
 <font size="+0"><b>1975-0925 Letter to Grégoire, 2, Parklands, Ice House Wood, Hurst Green, Oxted, Surrey, UK</b></font>
 </p>
@@ -71,11 +71,11 @@ So far I have not said this to anyone because I thought there was no need. Those
 <div style="text-align: center"><img src="/images/image454.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Shri Mataji, Salutation to Thee Again and Again,<br>
+<font color="DarkRed"><b>Śhrī Mātājī, Salutation to Thee Again and Again,<br>
 Thou Art the Primordial Splendour of God,<br>
-The Adi Shakti and Mother of the Devatas.<br>
+The Ādi Śhakti and Mother of the Devatas.<br>
 Thou are the roots of all action, the success in any action and the sole and only Doer in the countless universes of Thy creation.</b></font><br>
-<font size="+0"><b>Prayer recited at Shri Buddha Pūjā, San Diego, 1988-0723</b></font>
+<font size="+0"><b>Prayer recited at Śhrī Buddha Pūjā, San Diego, 1988-0723</b></font>
 </p>
 
 <p>
@@ -92,18 +92,18 @@ I was the One who was born again and again, but now in My Complete Form and Comp
 <div style="text-align: center"><img src="/images/image455.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b>Thank You, O Shri Adi Shakti, for the seeking which brought us to Sahaja Yoga.<br> 
+<font color="DarkRed"><b>Thank You, O Śhrī Ādi Śhakti, for the seeking which brought us to Sahaja Yoga.<br> 
 You now lift up humanity into the omega of the Last Judgment.<br>
-We pray that Shri Adi Shakti’s love continues to protect all the saints and seekers around the world.<br>
-Shri Adi Shakti, Your work is greater than any.<br>
+We pray that Śhrī Ādi Śhakti’s love continues to protect all the saints and seekers around the world.<br>
+Śhrī Ādi Śhakti, Your work is greater than any.<br>
 You created the pithas, the chakras, nature and humanity, and its subtle workings.<br>
 May the complexity of Your work humble us down completely.<br>
 Your love gives power to the bandhan, which directs the vibrations.<br>
 Your power of Kuṇḍalinī brings freedom that is divine. It is the only true freedom.</b></font><br>
-<font size="-1"><b>Adi Shakti Mataji tere Charano meaya hu mein</b></font><br>
-<font size="-1">Adi Shakti Mataji I have come to Your Lotus Feet</font><br>
+<font color="DarkGreen"><font size="-1"><b>Ādi Śhakti Mātājī tere Charano meaya hu mein</b></font></font><br>
+<font size="-1">Ādi Śhakti Mātājī I have come to Your Lotus Feet</font><br>
 <a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&index=15&list=PLC8554007A2C98EA0">video</a><br>
-<font color="DarkRed"><b>Bolo Shri Adi Shakti Mataji Shri Nirmala Devi Ki Jai!
+<font color="DarkRed"><b>Bolo Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī Ki Jai!
 </b></font><br>
 </p>
 
@@ -124,17 +124,17 @@ Your power of Kuṇḍalinī brings freedom that is divine. It is the only true 
 </p>
  
 <p>
-<font color="green"><b>Bolo Adi Shakti</b></font><br>
+<font color="green"><b>Bolo Ādi Śhakti</b></font><br>
 <a href="https://www.youtube.com/watch?v=2EDVlAAUdBg">video</a> 
 </p>
 
 <p>
-<font color="green"><b>He Nirmala Ma</b></font><br>
+<font color="green"><b>He Nirmalā Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=v7T1xpKkYFU">video</a> 
 </p>
 
 <p>
-<font color="green"><b> He Adi Shakti Mā</b></font><br>
+<font color="green"><b> He Ādi Śhakti Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=b7fLaveK-pg&t=117s">video</a> 
 </p>
 
