@@ -49,7 +49,7 @@ Make us like the Sufis and the Gnostics adoring You at every moment.</b></font><
 <font size="+0"><b>1993-1005 Public Program, Toronto, ON, Canada</b></font>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 
+<font size="+2"><font color="blue"><b>Suggested Talk:</b></font></font> 
 <font size="+0"><b>1995-0603 Entertainment Program, the Day before Śhrī Ādi Śhakti Puja, Cabella, Italy</b></font>
 <a href="https://www.youtube.com/watch?v=gkR8_kK_16s"> video</a><br>
 
