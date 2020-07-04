@@ -57,7 +57,7 @@ even to those who don't have any knowledge,<br>
 You give Sahaja Yoga to the whole universe<br>
 <font color="DarkRed"><b>Jan Kotama,</b></font><br>
 Verily You are the highest Father of Mankind<br>
-<font color="DarkRed"><b>He Adi Ma, He Anti Ma</b></font><br>
+<font color="DarkRed"><b>He Ādi Mā, He Anti Mā</b></font><br>
 O Primordial Mother, O Eternal Mother<br>
 <a href="https://www.youtube.com/watch?v=rbi_HSVoF2Q">video</a>
 </p>
@@ -75,7 +75,7 @@ So far I have not said this to anyone because I thought there was no need. Those
 Thou Art the Primordial Splendour of God,<br>
 The Ādi Śhakti and Mother of the Devatas.<br>
 Thou are the roots of all action, the success in any action and the sole and only Doer in the countless universes of Thy creation.</b></font><br>
-<font size="+0"><b>Prayer recited at Śhrī Buddha Pūjā, San Diego, 1988-0723</b></font>
+<font size="+0"><b>Prayer recited at Śhrī Buddha Pūjā, San Diego, CA, U.S.A. on 1988-0723</b></font>
 </p>
 
 <p>
