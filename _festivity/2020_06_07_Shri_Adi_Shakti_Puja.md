@@ -36,7 +36,7 @@ O Ādi Śhakti, please listen to my request<br>
 <b>Pūjana kā adhikār. dījiye</b><br>
 Please give me the authority to do Your Pūjā<br>
 <b>Śharaṇāgat. hai hṛiday. pujārī</b><br>
-Your worshipper is surrendered to You from the heart.</b><br>
+Your worshipper is surrendered to You from the heart.<br>
 <a href="https://www.youtube.com/watch?v=hMK6gaaQ1hU">video</a>
 </p>
 
