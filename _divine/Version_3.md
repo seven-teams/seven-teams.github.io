@@ -1,0 +1,96 @@
+---
+title: 'Divine Message, Version 3'
+date: 2020-07-18
+permalink: /divine/2020/07/18
+tags:
+  - Divine Message
+---
+Dear Sahaja Yogis and Sahaja Yoginīs,  
+
+We would like to share with you all the up-dated <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been working on since Divine Message, Version 2 was posted on February 3, 2017. The pdf file <font color="blue">Divine Message, Version 2</font> is available at the link
+<a href="">Version 3</a>
+as well it can be downloaded directly here 
+
+[Download pdf file here](http://seven-teams.github.io/files/Divine_Message_Version3.pdf)
+
+Please kindly share it with all our brothers and sisters. This can be done by either sharing this link or by downloading the file and then e-mailing it as an attachment.  
+
+If you are part of some project which has a public platform (such as a web-site) and some Sahaja Yogis or Sahaja Yoginīs involved in that project would like to use parts of the Divine Message, Version 3, please kindly consider a way to refer on the public program to this current page https://seven-teams.github.io/divine/2017/02/03
+
+We would like to thank all Sahaja Yogis and Sahaja Yoginis who have contributed in various way to the <font color="mediumvioletred">Database of Transcripts/Quotes</font>. Anyone who would like to contribute to it, please write to us at sahajayoga.compilations@gmail.com
+
+<p>
+<font color="DarkGreen">I. Intended usage.</font><br>
+It is aimed primarily at the following five categories of Sahaja Yogis and and Sahaja Yoginīs and Seekers of Truth:
+1. Those who care a lot about quality in their educational and regular activities and projects.
+2. Those who are engaged in scholarly activities.
+3. Those who care a lot about an unabridged and easy database access.
+4. Those who for a reason or other would prefer American English.
+5. Those who like reading Śhrī Mātājī's talks (on their own or while listening to tapes). 
+</p>
+
+<p>
+<font color="DarkGreen">II. Numerical Data.</font><br>
+<font color="blue"> Divine Message, Version 3:</font> <br>
+1. has 16,046 pages (an increment of 4,314 pages from Version 2);<br>
+2. contains 4,156 events whose transcripts have been started (an increment of 1,099 events from Version 2);<br>
+3. contains 124 figures (an increment of 22 figures from Version 2 which apparently overreported due to a typo 108 instead of 102 figures);<br>
+4. has a size of 190.4 mb.<br>
+</p>
+
+<p>
+<font color="DarkGreen">III. The dream `Final Version'.</font><br>
+The hoped for "Final Version" is expected to have a number of pages <font color="mediumvioletred">between 25,000 (an increment of 4,000 from Version 2) and 108,000</font>  
+</p>
+
+<p>
+<font color="DarkGreen">IV. Current work flow.</font><br>
+1. Intensive work on about 1,000 events with transcripts.<br>
+2. Gradual work on the other  3,156 events with transcripts started.<br>
+3. Queued work on additional 7,513 events among which hundreds and hundreds will become events with transcripts.<br>
+In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew up at the average speed of 3.5 pages a day, and it is very much expected that this growth will continue for at least 7 more years.<br>
+</p>
+
+<p>
+<font color="DarkGreen">V. Key features for a high quality database.</font><br>
+01. Single English (American English for the time being) used throwout except for original hand writings.<br>
+02. Full usage of International Alphabet of Sanskrit Transliteration (IAST).<br>
+03. Full access to the whole database without any dependency on internet access (of course, once the file is downloaded).<br>
+04. Unlimited possibilities through lists (such as contents, categories, etc.): currently 5 main lists are used (Contents -- Lists -- Pūjā Types -- Countries -- Five countries). 
+05. Full navigation at the bottom of each page supplemented with a direct link to the whole list of the same category of the transcript at the end of each transcript.<br>
+06. Three protocols observed towards <font color="red"><b>Śhrī Mātājī</b></font>: <font color="SaddleBrown"><b>Family Members</b></font> (strictly speaking it is 'auburn' but this website does not have it), <font color="Chocolate"><b>Family Members</b></font> (strictly speaking it is 'bronze' but this website does not have it), and <b>Sahaja Yogis and Sahaja Yoginīs</b>. [This feature is not fully completed but it is extensively implemented already.]<br>
+07. Three languages=three colors: English, <font color="DarkViolet">Hindi</font> (strictly speaking it is dark lavender but this website does not have it), <font color="DarkOrange">Hindi</font> (strictly speaking it is dark goldenrod but this website does not have it). These colors are tentaive (subject to your kind input). So far, this feature is implemented fully only for 1 transcript (<font color="blue"><b<1979-0330 Public Program (Hindi), Dhyāna meṃ Śhraddhā kā Mahatva (Importance of Faith in Meditation), the day before the Departure to London, Pune, Maharashtra, India</b></font>) and exceptionally in few other places.<br>
+08. Unabridged from all points of view including: i. no deletions of words (such as 'uh', 'you see', or forming repeated sentences/ideas, etc.) and ii. no deletions or shortcuts of words spoken by Seekers, Sahaja Yogis, etc.<br>
+09. A double system of quotation marks for refine expression.<br>
+10. Full itemization to facilitate localization, identification, references, etc.<br>
+11. A careful capitalization of certain words/expressions that are expressing Divine Poetry (such as Altar of Truth) or are often at the core of the Divine Message (such as Second Birth).<br>
+12. A system of footnotes, subsections, etc. that facilitate the presentation.<br>
+13. A system of interconnection/references between transcripts.<br>
+14. A system of colored Sources, [<font color="DarkOrange">unclear</font>], [<font color="DarkOrange">gap</font>], [<font color="DarkOrange">missing</font>], [<font color="DeepPink">SYNOPSIS!</font>], and ...... that facilitate the references, warning, understanding and the reading (again the colors are an approximation due to the color limitations of this web-site).<br>
+15. A uniform and comparative study of all transcripts from the points of view of spiritual meanings, name identification, language usage, grammar, spelling, punctuation, expression, phraseology, poetry, etc.<br>
+16. An extensive data collection that facilitates a refined accuracy of known dates and places (partially reflected in the Version 3 as well).<br>
+</p>
+
+<p>
+<font color="DarkGreen">VI. Older Versions. [WARNING: they ought to be used only for the sake of getting ideas how to correct the new versions or for certain comparisons!]</font><br>
+<font color="blue"> Divine Message</font> <br>
+1. <a href="https://drive.google.com/file/d/0B3izjZneKykscmg3cWRQR1E4dWM/view?usp=sharing">Version 2</a> <br>
+2. Version 1 <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing</a><br>
+<font color="blue"> Amruta</font> <br>
+3. <a href="https://www.amruta.org/transcripts-and-translations/">current</a><br>
+4. <a href="https://drive.google.com/file/d/1D2YJv38DcOU5fqCss8Co_eEmzBFpGAWX/view?usp=sharing">2020-0101</a><br>
+5. <a href="https://drive.google.com/file/d/1et_hDoht_X9RvCL3arXYyj_pjIXjRgM5/view?usp=sharing">2019-0111</a><br>
+6. <a href="https://drive.google.com/file/d/1tKEGId5BR0GE4ry57YNthXojlUVSgFGd/view?usp=sharing">2018-0129</a><br>
+7. <a href="https://drive.google.com/file/d/1bqjkzvHJGkpfmgt5dhEYAvom2o2LOcG2/view?usp=sharing">2017-0214</a><br>
+8. <a href="https://drive.google.com/file/d/14g0NeM1bE57AgakgFDgjOOnH4oiQ12CN/view?usp=sharing">2017-0111</a><br>
+9. <a href="https://drive.google.com/file/d/1UX7OLZZfoPKtsKUS_WnavbpuSsHyrX1z/view?usp=sharing">2016-0321</a><br>
+</p>
+
+<p>
+<font color="DarkGreen">VII. Your support.</font><br>
+Your kind support for the other three teams (Quotes on Incarnations Team, Scriptures Team, Chronology Team), so that they become fully involved again, would be very much appreciated. 
+</p>
+ 
+Jay Shri Mataji!
+
+The Comprehensive Compilations Team (the Divine Message Subteam)
