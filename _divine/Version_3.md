@@ -48,7 +48,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth who are particular about qual
 1. Intensive work on about 1,000 events with transcripts started.<br>
 2. Gradual work on the other 3,156 events with transcripts started.<br>
 3. Queued work on additional 7,513 events among which hundreds and hundreds will become events with transcripts.<br>
-In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew up at the average speed of 3.5 pages a day, and it is very much expected that this growth will continue for at least 7 more years. Gradually, the file will grow to a number of pages between <font color="mediumvioletred">25,000 (an increment of 4,000 from Version 2) and 108,000.</font>
+In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew up by 3.5 pages a day (as an average), and it is very much expected that this growth will continue for at least 7 more years. Gradually, the file will grow to a number of pages between <font color="mediumvioletred">25,000 (an increment of 4,000 from Version 2) and 108,000.</font>
 </p>
 
 <p>
