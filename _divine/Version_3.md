@@ -49,7 +49,7 @@ In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Q
 
 <p>
 <font color="DarkGreen">IV. Key features for a high quality database.</font><br>
-01. Single English (American English for the time being) used throwout except for original hand writings.<br>
+01. Single English (American English) used throughout except for original hand writings.<br>
 02. Full usage of International Alphabet of Sanskrit Transliteration (IAST).<br>
 03. Full access to the whole database without any dependency on internet access (of course, once the file is downloaded).<br>
 04. Unlimited possibilities through lists (such as contents, categories, etc.): currently 5 main lists are used (Contents -- Lists -- Pūjā Types -- Countries -- Five countries).<br> 
