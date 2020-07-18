@@ -20,13 +20,8 @@ If you are part of some project which has a public platform (such as a web-site)
 We would like to thank all Sahaja Yogis and Sahaja Yoginis who have contributed in various way to the <font color="mediumvioletred">Database of Transcripts/Quotes</font>. Anyone who would like to contribute to it, please write to us at sahajayoga.compilations@gmail.com
 
 <p>
-<font color="DarkGreen">I. Intended usage.</font><br>
-It is aimed primarily at Sahaja Yogis and and Sahaja Yoginīs and Seekers of Truth who:
-1. love quality.
-2. arere engaged in scholarly activities.
-3. care a lot about an unabridged and easy database access.
-4. might prefer American English.
-5. like reading Śhrī Mātājī's talks (on their own or while listening to tapes). 
+<font color="DarkGreen">I. Primarily aimed at:</font><br>
+Sahaja Yogis and and Sahaja Yoginīs and Seekers of Truth who are particular about quality, are engaged in scholarly activities, care a lot about an unabridged and easy database access, might prefer American English, like reading Śhrī Mātājī's talks (on their own or while listening to tapes). 
 </p>
 
 <p>
