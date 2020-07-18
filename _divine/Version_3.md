@@ -65,8 +65,9 @@ In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Q
 </p>
 
 <p>
-<font color="DarkGreen">V. Older Versions. [WARNING: they ought to be used only for the sake of getting ideas how to correct the new versions or for certain comparisons!]</font><br>
+<font color="DarkGreen">V. Older and current database versions (the older versions ought to be used only for getting ideas how to correct the new versions or for comparisons)</font><br>
 <font color="blue"> Divine Message</font> <br>
+0. <a href="">Version 3</a> <br>
 1. <a href="https://drive.google.com/file/d/0B3izjZneKykscmg3cWRQR1E4dWM/view?usp=sharing">Version 2</a> <br>
 2. <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">Version 1</a><br>
 <font color="blue"> Amruta</font> <br>
