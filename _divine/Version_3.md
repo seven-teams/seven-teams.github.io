@@ -44,15 +44,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 </p>
 
 <p>
-<font color="DarkGreen">III. Current work flow.</font><br>
-1. Intensive work on about 1,000 events with transcripts started.<br>
-2. Gradual work on the other 3,156 events with transcripts started.<br>
-3. Queued work on additional 7,513 events among which hundreds and hundreds will become events with transcripts.<br>
-In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew up by 3.5 pages a day (as an average), and it is very much expected that this intensive growth will continue for at least 7 more years. Gradually, the file will grow to a number of pages between <font color="mediumvioletred">25,000 (an increment of 4,000 from Version 2) and 108,000.</font>
-</p>
-
-<p>
-<font color="DarkGreen">IV. Key features.</font><br>
+<font color="DarkGreen">III. Key features.</font><br>
 01. Single English used throughout except for original hand writings.<br>
 02. Full usage of International Alphabet of Sanskrit Transliteration (IAST).<br>
 03. Full access to the whole database without any dependency on internet access (of course, once the file is downloaded).<br>
@@ -72,7 +64,7 @@ In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Q
 </p>
 
 <p>
-<font color="DarkGreen">V. Older and current database versions (the older versions ought to be used only for getting ideas how to correct the new versions or for comparisons)</font><br>
+<font color="DarkGreen">IV. Older and current database versions (the older versions ought to be used only for getting ideas how to correct the new versions or for comparisons)</font><br>
 <font color="blue"> Divine Message</font> <br>
 0. <a href="">current, Version 3</a> <br>
 1. <a href="https://drive.google.com/file/d/0B3izjZneKykscmg3cWRQR1E4dWM/view?usp=sharing">older, Version 2</a> <br>
@@ -92,8 +84,16 @@ Sahaja Digital Library<br>
 </p>
 
 <p>
-<font color="DarkGreen">VI. Your support.</font><br>
+<font color="DarkGreen">V. Your support.</font><br>
 Your kind support for the other three teams (Quotes on Incarnations Team, Scriptures Team, Chronology Team), so that they become fully involved again, would be very much appreciated. 
+</p>
+
+<p>
+<font color="DarkGreen">VI. Current work flow.</font><br>
+1. Intensive work on about 1,000 events with transcripts started.<br>
+2. Gradual work on the other 3,156 events with transcripts started.<br>
+3. Queued work on additional 7,513 events among which hundreds and hundreds will become events with transcripts.<br>
+In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew up by 3.5 pages a day (as an average), and it is very much expected that this intensive growth will continue for at least 7 more years. Gradually, the file will grow to a number of pages between <font color="mediumvioletred">25,000 (an increment of 4,000 from Version 2) and 108,000.</font>
 </p>
  
 Jay Śhrī Mātājī!
