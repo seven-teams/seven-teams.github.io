@@ -17,7 +17,7 @@ or can be downloaded directly here
 Please kindly share it with all our brothers and sisters. 
 
 <p>
-If you are part of some project which has a public platform (such as a web-site) and some Sahaja Yogis or Sahaja Yoginīs involved in that project would like to use parts of the Divine Message (any version), please kindly consider finding a way to refer on the public program to this current page<br>
+If you are part of some project which has a public platform (such as a web-site) and some Sahaja Yogis or Sahaja Yoginīs involved in that project would like to use parts of the Divine Message (any version), please kindly consider finding a way to refer on the public platform to this current page<br>
 https://seven-teams.github.io/divine
 </p>
 
