@@ -91,6 +91,6 @@ In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Q
 Your kind support for the other three teams (Quotes on Incarnations Team, Scriptures Team, Chronology Team), so that they become fully involved again, would be very much appreciated. 
 </p>
  
-Jay Shri Mataji!
+Jay Śhrī Mātājī!
 
 The Comprehensive Compilations Team (the Divine Message Subteam)
