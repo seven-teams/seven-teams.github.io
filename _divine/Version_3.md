@@ -26,7 +26,7 @@ Sahaja Yogis and and Sahaja Yoginīs and Seekers of Truth who are particular abo
 
 <p>
 <font color="DarkGreen">II. Numerical Data.</font><br>
-<font color="blue"> Divine Message, Version 3:</font> <br>
+<font color="blue"> Divine Message, 3:</font> <br>
 1. has 16,046 pages (an increment of 4,314 pages from Version 2);<br>
 2. contains 4,156 events whose transcripts have been started (an increment of 1,099 events from Version 2);<br>
 3. contains 124 figures (an increment of 22 figures from Version 2 which apparently overreported due to a typo 108 instead of 102 figures);<br>
@@ -65,7 +65,7 @@ In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Q
 <font color="DarkGreen">V. Older Versions. [WARNING: they ought to be used only for the sake of getting ideas how to correct the new versions or for certain comparisons!]</font><br>
 <font color="blue"> Divine Message</font> <br>
 1. <a href="https://drive.google.com/file/d/0B3izjZneKykscmg3cWRQR1E4dWM/view?usp=sharing">Version 2</a> <br>
-2. Version 1 <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">Version 1</a><br>
+2. <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">Version 1</a><br>
 <font color="blue"> Amruta</font> <br>
 3. <a href="https://www.amruta.org/transcripts-and-translations/">current</a><br>
 4. <a href="https://drive.google.com/file/d/1D2YJv38DcOU5fqCss8Co_eEmzBFpGAWX/view?usp=sharing">2020-0101</a><br>
