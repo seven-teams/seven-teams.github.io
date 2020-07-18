@@ -10,11 +10,12 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,  
 </p>
 
+<p>
 We would like to share with you all the up-dated <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been working on since Divine Message, Version 2 was posted on February 3, 2017. The pdf file <font color="blue">Divine Message, Version 2</font> is available at the link
 <a href="">Version 3</a>
-or can be downloaded directly here 
-
+or can be downloaded directly here<br>
 [Download pdf file here](http://seven-teams.github.io/files/Divine_Message_Version3.pdf)
+</p>
 
 Please kindly share it with all our brothers and sisters. 
 
