@@ -13,7 +13,7 @@ as well it can be downloaded directly here
 
 [Download pdf file here](http://seven-teams.github.io/files/Divine_Message_Version3.pdf)
 
-Please kindly share it with all our brothers and sisters. This can be done by either sharing this link or by downloading the file and then e-mailing it as an attachment.  
+Please kindly share it with all our brothers and sisters. 
 
 If you are part of some project which has a public platform (such as a web-site) and some Sahaja Yogis or Sahaja Yoginīs involved in that project would like to use parts of the Divine Message, Version 3, please kindly consider a way to refer on the public program to this current page https://seven-teams.github.io/divine
 
