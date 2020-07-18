@@ -74,6 +74,10 @@ In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Q
 7. <a href="https://drive.google.com/file/d/1bqjkzvHJGkpfmgt5dhEYAvom2o2LOcG2/view?usp=sharing">2017-0214</a><br>
 8. <a href="https://drive.google.com/file/d/14g0NeM1bE57AgakgFDgjOOnH4oiQ12CN/view?usp=sharing">2017-0111</a><br>
 9. <a href="https://drive.google.com/file/d/1UX7OLZZfoPKtsKUS_WnavbpuSsHyrX1z/view?usp=sharing">2016-0321</a><br>
+<font color="blue"> Nirmala Vidya Portal</font> <br>
+10. <a href="https://www.nirmalavidya.org/en">Link</a><br>
+Sahaja Digital Library
+10. <a href="https://library.sahajaworld.org/">Link</a><br>
 </p>
 
 <p>
