@@ -31,7 +31,7 @@ We would like to thank all of you who have contributed in various way to the <fo
 
 <p>
 <font color="DarkGreen">I. Primarily aimed at:</font><br>
-Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth who are particular about quality, are engaged in scholarly activities, care a lot about an unabridged and easy database access, might prefer American English, or like reading Śhrī Mātājī's talks (on their own or while listening to tapes). 
+Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth who are particular about quality, are engaged in scholarly activities, care a lot about an unabridged and easily accessible database, prefer American English, or like reading Śhrī Mātājī's talks (on their own or while listening to tapes). 
 </p>
 
 <p>
