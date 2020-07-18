@@ -60,11 +60,11 @@ In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Q
 05. Full navigation at the bottom of each page supplemented with a direct link to the whole list of the same category of the transcript at the end of each transcript.<br>
 06. Three protocols observed towards <font color="red"><b>Śhrī Mātājī</b></font>: <font color="SaddleBrown"><b>Family Members</b></font>, <font color="Chocolate"><b>Seekers</b></font>, and <b>Sahaja Yogis</b>/<b>Sahaja Yoginīs</b>. [This feature is not completed but is extensively implemented already.]<br>
 07. Three languages=three colors: English, <font color="DarkViolet">Hindi</font>, <font color="DarkOrange">Marathi</font>. These colors are tentative (subject to your kind input). So far, this feature is implemented fully only for 1 transcript as a sample (<font color="blue"><b>1979-0330 Public Program (Hindi), Dhyāna meṃ Śhraddhā kā Mahatva (Importance of Faith in Meditation), the day before the Departure to London, Pune, Maharashtra, India</b></font>) and exceptionally in few other places.<br>
-08. Unabridged from all points of view including: i. no deletions of words (such as 'uh', 'you see', or forming repeated sentences/ideas, etc.) and ii. no deletions or shortcuts of words spoken by Seekers, Sahaja Yogis, etc.<br>
-09. A double system of quotation marks for refine expression.<br>
+08. Unabridged from all points of view including: i. no deletions of words (such as 'uh', 'you see', or forming repeated sentences/ideas, etc.) and ii. no deletions or shortcuts/substitutions of words spoken by Seekers, Sahaja Yogis, etc.<br>
+09. A double system of quotation marks for better grasping.<br>
 10. Full itemization to facilitate localization, identification, references, etc.<br>
-11. A careful capitalization of certain words/expressions that are expressing Divine Poetry (such as Altar of Truth) or are often at the core of the Divine Message (such as Second Birth).<br>
-12. A system of footnotes, subsections, etc. that facilitate the presentation.<br>
+11. A careful capitalization of certain (groups of) words that are expressing Divine Poetry (such as Altar of Truth) or are often at the core of the Divine Message (such as Second Birth) or facilitate the reading (such as "he ran after Him").<br>
+12. A system of footnotes, subsections, etc. that facilitate the comprehension and the presentation.<br>
 13. A system of interconnection/references between transcripts.<br>
 14. A system of <font color="DarkGreen"><b>Sources:</b></font>, [<font color="DarkOrange"><b>unclear</b></font>], [<font color="DarkOrange"><b>gap</b></font>], [<font color="DarkOrange"><b>missing</b></font>], [<font color="DeepPink"><b>SYNOPSIS!</b></font>], and ...... that facilitate the references, warning, understanding and the reading (again the colors are an approximation due to the color limitations of this web-site).<br>
 15. A uniform and comparative study of all transcripts from the points of view of spiritual meanings, name identification, language usage, grammar, spelling, punctuation, expression, phraseology, poetry, etc.<br>
