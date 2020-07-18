@@ -15,7 +15,7 @@ as well it can be downloaded directly here
 
 Please kindly share it with all our brothers and sisters. 
 
-If you are part of some project which has a public platform (such as a web-site) and some Sahaja Yogis or Sahaja Yoginīs involved in that project would like to use parts of the Divine Message, Version 3, please kindly consider a way to refer on the public program to this current page https://seven-teams.github.io/divine
+If you are part of some project which has a public platform (such as a web-site) and some Sahaja Yogis or Sahaja Yoginīs involved in that project would like to use parts of the Divine Message (any version), please kindly consider finding a way to refer on the public program to this current page https://seven-teams.github.io/divine
 
 We would like to thank all Sahaja Yogis and Sahaja Yoginis who have contributed in various way to the <font color="mediumvioletred">Database of Transcripts/Quotes</font>. Anyone who would like to contribute to it, please write to us at sahajayoga.compilations@gmail.com
 
