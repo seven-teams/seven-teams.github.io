@@ -50,17 +50,17 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 03. Full access to the whole database without any dependency on internet access (of course, once the file is downloaded).<br>
 04. Unlimited possibilities through lists (such as contents, categories, etc.): currently 5 main lists are used (Contents -- Lists -- Pūjā Types -- Countries -- Five countries).<br> 
 05. Full navigation at the bottom of each page supplemented with a direct link to the whole list of the same category of the transcript at the end of each transcript.<br>
-06. Three protocols observed towards <font color="red"><b>Śhrī Mātājī</b></font>: <font color="SaddleBrown"><b>Family Members</b></font>, <font color="Chocolate"><b>Seekers</b></font>, and <b>Sahaja Yogis</b>/<b>Sahaja Yoginīs</b>. [This feature is not completed but is extensively implemented already.]<br>
+06. Three protocols observed towards <font color="red"><b>Śhrī Mātājī</b></font>: <font color="SaddleBrown"><b>Family Members</b></font>, <font color="Chocolate"><b>Seekers</b></font>, and <b>Sahaja Yogis</b>/<b>Sahaja Yoginīs</b>. [This feature is not completed but is already extensively implemented.]<br>
 07. Three languages=three colors: English, <font color="DarkViolet">Hindi</font>, <font color="DarkOrange">Marathi</font>. These colors are tentative (subject to your kind input). So far, this feature is implemented fully only for 1 transcript as a sample (<font color="blue"><b>1979-0330 Public Program (Hindi), Dhyāna meṃ Śhraddhā kā Mahatva (Importance of Faith in Meditation), the day before the Departure to London, Pune, Maharashtra, India</b></font>) and exceptionally in few other places.<br>
 08. Unabridged from all points of view.<br>
 09. A double system of quotation marks for better grasping.<br>
 10. Full itemization for the sake of localization, identification, references, etc.<br>
 11. A careful capitalization of certain (groups of) words that are expressing Divine Poetry (such as Altar of Truth) or are often at the core of the Divine Message (such as Second Birth) or help the reading (such as "he ran after Him").<br>
-12. A system of footnotes, subsections, etc. to support the comprehension and the presentation.<br>
+12. A system of footnotes, subsections, etc. supports the comprehension and the presentation.<br>
 13. A system of interconnections/references between transcripts.<br>
-14. A system of <font color="DarkGreen"><b>Sources:</b></font>, [<font color="DarkOrange"><b>unclear</b></font>], [<font color="DarkOrange"><b>gap</b></font>], [<font color="DarkOrange"><b>missing</b></font>], [<font color="DeepPink"><b>SYNOPSIS!</b></font>], and ...... that facilitate the references, warning, understanding and the reading.<br>
+14. A system of <font color="DarkGreen"><b>Sources:</b></font>, [<font color="DarkOrange"><b>unclear</b></font>], [<font color="DarkOrange"><b>gap</b></font>], [<font color="DarkOrange"><b>missing</b></font>], [<font color="DeepPink"><b>SYNOPSIS!</b></font>], and ...... facilitates the references, warning, understanding and the reading.<br>
 15. A uniform and comparative study of all transcripts.<br>
-16. An extensive data collection for a high accuracy of known dates and places (partially reflected in the Version 3 as well).<br>
+16. An extensive data collection for a high accuracy of dates and places (partially reflected in the Version 3 as well).<br>
 </p>
 
 <p>
