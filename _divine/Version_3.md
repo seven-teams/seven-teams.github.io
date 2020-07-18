@@ -5,6 +5,7 @@ permalink: /divine/2020/07/18
 tags:
   - Divine Message
 ---
+
 Dear Sahaja Yogis and Sahaja Yoginīs,  
 
 We would like to share with you all the up-dated <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been working on since Divine Message, Version 2 was posted on February 3, 2017. The pdf file <font color="blue">Divine Message, Version 2</font> is available at the link
