@@ -68,20 +68,20 @@ In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Q
 <font color="DarkGreen">V. Older and current database versions (the older versions ought to be used only for getting ideas how to correct the new versions or for comparisons)</font><br>
 <font color="blue"> Divine Message</font> <br>
 0. <a href="">current, Version 3</a> <br>
-1. <a href="https://drive.google.com/file/d/0B3izjZneKykscmg3cWRQR1E4dWM/view?usp=sharing">old, Version 2</a> <br>
-2. <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">old, Version 1</a><br>
+1. <a href="https://drive.google.com/file/d/0B3izjZneKykscmg3cWRQR1E4dWM/view?usp=sharing">older, Version 2</a> <br>
+2. <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">older, Version 1</a><br>
 <font color="blue"> Amruta</font> <br>
 3. <a href="https://www.amruta.org/transcripts-and-translations/">current</a><br>
-4. <a href="https://drive.google.com/file/d/1D2YJv38DcOU5fqCss8Co_eEmzBFpGAWX/view?usp=sharing">2020-0101</a><br>
-5. <a href="https://drive.google.com/file/d/1et_hDoht_X9RvCL3arXYyj_pjIXjRgM5/view?usp=sharing">2019-0111</a><br>
-6. <a href="https://drive.google.com/file/d/1tKEGId5BR0GE4ry57YNthXojlUVSgFGd/view?usp=sharing">2018-0129</a><br>
-7. <a href="https://drive.google.com/file/d/1bqjkzvHJGkpfmgt5dhEYAvom2o2LOcG2/view?usp=sharing">2017-0214</a><br>
-8. <a href="https://drive.google.com/file/d/14g0NeM1bE57AgakgFDgjOOnH4oiQ12CN/view?usp=sharing">2017-0111</a><br>
-9. <a href="https://drive.google.com/file/d/1UX7OLZZfoPKtsKUS_WnavbpuSsHyrX1z/view?usp=sharing">2016-0321</a><br>
+4. <a href="https://drive.google.com/file/d/1D2YJv38DcOU5fqCss8Co_eEmzBFpGAWX/view?usp=sharing">older (2020-0101)</a><br>
+5. <a href="https://drive.google.com/file/d/1et_hDoht_X9RvCL3arXYyj_pjIXjRgM5/view?usp=sharing">older (2019-0111)</a><br>
+6. <a href="https://drive.google.com/file/d/1tKEGId5BR0GE4ry57YNthXojlUVSgFGd/view?usp=sharing">older (2018-0129)</a><br>
+7. <a href="https://drive.google.com/file/d/1bqjkzvHJGkpfmgt5dhEYAvom2o2LOcG2/view?usp=sharing">older (2017-0214)</a><br>
+8. <a href="https://drive.google.com/file/d/14g0NeM1bE57AgakgFDgjOOnH4oiQ12CN/view?usp=sharing">older (2017-0111)</a><br>
+9. <a href="https://drive.google.com/file/d/1UX7OLZZfoPKtsKUS_WnavbpuSsHyrX1z/view?usp=sharing">older (2016-0321)</a><br>
 <font color="blue"> Nirmala Vidya Portal</font> <br>
 10. <a href="https://www.nirmalavidya.org/en">current</a><br>
 Sahaja Digital Library<br>
-11. <a href="https://library.sahajaworld.org/">Old</a><br>
+11. <a href="https://library.sahajaworld.org/">older</a><br>
 </p>
 
 <p>
