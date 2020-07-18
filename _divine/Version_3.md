@@ -59,7 +59,7 @@ In the last 4 years, the <font color="mediumvioletred">Database of Transcripts/Q
 11. A careful capitalization of certain words/expressions that are expressing Divine Poetry (such as Altar of Truth) or are often at the core of the Divine Message (such as Second Birth).<br>
 12. A system of footnotes, subsections, etc. that facilitate the presentation.<br>
 13. A system of interconnection/references between transcripts.<br>
-14. A system of <font color="DarkGreen"><b>Sources:</b></font>, [<font color="DarkOrange">unclear</font>], [<font color="DarkOrange"><b>gap</b></font>], [<font color="DarkOrange"><b>missing</b></font>], [<font color="DeepPink"><b>SYNOPSIS!</b></font>], and ...... that facilitate the references, warning, understanding and the reading (again the colors are an approximation due to the color limitations of this web-site).<br>
+14. A system of <font color="DarkGreen"><b>Sources:</b></font>, [<font color="DarkOrange"><b>unclear</b></font>], [<font color="DarkOrange"><b>gap</b></font>], [<font color="DarkOrange"><b>missing</b></font>], [<font color="DeepPink"><b>SYNOPSIS!</b></font>], and ...... that facilitate the references, warning, understanding and the reading (again the colors are an approximation due to the color limitations of this web-site).<br>
 15. A uniform and comparative study of all transcripts from the points of view of spiritual meanings, name identification, language usage, grammar, spelling, punctuation, expression, phraseology, poetry, etc.<br>
 16. An extensive data collection that facilitates a refined accuracy of known dates and places (partially reflected in the Version 3 as well).<br>
 </p>
