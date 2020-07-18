@@ -32,7 +32,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth who are particular about qual
 <font color="DarkGreen">II. Numerical Data.</font><br>
 <font color="blue"> Divine Message, 3:</font> <br>
 1. has 16,046 pages (an increment of 4,314 pages from Version 2);<br>
-2. contains 4,156 transcripts started (an increment of 1,099 events from Version 2);<br>
+2. contains 4,156 transcripts started (an increment of 1,099 from Version 2);<br>
 3. contains 124 figures (an increment of 22 figures from Version 2 which apparently overreported due to a typo 108 instead of 102 figures);<br>
 4. has a size of 190.4 mb.<br>
 </p>
