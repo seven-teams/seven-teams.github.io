@@ -12,14 +12,10 @@ Dear Sahaja Yogis and Sahaja Yoginīs,
 
 
 We would like to share with you all the up-dated <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been working on since Divine Message, Version 2 was posted on February 3, 2017. The pdf file <font color="blue">Divine Message, Version 2</font> is available at the link
-<a href="">Version 3</a>
-or can be downloaded directly here
-
-
-[Download pdf file here](http://seven-teams.github.io/files/Divine_Message_Version3.pdf)
+<a href="https://drive.google.com/file/d/1FBNZpjoi-JiY8I43sFDiNWRigD2my-jW/view?usp=sharing">Version 3</a>
 
 <p>
-Please kindly share it with all our brothers and sisters. 
+Please kindly share the link with all our brothers and sisters. 
 </p>
 
 <p>
@@ -40,7 +36,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 1. has 16,041 pages (an increment of 4,309 pages from Version 2);<br>
 2. contains 4,156 transcripts started (an increment of 1,099 from Version 2);<br>
 3. contains 124 figures (an increment of 22 figures from Version 2 which apparently overreported due to a typo 108 instead of 102 figures);<br>
-4. has a size of 190.4 mb.<br>
+4. has a size of 190.5 mb.<br>
 </p>
 
 <p>
@@ -66,21 +62,22 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 <p>
 <font color="DarkGreen">IV. Older and current database versions (the older versions ought to be used only for getting ideas how to correct the new versions or for comparisons)</font><br>
 <font color="blue"> Divine Message</font> <br>
-0. <a href="">current, Version 3</a> <br>
+0. <a href="https://drive.google.com/file/d/1FBNZpjoi-JiY8I43sFDiNWRigD2my-jW/view?usp=sharing">current, Version 3</a> <br>
 1. <a href="https://drive.google.com/file/d/0B3izjZneKykscmg3cWRQR1E4dWM/view?usp=sharing">older, Version 2</a> <br>
 2. <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">older, Version 1</a><br>
 <font color="blue"> Amruta</font> <br>
-3. <a href="https://www.amruta.org/transcripts-and-translations/">current</a><br>
-4. <a href="https://drive.google.com/file/d/1D2YJv38DcOU5fqCss8Co_eEmzBFpGAWX/view?usp=sharing">older (2020-0101)</a><br>
-5. <a href="https://drive.google.com/file/d/1et_hDoht_X9RvCL3arXYyj_pjIXjRgM5/view?usp=sharing">older (2019-0111)</a><br>
-6. <a href="https://drive.google.com/file/d/1tKEGId5BR0GE4ry57YNthXojlUVSgFGd/view?usp=sharing">older (2018-0129)</a><br>
-7. <a href="https://drive.google.com/file/d/1bqjkzvHJGkpfmgt5dhEYAvom2o2LOcG2/view?usp=sharing">older (2017-0214)</a><br>
-8. <a href="https://drive.google.com/file/d/14g0NeM1bE57AgakgFDgjOOnH4oiQ12CN/view?usp=sharing">older (2017-0111)</a><br>
-9. <a href="https://drive.google.com/file/d/1UX7OLZZfoPKtsKUS_WnavbpuSsHyrX1z/view?usp=sharing">older (2016-0321)</a><br>
+3. <a href="https://www.amruta.org/transcripts-and-translations/">current and future</a><br>
+4. <a href="https://drive.google.com/file/d/15tokWEN4HmOY7T5s2O48R4Z6GllylGDl/view?usp=sharing">current (2020-0717)</a><br>
+5. <a href="https://drive.google.com/file/d/1D2YJv38DcOU5fqCss8Co_eEmzBFpGAWX/view?usp=sharing">older (2020-0101)</a><br>
+6. <a href="https://drive.google.com/file/d/1et_hDoht_X9RvCL3arXYyj_pjIXjRgM5/view?usp=sharing">older (2019-0111)</a><br>
+7. <a href="https://drive.google.com/file/d/1tKEGId5BR0GE4ry57YNthXojlUVSgFGd/view?usp=sharing">older (2018-0129)</a><br>
+8. <a href="https://drive.google.com/file/d/1bqjkzvHJGkpfmgt5dhEYAvom2o2LOcG2/view?usp=sharing">older (2017-0214)</a><br>
+9. <a href="https://drive.google.com/file/d/14g0NeM1bE57AgakgFDgjOOnH4oiQ12CN/view?usp=sharing">older (2017-0111)</a><br>
+10. <a href="https://drive.google.com/file/d/1UX7OLZZfoPKtsKUS_WnavbpuSsHyrX1z/view?usp=sharing">older (2016-0321)</a><br>
 <font color="blue"> Nirmala Vidya Portal</font> <br>
-10. <a href="https://www.nirmalavidya.org/en">current</a><br>
+12. <a href="https://www.nirmalavidya.org/en">current</a><br>
 Sahaja Digital Library<br>
-11. <a href="https://library.sahajaworld.org/">older</a><br>
+12. <a href="https://library.sahajaworld.org/">older</a><br>
 </p>
 
 <p>
