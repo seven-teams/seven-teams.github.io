@@ -12,11 +12,8 @@ tags:
 <font color="DarkRed">"With Sahaja Yoga you can do many many things, but you must know what you can do. For that, <b>Kṛiṣhṇa is a very good example. He started Sahaj Culture. Culture, I'm saying – he didn't give Realization to anyone, but he gave the idea of Sahaj Culture.</b><br>
 ......<br>
 So He's the One who started Sahaj Culture. He said, "Let us enjoy." We must have enjoyment, Nirmala Ānand: pure joy. How do we have pure joy by? He had this rākhī bandhan by which, apart from your wife, everybody is your sister or mother.<br>
-<br>
 I must say it is quite true about Indians. Not in the north so much because of Islamic influence, but in the south it is so. In Maharashtra it is so.<br>
-<br>
 And then He started also this Holī, in which you should play with colors, maybe to get rid of the color barriers we have, maybe.<br>
-<br>
 In America it is a very good idea to play with colors and put some black on the Whites and some whites on the Black and they can see for themselves how stupid it is to fight in the name of color."</font><br>
 <font size="+0"><b>1996-0901 Śhrī Kṛiṣhṇa Pūjā, Hangar, Cabella Ligure, Italy
 </b></font>
