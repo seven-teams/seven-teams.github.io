@@ -108,7 +108,7 @@ So as a brother, Śhrī Kṛiṣhṇa supported Her, so the relationship between
 <font color="blue"><b>"When I see your Statue of Liberty, I think she is the Viṣhṇumāyā here standing.<br>
 She is the symbol of the sister, of Viṣhṇumāyā,<br>
 and if you have to have your liberty, have it – but liberty of wisdom, not of stupidity."</b></font><br>
-<font size="+0"><b>1987-0809 Śhrī Viṣhṇumāyā Pūjā, Pawling, NY, U.S.A.</b></font>
+<font size="+0"><b>1987-0809 Śhrī Viṣhṇumāyā Pūjā, Pawling, NY, U.S.A.</b></font><br>
 <font color="DarkRed">Auṃ Twameva sākshāt Śhrī Ātma-sākshātkār-pathā-Nirmala-karini sākshāt<br>
 Śhrī Ādi Śhakti Mātājī Shrī Nirmalā Devyai namo namaḥ!</font><br>
 O Divine Mother, You are verily the One who clears the path for Self-realization.<br>
