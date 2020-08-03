@@ -60,7 +60,7 @@ For example, every brother has a special feeling for a sister, and her chastity 
 <font color="DarkRed">"This Viṣhṇumāyā is the one who has helped
 you because <b>She is the Sister of Śhrī Kṛiṣhṇa</b>, and because this is the domain of Śhrī Kṛiṣhṇa, She came down here to help you.<br>
 Now She’s the Sister -- this must be understood very well. Now sisterly relation is a pure relationship."</font><br>
-<font size="+0"><b>1987-0809 Shri Vishnumaya Puja, Pawling, NY, U.S.A.</b></font><br>
+<font size="+0"><b>1987-0809 Śhrī Viṣhṇumāyā Pūjā, Pawling, NY, U.S.A.</b></font><br>
 <br>
 <font color="DarkRed"><b>Auṃ Twameva sākshāt Śhrī Pāvitrya dāyinī sākshāt<br>
 Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
@@ -133,12 +133,12 @@ Salutations to You!<br>
 </p>
 
 <p>
-<font color="blue"><b>Rākhī Bhajan Shri Krishna Puja</b></font><br>
+<font color="blue"><b>Rākhī Bhajan Śhrī Kṛiṣhṇa Pūjā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="blue"><b>Rākhī offered to Shri Mataji from America 1993-0815 Shri Krishna Puja, Dharma, Cabella</b></font><br>
+<font color="blue"><b>Rākhī offered to Śhrī Mātājī from America 1993-0815 Śhrī Kṛiṣhṇa Pūjā, Dharma, Cabella</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
