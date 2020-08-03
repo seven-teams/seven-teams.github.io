@@ -109,12 +109,12 @@ So as a brother, Śhrī Kṛiṣhṇa supported Her, so the relationship between
 She is the symbol of the sister, of Viṣhṇumāyā,<br>
 and if you have to have your liberty, have it – but liberty of wisdom, not of stupidity."</b></font><br>
 <font size="+0"><b>1987-0809 Śhrī Viṣhṇumāyā Pūjā, Pawling, NY, U.S.A.</b></font><br>
-<font color="DarkRed">Auṃ Twameva sākshāt Śhrī Ātma-sākshātkār-pathā-Nirmala-karini sākshāt<br>
-Śhrī Ādi Śhakti Mātājī Shrī Nirmalā Devyai namo namaḥ!</font><br>
+<font color="DarkRed"><b>Auṃ Twameva sākshāt Śhrī Ātma-sākshātkār-pathā-Nirmala-karini sākshāt<br>
+Śhrī Ādi Śhakti Mātājī Shrī Nirmalā Devyai namo namaḥ!</b></font><br>
 O Divine Mother, You are verily the One who clears the path for Self-realization.<br>
 Salutations to You!<br>
-<font color="DarkRed">Aum twameva sākshāt Shrī  Pratidina Pūjaniyā sākshāt<br> 
-Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</font><br>
+<font color="DarkRed"><b>Aum twameva sākshāt Shrī  Pratidina Pūjaniyā sākshāt<br> 
+Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 O Divine Mother, You are verily the One who is to be worshipped every day.<br> 
 Salutations to You!<br> 
 </p>
