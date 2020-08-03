@@ -126,19 +126,19 @@ Salutations to You!<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="blue"><b>Nirmalaa, Kiti Varnaavi Tujhiga Stuti</b></font><br>
+<font color="blue"><b>Nirmalā, Kiti Varnāvi Tujhiga Stuti</b></font><br>
 <it>Baba Mama, (March 1990): This is what the brother has written for the sister:<br>
 "O Nirmalā, my sister, how much should I praise You? Because You have given the human being the experience of God."</it><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
 <p>
-<font color="blue"><b>Rakhi Bhajan Shri Krishna Puja</b></font><br>
+<font color="blue"><b>Rākhī Bhajan Shri Krishna Puja</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="blue"><b>Rakhi offered to Shri Mataji from America 1993-0815 Shri Krishna Puja, Dharma, Cabella</b></font><br>
+<font color="blue"><b>Rākhī offered to Shri Mataji from America 1993-0815 Shri Krishna Puja, Dharma, Cabella</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
