@@ -127,8 +127,8 @@ Salutations to You!<br>
 
 <p>
 <font color="blue"><b>Nirmalā, Kiti Varnāvi Tujhiga Stuti</b></font><br>
-<it>Bābā Māmā (March 1990): This is what the brother has written for the sister:<br>
-"O Nirmalā, my sister, how much should I praise You? Because You have given the human being the experience of God."</it><br>
+<i>Bābā Māmā (March 1990): This is what the brother has written for the sister:<br>
+"O Nirmalā, my sister, how much should I praise You? Because You have given the human being the experience of God."</i><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
