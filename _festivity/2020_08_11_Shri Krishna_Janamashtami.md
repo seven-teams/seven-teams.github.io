@@ -10,16 +10,15 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"Now we have to realize that Sahaja Yoga has spread a lot and in all corners of the world people respect Sahaja Yoga, but until and unless Sahaja Yoga is completely manifested within us, the people who respect Sahaja Yoga will not continue to do so. That is why it is essential that we look inside of us. The nature of Śhrī Kṛiṣhṇa is that we look inside of us and see what are the things that put us in trouble. We should find that out. We should look towards ourselves, within ourselves and that is not such a difficult thing."</font><br>
+<font color="DarkGreen">"Now we have to realize that Sahaja Yoga has spread a lot and in all corners of the world people respect Sahaja Yoga, but until and unless Sahaja Yoga is completely manifested within us, the people who respect Sahaja Yoga will not continue to do so. That is why it is essential that we look inside of us. The nature of Śhrī Kṛiṣhṇa is that we look inside of us and see what are the things that put us in trouble. We should find that out. We should look towards ourselves, within ourselves and that is not such a difficult thing."</font><br>
 <font size="+0"><b>2003-0810 Śhrī Kṛiṣhṇa Pūjā (Hindi), Pune, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image475.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>image.png
-Auṃ Twameva sākṣhāt Śhrī Rādhā-Kṛishna sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
-<font color="DarkBlue"><b>O Divine Mother, You are verily Śhrī Rādhā-Kṛiṣhṇa. Salutations to You! </b></b>
+<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Rādhā-Kṛishna sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
+<font color="DarkBlue"><b>O Divine Mother, You are verily Śhrī Rādhā-Kṛiṣhṇa. Salutations to You! </b></font></b>
 </p>
 
 <p>
