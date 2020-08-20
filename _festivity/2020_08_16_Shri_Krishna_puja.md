@@ -23,22 +23,21 @@ tags:
 </p>
 
 <p>
-<font color="DarkRed">"<b>Shrī Kṛiṣhṇa, who was the greatest expression of God the Father, incarnated to open another horizon in human understanding of the power of Divine Love to watch the play of God’s power as a witness. By His Incarnation, human imagination was to become aware of the witnessing powers of God Almighty.</b> The Great Primordial Being (Virāta) was actually expressed through Him, and His advent enabled poets and philosophers to enter the intuitive realm of metaphysical perceptions. He employed the method, as king and diplomat, of Divine Diplomacy to explain the true nature of reality to people. The beauty of Divine Diplomacy is to achieve the spiritual betterment of people; its essence is to guide ignorant and foolish people towards the path of righteousness and religion by diplomatic ways, by clever handling or by illusion. In short, such people must be brought to the shores of Divine Love ‘by hook or by crook’. Shrī Kṛiṣhṇa’s life was spent with the masses, and thus His Incarnation gave rise to a mass spiritual movement. He appeared before Arjuna as the Virāta, and for the first time human eyes got a glimpse of the Primordial Being Himself.</font><br>
-<font size="+0"><b>The Book of Ādi Shakti, Chapter 2: Divine Incarnations – Ambassadors of God</b></font>
+<font color="DarkRed">"<b>Shrī Kṛiṣhṇa, who was the greatest expression of God the Father</b>, incarnated to open another horizon in human understanding of the power of Divine Love to watch the play of God’s power as a witness. <b>By His Incarnation, human imagination was to become aware of the witnessing powers of God Almighty.</b> The Great Primordial Being (Virāta) was actually expressed through Him, and His advent enabled poets and philosophers to enter the intuitive realm of metaphysical perceptions. He employed the method, as king and diplomat, of Divine Diplomacy to explain the true nature of reality to people. The beauty of Divine Diplomacy is to achieve the spiritual betterment of people; its essence is to guide ignorant and foolish people towards the path of righteousness and religion by diplomatic ways, by clever handling or by illusion. In short, such people must be brought to the shores of Divine Love ‘by hook or by crook’. Shrī Kṛiṣhṇa’s life was spent with the masses, and thus His Incarnation gave rise to a mass spiritual movement. He appeared before Arjuna as the Virāta, and for the first time human eyes got a glimpse of the Primordial Being Himself.</font><br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations – Ambassadors of God</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image485.png" /></div>
 
 <p style="text-align:center;">
-<font color="blue">"Ādi Viṣhṇu’s eighth form was as Shrī Kṛiṣhṇa during the Dwapara Yuga, and again Ādi Shakti took three forms.<br> 
-<b>Mahākālī lived for a very short time as Viṣhṇumāyā</b>, the infant sister of Shrī Kṛiṣhṇa.<br>
-She was actually born as the daughter of Yeshodā, Shrī Kṛiṣhṇa’s foster mother, and was killed by the demon Kamsa. 
-She later took birth as Draupadi, wife of the Pandavas.<br> 
-<b>Yeshodā was Herself an Incarnation of Mahāsaraswatī</b><br> 
-<b>As Mahālakṣhmī She took two forms, Rādhā and Rukminī.</b><br> 
+<font color="blue">"Ādi Viṣhṇu’s eighth form was as Shrī Kṛiṣhṇa during the Dwapara Yuga, and again Ādi Śhakti took three forms.</font><br> 
+<font color="blue"><b>Mahākālī lived for a very short time as Viṣhṇumāyā</b>, the infant sister of Shrī Kṛiṣhṇa.</font><br>
+<font color="blue">She was actually born as the daughter of Yeshodā, Shrī Kṛiṣhṇa’s foster mother, and was killed by the demon Kamsa. She later took birth as Draupadī, wife of the Pandavas.<br> 
+<b>Yeshodā was Herself an Incarnation of Mahāsaraswatī</b></font><br> 
+<font color="blue"><b>As Mahālakṣhmī She took two forms, Rādhā and Rukminī.</b><br> 
 'Rā'' means power or energy and 'dhā'' means sustenance, so the name 'Rādhā' means the one who sustains the power.<br> 
 <b>As Rukminī She became Queen to Shrī Kṛiṣhṇa, the King in Dwaraka.<b>"</font><br>
-<font size="+0"><b>The Book of Ādi Shakti, Chapter 2: Divine Incarnations – Ambassadors of God</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations – Ambassadors of God</b></font>
 </p>
 
 <p>
