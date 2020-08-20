@@ -3,7 +3,7 @@ title: '2020 Celebrating Holikā Dahana on Full Moon Day (Holī Pūrṇimā)'
 date: 2020-03-09
 permalink: /festivity/2020/03/09
 tags:
-  - Holika Dahan
+  - Holika Dahana
   - Holi
 ---
 

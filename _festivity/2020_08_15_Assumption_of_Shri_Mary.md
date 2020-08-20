@@ -5,6 +5,7 @@ permalink: /festivity/2020/08/15
 tags:
   - Assumption
   - Mother Mary
+  - India
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

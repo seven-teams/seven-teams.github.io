@@ -4,7 +4,7 @@ date: 2020-06-06
 permalink: /festivity/2020/06/06
 tags:
   - Evening Program
-  - Śhrī Ādi Śhakti Puja
+  - Shri Adi Shakti Puja
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
