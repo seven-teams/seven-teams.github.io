@@ -32,7 +32,7 @@ Now, the seed that he has sown, is the seed of spirituality. It is Śhrī Kṛis
 <div style="text-align: center"><img src="/images/image476.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkBlue"><b>Śhrī Kṛiṣhṇa resides in our Viśhuddhi chakra.<br>
+<font color="blue"><b>Śhrī Kṛiṣhṇa resides in our Viśhuddhi chakra.<br>
 In the center, He resides as Śhrī Kṛiṣhṇa.</b></font><br>
 <font size="+0"><b>1986-0823 Śhrī Kṛiṣhṇa Pūjā, Schwarzsee (2k kms SE of Fribourg), Switzerland</b></font>
 </p>
@@ -45,7 +45,7 @@ In the center, He resides as Śhrī Kṛiṣhṇa.</b></font><br>
 <div style="text-align: center"><img src="/images/image477.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"Śhrī Kṛiṣhṇa did little mischief with Indra.<br> 
+<font color="DarkRed">"Śhrī Kṛiṣhṇa did little mischief with Indra.<br> 
 Indra, who is a God, or you can call semi-God, for looking after the rain. So, Indra got very angry.
 You see all such semi-Gods are very sensitive people, at the smallest thing they get angry and irritated and they start using their powers to express their anger. So he started pouring rain on all the gopas and Śhrī Kṛiṣhṇa, who were looking after the cows. And the rain was so heavy that they thought that the whole land will be completely submerged. So Indra was very happy to spoil the game of Śhrī Kṛiṣhṇa. And, he thought he was very successful.<br> 
 <b>So, Śhrī Kṛiṣhṇa lifted a mountain on His finger</b>,<br> 
@@ -66,7 +66,7 @@ and all these people who were getting drowned, went under that mountain.<br>
 <p style=" text-align:center;">
 <font color="DarkRed"><b>"Śhrī Kṛiṣhṇa is very fond of ghee and butter.</b><br> 
 So when you rub My Feet with say butter, your Viśhuddhi will improve, you know that."</font><br>
-<font size="+0"><b>1980-0927 Talk to Sahaja Yogis, 44 Chelsham Road, Clapham, London, UK</b></font>
+<font size="+0"><b>1980-0927 Talk to Sahaja Yogis, 44 Chelsham Road, Clapham, London, UK</b></font><br>
 <font color="blue">Auṃ Twameva sākṣhāt Śhrī Ghṛuta-priya sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</font><br>
 He is fond of ghee (clarified butter)<br>
 <font color="DarkSlateBlue"><font size="+0">Krishna Jinka Nam. Hai</font></font><br>
@@ -100,7 +100,7 @@ Please enlighten our brains completely so we are able to become Sakshi-swarupa, 
 <p>
 <font color="DarkRed">"...... Great quality of Yogeśhwara was complete discretion power built-in. So He knew who was a devil and who was not, who is good who is bad, who is possessed who is not possessed, who is innocent who is not. This was built-in within Him, this power of complete discrimination.<br>
 And He had a capacity more expressing His witness-hood, as a Sākṣhi. He had the capacity, I mean He was a Sākṣhi Himself. I should say this way is easier to understand. He was a Sākṣhi, He had the capacity of witnessing the whole world as a play.<br>
-...... Now this capacity in Him to witness has to be seen in every Yogi."</font><br>
+...... <b>Now this capacity in Him to witness has to be seen in every Yogi.</b>"</font><br>
 <font size="+0"><b>1983-0828 Śhrī Kṛiṣhṇa Pūjā, Garden, Āśhram, 1 Chemin du Joran, Tannay (13 kms N of Geneva), Switzerland</b></font>
 </p>
 
@@ -115,7 +115,7 @@ And He had a capacity more expressing His witness-hood, as a Sākṣhi. He had t
 <p style=" text-align:center;">
 <font color="DarkGreen"><b>"You become the Dharma of Virāṭ.<br>
 Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa? Is collectivity."</b></font><br>
-<font size="+0"><b>1986-0823 Śhrī Kṛiṣhṇa Pūjā, Schwarzsee (2k kms SE of Fribourg), Switzerland</b></font>
+<font size="+0"><b>1986-0823 Śhrī Kṛiṣhṇa Pūjā, Schwarzsee (2k kms SE of Fribourg), Switzerland</b></font><br>
 <font color="blue">Auṃ Twameva sākṣhāt Śhrī Samuh’ānanda Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</font><br>
 <font size="+0">Kṛiṣhṇa Govinda</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
@@ -133,7 +133,7 @@ Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Jai Radha Madhav</b></font><br>
+<font color="green"><b>Jai Rādhā Mādhav</b></font><br>
 <a href="https://www.youtube.com/watch?v=HbA1jA7yMCA"> video</a><br>
 </p>
 
@@ -155,11 +155,6 @@ Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa
 <p>
 <font color="green"><b>Āratī (1987-0816 Śhrī Kṛiṣhṇa Pūjā)</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
-</p>
-
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
 </p>
 
 <p>
