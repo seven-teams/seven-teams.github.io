@@ -26,7 +26,8 @@ tags:
 </p>
 
 <p>
-<font color="DarkRed">"There’s so much can be said about this Mahalakshmi­-tattwa; you are all blessed so much by that. And so today we remember Her great incarnation as Maria, who was very great because She had to bear terrible pain in Her heart with all Her powers that She had, She was a tremendously powerful Lady. But despite that, She bore all the tortures of Christ upon Her heart. And it was Her order and Her desire that Christ had to crucify  Himself so that people could be resurrected. And sometimes Indians ask Me what did She do to be a Mahalakshmi, what did She achieve? I said: "With all Her powers to bear it. To play the drama it must be too much."<br>
+<font color="DarkRed">"There's so much can be said about this Mahālakṣhmī Tattwa; you are all blessed so much by that.<br>
+And so today we remember Her Great Incarnation as Maria, who was very great because She had to bear terrible pain in Her heart with All Her Powers that She had, She was a tremendously powerful Lady. But despite that, She bore all the tortures of Christ upon Her heart. And it was Her order and Her desire that Christ had to crucify Himself so that people could be resurrected. And sometimes Indians ask Me, ``What did She do to be a Mahālakṣhmī, what did She achieve?" I said: ``With All Her Powers to bear it. To play the drama it must be too much."<br>
 <b>So She is the redeemer and She connects you to God."</b></font><br>
 <font size="+0"><b>1984-0908 Śhrī Mary Mahālakṣhmī Pūjā, Münich, Germany</b></font>
 </p>
