@@ -4,7 +4,7 @@ date: 2020-08-11
 permalink: /festivity/2020/08/11
 tags:
   - Shri Krishna Puja
-  - Shri Krishna Janmashttami
+  - Shri Krishna Janmashtami
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

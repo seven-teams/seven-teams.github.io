@@ -76,12 +76,12 @@ So when you surrender ego, what do you do actually is to say that, “I’m not 
 <div style="text-align: center"><img src="/images/image487.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"Your will, will be respected throughout. Every other thing can be looked after except
+<font color="blue">"Your will will be respected throughout. Every other thing can be looked after except
 for one that <b>you should be a perfect machine, a perfect channel, a perfect flute for My Lord to play that tune of love.<br> 
 It is for you to clear out all your seven holes.<br>  
 It is for you to clear out your hollowness and to be complete within yourself and He knows his job.<br> 
 He is the artist. But you are the instruments.</b><br> 
-And the harmonious music from so many souls can fill the ears of these evil people and can penetrate into their heart and put love into them and maybe that they themselves will give up their evil ways and fall at the feet of love."</font><br>
+And the harmonious music from so many souls can fill the ears of these evil people and can penetrate into their heart and put love into them and maybe that they themselves will give up their evil ways and fall at the feet of Love."</font><br>
 <font size="+0"><b>1973-0828 Śhrī Kṛiṣhṇa Pūjā,  Bharatiya Vidyā Bhavan, Kulapati K.M. Munshi Mārg, 3rd Floor, Gita Mandir Hall, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
