@@ -18,7 +18,7 @@ tags:
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Rādhā-Kṛishna sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
-<font color="DarkBlue"><b>O Divine Mother, You are verily Śhrī Rādhā-Kṛiṣhṇa. Salutations to You! </b></font></b>
+<font color="blue"><b>O Divine Mother, You are verily Śhrī Rādhā-Kṛiṣhṇa. Salutations to You! </b></font></b>
 </p>
 
 <p>
@@ -50,9 +50,9 @@ Indra, who is a God, or you can call semi-God, for looking after the rain. So, I
 You see all such semi-Gods are very sensitive people, at the smallest thing they get angry and irritated and they start using their powers to express their anger. So he started pouring rain on all the gopas and Śhrī Kṛiṣhṇa, who were looking after the cows. And the rain was so heavy that they thought that the whole land will be completely submerged. So Indra was very happy to spoil the game of Śhrī Kṛiṣhṇa. And, he thought he was very successful.<br> 
 <b>So, Śhrī Kṛiṣhṇa lifted a mountain on His finger</b>,<br> 
 and all these people who were getting drowned, went under that mountain.<br> 
-<b>This is Śhrī Kṛiṣhṇa’s style.</b>"</b></font><br>
+<b>This is Śhrī Kṛiṣhṇa’s style.</b>"</font><br>
 <font size="+0"><b>1996-0901 Śhrī Kṛiṣhṇa Pūjā, Hangar, Cabella Ligure, Italy</b></font>
-<font color="DarkBlue"><b>Auṃ Twameva sākṣhāt Śhrī Govardhana-dhara sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br> 
+<font color="blue"><b>Auṃ Twameva sākṣhāt Śhrī Govardhana-dhara sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br> 
 <b>The One who lifted up Mount Govardhan to shelter the villagers of Gokul from the terrible wrath of Indra’s thunderstorm</b>
 </p>
 
@@ -94,7 +94,7 @@ And this is the best state which you call as Sākṣhi Swarūpatva, which you ac
 You give the integration between brain and heart that makes it easy to have a divine and dharmic life. 
 You are the vehicle for understanding Dharma and preserving society.<br>
 Please enlighten our brains completely so we are able to become Sakshi-swarupa, witnesses to the play that allows problems to be solved.</font><br>
-<b>Auṃ Twameva sākṣhāt Śhrī Yogeśhwara sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b>
+<font color="blue"><b>Auṃ Twameva sākṣhāt Śhrī Yogeśhwara sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font>
 </p>
 
 <p>
@@ -138,7 +138,7 @@ Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa
 </p>
 
 <p>
-<font color="green"><b>Yoga Dayani Mā</b></font><br>
+<font color="green"><b>Yoga Dāyinī Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=2DGaLsROulg">video</a>
 </p>
 

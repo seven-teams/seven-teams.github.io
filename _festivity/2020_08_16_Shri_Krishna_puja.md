@@ -69,7 +69,7 @@ tags:
 
 <p style="color:blue; text-align:center;">
 <b>Auṃ Twameva sākṣhāt Śhrī Yashodā, Śhrī Viṭṭhala-Rukminī Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ,<br>
-O Divine Mother Śhrī Mātājī, verily You are Shri Yashodā & Shrī Vithala-Rukminī  
+O Divine Mother Śhrī Mātājī, verily You are Śhri Yashodā and Śhrī Vithala-Rukminī  
  Salutations to You!</b><br>
 </p>
 
