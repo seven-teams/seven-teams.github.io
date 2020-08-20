@@ -36,7 +36,7 @@ tags:
 <b>Yeshodā was Herself an Incarnation of Mahāsaraswatī</b></font><br> 
 <font color="blue"><b>As Mahālakṣhmī She took two forms, Rādhā and Rukminī.</b><br> 
 'Rā'' means power or energy and 'dhā'' means sustenance, so the name 'Rādhā' means the one who sustains the power.<br> 
-<b>As Rukminī She became Queen to Shrī Kṛiṣhṇa, the King in Dwaraka.<b>"</font><br>
+<b>As Rukminī She became Queen to Shrī Kṛiṣhṇa, the King in Dwaraka.</b>"</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations – Ambassadors of God</b></font>
 </p>
 
