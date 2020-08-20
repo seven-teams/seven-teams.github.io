@@ -18,7 +18,7 @@ tags:
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Rādhā-Kṛishna sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
-<font color="blue"><b>O Divine Mother, You are verily Śhrī Rādhā-Kṛiṣhṇa. Salutations to You! </b></font></b>
+<font color="blue"><b>O Divine Mother, You are verily Śhrī Rādhā-Kṛiṣhṇa. Salutations to You! </b></font>
 </p>
 
 <p>
