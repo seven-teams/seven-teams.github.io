@@ -1,5 +1,5 @@
 ---
-title: '2019 Celebrating Birthday of Shri Ganesha: Shri Vinayaka Chaturthi'
+title: '2019 Celebrating Birthday of Śhrī Gaṇeśha: Śhrī Vināyaka Chaturthī'
 date: 2019-02-08
 permalink: /festivity/2019/0208
 tags:

@@ -1,5 +1,5 @@
 ---
-title: '2019 Celebrating Ganesha Chaturthi'
+title: '2019 Celebrating Śhrī Gaṇeśha Chaturthī'
 date: 2019-09-02
 permalink: /festivity/2019/0902
 tags:
