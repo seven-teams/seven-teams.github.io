@@ -17,7 +17,7 @@ Innocence has a great effect on our character and on our sense of chastity. Actu
 <font size="+0"><b>2002-0914 Śhrī Gaṇeśha Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image488.png" /></div>
+<div style="text-align: center"><img src="/images/image489.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">"Śhrī Gaṇeśha is the embodiment of the existing reality of Paramachaitanya, or Śhrī Gaṇeśha is the manifestation of the invisible Paramachaitanya.<br>
@@ -44,7 +44,7 @@ It could be very temporary with people who are not yet adjusted to the new metho
 <font size="+0"><b>1989-0808 Śhrī Gaṇeśha Pūjā, Salle Oles Congres, Les Diablerets, Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image489.png" /></div>
+<div style="text-align: center"><img src="/images/image490.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">"So in Sahaja Yoga everything takes place in a sahaj way when you completely accept Śhrī Gaṇeśha and accept that this Śhakti should come to us.<br>
@@ -64,7 +64,7 @@ So it is only [with] Śhrī Gaṇeśha’s blessings that we really enjoy everyt
 <font size="+0"><b>2002-0914 Śhrī Gaṇeśha Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image490.png" /></div>
+<div style="text-align: center"><img src="/images/image491.png" /></div>
 
 <p>
 <font color="DarkGreen">"In the Sahaja Yoga system, if we say that Gaṇeśha is the one who gives us, <b>He's the Adhyakṣha, means He is the, I call Him as the Chancellor of the University.</b><br> 
@@ -90,7 +90,7 @@ You got your Realization without any effort, I should say. It was Sahaj."</font>
 <font size="+0"><b>1995-0910 Śhrī Gaṇeśha Pūjā,  Hangar, Cabella Ligure, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image491.png" /></div>
+<div style="text-align: center"><img src="/images/image492.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkGreen">"Only in your Āratī, in Marathi, of Śhrī Gaṇeśha, they say that, “At the time when I am getting my Realization you must save me.” That’s the only thing they ask, "At the time of my Resurrection you must save me." It does not say that, 'At the time of my Resurrection you protect me,' no! "You save me."<br>
@@ -169,7 +169,7 @@ Victory to Śhrī Gaṇeśha, Australian song book, Hindi supplement page 66)<br
 </p>
 %pr
 
-<div style="text-align: center"><img src="/images/image492.png" /></div>
+<div style="text-align: center"><img src="/images/image493.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkGreen"><b>"So today’s Pūjā is specially to be done with a prayer in your heart that:<br>
