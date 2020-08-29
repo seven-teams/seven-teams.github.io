@@ -104,7 +104,7 @@ You offer lots of tender love and blessings<br>
 <b>Sarvangi Sunder Uti Shendurachi</b><br>
 You have red paste on Your body<br>
 <b>Kanthi Jhalke Mal Mukta Falanchi</b><br>
-and wear a pearl necklace<br>
+and wear a pearl necklace</font><br>
 Gaṇapati Āratī in Marathi<br>
 <a href="https://www.youtube.com/watch?time_continue=63&v=UVy3jqPOUrI&feature=emb_logo">video</a>
 </p>
