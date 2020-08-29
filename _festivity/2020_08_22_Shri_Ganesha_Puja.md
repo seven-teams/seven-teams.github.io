@@ -126,7 +126,7 @@ Gaṇapati Āratī in Marathi<br>
 </p>
 
 <p>
-<font color="green"><b>ai Jai Bolo Nirmal Gaṇeśha Ki</b></font><br>
+<font color="green"><b>Jai Jai Bolo Nirmal Gaṇeśha Kī</b></font><br>
 Victory to Śhrī Gaṇeśha, Australian song book, Hindi supplement page 66)<br>
 <a href="https://www.youtube.com/watch?v=9r2eVWLg4mo">video</a>
 </p>
