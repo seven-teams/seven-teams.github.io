@@ -176,7 +176,7 @@ Gaṇapati Āratī in Marathi<br>
 Let all these hypocritical things, all these conditionings and all these wrong ideas we have or all the wrong life we have had, should just disappear like thin air, and let the beautiful moonlight of your soothing qualities of innocence be manifested through us.'</i><br>
 Let us manifest these qualities. This is what is to be asked."</b></font><br>
 <font size="+0"><b>1990-0826 Shrī Gaṇesha Pūjā, Lanersbach, Austria</b></font><br>
-<a href="">video</a><br>
+<a href="https://www.youtube.com/watch?v=HJzi8uu62lc&index=6&list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1">video</a><br>
 <br>
 <font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Gaṇeśha sākshāt<br>
 Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
