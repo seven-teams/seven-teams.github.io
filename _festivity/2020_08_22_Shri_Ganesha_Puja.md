@@ -106,7 +106,7 @@ You have red paste on Your body<br>
 <b>Kanthi Jhalke Mal Mukta Falanchi</b><br>
 and wear a pearl necklace</font><br>
 Gaṇapati Āratī in Marathi<br>
-<a href="https://www.youtube.com/watch?time_continue=63&v=UVy3jqPOUrI&feature=emb_logo">video</a>
+<a href="https://www.youtube.com/watch?time_continue=00&v=UVy3jqPOUrI&feature=emb_logo">video</a>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
