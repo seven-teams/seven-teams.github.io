@@ -52,7 +52,7 @@ As such Śhrī Gaṇeśha’s place is there on every chakra.<br>
 That’s why I always tell you that on every chakra, a Vice Chancellor is seated.<br>
 Chancellor Sir is seated and till the time He certifies, Kuṇḍalinī will not rise. And He works on every chakra."</font><br>
 <font size="+0"><b>1991-1224 Śhrī Gaṇeśha and Christmas Pūjā (Hindi+English), Gaṇapatīpuḷe, Maharashtra, India</b></font>
-<font color="DarkBlue"><b>Sumukhash-chai'ka-dantash-cha Kapilo Gaja-karnakah<br>
+<font color="blue"><b>Sumukhash-chai'ka-dantash-cha Kapilo Gaja-karnakah<br>
 Lambodarsha-cha Vikato Vighna-nasho Ganadhipah<br>
 Dhumra-ketur-Ganadhyaksho Bhala-chandro-Gajananah</b></font><br>
 <a href="https://www.youtube.com/watch?v=PSSlZT0ddcM">video</a>
