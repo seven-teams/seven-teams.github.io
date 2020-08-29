@@ -26,7 +26,7 @@ Unless and until nirmalatā [immaculacy] exists in every chakra, only holiness s
 Even if She rises, She keeps falling each time. <b>The relationship between Kuṇḍalinī and Śhrī Gaṇeśha is that of Mother and Child.</b>"</font><br>
 <font size="+0"><b>1993-1205 Śhrī Gaṇeśha Pūjā (Hindi), New Delhi, India</b></font><br>
 <font color="DarkRed"><b>Chaturthī is the day He is established, Gaṇeśha is established on this Chaturthī</b></font><br>
-<font size="+0"><b>1982-0822 Śhrī Gaṇeśha Pūjā, Switzerland</b></font>
+<font size="+0"><b>1982-0822 Śhrī Gaṇeśha Pūjā, Switzerland</b></font><br>
 <font color="blue"><font size="+0">Invocation To Śhrī Gaṇeśha</font></font><br>
 <a href="https://www.youtube.com/watch?v=x0HsmcCWc_8">video</a>
 </p>
