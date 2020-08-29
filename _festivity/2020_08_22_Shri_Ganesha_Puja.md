@@ -116,7 +116,7 @@ Gaṇapati Āratī in Marathi<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Śhrī Gaṇeśha Atharva Sheersha</b></font><br>
+<font color="green"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
@@ -137,7 +137,7 @@ Gaṇapati Āratī in Marathi<br>
 </p>
 
 <p>
-<font color="green"><b>Śhrī Gaṇeśha Pancha Ratnam</b></font><br>
+<font color="green"><b>Śhrī Gaṇeśha Pañcha Ratnam</b></font><br>
 (Names of Śhrī Gaṇeśha, Australian song book, Sanskrit song 23)<br>
 <a href="https://www.youtube.com/watch?v=TxotrB3Gzo0">video</a> 
 </p>
@@ -175,7 +175,7 @@ Gaṇapati Āratī in Marathi<br>
 <i>'Shrī Gaṇesha, please be kind and merciful and forgiving that You manifest within ourselves.<br>
 Let all these hypocritical things, all these conditionings and all these wrong ideas we have or all the wrong life we have had, should just disappear like thin air, and let the beautiful moonlight of your soothing qualities of innocence be manifested through us.'</i><br>
 Let us manifest these qualities. This is what is to be asked."</b></font><br>
-<font size="+0"><b>990-0826 Shrī Gaṇesha Pūjā, Lanersbach, Austria</b></font><br>
+<font size="+0"><b>1990-0826 Shrī Gaṇesha Pūjā, Lanersbach, Austria</b></font><br>
 <a href="">video</a><br>
 <br>
 <font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Gaṇeśha sākshāt<br>
