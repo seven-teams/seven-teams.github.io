@@ -165,9 +165,8 @@ Victory to Śhrī Gaṇeśha, Australian song book, Hindi supplement page 66)<br
 
 <p>
 <font color="green"><b>Āratī and the Three Great Mantras</b></font><br>
-<a href="https://www.youtube.com/watch?v=a89XDrTOInY">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <div style="text-align: center"><img src="/images/image493.png" /></div>
 
