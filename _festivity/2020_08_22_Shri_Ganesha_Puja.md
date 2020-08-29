@@ -24,7 +24,7 @@ Innocence has a great effect on our character and on our sense of chastity. Actu
 And He establishes this perception on every chakra.<br>
 Unless and until nirmalatā [immaculacy] exists in every chakra, only holiness shines from every chakra, rising of the Kuṇḍalinī is highly improbable.<br> 
 Even if She rises, She keeps falling each time. <b>The relationship between Kuṇḍalinī and Śhrī Gaṇeśha is that of Mother and Child.</b>"</font><br>
-<font size="+0"><b>1993-1205 Śhrī Gaṇeśha Pūjā (Hindi), New Delhi, India</b></font>
+<font size="+0"><b>1993-1205 Śhrī Gaṇeśha Pūjā (Hindi), New Delhi, India</b></font><br>
 <font color="DarkRed"><b>Chaturthī is the day He is established, Gaṇeśha is established on this Chaturthī</b></font><br>
 <font size="+0"><b>1982-0822 Śhrī Gaṇeśha Pūjā, Switzerland</b></font>
 <font color="blue"><font size="+0">Invocation To Śhrī Gaṇeśha</font></font><br>
