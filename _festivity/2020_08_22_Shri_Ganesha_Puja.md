@@ -93,7 +93,7 @@ You got your Realization without any effort, I should say. It was Sahaj."</font>
 <div style="text-align: center"><img src="/images/image492.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkGreen">"Only in your Āratī, in Marathi, of Śhrī Gaṇeśha, they say that, “At the time when I am getting my Realization you must save me.” That’s the only thing they ask, "At the time of my Resurrection you must save me." It does not say that, 'At the time of my Resurrection you protect me,' no! "You save me."<br>
+<font color="DarkGreen">"<b>Only in your Āratī, in Marathi</b>, of Śhrī Gaṇeśha, they say that, “At the time when I am getting my Realization you must save me.” That’s the only thing they ask, "At the time of my Resurrection you must save me." It does not say that, 'At the time of my Resurrection you protect me,' no! "You save me."<br>
 Because He’s the one who is sitting on every chakra like a vice-chancellor of the university.<br>
 Even if you have Viṣhṇu on your side, Mahādeva on your side, but if Śhrī Gaṇeśha is there sitting and He says, ‘No, not his ascent,’ it doesn’t work out, it’s very difficult."</font><br>
 <font size="+0"><b>1997-0907 Śhrī Gaṇeśha Pūjā, Hangar, Cabella Ligure, Italy</b></font><br>
