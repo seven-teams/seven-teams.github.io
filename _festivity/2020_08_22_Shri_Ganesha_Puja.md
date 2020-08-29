@@ -66,7 +66,7 @@ So it is only [with] Śhrī Gaṇeśha’s blessings that we really enjoy everyt
 
 <div style="text-align: center"><img src="/images/image491.png" /></div>
 
-<p>
+<p style="text-align:center;">
 <font color="DarkGreen">"In the Sahaja Yoga system, if we say that Gaṇeśha is the one who gives us, <b>He's the Adhyakṣha, means He is the, I call Him as the Chancellor of the University.</b><br> 
 He is the one who goes on degree to us, 'Now, you have crossed this chakra, that chakra, that chakra.'<br> 
 And He helps us to know that what state we are in.<br>  
