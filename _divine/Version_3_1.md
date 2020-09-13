@@ -19,7 +19,7 @@ The only difference: the fractional versions will not list the number of synopsi
 The pdf file <font color="blue">Divine Message, Version 3.1</font>  is available at the 
 <a href="https://drive.google.com/file/d/1ybg2HMKLypOZ2SCgUJi6vJsxEAY7hd_3/view?usp=sharing"> link </a>
 
-Please kindly share it with all our brothers and sisters. This can be done by either sharing this link or by downloading the file and then e-mailing it as an attachment.
+Please kindly share it with all our brothers and sisters. This can be done by either sharing this link or by downloading the file and then emailing it as an attachment.
 
 For older versions of Divine Message and of other databases, please see <a href="https://seven-teams.github.io/divine/2020/07/18"> Version 3 </a>. For another current database, please see <a href="https://drive.google.com/file/d/1NrkCKDF77RnUIuhpRWUDIHjmFhgKCSYm/view?usp=sharing">Nirmala Vidya Amruta (2020-0911)</a>
 
