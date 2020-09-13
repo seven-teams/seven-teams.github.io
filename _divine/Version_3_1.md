@@ -21,6 +21,11 @@ The pdf file <font color="blue">Divine Message, Version 3.1</font>  is available
 
 Please kindly share it with all our brothers and sisters. This can be done by either sharing this link or by downloading the file and then emailing it as an attachment.
 
+<p>
+If you are part of some project which has a public platform (such as a web-site) and some Sahaja Yogis or Sahaja Yoginīs involved in that project would like to use parts of the Divine Message (any version), please kindly consider finding a way to refer on the public platform to<br>
+https://seven-teams.github.io/divine
+</p>
+
 For older versions of <font color="blue">Divine Message</font> and of other databases, please see <a href="https://seven-teams.github.io/divine/2020/07/18"> Version 3 </a>. For another current database, please see <a href="https://drive.google.com/file/d/1NrkCKDF77RnUIuhpRWUDIHjmFhgKCSYm/view?usp=sharing">Nirmala Vidya Amruta (2020-0911)</a>
 
 Jay Śhrī Mātājī!
