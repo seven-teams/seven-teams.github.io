@@ -12,7 +12,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,
 
 First, we would like to thank many of you for your support, encouragement and direct contributions. 
 
-We will continue to have whole integers versions twice a year (January and July, with Version 4 to be shared in January 2021), but in between we would like to share as well fractional versions. The fractional versions (to be named as Version 3.1, Version 3.2, etc.) will be at least 16 days apart and will be shared as soon as at least 50 new pages but not more than 200 new pages have been added to the <font color="mediumvioletred">Database of Transcripts/Quotes</font>.
+We will continue to have whole integers versions twice a year (January and July, with Version 4 to be shared in January 2021), but in between we would like to share as well fractional versions. The fractional versions (to be named as Version 3.1, Version 3.2, etc.) will be at least 16 days apart and will be shared once at least 50 new pages but not more than 200 new pages have been added to the <font color="mediumvioletred">Database of Transcripts/Quotes</font>.
 
 The only difference: the fractional versions will not list the number of synopses, the  number of versions per type and the number of transcripts in other languages: all these, being computed manually, will be made available only in the whole integers versions (on their first pages). 
 
