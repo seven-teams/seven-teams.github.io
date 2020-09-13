@@ -6,15 +6,17 @@ tags:
   - Divine Message
 ---
 
+<p>
 Dear Sahaja Yogis and Sahaja Yoginīs,
+</p>
 
-First we would like to thank all of you for your support, encouragements or direct contributions. 
+First, we would like to thank all of you for your support, encouragement or direct contributions. 
 
-We will continue to have whole integers versions twice a year (January and July, with Version 4 to be shared on January 2021), but in between we would like to share as well frational versions. The fractional versions (to be numbered as Version 3.1, Version 3.2, etc.) will be at least 16 days apart and will be shared as soon as at least 50 new pages but not more than 200 new pages have been added to the <font color="mediumvioletred">Database of Transcripts/Quotes</font>.
+We will continue to have whole integers versions twice a year (January and July, with Version 4 to be shared in January 2021), but in between we would like to share as well fractional versions. The fractional versions (to be named as Version 3.1, Version 3.2, etc.) will be at least 16 days apart and will be shared as soon as at least 50 new pages but not more than 200 new pages have been added to the <font color="mediumvioletred">Database of Transcripts/Quotes</font>.
 
-The only difference: the fractional versions will not list the number of synopsis, the  number of versions per type and the number of transcripts in other languages: all these, being computed manually, will be made available only in the whole integers versions. 
+The only difference: the fractional versions will not list the number of synopsis, the  number of versions per type and the number of transcripts in other languages: all these, being computed manually, will be made available only in the whole integers versions (on their first pages). 
 
-The pdf file <font color="blue">Divine Message, Version 3.1</font>  is available at the link
+The pdf file <font color="blue">Divine Message, Version 3.1</font>  is available at the 
 <a href="https://drive.google.com/file/d/1ybg2HMKLypOZ2SCgUJi6vJsxEAY7hd_3/view?usp=sharing"> link </a>
 
 Please kindly share it with all our brothers and sisters. This can be done by either sharing this link or by downloading the file and then e-mailing it as an attachment.
