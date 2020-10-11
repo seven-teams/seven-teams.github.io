@@ -58,10 +58,10 @@ Some of them who were very sincere though it’s impossible to work out anything
 
 <p style="text-align:center;">
 <font color="DarkRed">"So again today the first thing we have to know that in our heart lies the power to absorb, to enjoy the beauty of spirituality.
-There’s a beautiful śhloka which I had told Mahātmājī that he should put it first, he says I was a very small girl but he listened to Me which is a beautiful thing, "[Marathi]."" 
+There’s a beautiful śhloka which I had told Mahātmājī that he should put it first, he says I was a very small girl but he listened to Me which is a beautiful thing, "[Marathi]."
 Meaning: <b>"Early in the morning I pray to that Principle of my Spirit, which is the Truth, the Attention and Joy, so that I should go to the higher state of my ascent."</b><br> 
-So, opening of the heart is very important for all of us."</b></font><br>
-<font size="+0"><b><1989-1227 Talk to Sahaja Yogis (English+Hindi), How We Should Behave, Pune, Maharashtra, India</b></font>
+So, opening of the heart is very important for all of us."</font><br>
+<font size="+0"><b>1989-1227 Talk to Sahaja Yogis (English+Hindi), How We Should Behave, Pune, Maharashtra, India</b></font>
 </p>
 
 
@@ -77,7 +77,7 @@ So, opening of the heart is very important for all of us."</b></font><br>
 </p>
 
 <p>
-<font color="green"><b>Amjad Ali Khan playing Vaishnav Jan To Taine Kahiye (Sarod Tabla) Puja 1995 </b></font><br>
+<font color="green"><b>Amjad Ali Khan playing Vaishnav Jan To Taine Kahiye (Sarod Tabla) (1995-0715 Guru Pūjā)  </b></font><br>
 <a href="https://www.youtube.com/watch?v=H44U3vvynyU&ab_channel=SelfRealizationKundaliniAwakening">video</a>
 </p>
 
