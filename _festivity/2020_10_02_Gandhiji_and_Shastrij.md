@@ -20,7 +20,7 @@ But he always talked of, he always said about it, most surprising, he’s the on
 <div style="text-align: left"><img src="/images/image499.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen">"India has now won back its democracy and the leaders are talking of Gāndhījī. That is a very big step forwards towards the new style of government. <b>Gāndhījī believed in LOVE of God. He believed in Dharma. He believed in integration.</b>"</font><br>
+<font color="DarkGreen">"India has now won back its democracy and the leaders are talking of Gāndhījī. That is a very big step forwards towards the new style of government. <b>Gāndhījī believed in Love of God. He believed in Dharma. He believed in integration.</b>"</font><br>
 <font size="+0"><b></b>1977-0512 Letter to Grégoire de Kalbermatten, London, UK</font>
 </p>
 
@@ -30,7 +30,7 @@ But he always talked of, he always said about it, most surprising, he’s the on
 </p>
 
 <p>
-<font color="DarkRed">"As you know, I am full of compassion and Mister Srivastava has seen how I used to cry seeing people being starved and in, living in conditions which not even animals can manage. <b>So when I saw Śhrī Lal Bahadur Shastri, I felt now, 'After Gāndhījī, here is a man.'</b> Normally, you’ll be surprised. Most of these people, martyrs, even My father, mother, even Gāndhījī, they never cared for politics, they never wanted to do anything with politics. They said, “We don’t want to do anything,” but here was a man who ventured himself into politics and who was a realized Soul, was a very big combination for Me. And I could see the potential of this.
+<font color="DarkRed">"As you know, I am full of compassion and Mister Srivastava has seen how I used to cry seeing people being starved and in, living in conditions which not even animals can manage. <b>So when I saw Śhrī Lal Bahadur Shastri, I felt now, 'After Gāndhījī, here is a man.'</b> Normally, you’ll be surprised. Most of these people, martyrs, even My father, mother, even Gāndhījī, they never cared for politics, they never wanted to do anything with politics. They said, “We don’t want to do anything,” but here was a man who ventured himself into politics and who was a realized Soul, was a very big combination for Me. And I could see the potential of this.<br>
 If you ask Me, I can’t join politics. Shastrijī asked Me several times. He said, “Why don’t You come to politics?” I said, “It’s beyond Me. I just can’t.” And most of them were so much detached. They didn’t want to have election, they didn’t want to do anything of that kind."</font><br>
 <font size="+0"><b>1994-1203 Talk to Sahaja Yogis, Release of Sir C.P.'s book Lal Bahadur Shastri A Life of Truth in Politics, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
@@ -39,12 +39,12 @@ If you ask Me, I can’t join politics. Shastrijī asked Me several times. He sa
 
 <p style="text-align:center;">
 Mahātmā Gāndhī [to Śhrī Mātājī when She was about 11]: Why don’t You write a poem?<br>	
-<font color="DarkGreen">[Śhrī Mātājī wrote:]<br>
+<font color="DarkGreen"><b>[Śhrī Mātājī wrote:]<br>
 Early in the morning<br>
 I pray to the essence of My Spirit<br>
 Which is,<br>
 ‘The Truth, the Attention and the Joy;<br>
-So that I can go to the highest state of My ascent.’</font><br>
+So that I can go to the highest state of My ascent.’</b></font><br>
 <font size="+0"><b>1934-0000 Poem Written at the Request of Mahātmā Gāndhī, India</b></font>
 </p>
 
@@ -57,11 +57,11 @@ Some of them who were very sincere though it’s impossible to work out anything
 <div style="text-align: left"><img src="/images/image501.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"So again today the first thing we have to know that in our heart lies the power to absorb, to enjoy the beauty of spirituality.
+<font color="DarkRed">"So again today the first thing we have to know that in our heart lies the power to absorb, to enjoy the beauty of spirituality.
 There’s a beautiful śhloka which I had told Mahātmājī that he should put it first, he says I was a very small girl but he listened to Me which is a beautiful thing, "[Marathi]."" 
 Meaning: <b>"Early in the morning I pray to that Principle of my Spirit, which is the Truth, the Attention and Joy, so that I should go to the higher state of my ascent."</b><br> 
 So, opening of the heart is very important for all of us."</b></font><br>
-<font size="+0"><b><1989-1227 Talk to Sahaja Yogis (English+Hindi), How We Should Behave, Pune, Maharashtra, India/b></font>
+<font size="+0"><b><1989-1227 Talk to Sahaja Yogis (English+Hindi), How We Should Behave, Pune, Maharashtra, India</b></font>
 </p>
 
 
