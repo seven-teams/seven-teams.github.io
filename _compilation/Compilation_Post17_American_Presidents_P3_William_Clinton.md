@@ -1,5 +1,5 @@
 ---
-title: 'Post 17: American Presidents, Part 2 (Truman, Eisenhower, and Kennedy)'
+title: 'Post 17: American Presidents, Part 3 (William Clinton)'
 date: 2020-10-11
 permalink: /compilation/2020/1011
 tags:
