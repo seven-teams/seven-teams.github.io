@@ -76,7 +76,8 @@ So, opening of the heart is very important for all of us."</b></font><br>
 <a href="https://www.youtube.com/watch?v=6cK5TEzmE7Q&ab_channel=SahajaYoga"> video</a><br>
 </p>
 
-<p>Amjad Ali Khan playing Vaishnav Jan To Taine Kahiye (Sarod Tabla) Puja 1995 </b></font><br>
+<p>
+<font color="green"><b>Amjad Ali Khan playing Vaishnav Jan To Taine Kahiye (Sarod Tabla) Puja 1995 </b></font><br>
 <a href="https://www.youtube.com/watch?v=H44U3vvynyU&ab_channel=SelfRealizationKundaliniAwakening">video</a>
 </p>
 
