@@ -20,7 +20,7 @@ But he always talked of, he always said about it, most surprising, he’s the on
 <div style="text-align: center"><img src="/images/image499.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen">"India has now won back its democracy and the leaders are talking of Gāndhījī. That is a very big step forwards towards the new style of government. <b>Gāndhījī believed in Love of God. He believed in Dharma. He believed in integration.</b>"</font><br>
+<font color="DarkGreen">"India has now won back its democracy and the leaders are talking of Gāndhījī. That is a very big step forwards towards the new style of government. <b>Gāndhījī believed in Love of God. He believed in dharma. He believed in integration.</b>"</font><br>
 <font size="+0"><b></b>1977-0512 Letter to Grégoire de Kalbermatten, London, UK</font>
 </p>
 
