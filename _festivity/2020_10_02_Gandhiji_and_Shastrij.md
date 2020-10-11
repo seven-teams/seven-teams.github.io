@@ -17,7 +17,7 @@ But he always talked of, he always said about it, most surprising, he’s the on
 <font size="+0"><b>1979-0311 Public Program (English+Hindi), Day 2, Session 2 (evening), On Gāndhī and Collective Consciousness, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: left"><img src="/images/image499.png" /></div>
+<div style="text-align: center"><img src="/images/image499.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">"India has now won back its democracy and the leaders are talking of Gāndhījī. That is a very big step forwards towards the new style of government. <b>Gāndhījī believed in Love of God. He believed in Dharma. He believed in integration.</b>"</font><br>
@@ -35,7 +35,7 @@ If you ask Me, I can’t join politics. Shastrijī asked Me several times. He sa
 <font size="+0"><b>1994-1203 Talk to Sahaja Yogis, Release of Sir C.P.'s book Lal Bahadur Shastri A Life of Truth in Politics, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: left"><img src="/images/image500.png" /></div>
+<div style="text-align: center"><img src="/images/image500.png" /></div>
 
 <p style="text-align:center;">
 Mahātmā Gāndhī [to Śhrī Mātājī when She was about 11]: Why don’t You write a poem?<br>	
@@ -54,7 +54,7 @@ Some of them who were very sincere though it’s impossible to work out anything
 <font size="+0"><b>1995-0321 Talk to Sahaja Yogis, Birthday Felicitations, Nizamuddin Scouts Grounds, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: left"><img src="/images/image501.png" /></div>
+<div style="text-align: center"><img src="/images/image501.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"So again today the first thing we have to know that in our heart lies the power to absorb, to enjoy the beauty of spirituality.
@@ -80,14 +80,14 @@ So, opening of the heart is very important for all of us."</b></font><br>
 <a href="https://www.youtube.com/watch?v=H44U3vvynyU&ab_channel=SelfRealizationKundaliniAwakening">video</a>
 </p>
 
-<div style="text-align: left"><img src="/images/image502.png" /></div>
+<div style="text-align: center"><img src="/images/image502.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue">"He who lacks of peace and firmness cannot realize God."</font><br>
 Mahātmā Gāndhī
 </p>
 
-<div style="text-align: left"><img src="/images/image503.png" /></div>
+<div style="text-align: center"><img src="/images/image503.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue">"True democracy or the swarāj of the masses can never come through untruthful and violent means."</font><br>
