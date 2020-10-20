@@ -19,13 +19,13 @@ You should say the Mantras in Pūjā but with great faith (śhraddhā). There is
 <div style="text-align: center"><img src="/images/image507.png" /></div>
 
 <p style="text-align:center;">
-<font color="Indigo"><b>Namo Devyai Mahā-devyai</b>
-Salutations to the Devī, to the Mahādevī,
-<b>NShivaye satatam namah,</b>
-To You who is ever Auspicious,
-<b>NNamah Prakrutyai bhadrayai</b>
-To You who is the Primordial Cause,
-<b>NNiyutah pranatah sma tam</b>
+<font color="Indigo"><b>Namo Devyai Mahā-devyai</b><br>
+Salutations to the Devī, to the Mahādevī,<br>
+<b>NShivaye satatam namah,</b><br>
+To You who is ever Auspicious,<br>
+<b>NNamah Prakrutyai bhadrayai</b><br>
+To You who is the Primordial Cause,<br>
+<b>NNiyutah pranatah sma tam</b><br>
 And the Sustaining Power, we bow to You.<br></font><br>
 <font size="+0"><b>Devī Sūktam from the Devī Mahatmyam</b></font>
 </p>
