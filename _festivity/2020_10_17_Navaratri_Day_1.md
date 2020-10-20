@@ -46,7 +46,7 @@ And they are tremendous."</b></font><br>
 <p style="text-align:center;">
 <font color="DarkSlateBlue"><b>Kumara-gan.a-nath'amba, Tushtih. Pushtir-matir-dhritih.,<br>
 Shantih'. Swasti-matı  Kantir, Nandinı Vighna-na'shinı.</b><br>
-<font size="+0">Mother of Śhrī Karttikeya and Ganesha,<br>
+<font size="+0">Mother of Śhrī Kārttikeya and Gaṇeśha,<br>
 You are Enjoyment, Nourishment, Intelligence and Steadfastness;<br>
 You are Peace, Good Fortune, Love,<br>
 O joy-giving Destroyer of obstacles</font></font><br>
@@ -94,7 +94,7 @@ We offer You this bath of Your Holy Feet, please accept it!<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Ganesha Atharva Sheersha</b></font><br>
+<font color="green"><b>Gaṇeśha Atharva Sheersha</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 

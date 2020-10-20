@@ -77,7 +77,7 @@ Himself. Durgā is known by these names:<br>
 </p>
 
 <p>
-The first day of Navarātri this year falls on the 17th of October. This day is signified as God’s desire to create the universe which is called Ghaṭasthāpanā (laying of the foundation) and Śhrī Ganesha is worshipped as the first creation. Ghaṭasthāpanā also involves symbolically growing grains around the Kalash.<br>
+The first day of Navarātri this year falls on the 17th of October. This day is signified as God’s desire to create the universe which is called Ghaṭasthāpanā (laying of the foundation) and Śhrī Gaṇeśha is worshipped as the first creation. Ghaṭasthāpanā also involves symbolically growing grains around the Kalash.<br>
 For Ghaṭasthāpanā following guidelines have been suggested:
 </p>
 
@@ -95,8 +95,8 @@ For Ghaṭasthāpanā following guidelines have been suggested:
 <b>On the first day of Navarātri: Ghaṭasthāpanā</b><br>
 All the members of the family or collective can sit and meditate. All the things mentioned above should be kept ready in front of Śhrī Mātājī.<br>
 A small Pūjā can be offered at the Holy Lotus Feet of Śhrī Mātājī.<br>
-Collectively recite Mahamantras and then Śhrī Ganesh Mantra.<br>
-Collectively recite Śhrī Ganesha Atharvashirsha.<br>
+Collectively recite Mahamantras and then Śhrī Gaṇeśh Mantra.<br>
+Collectively recite Śhrī Gaṇeśha Atharvashirsha.<br>
 We can wash Her Holy Lotus Feet, decorate it with kumkum, offer fragrance, flowers, etc., while singing Devī bhajans collectively.<br>
 </p>
 

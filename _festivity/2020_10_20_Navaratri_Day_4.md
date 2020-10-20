@@ -24,7 +24,7 @@ Those Who are humble before You with devotion provide shelter to the Universe.</
 </p>
 
 <p>
-<font color="DarkRed">"<b>This is a worship of the Śhakti.</b> Until now many Saints, Sages have known and revealed about this Śhakti. Whatever they could not describe in prose, they trued to convey by poetry. Whatever description was not possible to put in words – they composed different names of the Devī and described. We know all this and many people also know the meaning of this. But one thing they perhaps do not know is that every human being has all these śhaktis, powers dormant in them and they can awaken them. These dormant powers are eternal and limitless.<br>
+<font color="DarkRed">"<b>This is a worship of the Śhakti.</b> Until now many Saints, Sages have known and revealed about this Śhakti. Whatever they could not describe in prose, they tried to convey by poetry. Whatever description was not possible to put in words – they composed different names of the Devī and described. We know all this and many people also know the meaning of this. But one thing they perhaps do not know is that every human being has all these śhaktis, powers dormant in them and they can awaken them. These dormant powers are eternal and limitless.<br>
 Besides the thirty-three crores of Devas, there are many Śhaktis. But we can say that this ‘Self-realization’ that we have achieved today, has been achieved through working of some Śhakti or the other. Without this, you could not have achieved the Self-realization."</font><br>
 <font size="+0"><b>1988-1016 Navarātri Pūjā (Hindi) (6th Day), Hamāre Jīvana kā Lakṣhya (The Aim of Our Lives), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font>
 </p>
