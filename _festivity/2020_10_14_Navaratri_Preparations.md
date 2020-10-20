@@ -114,7 +114,7 @@ Keep the big plate on the left side of Śhrī Mātājī (our right side when we 
 </p>
 
 <p>
-Offer prasad and perform Aarti to Śhrī Mātājī. Then sit in meditation collectively.
+Offer prasad and perform Āratī to Śhrī Mātājī. Then sit in meditation collectively.
 </p>	
 
 <div style="text-align: center"><img src="/images/image506.png" /></div>

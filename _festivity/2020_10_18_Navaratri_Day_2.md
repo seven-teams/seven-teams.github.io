@@ -111,7 +111,7 @@ Salutations to You!</font><br>
 </p>
 
 <p>
-<font color="green"><b>Nirmal Maa Nirmal Praan Karo</b></font><br>
+<font color="green"><b>Nirmal Mā Nirmal Prān Karo</b></font><br>
 <a href="https://www.youtube.com/watch?v=xXa-evjxsE4&ab_channel=SahajaYoga">video</a> 
 </p>
 
