@@ -1,7 +1,7 @@
 ---
 title: '2020 Celebrating Mahātmā Gāndhī Jayanti and Śhrī Lal Bahadur Shastri Jayanti (birthday) : "Gāndhījī believed in Love of God. He believed in dharma. He believed in integration." '
 date: 2020-10-02
-permalink: /festivity/2020/1002
+permalink: /festivity/2020/10/02
 tags:
   - Gandhi
   - Shastri
