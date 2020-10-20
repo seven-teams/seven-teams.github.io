@@ -77,13 +77,13 @@ Himself. Durgā is known by these names:<br>
 </p>
 
 <p>
-The first day of Navarātri this year falls on the 17th of October. This day is signified as God’s desire to create the universe which is called Ghata Sthapana (laying of the foundation) and Śhrī Ganesha is worshipped as the first creation. Ghata Sthapana also involves symbolically growing grains around the Kalash.<br>
-For Ghatasthapana following guidelines have been suggested:
+The first day of Navarātri this year falls on the 17th of October. This day is signified as God’s desire to create the universe which is called Ghaṭasthāpanā (laying of the foundation) and Śhrī Ganesha is worshipped as the first creation. Ghaṭasthāpanā also involves symbolically growing grains around the Kalash.<br>
+For Ghaṭasthāpanā following guidelines have been suggested:
 </p>
 
 <p>
-<b>Things required for Ghatasthapana:</b><br>
-* Ghata (kalash) made of earth/Copper/brass<br>
+<b>Things required for Ghaṭasthāpanā:</b><br>
+* Ghaṭa (kalash) made of earth/Copper/brass<br>
 * Coconut- decorated as we decorate for Pūjā Kalash<br>
 * A big plate filled with 1/2 soil- Plate can be made of earth/copper/brass<br>
 * 10 Mango or Betel (Pan) leaves<br>
@@ -92,7 +92,7 @@ For Ghatasthapana following guidelines have been suggested:
 </p>
 
 <p>
-<b>On the first day of Navarātri: Ghatasthapana</b><br>
+<b>On the first day of Navarātri: Ghaṭasthāpanā</b><br>
 All the members of the family or collective can sit and meditate. All the things mentioned above should be kept ready in front of Śhrī Mātājī.<br>
 A small Pūjā can be offered at the Holy Lotus Feet of Śhrī Mātājī.<br>
 Collectively recite Mahamantras and then Śhrī Ganesh Mantra.<br>
@@ -101,7 +101,7 @@ We can wash Her Holy Lotus Feet, decorate it with kumkum, offer fragrance, flowe
 </p>
 
 <p>
-<b>Perform Ghatasthapana:</b><br>
+<b>Perform Ghaṭasthāpanā:</b><br>
 Items listed above to be used in the following sequence:<br> 
 Keep the big plate on the left side of Śhrī Mātājī (our right side when we face towards Śhrī Mātājī) on the floor. A little amount of akshada (rice mixed with turmeric) is to be put on the floor below a big plate.<br>
 * Fill in the big plate 1/2 full with the soil.<br> 
