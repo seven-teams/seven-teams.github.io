@@ -32,7 +32,7 @@ May we spread the message of Sahaja Yoga and bring glory to Your name.</b></font
 
 <p>
 <font size="+0">Dear All,<br>
-Today, we celebrate the second day of Navarātri. On this day we recite the Devī Suktam.<br>
+Today, we celebrate the second day of Navarātri. On this day we recite the Devī Sūktam.<br>
 Let us all worship collectively Śhrī Mātājī in Her form of Śhrī Brahmacharini.<br>
 Śhrī Brahmacharini is another form of Śhrī Durgā, She is the one who observes the state of Celibacy. She is shown as holding rosary in her right hand and a water utensil in her left hand.<br>
 Let us today imbibe her quality of chastity in us.</font><br>

@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"<b>These people have decided today to have a Pūjā, and you know what happens to Me when you do My Pūjā. So with all those problems that will be facing later, I would like all of you to be attentive about the Pūjā and to take full advantage of that. With this Pūjā you get the Mother’s protection, to begin with.</b> And My chakras, when they start moving, they give you special powers of love and bless all your chakras and fill them up completely. So I would like you, though some two people are coming to do this, all of you to feel that you all are doing it, and you can feel it that way with oneness. And the blessings of My being will flow to you automatically."</font><br>
+<font color="DarkRed">"<b>These people have decided today to have a Pūjā, and you know what happens to Me when you do My Pūjā.</b> So with all those problems that will be facing later, I would like all of you to be attentive about the Pūjā and to take full advantage of that. <b>With this Pūjā you get the Mother’s protection, to begin with.</b> And My chakras, when they start moving, they give you special powers of love and bless all your chakras and fill them up completely. So I would like you, though some two people are coming to do this, all of you to feel that you all are doing it, and you can feel it that way with oneness. And the blessings of My being will flow to you automatically."</font><br>
 <font size="+0"><b>1973-0828 Śhrī Kṛiṣhṇa Pūjā, Gita Mandir Hall, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -19,7 +19,7 @@ tags:
 <font color="DarkRed"><b>Stuta Suuraih Purvam bhishts Samshrayattatha<br>
 Surendrena Dineshu Sevita<br>
 Kaotu Sa Nah Shubha Hetur Ishwari<br>
-Shubhani Bhadranya Bhihantu Cha Padah</b><br></font><br>
+Shubhani Bhadranya Bhihantu Cha Padah</b></font><br>
 <b>Invoked of yore by the Devas for the sake of their desired object, 
 and adored by the lord of the Devas every day, 
 may She, the Ishwari, the source of all good, accomplish for us all auspicious things and put an end to our calamities!</b>
@@ -41,7 +41,7 @@ Salutations always to Her who is ever auspicious<br>
 Salutations to Her who is primordial cause and the sustaining power.<br>
 <font color="DarkRed"><b>Niyataha pranataha-smatam</b></font><br>
 With complete reverence and full attention, we make obeisance to Her.<br>
-(Devī Suktam)<br>
+(Devī Sūktam)<br>
 <font color="DarkGreen"><font size="+0"><b>Nav Durgā kī</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
