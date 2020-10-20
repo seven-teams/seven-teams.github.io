@@ -50,7 +50,7 @@ Shantih'. Swasti-matı  Kantir, Nandinı Vighna-na'shinı.</b><br>
 You are Enjoyment, Nourishment, Intelligence and Steadfastness;<br>
 You are Peace, Good Fortune, Love,<br>
 O joy-giving Destroyer of obstacles</font></font><br>
-<font size="+0"><b>(Śhrī Lalita Sahasranama, verse 94)</b></font>
+<font size="+0"><b>(Śhrī Lalitā Sahasranāma, verse 94)</b></font>
 </p>
 
 <p>

@@ -106,7 +106,7 @@ Salutations to You!</font><br>
 </p>
 
 <p>
-<font color="green"><b>Śhrī Lalita Sahasranam</b></font><br>
+<font color="green"><b>Śhrī Lalitā Sahasranām</b></font><br>
 <a href="https://www.youtube.com/watch?v=PKNAgirTBr4&ab_channel=PetrasLisauskas">video</a> 
 </p>
 
