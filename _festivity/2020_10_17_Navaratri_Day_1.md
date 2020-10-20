@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating Navarātri Festival: "You are made in the pattern of Śhrī Gaṇeśha ... you should have devotion and innocence like Shrī Gaṇesha&#8217;s" '
+title: '2020 Celebrating Navarātri Festival: "You are made in the pattern of Śhrī Gaṇeśha ... you should have devotion and innocence like Śhrī Gaṇesha&#8217;s" '
 date: 2020-10-17
 permalink: /festivity/2020/10/17
 tags:
@@ -54,10 +54,10 @@ O joy-giving Destroyer of obstacles</font></font><br>
 </p>
 
 <p>
-<font color="DarkRed"><b>Today on the first day of Navarātri your attention should be on Shrī Gaṇesha. His devotion is infinite.</b><br>
-He has never worshipped anybody else except Mother. Hence, He is so great. All other Gods appear very strong. Everyone has some specialty. What is Mother’s specialty? Her ego (aham) is nowhere felt by others. Hence Shrī Gaṇesha who has surrendered to such Mother, is so wise and venerable, Mother has nothing with Her. Her very name begins with ‘Ni’ e.g. ‘Nishakanchan’ having no wealth, ‘Nirlepa’ unaffected; Nirvichara’ thoughtless; ‘Nishprayojana’ having no motives, ‘Nigarvita’ egoless, ‘Niricchā’ desireless etc.<br>
-Therefore, surrendering to such Mother, who has nothing with Her, needs some kind of subtle thought, in that, Mother has nothing with Her and therefore, nothing can be asked from Her. It shows how Shrī Gaṇesha by himself, is fully satisfied. Where does this contentment of Shrī Gaṇesha come from? It is own power. When the gate of the Self opens, nothing else is required. It is the Mother who opens this gate and therefore, She is so dear to Shrī Gaṇesha. Complete Self-realization is that stage attaining which nothing else is required. Thereafter, only enjoying the bliss and the satisfaction of fulfillment.<br>
-<b>You are made in the pattern of Shrī Gaṇesha. Therefore, your power is unmatched, but for that, you should have devotion and innocence like Shrī Gaṇesha’s. Then Mother would admire you and the whole world would witness that beautiful sight.</b>"</font><br>
+<font color="DarkRed"><b>Today on the first day of Navarātri your attention should be on Śhrī Gaṇesha. His devotion is infinite.</b><br>
+He has never worshipped anybody else except Mother. Hence, He is so great. All other Gods appear very strong. Everyone has some specialty. What is Mother’s specialty? Her ego (aham) is nowhere felt by others. Hence Śhrī Gaṇesha who has surrendered to such Mother, is so wise and venerable, Mother has nothing with Her. Her very name begins with ‘Ni’ e.g. ‘Nishakanchan’ having no wealth, ‘Nirlepa’ unaffected; Nirvichara’ thoughtless; ‘Nishprayojana’ having no motives, ‘Nigarvita’ egoless, ‘Niricchā’ desireless, etc.<br>
+Therefore, surrendering to such Mother, who has nothing with Her, needs some kind of subtle thought, in that, Mother has nothing with Her and therefore, nothing can be asked from Her. It shows how Śhrī Gaṇesha by himself, is fully satisfied. Where does this contentment of Śhrī Gaṇesha come from? It is own power. When the gate of the Self opens, nothing else is required. It is the Mother who opens this gate and therefore, She is so dear to Śhrī Gaṇesha. Complete Self-realization is that stage attaining which nothing else is required. Thereafter, only enjoying the bliss and the satisfaction of fulfillment.<br>
+<b>You are made in the pattern of Śhrī Gaṇesha. Therefore, your power is unmatched, but for that, you should have devotion and innocence like Śhrī Gaṇesha’s. Then Mother would admire you and the whole world would witness that beautiful sight.</b>"</font><br>
 <font size="+0"><b>1978-1002 Letter (Marathi), London, UK</b></font>
 </p>
 
@@ -130,7 +130,7 @@ We offer You this bath of Your Holy Feet, please accept it!<br>
 <font color="DarkRed">So first She has done is the ghatasthapana. ‘<b>Ghatasthapana’ means – you have done here now, this is the ghatasthapana.<br>
 This is the kumbha. Now this kumbha She has established first: that is the triangular bone.<br>
 Now this is Her first work, that to establish this, your Mūlādhāra. So She established within you is innocence. She established innocence within you to begin with.</b><br> 
-So She has put this ghata in which She is staying as Kuṇḍalinī now. So the first is that to establish the Kuṇḍalinī in the triangular bone, and then to establish Shrī Gaṇesha.<br> 
+So She has put this ghata in which She is staying as Kuṇḍalinī now. So the first is that to establish the Kuṇḍalinī in the triangular bone, and then to establish Śhrī Gaṇesha.<br> 
 This is the first work, by which <b>whatever She is going to create now – all the universes, the Earth, everything – whatever She is going to create has to be filled with innocence.</b>"</font><br>
 <font size="+0"><b>1992-0927 Navarātri Pūjā (1st Day), 10th Position or Divine Knowledge is the Reality, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
