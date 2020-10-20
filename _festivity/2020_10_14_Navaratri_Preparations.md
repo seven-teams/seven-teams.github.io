@@ -67,7 +67,7 @@ Himself. Durgā is known by these names:<br>
 2nd BRAHMACHARINI (One Who observes the state of Celibacy)<br>
 3rd CHANDRAGANTA (One Who use the Moon as Her bell)<br>
 4th KOOSHMANDA (Mother's lap)<br>
-5th SKANDAMATA (Mother of Śhrī Kartikeya)<br>
+5th SKANDAMATA (Mother of Śhrī Kārttikeya)<br>
 6th KATYAYANI (Who incarnated to help the Devas)<br>
 7th KALARATRI (Who is even the destroyer of Kali)<br>
 8th MAHAGAURI (Ādi Kuṇḍalinī)<br>
@@ -87,7 +87,7 @@ For Ghatasthapana following guidelines have been suggested:
 * Coconut- decorated as we decorate for Pūjā Kalash<br>
 * A big plate filled with 1/2 soil- Plate can be made of earth/copper/brass<br>
 * 10 Mango or Betel (Pan) leaves<br>
-* One handful Nine Grains (Nava-dhanya) or Whole Wheat Grains(soaked in normal water, night before the first day of Navarātri)<br>
+* One handful Nine Grains (Nava-dhanya) or Whole Wheat Grains (soaked in normal water, night before the first day of Navarātri)<br>
 * A big lamp (diya) which we can keep lit for 10 days uninterrupted in front of Mother<br>
 </p>
 
