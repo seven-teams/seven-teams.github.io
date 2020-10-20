@@ -72,7 +72,7 @@ Himself. Durgā is known by these names:<br>
 7th KALARATRI (Who is even the destroyer of Kali)<br>
 8th MAHAGAURI (Ādi Kuṇḍalinī)<br>
 9th SIDDHIDATRI (Giver of all Siddhis)<br>
-10th Śhrī Adi Shakti (Śhrī Mātājī Nirmalā Devī)"</font><br>
+10th ŚHRĪ ĀDI ŚHAKTI (Śhrī Mātājī Nirmalā Devī)"</font><br>
 (from the Kavach of the Devī: Navarātri Nights, Pune 1988-10) 
 </p>
 
