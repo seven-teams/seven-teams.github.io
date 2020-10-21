@@ -127,11 +127,9 @@ We offer You this bath of Your Holy Feet, please accept it!<br>
 <div style="text-align: center"><img src="/images/image511.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">So first She has done is the ghatasthapana. ‘<b>Ghatasthapana’ means – you have done here now, this is the ghatasthapana.<br>
-This is the kumbha. Now this kumbha She has established first: that is the triangular bone.<br>
+<font color="DarkRed">So first She has done is the ghaṭasthāpanā. <b>Ghaṭasthāpanā means -- you have done here now, this is the ghaṭasthāpanā. This is the Kumbha. Now this Kumbha She has established first: that is the triangular bone.<br>
 Now this is Her first work, that to establish this, your Mūlādhāra. So She established within you is innocence. She established innocence within you to begin with.</b><br> 
-So She has put this ghata in which She is staying as Kuṇḍalinī now. So the first is that to establish the Kuṇḍalinī in the triangular bone, and then to establish Śhrī Gaṇesha.<br> 
-This is the first work, by which whatever <b>She is going to create now – all the universes, the Earth, everything – whatever She is going to create has to be filled with innocence.</b>"</font><br>
+So She has put this ghaṭa in which She is staying as Kuṇḍalinī now. So the first is that to establish the Kuṇḍalinī in the triangular bone, and then to establish Śhrī Gaṇeśha. This is the first work, by which whatever <b>She is going to create now – all the universes, the Earth, everything – whatever She is going to create has to be filled with innocence.</b>"</font><br>
 <font size="+0"><b>1992-0927 Navarātri Pūjā (1st Day), 10th Position or Divine Knowledge is the Reality, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
