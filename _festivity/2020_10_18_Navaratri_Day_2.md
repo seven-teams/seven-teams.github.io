@@ -48,9 +48,9 @@ You must understand that the goodness of a person is very important. If you are 
 <div style="text-align: center"><img src="/images/image513.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">You cannot make anyone Brahmachari or Brahmacharini. It is a state – avastha –, where a person has to rise, like Yogeshwara, like Śhrī Kṛiṣhṇa.<br>
+<font color="DarkRed">You cannot make anyone Brahmachari or Brahmacharini. It is a state, avasthā, where a person has to rise, like Yogeśhwara, like Śhrī Kṛiṣhṇa.<br>
 ......<br>
-It is a state of mind where you are not involved. It is a different thing, that you just load somebody with an idea that You should become, absolutely a Brahmachari or a Brahmacharini or you should lead a celibate life, forcing them.<br>
+It is a state of mind where you are not involved. It is a different thing, that you just load somebody with an idea that You should become, absolutely a brahmachārī or a brahmachāriṇī or you should lead a celibate life, forcing them.<br>
 ......<br>
 <b>Celibacy must come from within, the purity must come from within.</b>"</font><br>
 <font size="+0"><b>1983-0203 Public Program (English+Hindi+English), Day 5, The Āgñyā Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
