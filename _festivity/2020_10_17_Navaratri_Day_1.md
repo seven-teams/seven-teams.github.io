@@ -94,7 +94,7 @@ We offer You this bath of Your Holy Feet, please accept it!<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Gaṇeśha Atharva Sheersha</b></font><br>
+<font color="green"><b>Gaṇeśha Atharva Śhīrṣha</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
 
