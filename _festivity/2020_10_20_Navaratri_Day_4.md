@@ -96,7 +96,6 @@ In battle, And becomes worthy of being worshipped in the three worlds.</font></f
 
 <p>
 <font color="green"><b>Prabhu Mazha Mala Jevha</b></font><br>
-<br>
 <a href="https://www.youtube.com/watch?v=_yoOiLcEL9U&ab_channel=SahajaYoga"> video</a><br>
 </p>
 
