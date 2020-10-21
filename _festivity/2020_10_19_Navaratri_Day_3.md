@@ -41,7 +41,7 @@ Mauli milad bakulāli kule, Jaya, jaya, he</b></font><br>
 Your movements are like a graceful and playful group of Swans;<br> 
 Like a swarm of bees to fragrant flowers, the stars adorn Your forehead.<br>
 Victory to You!</b></font><br>
-<font size="+0"><font color="DarkGreen>"><b>Ayi Giri Nandini:</b></font></font><br>
+<font size="+0"><font color="DarkGreen">><b>Ayi Giri Nandini:</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 <font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Chandraganta sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
 <b>O Divine Mother, You are verily Śhrī Chandraganta, the one Who use the Moon as Her bell
