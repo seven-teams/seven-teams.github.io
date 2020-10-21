@@ -41,7 +41,7 @@ Besides the thirty-three crores of Devas, there are many Śhaktis. But we can sa
 Give us Your tiger so that we fight, give us Your lion so we fight.'</b><br> 
 Let us fight all these horrible animals that are within us, these horrible haunting things that are within us, these horrible conditionings we have. 
 You have to get rid of it."</font><br>
-<font size="+0"><b>1989-1008 Navarātri Pūjā (cusp between 8th Day and 9th Day), The Content Within (How Deeply You Have Touched the Feet of the Divine), Butlins Grand Hotel, Margate (123 kms ESE of London), UK (other day 1007)</b></font>
+<font size="+0"><b>1989-1008 Navarātri Pūjā (cusp between 8th Day and 9th Day), The Content Within (How Deeply You Have Touched the Feet of the Divine), Butlins Grand Hotel, Margate (123 kms ESE of London), UK (other day 1007)</b></font><br>
 <font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt<br>
 Śhrī Kuṣhmāṇḍā sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><br>
 O Divine Mother, You are verily Śhrī Kuṣhmāṇḍā, the one whose void contains the universe!<br>
