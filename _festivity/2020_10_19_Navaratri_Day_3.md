@@ -59,8 +59,8 @@ So that also what we call Islam is nothing but is the creation of Ādi Śhakti."
 </p>
 
 <p>
-Dear All,<br>
-Today is the third day of Navarātri. We worship the golden complexion Goddess Chandraghanta who rides a lion or tiger. She has a half-moon shaped like a bell on Her forehead or who uses the moon as Her bell. During the battle between Her and the demons, the horrible sound produced by Her bell sent thousands of demons to hell.<br>
+<font size="+0">Dear All,<br>
+Today is the third day of Navarātri. We worship the golden complexion Goddess Chandraghanta who rides a lion or tiger. She has a half-moon shaped like a bell on Her forehead or who uses the moon as Her bell. During the battle between Her and the demons, the horrible sound produced by Her bell sent thousands of demons to hell.</font><br>
 </p>
 
 <div style="text-align: center"><img src="/images/image518.png" /></div>
