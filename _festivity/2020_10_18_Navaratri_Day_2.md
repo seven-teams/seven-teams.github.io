@@ -118,7 +118,7 @@ Salutations to You!</font><br>
 <div style="text-align: center"><img src="/images/image515.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"<b>So one must know that these are the Laws of the Divine, that we have to live with self-respect, that we have to be chaste, that we have to have dignity, that we cannot steal money and steal things and be parasites.</b> That we cannot kill others and we cannot beat others and say harsh things, they are just the same. And that we have respect, the respect for all that is sublime. Respect for all the Saints that are Sahaja Yogis."</b></font><br>
+<font color="DarkRed">"<b>So one must know that these are the Laws of the Divine, that we have to live with self-respect, that we have to be chaste, that we have to have dignity, that we cannot steal money and steal things and be parasites.</b> That we cannot kill others and we cannot beat others and say harsh things, they are just the same. And that we have respect, the respect for all that is sublime. Respect for all the Saints that are Sahaja Yogis."</font><br>
 <font size="+0"><b>1984-0930 Aṣhṭamī Pūjā (8th Day of Navarātri), Discipline Has to Be Sahaja (What We Have to Do within Ourselves), Complexe Sportif René Leduc, 12 Rue du Père Brottier, Meudon (12 kms SW of Paris), France</b></font>
 </p>
 
