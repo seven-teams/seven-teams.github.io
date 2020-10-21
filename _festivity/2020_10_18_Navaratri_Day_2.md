@@ -123,8 +123,8 @@ Salutations to You!</font><br>
 </p>
 
 <p style="color:DarkSlateBlue; text-align:center;">
-<b>Ya Devi sarva bhuteshu Lajja rupena saonsthita
-Namas Tasyai namas Tasyai namas Tasyai namo namah!</b><br>
+<b>Yā Devī sarvabhūteśhu, Lajjā rūpeṇa saṃsthitā
+Namastasyai namastasyai namastasyai namo namaḥ!</b><br>
 Salutations again and again to the Devī who abides in all beings as modesty
 </p>
 
