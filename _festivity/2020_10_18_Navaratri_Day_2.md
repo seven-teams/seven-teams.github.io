@@ -123,7 +123,7 @@ Salutations to You!</font><br>
 </p>
 
 <p style="color:DarkSlateBlue; text-align:center;">
-<b>Yā Devī sarvabhūteśhu, Lajjā rūpeṇa saṃsthitā
+<b>Yā Devī sarvabhūteśhu, Lajjā rūpeṇa saṃsthitā<br>
 Namastasyai namastasyai namastasyai namo namaḥ!</b><br>
 Salutations again and again to the Devī who abides in all beings as modesty
 </p>
