@@ -17,7 +17,7 @@ tags:
 <div style="text-align: center"><img src="/images/image512.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGren">Sahaja Yogis [prayed to Śhrī Mātājī after the Pūjā]: All the Sahaja Yogis bow to You, <b>O Goddess
+<font color="DarkGreen">Sahaja Yogis [prayed to Śhrī Mātājī after the Pūjā]: All the Sahaja Yogis bow to You, <b>O Goddess
 of Lajjā, and thank You for allowing us to worship You.<br>
 May we all your children who have enjoyed the prasada of this beautiful Pūjā and who are so blessed by You, 
 imbibe all the virtues You have so generously showered upon us.<br> 
