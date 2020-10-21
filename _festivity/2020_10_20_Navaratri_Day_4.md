@@ -54,11 +54,11 @@ Salutations to You!</font><br>
 </p>
 
 <p>
-Dear All,<br>
+<font size="+0">Dear All,<br>
 Jai Śhrī Mātājī.<br>
-Today is the fourth day of Navarātri. Śhrī Kuṣhmāṇḍā, the fourth aspect of Nav Durgā is worshipped today. She is the one whose void contains the universe.  She is considered the creator of the universe. Often She is depicted as having eight or ten hands. She holds weapons, glitter, rosary, etc, in Her hands, and She rides a lion.
+Today is the fourth day of Navarātri. Śhrī Kuṣhmāṇḍā, the fourth aspect of Nav Durgā is worshipped today. She is the one whose void contains the universe.  She is considered the creator of the universe. Often She is depicted as having eight or ten hands. She holds weapons, glitter, rosary, etc, in Her hands, and She rides a lion.<br>
 Śhrī Kuṣhmāṇḍā rides a lion, symbolizing strength and courage in the face of adversity.<br>
-Today we complete the recitation of the Devī Kavach.	
+Today we complete the recitation of the Devī Kavach.</font>
 </p>	
 
 <p>
