@@ -66,7 +66,7 @@ Today we complete the recitation of the Devī Kavach.</font>
 But now we should know how many of us take bandhan before going from the house, before sleeping or before doing something important. How many people take bandhan. Very seldom you forget it. Very important, going on a journey, going on a road, better take a bandhan, not that we are all right, Mother is looking after us, is not the point. You must take bandhan before doing all these things.<br>
 If you get an accident, then know that you have done some mistakes, or something otherwise, normally there should be not an accident, means there is something still lacking in you. "</font><br>
 <font size="+0"><b>1988-1014 Talk to Sahaja Yogis, Navarātri Celebrations (4th Day), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font><br>
-<font color="DarkRed"><font size="+0"><b>Śhrī Mātājī explaining bandhan</b></font></font><br>
+<font color="DarkGreen"><font size="+0"><b>Śhrī Mātājī explaining bandhan</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=DkW7L9veu6M&ab_channel=alibaba"> video</a><br>
 </p>
 
