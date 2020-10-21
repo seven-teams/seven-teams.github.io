@@ -95,7 +95,7 @@ For Ghaṭasthāpanā following guidelines have been suggested:
 <b>On the first day of Navarātri: Ghaṭasthāpanā</b><br>
 All the members of the family or collective can sit and meditate. All the things mentioned above should be kept ready in front of Śhrī Mātājī.<br>
 A small Pūjā can be offered at the Holy Lotus Feet of Śhrī Mātājī.<br>
-Collectively recite Mahamantras and then Śhrī Gaṇeśh Mantra.<br>
+Collectively recite Mahāmantras and then Śhrī Gaṇeśh Mantra.<br>
 Collectively recite Śhrī Gaṇeśha Atharvashirsha.<br>
 We can wash Her Holy Lotus Feet, decorate it with kumkum, offer fragrance, flowers, etc., while singing Devī bhajans collectively.<br>
 </p>

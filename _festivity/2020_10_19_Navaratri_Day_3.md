@@ -101,7 +101,7 @@ Sā ghanta patu no Devī papebhyo nah sutaniva.</b></font><br>
 </p>
 
 <p>
-<font color="green"><b>Mahamaya Mahakali, Jay Sherawali</b></font><br>
+<font color="green"><b>Mahāmāyā Mahākālī, Jay Sherawali</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
@@ -119,7 +119,7 @@ These religions are not created by human beings but by incarnations. So, human b
 </p>
 
 <p>
-<font color="DarkGreen"><font size="+0">We bow and pray to You Śhrī Mahakali, please Hear us:<br>
+<font color="DarkGreen"><font size="+0">We bow and pray to You Śhrī Mahākālī, please Hear us:<br>
 We pray for the destruction of all negative forces that incite hate and aggression, especially religious groups involved in killing in the name of God.<br> 
 Political dictatorship and religious fanaticism have given an official seal to mindless violence.<br>
 Śhrī Ādi Śhakti, please undo the evil that men have done.</font></font><br>
