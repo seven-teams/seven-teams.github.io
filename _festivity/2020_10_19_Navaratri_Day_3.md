@@ -71,7 +71,7 @@ Today is the third day of Navarātri. We worship the golden complexion Goddess C
 <font color="Indigo"><b>Hinasti daitya tejamsi swanena pooryaya jagat,<br>
 Sā ghanta patu no Devī papebhyo nah sutaniva.</b></font><br>
 <font size="+0"><b>O Devī, may your bell which fills the world with its sound and destroys the power of asuras, protect us from sins, just as a mother protects her children</b><br>
-(Devī Mahatmayam, chapter 11)</font><br>
+(Devī Mahātmyam, chapter 11)</font><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 

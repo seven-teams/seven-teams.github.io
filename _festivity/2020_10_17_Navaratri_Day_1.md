@@ -27,7 +27,7 @@ To You who is ever Auspicious,<br>
 To You who is the Primordial Cause,<br>
 <b>NNiyutah pranatah sma tam</b><br>
 And the Sustaining Power, we bow to You.</font><br>
-<font size="+0"><b>Devī Sūktam from the Devī Mahatmyam</b></font>
+<font size="+0"><b>Devī Sūktam from the Devī Mahātmyam</b></font>
 </p>
 
 <p>
