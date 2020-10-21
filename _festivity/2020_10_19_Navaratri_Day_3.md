@@ -113,7 +113,7 @@ Sā ghanta patu no Devī papebhyo nah sutaniva.</b></font><br>
 </p>
 
 <p style="text-align:center;">
-<font color="red"><b>"This is the work, one has to do, is to bring the religions in their purest form and not adhere to them, whatever form has been created or done by human beings.<br>
+<font color="DarkRed"><b>"This is the work, one has to do, is to bring the religions in their purest form and not adhere to them, whatever form has been created or done by human beings.<br>
 These religions are not created by human beings but by incarnations. So, human beings have made them artificial, they have made all kinds of nonsense with them."</b></font><br>
 <font size="+0"><b>1988-1014 Talk to Sahaja Yogis, Navarātri Celebrations (4th Day), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font>
 </p>
