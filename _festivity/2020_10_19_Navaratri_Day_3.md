@@ -31,7 +31,7 @@ tags:
 <div style="text-align: center"><img src="/images/image517.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen">><b>Kamala-dal’āmala komala kāntī<br>
+<font color="DarkGreen"><b>Kamala-dal’āmala komala kāntī<br>
 Kalā kalit’āmala bhāla-late,<br>
 Sakala vilāsa kalā nilaya-krama<br>
 Keli chalat-kala haṁsa kule,<br>
