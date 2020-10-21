@@ -133,11 +133,10 @@ In battle, And becomes worthy of being worshipped in the three worlds.</font></f
 be very advanced, developed are suffering; first from recession – and a terrible recession. That recession is going to give them a lesson about overproduction of nonsensical goods. Materialism comes because people have gone mad with their greed."</font><br>
 <font size="+0"><b>1997-1004 Talk to Sahaja Yogis (3rd Day of Navarātri), Be Close to Nature and Lead a Balanced Family Life, after the Evening Program, the day before Navarātri Pūjā, Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
 <br>
-<font color="DarkGreen">We bow and pray to Śhrī Mahākālī, please hear us:<br>
+<font color="DarkGreen"><font size="+0">We bow and pray to Śhrī Mahākālī, please hear us:<br>
  The banking system does not so much encourage productive and useful activities as protect the unethical accumulation of wealth.<br>
 Śhrī Ādi Śhakti, please undo the evil that men have done <br>
-Please Śhrī Chandika, destroy the evil forces that materialism has created.<br>
-</font><br>
+Please Śhrī Chandika, destroy the evil forces that materialism has created.</font></font><br>
 </p>
 
 <p>
