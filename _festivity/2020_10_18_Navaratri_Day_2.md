@@ -74,8 +74,8 @@ Give me love, love that I could love the whole world and that the whole world be
 Give salvation to this humanity which is suffering.<br>
 Take me to Your Feet. Cleanse me with Thy Love."</font><br>
 <font size="+0"><b>1975-0201 Public Program (Hindi+English), Dhyāna Kyoṃ Karanā Chāhiye (Why Should One Meditate), Prabha Devi, Mumbai, Maharashtra, India (other dates 0202 and 0209)</b></font><br>
-<font color="Indigo"><b>Auṃ Twameva sākṣhāt Brahma-Charini sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b><br>
-O Divine Mother, You are verily Śhrī Brahma-charini, the one who observes the state of celibacy!<br>
+<font color="Indigo"><b>Auṃ Twameva sākṣhāt Brahmachāriṇī sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><br>
+O Divine Mother, You are verily Śhrī Brahmachāriṇī, the one who observes the state of celibacy!<br>
 Salutations to You!</font><br>
 </p>
 
