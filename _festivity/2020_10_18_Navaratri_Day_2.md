@@ -68,7 +68,7 @@ want anyone of you, whether men or women, to develop any guilt in your mind. Bec
 <div style="text-align: center"><img src="/images/image514.png" /></div>
 
 <p style=" text-align:center;">
-<font color="Red">"You must pray to God and ask what you want.<br>
+<font color="DarkRed">"You must pray to God and ask what you want.<br>
 Ask for complete satisfaction in my heart, joy in my heart, bliss in my heart, so that the whole world becomes blissful.<br>
 Give me love, love that I could love the whole world and that the whole world becomes one in love.<br>
 Give salvation to this humanity which is suffering.<br>
