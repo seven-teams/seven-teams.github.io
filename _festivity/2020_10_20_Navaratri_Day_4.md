@@ -128,7 +128,7 @@ In battle, And becomes worthy of being worshipped in the three worlds.</font></f
 
 <p style="text-align:center;">
 <font color="DarkRed">"Sahaj Yoga brings light in you. <b>This light will make you know how much filth is outside.</b>"</font><br>
-<font size="+0"><b>1979-0924 Talk to Sahaja Yogis (Marathi), Kuṇḍalinī, Śhrī Śhivaśhakti and Śhrī Viṣhṇuśhakti, Navarātri Celebrations (3rd Day), Amar Rundal Mandal Bhadar, Mumbai, Maharashtra, India</b></font>
+<font size="+0"><b>1979-0924 Talk to Sahaja Yogis (Marathi), Kuṇḍalinī, Śhrī Śhivaśhakti and Śhrī Viṣhṇuśhakti, Navarātri Celebrations (3rd Day), Amar Rundal Mandal Bhadar, Mumbai, Maharashtra, India</b></font><br>
 <font color="DarkRed">"As far as materialism is concerned, it’s working out. All these countries who were supposed to
 be very advanced, developed are suffering; first from recession – and a terrible recession. That recession is going to give them a lesson about overproduction of nonsensical goods. Materialism comes because people have gone mad with their greed."</font><br>
 <font size="+0"><b>1997-1004 Talk to Sahaja Yogis (3rd Day of Navarātri), Be Close to Nature and Lead a Balanced Family Life, after the Evening Program, the day before Navarātri Pūjā, Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
