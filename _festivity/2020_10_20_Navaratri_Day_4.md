@@ -110,12 +110,12 @@ In battle, And becomes worthy of being worshipped in the three worlds.</font></f
 </p>
  
 <p>
-<font color="green"><b>Jai Bhagawati</b></font><br>
+<font color="green"><b>Jai Bhagavatī</b></font><br>
 <a href="https://www.youtube.com/watch?v=ecnk5GEJzS8&ab_channel=SahajaYoga">video</a> 
 </p>
 
 <p>
-<font color="green"><b>Kindle My heart</b></font><br>
+<font color="green"><b>Kindle My Heart</b></font><br>
 <a href="https://www.youtube.com/watch?v=c-6jDKazytU&ab_channel=SahajaYoga">video</a> 
 </p>
 
