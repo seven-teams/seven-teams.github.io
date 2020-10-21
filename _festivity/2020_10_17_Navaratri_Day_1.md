@@ -114,7 +114,7 @@ We offer You this bath of Your Holy Feet, please accept it!<br>
 </p>
 
 <p>
-<font color="green"><b>Jai Ganpati Vandan Gan nayak</b></font><br>
+<font color="green"><b>Jai Gaṇapati Vandan Gan nayak</b></font><br>
 <a href="https://www.youtube.com/watch?v=UYUFjJDsD48&ab_channel=SahajaYoga">video</a> 
 </p>
 
