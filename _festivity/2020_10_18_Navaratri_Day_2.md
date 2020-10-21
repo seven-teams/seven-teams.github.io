@@ -101,7 +101,7 @@ Salutations to You!</font><br>
 </p>
  
 <p>
-<font color="green"><b>He Adi Ma he Anti Ma</b></font><br>
+<font color="green"><b>He Ādi Mā he Anti Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=rbi_HSVoF2Q&ab_channel=SahajaYoga">video</a> 
 </p>
 
@@ -129,11 +129,11 @@ Salutations again and again to the Devī who abides in all beings as modesty
 </p>
 
 <p style="text-align:center;">
-W<font size="+0">e pray to Śhrī Adi Shakti, please hear us:<br>
+W<font size="+0">e pray to Śhrī Ādi Śhakti, please hear us:<br>
 Violence and the perversion of sex in the media pollute the consciousness of the masses.<br>
 The diseases of modern life such as cancer, AIDS, and insanity are the direct result of our self-made hellish environment.<br>
 Drugs and alcohol throw people into a regression of their consciousness<br>
-Śhrī Adi Shakti, please undo the evil that men have done.</font><br>
+Śhrī Ādi Śhakti, please undo the evil that men have done.</font><br>
 </p>
 
 <p>

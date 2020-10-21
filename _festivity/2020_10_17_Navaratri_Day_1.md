@@ -134,9 +134,9 @@ So She has put this ghaṭa in which She is staying as Kuṇḍalinī now. So th
 </p>
 
 <p style="color:Indigo; text-align:center;">
-<font size="+0">We pray to You Śhrī Adi Shakti, please Hear us:<br>
+<font size="+0">We pray to You Śhrī Ādi Śhakti, please Hear us:<br>
 The destruction of innocence dooms our children, our families and heralds the dissolution of society.<br>
-Śhrī Adi Shakti, please undo the evil that men have done!<br></font>
+Śhrī Ādi Śhakti, please undo the evil that men have done!<br></font>
 </p>
 
 <p>

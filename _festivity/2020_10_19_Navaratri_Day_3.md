@@ -122,7 +122,7 @@ These religions are not created by human beings but by incarnations. So, human b
 <font color="DarkGreen"><font size="+0">We bow and pray to You Śhrī Mahakali, please Hear us:<br>
 We pray for the destruction of all negative forces that incite hate and aggression, especially religious groups involved in killing in the name of God.<br> 
 Political dictatorship and religious fanaticism have given an official seal to mindless violence.<br>
-Śhrī Adi Shakti, please undo the evil that men have done.</font></font><br>
+Śhrī Ādi Śhakti, please undo the evil that men have done.</font></font><br>
 </p>
 
 <p>
