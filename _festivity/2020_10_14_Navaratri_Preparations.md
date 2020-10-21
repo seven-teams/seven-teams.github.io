@@ -63,10 +63,10 @@ Brahmin, there is Devī Kavach which is most secret and useful to all beings.<br
 Please listen to that, O Great Sage.<br>
 The following nine names have been told by the Great Soul Brahmadeva<br>
 Himself. Durgā is known by these names:<br>
-<font color="red">1st SHAILAPUTRI (Daughter of the King of Himalayas)<br>
-2nd BRAHMACHARINI (One Who observes the state of Celibacy)<br>
-3rd CHANDRAGANTA (One Who use the Moon as Her bell)<br>
-4th KOOSHMANDA (Mother's lap)<br>
+<font color="red">1st ŚHAILAPUTRĪ (Daughter of the King of Himalayas)<br>
+2nd BRAHMACHĀRIṆĪ (One Who observes the state of Celibacy)<br>
+3rd CHANDRAGHAṆṬĀ (One Who use the Moon as Her bell)<br>
+4th KUṢHMĀṆDĀ (Mother's lap)<br>
 5th SKANDAMATA (Mother of Śhrī Kārttikeya)<br>
 6th KATYAYANI (Who incarnated to help the Devas)<br>
 7th KALARATRI (Who is even the destroyer of Kali)<br>
