@@ -92,7 +92,7 @@ the Daughter of Daksha, and the Consort of Śhrī Śhiva.</b></font></font>
 </p>
 
 <p>
-<font color="green"><b>Argala Strotam:</b> (recited on the 5th day of Navarātri)</font><br>
+<font color="green"><b>Argala Strotam:</b></font> (recited on the 5th day of Navarātri)<br>
 <a href="https://www.youtube.com/watch?v=lVgW5k89t44&ab_channel=SahajayogaCulture">video</a>
 </p>
 
