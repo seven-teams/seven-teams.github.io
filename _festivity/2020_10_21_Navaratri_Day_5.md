@@ -51,7 +51,7 @@ Today there was Lalitā Pañchamī, they sang the song of Lalitā. The way She t
 </p>
 
 <p>
-<font size="+0">Dear All,<br>
+<font size="-1">Dear All,<br>
 Jai Śhrī Mātājī!<br>
 Today on Pañchamī, we celebrate the 5th day of Navarātri.<br>
 This day as Śhrī Mātājī spoke in 1988, the Devī killed the rakshasas, chanda and munda, and the Devī was called Śhrī Chāmuṇḍā.<br>
