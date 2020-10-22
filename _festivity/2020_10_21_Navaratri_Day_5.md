@@ -38,7 +38,7 @@ And later on, or sometimes simultaneously, They incarnated in milder forms to he
 <div style="text-align: center"><img src="/images/image525.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkSlateBlue"><b>Salutations to You O Goddess Chāmuṇḍā Nārāyanī,<br>
+<font color="Indigo"><b>Salutations to You O Goddess Chāmuṇḍā Nārāyanī,<br>
 whose mouth was dreadful with its great teeth,<br>
 Who wore a garland of human skulls as an ornament and killed the demon Munda</b></font><br>
 <font size="+0"><b>(Mahalakshmi Hymn, chapter 11 of the Devī Māhātmyam)</b></font>
@@ -71,7 +71,7 @@ But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart."</f
 <p style="text-align:center;">
 <font color="Indigo"><b>Kāla-rātrīm Brahma-stutām Vaiṣhṇavīm Skanda-mātaram<br> 
 Saraswatīm Aditim Daksha-duhitaram namāmah pāvanām śhivām</b><br> 
-<font color="DarkSlateBlue"><font size="+0"><b>Salutations to the Goddess, Who is the darkest night,</font><br>
+<font color="Indigo"><font size="+0"><b>Salutations to the Goddess, Who is the darkest night,</font><br>
 Who is praised even by Brahmadeva Himself,<br>
 Who is the Power of Śhrī Viṣhṇu, The Mother of Śhrī Kārttikeya,<br>
 Who is Saraswati, Śhrī Aditi (Mother of the Gods),<br>
@@ -129,7 +129,7 @@ Remove our irresponsible behavior and make us more disciplined<br>
 Corrupt government and politicians cannot handle the problems of the Kali-yuga but, on the contrary, can only massively add to them.<br>
 Śhrī Adi Shakti, please undo the evil that men have done.</font></font><br>
 <br>
-<font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Skandamātā sākshāt<br>
+<font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Skandamātā sākshāt<br>
 Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><br>
 O Divine Mother, You are verily The mother of Śhrī Kārttikeya<br>
 Salutations to You!</font>
