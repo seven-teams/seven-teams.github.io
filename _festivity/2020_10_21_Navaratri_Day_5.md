@@ -75,7 +75,7 @@ Saraswatīm Aditim Daksha-duhitaram namāmah pāvanām śhivām</b><br>
 Who is praised even by Brahmadeva Himself,<br>
 Who is the Power of Śhrī Viṣhṇu, The Mother of Śhrī Kārttikeya,<br>
 Who is Saraswati, Śhrī Aditi (Mother of the Gods),<br>
-the Daughter of Daksha, and the Consort of Śhrī Śhiva.</b></font></font><br>
+the Daughter of Daksha, and the Consort of Śhrī Śhiva.</b></font></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
