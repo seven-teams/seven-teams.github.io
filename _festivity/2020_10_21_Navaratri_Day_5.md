@@ -86,7 +86,7 @@ the Daughter of Daksha, and the Consort of Śhrī Śhiva.</font></font><br>
 
 <p>
 <font color="DarkRed">"This song that you have heard has been composed in the year of 1600. And in this song the poet has sung for the rustic people, in their language. That, “Oh Mother, give us our Realization!” ‘Jogawa’ means the Yoga, the Union with the Divine and the Sahaja Yoga means spontaneous. It fills My heart to see how since long the seekers have been asking for this Union with the Divine. What a search! What a seeking!</font><br>
-<font size="+0"><b>1988-0610 Public Program, University, Graz, Austria</b></font>
+<font size="+0"><b>1988-0610 Public Program, University, Graz, Austria</b></font><br>
 <font color="green"><b>Jogawa 1 (Marathi 6), Śhrī Mātājī explains the meaning of the bhajan</b></font><br>
 <a href="">video</a>
 </p>
