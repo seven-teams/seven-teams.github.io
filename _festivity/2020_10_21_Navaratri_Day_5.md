@@ -51,13 +51,13 @@ Today there was Lalitā Pañchamī, they sang the song of Lalitā. The way She t
 </p>
 
 <p>
-Dear All,<br>
+<font size="+0">Dear All,<br>
 Jai Śhrī Mātājī!<br>
 Today on Pañchamī, we celebrate the 5th day of Navarātri.<br>
 This day as Śhrī Mātājī spoke in 1988, the Devī killed the rakshasas, chanda and munda, and the Devī was called Śhrī Chāmuṇḍā.<br>
 This day we also worship the Durga in Her form of Śhrī Skandamātā (The Mother of Śhrī Kārttikeya). She is described as holding a lotus in one hand and the baby Śhrī Kārttikeya in another.<br>
 Śhrī Skandamātā is the form of Devī who is fierce as well as very gentle and soft.<br>
-On this day, the fifth night of Navarātri, we also sing Jogawa.<br>
+On this day, the fifth night of Navarātri, we also sing Jogawa.</font><br>
 </p>
 
 <div style="text-align: center"><img src="/images/image526.png" /></div>
