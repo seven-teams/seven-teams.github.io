@@ -71,11 +71,11 @@ But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart."</f
 <p style="text-align:center;">
 <font color="DarkSlateBlue"><b>Kāla-rātrīm Brahma-stutām Vaiṣhṇavīm Skanda-mātaram<br> 
 Saraswatīm Aditim Daksha-duhitaram namāmah pāvanām śhivām</b><br> 
-<font size="+0">Salutations to the Goddess, Who is the darkest night,<br>
+<font color="DarkSlateBlue"><font size="+0">Salutations to the Goddess, Who is the darkest night,</font><br>
 Who is praised even by Brahmadeva Himself,<br>
 Who is the Power of Śhrī Viṣhṇu, The Mother of Śhrī Kārttikeya,<br>
 Who is Saraswati, Śhrī Aditi (Mother of the Gods),<br>
-the Daughter of Daksha, and the Consort of Śhrī Śhiva.</font><br>
+the Daughter of Daksha, and the Consort of Śhrī Śhiva.</font></font><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
