@@ -10,7 +10,7 @@ tags:
 
 <p>
 <font color="DarkRed">"<b>Now for Pūjā, one has to understand that without Realization, Pūjā has no meaning, because you are not ananya.</b> Is, you have to become aware of your whole. Kṛiṣhṇa’s description of bhakti is ananya. He says, “I will give you Ananya Bhakti,” He wants Ananya Bhakti, means when there is not the other, means when we are realized.<br>
-.. Now Pūjā is the left-hand side projection. It’s the neutralization of the right side, very much. Specially for people who are very right-handed, atmosphere which is very right-handed, Pūjā is ideal for them. <b>Is the bhakti, is the devotion ... that you project.</b>"</font><br>
+...... Now Pūjā is the left-hand side projection. It’s the neutralization of the right side, very much. Specially for people who are very right-handed, atmosphere which is very right-handed, Pūjā is ideal for them. <b>Is the bhakti, is the devotion ... that you project.</b>"</font><br>
 <font size="+0"><b>1980-0719 Talk to Sahaja Yogis, The Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font>
 </p>
 
@@ -38,10 +38,10 @@ And later on, or sometimes simultaneously, They incarnated in milder forms to he
 <div style="text-align: center"><img src="/images/image525.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkSlateBlue"><b>Salutations to You O Goddess Chamunda Narayani,<br>
+<font color="DarkSlateBlue"><b>Salutations to You O Goddess Chāmuṇḍā Nārāyanī,<br>
 whose mouth was dreadful with its great teeth,<br>
 Who wore a garland of human skulls as an ornament and killed the demon Munda</b></font><br>
-<font size="+0"><b>(Mahalakshmi Hymn, chapter 11 of the Devi Mahatmyam)</b></font>
+<font size="+0"><b>(Mahalakshmi Hymn, chapter 11 of the Devī Māhātmyam)</b></font>
 </p>
 
 <p>
@@ -53,10 +53,10 @@ Today there was Lalitā Pañchamī, they sang the song of Lalitā. The way She t
 <p>
 Dear All,<br>
 Jai Śhrī Mātājī!<br>
-Today on Panchami, we celebrate the 5th day of Navarātri.<br>
-This day as Śhrī Mātājī spoke in 1988, the Devi killed the rakshasas, chanda and munda, and the Devi was called Śhrī Chamunda.<br>
-This day we also worship the Durga in Her form of  Śhrī Skandamātā (The Mother of Śhrī Kārttikeya). She is described as holding a lotus in one hand and the baby Śhrī Kārttikeya in another.<br>
-Śhrī Skandamata is the form of Devi who is fierce as well as very gentle and soft.<br>
+Today on Pañchamī, we celebrate the 5th day of Navarātri.<br>
+This day as Śhrī Mātājī spoke in 1988, the Devī killed the rakshasas, chanda and munda, and the Devī was called Śhrī Chāmuṇḍā.<br>
+This day we also worship the Durga in Her form of Śhrī Skandamātā (The Mother of Śhrī Kārttikeya). She is described as holding a lotus in one hand and the baby Śhrī Kārttikeya in another.<br>
+Śhrī Skandamātā is the form of Devī who is fierce as well as very gentle and soft.<br>
 On this day, the fifth night of Navarātri, we also sing Jogawa.<br>
 </p>
 
@@ -69,13 +69,13 @@ But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart."</f
 </p>
 
 <p style="text-align:center;">
-<font color="DarkSlateBlue"><b>Kāla-rātrīm Brahma-stutām Vaishnavīm Skanda-mātaram<br> 
-Saraswatīm Aditim Daksha-duhitaram namāmah pāvanām shivām</b><br> 
+<font color="DarkSlateBlue"><b>Kāla-rātrīm Brahma-stutām Vaiṣhṇavīm Skanda-mātaram<br> 
+Saraswatīm Aditim Daksha-duhitaram namāmah pāvanām śhivām</b><br> 
 <font size="+0">Salutations to the Goddess, Who is the darkest night,<br>
-Who is praised even by Brahmadeva himself,<br>
-Who is the Power of Śhrī Vishnu, The Mother of Śhrī Kārttikeya,<br>
+Who is praised even by Brahmadeva Himself,<br>
+Who is the Power of Śhrī Viṣhṇu, The Mother of Śhrī Kārttikeya,<br>
 Who is Saraswati, Śhrī Aditi (Mother of the Gods),<br>
-the Daughter of Daksha, and the Consort of Śhrī Shiva.</font><br>
+the Daughter of Daksha, and the Consort of Śhrī Śhiva.</font><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
