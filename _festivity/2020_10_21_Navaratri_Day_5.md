@@ -1,6 +1,5 @@
 ---
 title: '2020 Celebrating the Navarātri festival: "In Sahaja Yoga, Navarātri is the most important Pūjā I would say ...... Navarātri is the one which has brought you to Sahasrāra."
-Inbox'
 date: 2020-10-21
 permalink: /festivity/2020/10/21
 tags:
