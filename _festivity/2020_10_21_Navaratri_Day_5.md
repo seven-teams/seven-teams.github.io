@@ -21,7 +21,7 @@ tags:
 She’s the Protector.<br>
 And She’s the Mother of this world, Jagadambā."</b></font><br>
 <font size="+0"><b>1977-0222 Public Program, Day 1, About Different Chakras and Their Deities, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font><br>
-<b>Today the love of Shri Jagadamba is expressed</b><br>
+<b>Today the love of Śhrī Jagadamba is expressed</b><br>
 <font size="+0"><font color="DarkGreen"><b>Jay Jagadambe</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=Mb2BG7DbhwY&ab_channel=SahajaYoga">video</a>
 </p>
@@ -52,12 +52,12 @@ Today there was Lalitā Pañchamī, they sang the song of Lalitā. The way She t
 
 <p>
 Dear All,<br>
-Jai Shri Mataji!<br>
-Today on Panchami, we celebrate the 5th day of Navaratri.<br>
-This day as Shri Mataji spoke in 1988, the Devi killed the rakshasas, chanda and munda, and the Devi was called Shri Chamunda.<br>
-This day we also worship the Durga in Her form of  Shri Skandmata (The Mother of Shri Kartikeya). She is described as holding a lotus in one hand and the baby Shri Kartikeya in another.<br>
-Shri Skandamata is the form of Devi who is fierce as well as very gentle and soft.<br>
-On this day, the fifth night of Navaratri, we also sing Jogawa.<br>
+Jai Śhrī Mātājī!<br>
+Today on Panchami, we celebrate the 5th day of Navarātri.<br>
+This day as Śhrī Mātājī spoke in 1988, the Devi killed the rakshasas, chanda and munda, and the Devi was called Śhrī Chamunda.<br>
+This day we also worship the Durga in Her form of  Śhrī Skandamātā (The Mother of Śhrī Kārttikeya). She is described as holding a lotus in one hand and the baby Śhrī Kārttikeya in another.<br>
+Śhrī Skandamata is the form of Devi who is fierce as well as very gentle and soft.<br>
+On this day, the fifth night of Navarātri, we also sing Jogawa.<br>
 </p>
 
 <div style="text-align: center"><img src="/images/image526.png" /></div>
@@ -73,9 +73,9 @@ But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart."</f
 Saraswatīm Aditim Daksha-duhitaram namāmah pāvanām shivām</b><br> 
 <font size="+0">Salutations to the Goddess, Who is the darkest night,<br>
 Who is praised even by Brahmadeva himself,<br>
-Who is the Power of Shri Vishnu, The Mother of Shri Kartikeya,<br>
-Who is Saraswati, Shri Aditi (Mother of the Gods),<br>
-the Daughter of Daksha, and the Consort of Shri Shiva.</font><br>
+Who is the Power of Śhrī Vishnu, The Mother of Śhrī Kārttikeya,<br>
+Who is Saraswati, Śhrī Aditi (Mother of the Gods),<br>
+the Daughter of Daksha, and the Consort of Śhrī Shiva.</font><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
@@ -87,7 +87,7 @@ the Daughter of Daksha, and the Consort of Shri Shiva.</font><br>
 <p>
 <font color="DarkRed">"This song that you have heard has been composed in the year of 1600. And in this song the poet has sung for the rustic people, in their language. That, “Oh Mother, give us our Realization!” ‘Jogawa’ means the Yoga, the Union with the Divine and the Sahaja Yoga means spontaneous. It fills My heart to see how since long the seekers have been asking for this Union with the Divine. What a search! What a seeking!</font><br>
 <font size="+0"><b>1988-0610 Public Program, University, Graz, Austria</b></font>
-<font color="green"><b>Jogawa 1 (Marathi 6), Shri Mataji explains the meaning of the bhajan</b></font><br>
+<font color="green"><b>Jogawa 1 (Marathi 6), Śhrī Mātājī explains the meaning of the bhajan</b></font><br>
 <a href="">video</a>
 </p>
 
@@ -102,7 +102,7 @@ the Daughter of Daksha, and the Consort of Shri Shiva.</font><br>
 </p>
  
 <p>
-<font color="green"><b>Shri Jagadambe Aye re</b></font><br>
+<font color="green"><b>Śhrī Jagadambe Aye re</b></font><br>
 <a href="https://www.youtube.com/watch?v=6tionHDqJo4&ab_channel=SahajaYoga">video</a> 
 </p>
 
@@ -124,14 +124,14 @@ the Daughter of Daksha, and the Consort of Shri Shiva.</font><br>
 <font size="+0"><b>1984-0930 Aṣhṭamī Pūjā (8th Day of Navarātri), Discipline Has to Be Sahaja (What We Have to Do within Ourselves), Complexe Sportif René Leduc, 12 Rue du Père Brottier, Meudon (12 kms SW of Paris), France</b></font><br>
 <font color="DarkRed">"Right-hand side comes when we talk big. <b>It’s a common thing with your politicians, they talk very big. They think they’re very responsible people and do all irresponsible things. So when you want to spoil that chakra, one has to do some irresponsible talk.</b>"</font><br>
 <font size="+0"><b>1985-0602 Śhrī Kṛiṣhṇa Pūjā, Play the Melody of God, Tent, Backyard, House of Judy Gaddy, 442 Liberty Road, Englewood, NJ, U.S.A.</b></font><br>
-<font color="DarkGreen"><font size="+0">We bow and pray to You Shri Mahakali, please Hear us:<br>
+<font color="DarkGreen"><font size="+0">We bow and pray to You Śhrī Mahakali, please Hear us:<br>
 Remove our irresponsible behavior and make us more disciplined<br>
 Corrupt government and politicians cannot handle the problems of the Kali-yuga but, on the contrary, can only massively add to them.<br>
-Shri Adi Shakti, please undo the evil that men have done.</font></font><br>
+Śhrī Adi Shakti, please undo the evil that men have done.</font></font><br>
 <br>
-<font color="DarkSlateBlue"><b>Aum twameva sākshāt Śhrī Skanda-mātā sākshāt<br>
-Shrī Ādi Shakti Mātājī Shrī Nirmalā Devyai namo namah!</b><br>
-O Divine Mother, You are verily The mother of Shri Kartikeya<br>
+<font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Skandamātā sākshāt<br>
+Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><br>
+O Divine Mother, You are verily The mother of Śhrī Kārttikeya<br>
 Salutations to You!
 </p>
 
