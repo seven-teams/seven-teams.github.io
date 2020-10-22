@@ -103,12 +103,12 @@ the Daughter of Daksha, and the Consort of Śhrī Śhiva.</font></font><br>
  
 <p>
 <font color="green"><b>Śhrī Jagadambe Aye re</b></font><br>
-<a href="https://www.youtube.com/watch?v=6tionHDqJo4&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
 <font color="green"><b>Jago Hey Jagadambe</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
+<a href="https://www.youtube.com/watch?v=1L0SDD76aAE&ab_channel=SahajaYoga">video</a> 
 </p>
 
 <p>
