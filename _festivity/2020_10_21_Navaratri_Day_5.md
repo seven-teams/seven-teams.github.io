@@ -132,7 +132,7 @@ Corrupt government and politicians cannot handle the problems of the Kali-yuga b
 <font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Skandamātā sākshāt<br>
 Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><br>
 O Divine Mother, You are verily The mother of Śhrī Kārttikeya<br>
-Salutations to You!
+Salutations to You!</font>
 </p>
 
 <p>
