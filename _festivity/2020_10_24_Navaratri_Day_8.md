@@ -47,8 +47,8 @@ I will have not other.’<br>
 This is the point we miss always. They think, 'Mother is giving lectures to others not to me.'<br>
 And that compassion will bring forth the beauty of Sahaja Yoga."</font><br>
 <font size="+0"><b>1984-0930 Aṣhṭamī Pūjā (8th Day of Navarātri), Discipline Has to Be Sahaja (What We Have to Do within Ourselves), Complexe Sportif René Leduc, 12 Rue du Père Brottier, Meudon (12 kms SW of Paris), France</b></font><br>
-<font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Aneka-shastra hasta sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
-(You are the One who wields many weapons in Her hands)
+<font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Aneka-shastra hasta sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><br>
+(You are the One who wields many weapons in Her hands)</font>
 </p>
 
 <p>
@@ -118,7 +118,7 @@ Ayi Giri Nandini (Mahiṣhāsuramardinī)</font><br>
 </p>
 
 <p>
-<font color="green"><b>Devī MAHATMYAM Eighth Night</b></font><br>
+<font color="green"><b>Devī Māhātmyam Eighth Night</b></font><br>
 <a href="https://www.youtube.com/watch?v=mKmlaXSVuYo&feature=emb_logo&ab_channel=TimBruce">video</a> 
 </p>
 
@@ -141,7 +141,7 @@ This shows how we have misused all these Great Incarnations and all their great 
 <font size="+0"><b>1986-1009 Public Program (6th Day of Navarātri), Lions Club International, G.D. Birla Sabahghar, 29, Ashutosh Choudhry Avenue, Ballygunge, Kolkata, West Bengal, India</b></font><br>
 <font color="DarkSlateBlue"><b>Auṃ Twameva sākshāt Shrī Mahā-gaurī Mātā sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 <br>
-<font color="DarkGreen"><font size="+0"><b>We bow and pray to You Śhrī Mahākālī, please Hear us:</b><br>
+<font color="DarkGreen"><font size="+0"><b>We bow and pray to You Śhrī Mahākālī, please hear us:</b><br>
 The diseases of modern life such as cancer, AIDS and insanity are the direct result of our selfmade hellish environment.<br>
 Śhrī Ādi Śhakti, please undo the evil that men have done.<br> 
 Drugs and alcohol throw people into a regression of their consciousness.<br> 
