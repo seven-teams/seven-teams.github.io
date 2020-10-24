@@ -130,7 +130,7 @@ Then Joy will come. Joy cannot come without Peace.</b>"</font><br>
 </p>
 
 <p style="text-align:center;">
-We worship our Divine Mother in the form of Devī Kāḷarātri, the Goddess of the dark night of dissolution. She is the source of eternal joy and bestower of devotion.The goddess whose fierce radiance destroys all the demonic forces. She is the master of the art of the war. She has magnificent long dark hair and dark complexion. She decorates Her forehead with red kumkum and shines with the luster of million moons.  
+We worship our Divine Mother in the form of Devī Kāḷarātri, the Goddess of the dark night of dissolution. She is the source of eternal joy and bestower of devotion. The Goddess whose fierce radiance destroys all the demonic forces. She is the master of the art of the war. She has magnificent long dark hair and dark complexion. She decorates Her forehead with red kumkum and shines with the luster of million moons.  
 </p>
 
 <p style="color:DarkSlateBlue; text-align:center;">
