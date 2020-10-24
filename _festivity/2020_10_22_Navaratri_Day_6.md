@@ -104,7 +104,7 @@ But when you feel this Cool Breeze in your hand and then you go, say, near a tre
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Today the pollution in the environment has created a great crisis.</b><br>
 As many Sahaja Yogis there will be, the purer the environment will become. 
-It will cleanse spontaneously."/font><br>
+It will cleanse spontaneously."</font><br>
 <font size="+0"><b>1993-0219 Śhivarātri Pūjā (Hindi), Kyukī Mānava kā Aṃtima Lakṣhya yahī hai kī Vo Śhiva Tattwa ko Prāpta Kare (The Ultimate Aim of Human Beings Is to Attain that Śhiva Tattwa), Mumbai, Maharashtra, India</b></font>
 </p>
 
