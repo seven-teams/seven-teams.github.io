@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"<b>Acceptance is the only way.</ Go on accepting it so that you can develop. Like a little plant start accepting whatever the Mother Earth gives it and grows. It does not try to understand the Mother Earth. It does not. It just wants to grow on the riches of the Mother Earth. That is what is Pūjā by which you are blessed by the Divine so that you should of from all the physical, mental, emotional and the so-called spiritual being, which was seeking into the realm where you have sought.<br> 
+<font color="DarkRed">"<b>Acceptance is the only way.</b> Go on accepting it so that you can develop. Like a little plant start accepting whatever the Mother Earth gives it and grows. It does not try to understand the Mother Earth. It does not. It just wants to grow on the riches of the Mother Earth. That is what is Pūjā by which you are blessed by the Divine so that you should of from all the physical, mental, emotional and the so-called spiritual being, which was seeking into the realm where you have sought.<br> 
 So today we must determine that we’ll have no rational activity about it, otherwise you won't have the joy of Sahaja Yoga, which is your achievement. Stop rationalizing it. With your heart you do the Pūjā."</font><br>
 <font size="+0">1980-0420 Pūjā, Significance of Pūjā, Flat of Marie Rouger, Paris, France<b></b></font>
 </p>
