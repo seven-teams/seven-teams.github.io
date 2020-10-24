@@ -30,7 +30,7 @@ Who is Śhrī Saraswati, Śhrī Aditi (Mother of the Gods), the Daughter of Daks
 and the Consort of Śhrī Shiva.</b></font><br>
 <font color="DarkGreen"><font size="+0">(Śhrī Devī Atharva Sheersha)<br>
 Śhrī Devī Atharva Sheersha in the presence of Śhrī Mātājī</font></font><br>
-<a href="https://www.youtube.com/embed/_bURbs5FExs?hl=en&fs=">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
