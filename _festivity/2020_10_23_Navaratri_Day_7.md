@@ -93,7 +93,7 @@ Durgati Harini Durgā Ambe</font><br>
 
 <p>
 <font color="DarkRed">"So you should become sat guṇī. In sat guṇa, the highest quality is, Śhaṅkarāchārya, Ādi Śhaṅkarāchārya was asked, “Which is the greatest quality?” He said “Devī Bhakti, Mother’s Bhakti.” <b>She is Devī your Mother is the Devī. Understanding that you should do Her bhakti. In that bhakti, there should not be any falsehood.</b> The first quality, the highest quality, if it is seen in a human being from his heart, all his bad qualities will be destroyed, he will get light and attain Mokṣha [liberation]. That is why Śhaṅkarāchārya has always praised the Devī. In the beginning, He has described a lot, written lots of books like Vivekachūḍāmaṇi, etc. Lastly, He said that, “By only pleasing the Devī one can get everything, then why do these things? Why to do debates? Why to do discourses and break one’s head? <b>Just praise the Devī and you will get whatever one wants.</b>"</font><br>
-<font size="+0"><b>1982-0201 Śhrī Durgā Pūjā (English+Marathi+English), Rāhurī, Maharashtra, India</b></font>
+<font size="+0"><b>1982-0201 Śhrī Durgā Pūjā (English+Marathi+English), Rāhurī, Maharashtra, India</b></font><br>
 <font color="DarkGreen">Jwalat koti balarka</font><br>
 <a href="https://sahajsongs.bandcamp.com/track/jwalat-koti-balarka">video</a>
 </p>
