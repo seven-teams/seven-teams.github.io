@@ -83,7 +83,7 @@ Now see these Feet, I don’t know if you see, the whole Universe I see there an
 <br>
 <font color="DarkSlateBlue"><b>Bhav. Bhakti Me Sharanan. Ae</b></font><br>
 <font size="+0">We have come to Your Lotus Feet with our devotions</font><br>
-<font color="DarkSlateBlue"><b>Bin.ti Ma Swikar. Karo/b></font><br>
+<font color="DarkSlateBlue"><b>Bin.ti Ma Swikar. Karo</b></font><br>
 <font size="+0">Please accept our prayers</font><br>
 <font color="DarkSlateBlue"><b>Teri Jayjaykar. Ho /b></font><br>
 <font size="+0">We pay our salutations to You!<br>
