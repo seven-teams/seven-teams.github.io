@@ -18,7 +18,7 @@ So today we must determine that we’ll have no rational activity about it, othe
 
 <p style="text-align:center;">
 <font color="DarkRed">"Because in the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day.<br> 
-<b>Ṣhaṣhṭhī Day is of Śhākambharī Devī</b>, and on that day the whole nature should be green and lush."</b></font><br>
+<b>Ṣhaṣhṭhī Day is of Śhākambharī Devī</b>, and on that day the whole nature should be green and lush."</font><br>
 <font size="+0"><b>1986-1010 Navarātri Pūjā (Hindi) (7th Day), Lions Club Safari Park, Southern Avenue, Kolkata, West Bengal, India</b></font>
 </p>
 
@@ -31,7 +31,7 @@ This is a most fortunate and divine coincidence for Me also, that on a Ṣhaṣh
 <p>
 <font size="+0">Dear All,<br>
 On the Auspicious day of the Shashti (6th night of Navarātri), we worship all the Śhaktis. We take the name Śhrī KKātyāyanī (The foster-daughter of Sage KKātyāyana). Sage Kātyāyana underwent long austerities and penance in order to receive the grace of the Mother Goddess. He wished to have a daughter in the form of a goddess. According to his wish and desire, the Mother Goddess granted his request and took an incarnation as Śhrī Durgā.<br> 
-Today is the 6th day of the nine nights of Navarātri. Today we propose to have a havan.</font>
+Today is the 6th day of the nine nights of Navarātri. Today we propose to have a Havan.</font>
 </p>
 
 <div style="text-align: center"><img src="/images/image529.png" /></div>
