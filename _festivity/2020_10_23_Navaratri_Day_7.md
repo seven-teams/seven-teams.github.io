@@ -6,8 +6,6 @@ tags:
   - Navaratri
 ---
 
-
-
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
@@ -90,9 +88,8 @@ Now see these Feet, I don’t know if you see, the whole Universe I see there an
 <font color="DarkSlateBlue"><b>Teri Jayjaykar. Ho /b></font><br>
 <font size="+0">We pay our salutations to You!<br>
 Durgati Harini Durgā Ambe</font><br>
-<a href="https://www.youtube.com/watch?v=8wJBzMrRPHA&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="DarkRed">"So you should become sat guṇī. In sat guṇa, the highest quality is, Śhaṅkarāchārya, Ādi Śhaṅkarāchārya was asked, “Which is the greatest quality?” He said “Devī Bhakti, Mother’s Bhakti.” <b>She is Devī your Mother is the Devī. Understanding that you should do Her bhakti. In that bhakti, there should not be any falsehood.</b> The first quality, the highest quality, if it is seen in a human being from his heart, all his bad qualities will be destroyed, he will get light and attain Mokṣha [liberation]. That is why Śhaṅkarāchārya has always praised the Devī. In the beginning, He has described a lot, written lots of books like Vivekachūḍāmaṇi, etc. Lastly, He said that, “By only pleasing the Devī one can get everything, then why do these things? Why to do debates? Why to do discourses and break one’s head? <b>Just praise the Devī and you will get whatever one wants.</b>"</font><br>
@@ -103,16 +100,14 @@ Durgati Harini Durgā Ambe</font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1999-1017 Navarātri Pūjā (8th Day), The Powers of Śhrī Mahākālī, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
-<a href="https://www.youtube.com/watch?v=Ck0mMuTD0cY&feature=emb_logo&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a><br>
-%pr
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
  
 <p>
 <font color="green"><b>Śhrī Durgā Chalisa</b></font><br>
-<a href="https://www.youtube.com/watch?v=DXp2gNxp0tc&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <p>
 <font color="green"><b>Jai Durgā Mātā Bhavānī (Rāg Durgā by Ajit Kadkade)</b></font><br>

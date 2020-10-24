@@ -30,7 +30,7 @@ This is a most fortunate and divine coincidence for Me also, that on a Ṣhaṣh
 
 <p>
 <font size="+0">Dear All,<br>
-On the Auspicious day of the Shashti (6th night of Navarātri), we worship all the Śhaktis. We take the name Śhrī Katyayani (The foster-daughter of Sage Katyayana). Sage Katyayana underwent long austerities and penance in order to receive the grace of the Mother Goddess. He wished to have a daughter in the form of a goddess. According to his wish and desire, the Mother Goddess granted his request and took an incarnation as Śhrī Durgā.<br> 
+On the Auspicious day of the Shashti (6th night of Navarātri), we worship all the Śhaktis. We take the name Śhrī KKātyāyanī (The foster-daughter of Sage KKātyāyana). Sage Kātyāyana underwent long austerities and penance in order to receive the grace of the Mother Goddess. He wished to have a daughter in the form of a goddess. According to his wish and desire, the Mother Goddess granted his request and took an incarnation as Śhrī Durgā.<br> 
 Today is the 6th day of the nine nights of Navarātri. Today we propose to have a havan.</font>
 </p>
 
@@ -40,11 +40,10 @@ Today is the 6th day of the nine nights of Navarātri. Today we propose to have 
 <font color="DarkRed"><b>Śhrī Mātājī</b>: [explains that Kattyayeni (Kātyāyanī) killed the demon Kolhāsur and this is why Kolhapur is called as such].</font><br>
 <font size="+0"><b>1995-03xx Conversation with K.T. Tan with a Handwritten Line, during a Meal, Kuala Lumpur, Malaysia</b></font><br>
 <font color="DarkSlateBlue">Auṃ Twameva sākṣhāt Śhrī Kātyāyanī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</font><br>
-O Divine Mother, You are verily Śhrī Katyayani, the one who is the foster-daughter of Sage Katyayana, Salutations to You!<br>
-<font size="+0">Namostute (Mantra of Śhrī Katyayani is taken)</font><br>
-<a href="https://www.youtube.com/embed/xlhoVI-SylQ?hl=en&fs=1">video</a>
+O Divine Mother, You are verily Śhrī Kātyāyanī, the one who is the foster-daughter of Sage Kātyāyana, Salutations to You!<br>
+<font size="+0">Namostute (Mantra of Śhrī Kātyāyanī is taken)</font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="DarkRed">"In this way many false gurus have taken birth on this Earth. In their previous births they were rākṣhasas like Narakāsura, Mahiṣhāsura, Chaṇḍā, Muṇḍa and others. In addition to those who have been named, a whole lot of them have taken birth. Out of these, there are sixteen main ones, who are most evil and dangerous. Rāvaṇ has also made his entry. They are all on the stage.<br>
@@ -68,16 +67,14 @@ In the same way, we have to promise that we will be consuming all that is evil, 
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1981-0407 Śhrī Lalitā Havan, after Śhrī Gṛuhalakṣhmī Pūjā, Sydney, New South Wales, Australia</b></font>
-<a href="https://www.youtube.com/watch?v=fr34fWJiodE&feature=emb_logo&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a><br>
-%pr
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
 <font color="green"><b>Durgā Ādi Śhakti Śhrī Mātājī</b></font><br>
-<a href="https://www.youtube.com/watch?v=VDG_hBVrztQ&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
  
 <p>
 <font color="green"><b>Sarva Maṅgala</b></font><br>
