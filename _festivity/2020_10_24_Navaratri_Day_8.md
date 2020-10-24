@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating the Navarātri festival: Sahaja Yoga is the Power of Compassion and Love of God Almighty." '
+title: '2020 Celebrating the Navarātri festival: "Sahaja Yoga is the Power of Compassion and Love of God Almighty." '
 date: 2020-10-24
 permalink: /festivity/2020/10/24
 tags:
@@ -103,15 +103,14 @@ Ayi Giri Nandini (Mahiṣhāsuramardinī)</font><br>
 
 <p>
 <font color="green"><b>Durgati Harini Durgā Ambe</b></font><br>
-<a href="https://www.youtube.com/watch?v=8wJBzMrRPHA&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
 <font color="green"><b>Sarva Mangala</b></font><br>
 <a href="https://www.youtube.com/watch?v=Muz4_qCjghQ&ab_channel=SahajaYoga">video</a>
 </p>
-%pr
- 
+
 <p>
 <font color="green"><b>He Ādi Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=7xjFWTP_110&feature=emb_logo&ab_channel=SahajaYoga">video</a> 
