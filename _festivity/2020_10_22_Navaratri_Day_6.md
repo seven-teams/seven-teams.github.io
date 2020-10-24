@@ -39,7 +39,7 @@ Today is the 6th day of the nine nights of Navarātri. Today we propose to have 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>Śhrī Mātājī</b>: [explains that Kattyayeni (Kātyāyanī) killed the demon Kolhāsur and this is why Kolhapur is called as such].</font><br>
 <font size="+0"><b>1995-03xx Conversation with K.T. Tan with a Handwritten Line, during a Meal, Kuala Lumpur, Malaysia</b></font><br>
-<font color="DarkSlateBlue">Auṃ Twameva sākṣhāt Śhrī Kātyāyanī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</font><br>
+<font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Kātyāyanī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 O Divine Mother, You are verily Śhrī Kātyāyanī, the one who is the foster-daughter of Sage Kātyāyana, Salutations to You!<br>
 <font size="+0">Namostute (Mantra of Śhrī Kātyāyanī is taken)</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
