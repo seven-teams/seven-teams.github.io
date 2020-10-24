@@ -56,7 +56,7 @@ We prostrate before Her who is at once most gentle and most terrible.<br>
 We salute Her again and again.<br>
  Salutations to Her who is the support of all the world.<br>
 Salutations to the Devī who is the form of volition.<br>
-Oh Queen of all, You who exist in the form of all, and possess every might, save us from error, oh Devī.<br>
+O Queen of all, You who exist in the form of all, and possess every might, save us from error, oh Devī.<br>
 Salutation be to you, Devī Durgā.
 </p>
 
@@ -85,7 +85,7 @@ Now see these Feet, I don’t know if you see, the whole Universe I see there an
 <font size="+0">We have come to Your Lotus Feet with our devotions</font><br>
 <font color="DarkSlateBlue"><b>Bin.ti Ma Swikar. Karo</b></font><br>
 <font size="+0">Please accept our prayers</font><br>
-<font color="DarkSlateBlue"><b>Teri Jayjaykar. Ho /b></font><br>
+<font color="DarkSlateBlue"><b>Teri Jayjaykar. Ho</b></font><br>
 <font size="+0">We pay our salutations to You!<br>
 Durgati Harini Durgā Ambe</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
