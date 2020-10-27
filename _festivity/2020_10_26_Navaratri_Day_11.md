@@ -16,7 +16,7 @@ tags:
 <div style="text-align: center"><img src="/images/image544.png" /></div>
 
 <p style="color:DarkSlateBlue; text-align:center;">
-<b>To The Devī,
+<b>To The Devī,<br>
 To The Mahādevī,<br>
 We Bow Again And Again.<br>
 Let Those Who Have Ears Hear,<br>
@@ -30,7 +30,7 @@ Grant Us To Be Victorious in Spreading Sahaja Yoga.</b><br>
 On one side She was Ocean of Love and Compassion, and on the other side She was protecting them like a tigress; because the times were such that nobody could meditate, nobody could take the name of God, nobody could think even of Self-realization. But those who are sitting here today, you have been there also in those days, and you were all saved for today, for this day, so that you can achieve your Self-realization.<br>
 ......<br>
 So, like nine months the mother has to keep the child in her womb, for these nine months or you can say nine yugas, nine times, you all have been saved properly, and on the tenth month you are given your birth"</font><br>
-<font size="+0"><b>>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
+<font size="+0"><b>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image545.png" /></div>
@@ -56,7 +56,7 @@ Now you should assume your power. On Navarātri now, you should understand that 
 
 <p>
 <font color="DarkRed">"It’s very remarkable that, not only that you recognize Me as a Mother who loves you very much, but a Mother who is powerful to protect you. Is very powerful. If you realize that and if you feel that within your heart. Supposing I correct you some time, instead of feeling sad you should see that, ‘How fortunate I am that Ādi Śhakti Herself is correcting me. She’s taking interest in me. How fortunate I am to be born at this time, to be with Her in Her great work. What have I done [to deserve this]?’ <b>This recognition itself will fulfill all the Incarnations of Navarātri.</b>"</font><br>
-<font size="+0"><b>[1991-1013 Navarātri Pūjā (6th Day), False Religion or Recognize Me, Tent, Cabella Ligure, Alessandria, Italy</b></font>
+<font size="+0"><b>1991-1013 Navarātri Pūjā (6th Day), False Religion or Recognize Me, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image546.png" /></div>
