@@ -66,7 +66,7 @@ And ṛiddhi is by which contentment, peace, joy. Means that you grow into that,
 <font size="+0"><b>1992-1014 Talk to Sahaja Yogis, after Śhrī Mahākālī Pūjā, Salvador, Bahia, Brazil</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Vishwa Vandita</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
-<font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Siddhi-datri sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><<br>
+<font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Siddhi-datri sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><br>
 O Divine Mother, You are verily Siddhi-datri, the one who is the bestower of siddhis (divine powers)<br>
 Salutations to You!</font>
 </p>
