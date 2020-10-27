@@ -107,7 +107,7 @@ It is not only recognition, but imbibe.' </b>"</font><br>
 
 <p>
 <font color="green"><b>Nirmal Mā Jagdambe Mā</b></font><br>
-<a href=""https://www.youtube.com/watch?v=bkuIgsoTXoo&ab_channel=SahajaYoga>video</a> 
+<a href="https://www.youtube.com/watch?v=bkuIgsoTXoo&ab_channel=SahajaYoga">video</a> 
 </p>
 
 <p>
