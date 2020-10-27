@@ -10,7 +10,7 @@ tags:
 
 <p>
 <font color="DarkRed">"<b>Pūjā should be done with your heart, feeling the love within you that you are worshiping your Mother, who is an Incarnation of Ādi Śhakti, is a very great thing.</b> Do it with your heart, not with your mind. That’s why you know we do not allow many people to come for Pūjā, because that creates another whirlwind of rationality. Once you are detached from yourself, all your problems become so tiny as you see from the sky, from the aeroplane all the far-fetched things which are not so important. And the problems that are going in the houses down below do not touch you. You go beyond clouds and you live in the area of that space of Divine Love. Then all your petty things irritating things, all your so-called problems of live, all disappear and then only you can be effective more, much more effective, because you become a source of Divine Love. Pūjā is the only way I feel, you can stop your mental activity. Sahaja Yoga cannot be understood through rationality. Mentally it may be, but to become you have detach yourself completely. You have to go beyond it, because this limits your movement."</font><br>
-<font size="+0"><b>1980-0420 Pūjā, Significance of Pūjā, Flat of Marie Rouger, 175 Av. Ledru Rollin, 11th Arrondissement, Paris, France</b></font>
+<font size="+0"><b>1980-0420 Pūjā, Significance of Pūjā, Flat of Marie Rouger, Paris, France</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image544.png" /></div>
