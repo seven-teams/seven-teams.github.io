@@ -16,7 +16,7 @@ tags:
 <div style="text-align: center"><img src="/images/image540.png" /></div>
 
 <p style="text-align:center;">
-<font color="Crimson"><b>What is Your prowess to be compared to?<br> 
+<font color="DarkRed"><b>What is Your prowess to be compared to?<br> 
 Where can one find this beauty (of Yours) most charming, (yet) striking fear in enemies?<br> 
 Compassion in heart and relentlessness in battle are seen, 
 O Devī, <br> 
@@ -26,7 +26,7 @@ O Bestower of boons, only in You in all the three worlds!</b></font><br>
 
 <p>
 <font color="DarkRed">"She came on this Earth many a times, to kill the people who were doing wrong things, who were trying to kill good people. She has done Her level [best] to do that, and today we are celebrating Her birthday.<br>
-You all know so much about it, that I need not tell you, but what you have to know is that She came on this Earth to save you from all kinds of troubles. <b>For Her you were important, very important, because you were doing Devī Pūjā and so we are celebrating today this Devī Pūjā, with all our heart, because whatever ill people did to you, She came to destroy them. So today is a very great day for you to thank Her; thank Her for Her protection and for Her understanding as to what you have been tortured for.</b>
+You all know so much about it, that I need not tell you, but what you have to know is that She came on this Earth to save you from all kinds of troubles. <b>For Her you were important, very important, because you were doing Devī Pūjā and so we are celebrating today this Devī Pūjā, with all our heart, because whatever ill people did to you, She came to destroy them. So today is a very great day for you to thank Her; thank Her for Her protection and for Her understanding as to what you have been tortured for.</b><br>
 I’m happy you are all here to celebrate Her birthday, and to be surrendered to Her so that She can always, always protect you, and give you Her blessings.<br>
 So may God bless you all, your children, your families, and that you bring great joy and protection."</font><br>
 <font size="+0"><b>2003-1012 Navarātri Pūjā (8th day after Dussehra Day), Birthday of Śhrī Gaurī, Nevele Grande Hotel, 1 Country Club Road, Town of Wawarsing (outside Ellenville, 90 kms N of Manhattan), NY, U.S.A.</b></font>
@@ -44,10 +44,10 @@ So the problem today is very delicate. There are no absolute Saints and there ar
 <font color="DarkRed">"...... On this day of Dussehra, let us decide that we are going to have Rām Rāj in Sahaja Yoga, 
 where there is benevolence, there is love, compassion, security, peace, joy, discipline among ourselves."</font><br>
 <font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Switzerland</b></font><br>
-<font color="DarkSlateBlue"><b>Jai jai Raghuvīra Samartha</b></font><br>
-<font color="DarkSlateBlue">Victory to the all-powerful Śhrī Rama!</font><br>
+<font color="DarkSlateBlue"><b>Jai Jai Raghuvīra Samartha</b></font><br>
+<font color="DarkSlateBlue">Victory to the all-powerful Śhrī Rāma!</font><br>
 <font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Rāma sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
-<font color="DarkSlateBlue">O Divine Mother, You are verily Śhrī Rāma. Salutations to You!
+<font color="DarkSlateBlue">O Divine Mother, You are verily Śhrī Rāma. Salutations to You!</font><br>
 <font size="+0"><font color="DarkGreen"><b>Raghu Pati Raghav</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
