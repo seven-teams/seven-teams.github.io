@@ -60,12 +60,14 @@ where there is benevolence, there is love, compassion, security, peace, joy, dis
 <div style="text-align: center"><img src="/images/image542.png" /></div>
 
 <p style=" text-align:center;">
-<font color="Red"><b>“Ṛiddhi siddhi ki dātri hai”: means She is the giver of siddhis.<br> 
+<font color="DarkRed"><b>“Ṛiddhi siddhi ki dātri hai”: means She is the giver of siddhis.<br> 
 Siddhis means by which you get powers, to give Realization to people, to cure people, to manifest all the Divinity, Siddhis.</b><br> 
 And ṛiddhi is by which contentment, peace, joy. Means that you grow into that, ṛiddhi.</font><br>
-<font size="+0"><font color="DarkGreen"><b>1992-1014 Talk to Sahaja Yogis, after Śhrī Mahākālī Pūjā, Salvador, Bahia, Brazil</b>Vishwa Vandita</font></font><br>
+<font size="+0"><b>1992-1014 Talk to Sahaja Yogis, after Śhrī Mahākālī Pūjā, Salvador, Bahia, Brazil</b></font><br>
+<font color="DarkGreen"><font size="+0"><b>Vishwa Vandita</b></font></font><br>
 <font size="+0"></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html"><b>Auṃ Twameva sākṣhāt Śhrī Siddhi-datri sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Siddhi-datri sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><<br>
 O Divine Mother, You are verily Siddhi-datri, the one who is the bestower of siddhis (divine powers)<br>
 Salutations to You!</font>
 </p>
