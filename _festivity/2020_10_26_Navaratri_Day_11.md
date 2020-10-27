@@ -166,7 +166,7 @@ That’s the main thing. I call you for these Pūjās just to renovate, I should
 <font size="+0">Śhrī Mātājī, in this country (America) which should be the land of integration, the brain of the people has been atomized into little bits and fragments. Hence those brains are unable to get the vision of the whole, the vision of Your plan.<br>
 Śhrī Ādi Śhakti, please undo the evil that men have done. <br>
 These and other evils are the fruit of our karmas, May they be blown away by the wind of the Holy Spirit. </font><br>
-<font color="DarkBlueSlate"><b> Sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font>
+<font color="DarkSlateBlue"><b> Sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font>
 </p>
 
 
