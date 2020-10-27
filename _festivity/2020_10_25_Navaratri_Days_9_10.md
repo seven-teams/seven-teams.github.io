@@ -46,7 +46,7 @@ where there is benevolence, there is love, compassion, security, peace, joy, dis
 <font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Switzerland</b></font><br>
 <font color="DarkSlateBlue"><b>Jai Jai Raghuvīra Samartha</b></font><br>
 <font color="DarkSlateBlue">Victory to the all-powerful Śhrī Rāma!</font><br>
-<font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Rāma sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
+<font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Rāma sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 <font color="DarkSlateBlue">O Divine Mother, You are verily Śhrī Rāma. Salutations to You!</font><br>
 <font size="+0"><font color="DarkGreen"><b>Raghu Pati Raghav</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
@@ -65,7 +65,6 @@ Siddhis means by which you get powers, to give Realization to people, to cure pe
 And ṛiddhi is by which contentment, peace, joy. Means that you grow into that, ṛiddhi.</font><br>
 <font size="+0"><b>1992-1014 Talk to Sahaja Yogis, after Śhrī Mahākālī Pūjā, Salvador, Bahia, Brazil</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Vishwa Vandita</b></font></font><br>
-<font size="+0"></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt Śhrī Siddhi-datri sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b><<br>
 O Divine Mother, You are verily Siddhi-datri, the one who is the bestower of siddhis (divine powers)<br>
