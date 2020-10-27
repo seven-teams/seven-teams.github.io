@@ -123,7 +123,7 @@ Like a soldier who knows where should he go, he knows the map and understands wh
 man from man, woman from woman, nation from nation, will all finish off as soon as you become innocent but you can’t become, by brain-washing you cannot.<br> 
 By Kuṇḍalinī awakening, of course you can. But to maintain it, your progress should be inward’ and not outward."</font><br>
 <font size="+0"><b>1982-1017 Navarātri Pūjā (1st Day), Innocence and Virginity (Your Śhakti Is Your Kuṇḍalinī and She Is Virginity or A New Page Has Been Turn), Temple of All Faiths, Hampstead, London, UK</b></font><br>
-<font color="DarkGreen"><font size="+0">We bow and pray to You Śhrī Mahākālī, please Hear us<br>
+<font color="DarkGreen"><font size="+0">We bow and pray to You Śhrī Mahākālī, please Hear us</font></font><br>
 <font size="+0">We pray for the destruction and removal of all the fanaticism, all racialism, casteism, which is artificially separating man from man, a woman from woman, nation from nation. </font><br>
 <font color="DarkGreen"><font size="+0">Śhrī Ādi Śhakti, please undo the evil that men have done.</font></font>
 </p>
