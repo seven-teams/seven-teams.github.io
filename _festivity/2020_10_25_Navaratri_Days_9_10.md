@@ -101,7 +101,7 @@ Salutations to You!</font>
 <font color="green"><b>Pasāyadān</b></font><br>
 'O God, The entire Cosmos Divine, Be pleased with this pious word offering of mine,
 Grant me in good will benign, Your Benevolent Grace Divine<br>
-(Gyāneśhwarī is considered to be a masterpiece in Marathi literature. At the end of which Gyāneśhwara asks for the blessings of the Almighty through this Pasāyadān)<br>
+(Gyāneśhwarī is considered to be a masterpiece in Marathi literature, at the end of which Gyāneśhwara asks for the blessings of the Almighty through this Pasāyadān)<br>
 <a href="https://www.youtube.com/watch?v=IcphtsDeZmM&ab_channel=VishwaNirmalaDharma">video</a> 
 </p>
 
@@ -113,7 +113,7 @@ Grant me in good will benign, Your Benevolent Grace Divine<br>
 <div style="text-align: center"><img src="/images/image543.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"<b>Falsehood is growing faster. Fanaticism is in the action and people are wasting their lives by going here and there.M/<br>
+<font color="DarkRed">"<b>Falsehood is growing faster. Fanaticism is in the action and people are wasting their lives by going here and there.</b><br>
 You don’t know God has created you with compassion. You have crossed many generations to reach this stage of human beings.<br>
 You should gain something from this freedom who are we? How much labor has He made to make us, in compassion, by giving nourishment, beauty.<br> 
 Human personality has reached to a stage. You must think over it. You should know who are you?<br> 
