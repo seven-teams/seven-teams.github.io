@@ -10,7 +10,7 @@ tags:
 
 <p>
 <font color="DarkRed">"Today’s day there are many people in the whole world who are meditating. I am thinking of all those people. You have to also think [of] all of them and know that they are part and parcel of My Being as you all are. And you are the alert ones. So, at this time in this Pūjā, you are not only doing Pūjā for yourself, for London people, but for the whole world. Not only for Sahaja Yogis who are all over, of course for them also, but in this Pūjā you are expressing yourself as Sahaja Yogis who have recognized Me, and are requesting to bless the rest of the people so that they also recognize Me as you have recognized. By this Pūjā I hope recognition will be much more clearer. <b>By My recognition only you will recognize your Self and the whole thing will work out in a very, very beautiful manner.</b></font><br>
-<font size="+0"><b>[1980-0505 Sahasrāra Pūjā, Sincerity is the Key of Your Success, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
+<font size="+0"><b>1980-0505 Sahasrāra Pūjā, Sincerity is the Key of Your Success, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image540.png" /></div>
