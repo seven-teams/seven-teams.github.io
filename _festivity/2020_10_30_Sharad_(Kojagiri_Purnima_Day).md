@@ -49,19 +49,19 @@ This bhajan was composed by Bābā Māmā.
 </p>
 
 <p>
-<font size="0">Dear brothers and sisters,<br>
+<font size="+0">Dear brothers and sisters,<br>
 Jai Shri Mataji!<br>
 Today is Sharad Purnima or Kojagiri Purnima.  This is a harvest festival celebrated on the full moon day of the Hindu lunar month of Ashvin (September–October). It marks the end of the monsoon. There is a traditional celebration of the moon.</font>
 </p>
 
 <p>
-<font size="0"><b>"In 82, 83 or 84 we celebrated Kojagiri Purnima with Shri Mataji at Hall in Saneguruji Vidyalay, Dadar, Mumbai where weekly Saturday meeting took place. She prepared milk also for all of us.
+<font size="+0"><b>"In 82, 83 or 84 we celebrated Kojagiri Purnima with Shri Mataji at Hall in Saneguruji Vidyalay, Dadar, Mumbai where weekly Saturday meeting took place. She prepared milk also for all of us.
 She mentions in that talk "Goddess comes to everybody's house late at night on that day She ask "Kojagarti" in Sanskrit mean who has not awakened yet."<br>
 The recollection of a Sahaja Yoginī from Mumbai, India.</b></font>
 </p>
 
 <p>
-<font size="0"><b>The Significance of this festivity:</b><br>
+<font size="+0"><b>The Significance of this festivity:</b><br>
 On this auspicious day of Sharad Purnima or Kojagiri, moonlights are filled with Amrut which clears negativities and all the diseases.<br>
 On this day it is believed that Shri Mahalakshmi comes on the earth and goes about from place to place asking, "Who is awake?"("Kojagarti" ) and She showers Her blessings on those She finds awake.<br>
 Hence, the night is spent in festivity, singing, and praising in honor of the Goddess. So people sit in the moonlight singing bhajans in praise of the Devī. Thus this Kojagiri night in India is celebrated customarily by observing a night-vigil and other rituals.<br>
