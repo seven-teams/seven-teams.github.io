@@ -50,7 +50,7 @@ This bhajan was composed by Bābā Māmā.
 <p>
 <font size="+0">Dear brothers and sisters,<br>
 Jai Śhrī Mātājī!<br>
-Today is Śhārad Pūrṇimā or Kojāgirī Pūrṇimā.  This is a harvest festival celebrated on the full moon day of the Hindu lunar month of Ashvin (September–October). It marks the end of the monsoon. There is a traditional celebration of the moon.</font>
+Today is Śhārad Pūrṇimā or Kojāgirī Pūrṇimā.  This is a harvest festival celebrated on the Full Moon Day of the Hindu lunar month of Āśhvin (September–October). It marks the end of the monsoon. There is a traditional celebration of the moon.</font>
 </p>
 
 <p>
