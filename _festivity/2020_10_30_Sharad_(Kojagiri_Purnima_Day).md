@@ -18,11 +18,11 @@ tags:
 <div style="text-align: center"><img src="/images/image548.png" /></div>
 
 <p style="text-align:center;">
-<font size="+0"><font color="DarkGreen"><b>Mauline thothavile dar</b></font></font><br>
+<font size="+0"><font color="DarkGreen"><b>Maulīne thothāvile ḍār</b></font></font><br>
 <font size="+0"><font color="DarkGreen">Mother has knocked on your door<br>
 <b>Houni za ata gadya par</b></font></font><br>
 <font size="+0"><font color="DarkGreen">Now, friend cross the Ocean of Māyā by getting your Realization.</font></font><br>
-<font color="DarkGreen">MAULINE THOTHAVILE DAAR</font><br>
+<font color="DarkGreen">MAULĪNE THOTHĀVILE ḌĀR</font><br>
 <a href="https://www.youtube.com/watch?v=TEFYMvTc6V0&ab_channel=sykrassisf">video</a><br>
 This bhajan was composed by Bābā Māmā.
 </p>
