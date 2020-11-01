@@ -63,7 +63,7 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
     vii. **<font color="DarkGreen">2020 Celebrating 50 Years of Sahaja Yoga in the World</font>**
 
 
-7. **<font color="blue">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017. For other databses of transcripts please see:
+7. **<font color="blue">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017. For other databases of transcripts please see:
 
 
     i. <a href="https://www.amruta.org/transcripts-and-translations/"> Nirmala Vidya Amruta</a>
