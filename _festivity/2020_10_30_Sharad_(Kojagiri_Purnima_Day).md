@@ -70,7 +70,7 @@ Popularly on this day milk is boiled along with rice and made into  ‘kheer’ 
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1984-0218 Śhrī Chandramā Pūjā (Marathi+English+Marathi), Vaitarna, Maharashtra, India</b></font>
-<a href="https://www.youtube.com/watch?v=lw5h5fnhqm4&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
  
