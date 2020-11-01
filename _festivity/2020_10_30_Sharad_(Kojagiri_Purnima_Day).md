@@ -62,10 +62,10 @@ The recollection of a Sahaja Yoginī from Mumbai, India.</b></font>
 <p>
 <font size="+0"><b>The Significance of this festivity:</b><br>
 On this auspicious day of Śhārad Pūrṇimā or Kojāgirī, moonlights are filled with Amrut which clears negativities and all the diseases.<br>
-On this day it is believed that Śhrī Mahālakṣhmī comes on the earth and goes about from place to place asking, "Who is awake?"("Kojagarti" ) and She showers Her blessings on those She finds awake.<br>
-Hence, the night is spent in festivity, singing, and praising in honor of the Goddess. So people sit in the moonlight singing bhajans in praise of the Devī. Thus this Kojāgirī night in India is celebrated customarily by observing a night-vigil and other rituals.<br>
+On this day it is believed that Śhrī Mahālakṣhmī comes on the earth and goes about from place to place asking, "Who is awake?" ("Kojagarti") and She showers Her blessings on those She finds awake.<br>
+Hence, the night is spent in festivity, singing, and praising in honor of the Goddess. So people sit in the moonlight singing bhajans in praise of the Devī. Thus this Kojāgirī night in India is celebrated customarily by observing a night vigil and other rituals.<br>
 All the Sahaja yogis on this night collectively sing bhajans/praises to Śhrī Mātājī enlightening our powers within.
-Popularly on this day milk is boiled along with rice and made into  ‘kheer’ – and dry fruits are added to make it delicious that is offered to the Devi and consumed.</font>
+Popularly on this day milk is boiled along with rice and made into  ‘kheer’ – and dry fruits are added to make it delicious that is offered to the Devī and consumed.</font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
