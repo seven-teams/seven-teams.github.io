@@ -18,12 +18,11 @@ tags:
 <div style="text-align: center"><img src="/images/image548.png" /></div>
 
 <p style="text-align:center;">
-<font size="0"><font color="DarkGreen"><b>Mauline thothavile dar</b><br>
-Mother has knocked on your door<br>
-<b>Houni za ata gadya par</b><br>
-Now, friend cross the Ocean of Māyā by getting your Realization.<br>
-MAULINE THOTHAVILE DAAR</font></font><br>
-</font></font><br>
+<font size="0"><font color="DarkGreen"><b>Mauline thothavile dar</b></font></font><br>
+<font size="0"><font color="DarkGreen">Mother has knocked on your door<br>
+<b>Houni za ata gadya par</b></font></font><br>
+<font size="0"><font color="DarkGreen">Now, friend cross the Ocean of Māyā by getting your Realization.</font></font><br>
+<font color="DarkGreen">MAULINE THOTHAVILE DAAR</font><br>
 <a href="https://www.youtube.com/watch?v=TEFYMvTc6V0&ab_channel=sykrassisf">video</a><br>
 This bhajan was composed by Bābā Māmā.
 </p>
@@ -42,9 +41,9 @@ This bhajan was composed by Bābā Māmā.
 <b>Mother, at Your doorstep,</b><br>
 <font color="DarkGreen"><b>Janmojanmachi Punyayi Az. Ali Majhiya Kami</b></font><br>
 <b>All the accumulated righteousness of many a birth today been put to proper use</b><br>
-<font color="DarkGreen"><b>Ai, Tujhiya Dhami </b></font><br>
+<font color="DarkGreen"><b>Ai, Tujhiya Dhami</b></font><br>
 <b>Mother, at Your doorstep</b><br>
-<font size="+0"><font color="DarkGreen"><b>Brahma Shodhile</b></font></font><br><br>
+<font size="+0"><font color="DarkGreen"><b>Brahma Shodhile</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=OV64d6HbXHs&ab_channel=LotusSahajayoga">video</a>
 </p>
 
