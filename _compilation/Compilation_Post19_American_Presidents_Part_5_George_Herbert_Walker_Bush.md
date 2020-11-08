@@ -1,5 +1,5 @@
 ---
-title: 'Post 19: American Presidents, Part 4 (Richard Nixon)'
+title: 'Post 19: American Presidents, Part 5 (George Herbery Walker Bush)'
 date: 2020-11-07
 permalink: /compilation/2020/1107
 tags:
