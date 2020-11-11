@@ -12,7 +12,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,
 
 First, we would like to thank many of you for your support, encouragement and direct contributions. 
 
-In particular, we would like to thank Daniel Bostan for pointing out to us the discrepancy between Narakāsura and Tārakāsura. This has been addressed in this Version 3.2.
+In particular, we would like to thank Daniel Bostan for pointing out to us the discrepancy between Narakāsura and Tārakāsura. This has been addressed in the new Version 3.2.
 
 Also, Version 3.2 completes the feature<br>
 Three protocols observed towards <font color="red"><b>Śhrī Mātājī</b></font>: <font color="SaddleBrown"><b>Family Members</b></font>, <font color="Chocolate"><b>Seekers</b></font>, and <b>Sahaja Yogis</b>/<b>Sahaja Yoginīs</b>.
