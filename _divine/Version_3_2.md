@@ -1,7 +1,7 @@
 ---
-title: 'Divine Message, Version 3.1'
-date: 2020-09-13
-permalink: /divine/2020/09/13
+title: 'Divine Message, Version 3.2'
+date: 2020-11-11
+permalink: /divine/2020/11/11
 tags:
   - Divine Message
 ---
