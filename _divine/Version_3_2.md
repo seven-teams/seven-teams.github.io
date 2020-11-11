@@ -14,7 +14,7 @@ First, we would like to thank many of you for your support, encouragement and di
 
 In particular, we would like to thank Daniel Bostan for pointing out to us the discrepancy between Narakāsura and Tārakāsura. This has been addressed in this Version 3.2.
 
-Also, this Version 3.2 completes the feature<br>
+Also, Version 3.2 completes the feature<br>
 Three protocols observed towards <font color="red"><b>Śhrī Mātājī</b></font>: <font color="SaddleBrown"><b>Family Members</b></font>, <font color="Chocolate"><b>Seekers</b></font>, and <b>Sahaja Yogis</b>/<b>Sahaja Yoginīs</b>.
 
 The pdf file <font color="blue">Divine Message, Version 3.2</font>  is available at the 
