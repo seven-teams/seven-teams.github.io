@@ -128,5 +128,5 @@ Let's get together and get full advantage of this auspicious time so that all th
 
 <div style="text-align: left"><img src="/images/image556.png" /></div>
 <p>
-On behalf of the festivity team!</font>
+On behalf of the festivity team!
 </p>
