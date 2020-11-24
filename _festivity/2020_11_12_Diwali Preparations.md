@@ -21,13 +21,13 @@ No use talking about it. No use convincing about it. What works out is your desi
 <font color="DarkGreen">"<b>"The first day of Diwālī is called as Dhanatrayodaśhī: is the thirteenth day of the Moon.</b> Because that day is the first day when Lakṣhmī, the first ... was born on the thirteenth day. That means She was born as a Gṛuhalakṣhmī, as a housewife. there are eight Lakṣhmīs, which she will read it now and I will tell you later on what is the meaning of them. Just one of them is Gṛuhalakṣhmī.<br>
 <b>So the first is the form of a Gṛuhalakṣhmī. She is born as a Gṛuhalakṣhmī to begin with.</b>"</font><br>
 <font size="+0"><b>1980-1109 Diwālī Pūjā (Bhāūbīj Day), The Mahālakṣhmī Power, Temple of All Faiths, Hampstead, London, UK</b></font><br>
-<font color="Darkink"><font size="+0"><b>Śhrī LakṣhmīWelcome Song</b></font></font><br>
+<font color="Darkink"><font size="+0"><b>Śhrī Lakṣhmī Welcome Song</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=lLOalFn-UDA&feature=youtu.be&ab_channel=SahajaYoga">video</a>
 </p>
 
 <p>
 <font color="DarkRed">"<b>So today’s day is, as I told you, the thirteenth day is the Goddess, Dhanteras it is called, as that is the day of the Gṛuhalakṣhmī</b>; She came as Gṛuhalakṣhmī. In the household, the lady is the one who is the symbol of that Lakṣhmī, to begin with. Because she’s the one who looks after your food, looks after your comfort, she protects you, she nourishes you, she gives you joy. And the women who cannot do that are not Gṛuhalakṣhmī’s, they are not the ... ‘housewife’ is a very poor word for that. They are the gṛuhalakṣhmīs: <b>means they are the goddesses of the family</b>."</font><br>
-<font size="+0"><b>1982-1114 Diwālī Pūjā (Diwālī Day), Deeper Wealth, Divine Temperament, Fondness of Generosity, Keep your Suṣhumṇā Open and Real Days of Diwālī Celebration (The Greatest Generosity a Human Being Can Do Is to Forgive, All of Us Have to Go Together, Discretion to Improve Your Value System and Universal Theme for People), Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK]</b></font>
+<font size="+0"><b>1982-1114 Diwālī Pūjā (Diwālī Day), Deeper Wealth, Divine Temperament, Fondness of Generosity, Keep your Suṣhumṇā Open and Real Days of Diwālī Celebration (The Greatest Generosity a Human Being Can Do Is to Forgive, All of Us Have to Go Together, Discretion to Improve Your Value System and Universal Theme for People), Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>
 
 <p>
@@ -46,7 +46,7 @@ First of all, we should blame our society. Our housewives are not respected. Hou
 </p>
 
 <p style="text-align:center;">
-<font color="DarkRed">Shrī Mātājī</font>:<font color="DarkGreen"><b>Aham Sākshāt Gṛuhalakṣhmī, Aham Sākshāt Gṛuhalakṣhmī, Aham Sākshāt Gṛuhalakṣhmī, Aham Sākshāt Gṛuhalakṣhmī, Aham Sākshāt Gṛuhalakṣhmī – ah!</b></font><br>
+<font color="red"><b>Śhrī Mātājī</b></font>: <font color="DarkGreen"><b>Aham Sākshāt Gṛuhalakṣhmī, Aham Sākshāt Gṛuhalakṣhmī, Aham Sākshāt Gṛuhalakṣhmī, Aham Sākshāt Gṛuhalakṣhmī, Aham Sākshāt Gṛuhalakṣhmī – ah!</b></font><br>
 <font size="+0"><b>1980-0313 Public Program, The Meaning of Sahaja Yoga, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
@@ -86,7 +86,7 @@ I think her responsibility is much more difficult, subtler than that of men and 
 </p>
 
 <p>
-<font color="green"><b>Ashta LakṣhmīStotam by Pt. B Subramanian</b></font><br>
+<font color="green"><b>Ashta Lakṣhmī Stotam by Pt. B Subramanian</b></font><br>
 <a href="https://www.youtube.com/watch?v=5kcw39qFWZ8&ab_channel=SahajaYoga">video</a>
 </p>
 
@@ -96,7 +96,7 @@ I think her responsibility is much more difficult, subtler than that of men and 
 </p>
  
 <p>
-<font color="green"><b>LakṣhmīAli</b></font><br>
+<font color="green"><b>Lakṣhmī Ali</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
@@ -112,17 +112,18 @@ So, at least a person who has got Lakṣhmī money should be generous, he should
 And right hand he should protect all the people who are working under him or who are related to him, his relations or other things, or any other organizations or anything that he is connected with he should try to patronize it and protect it from all kinds of dangers."</font><br>
 <font size="+0"><b>1990-0624 Śhrī Lakṣhmī Pūjā, Summer House of Stamatis Boudouris, Island of Hydra, Greece</b></font>
 <br>
+<br>
 <font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Gṛuhalakshmī sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
 <font size="+0"><b>O Divine Mother, You are verily the ideal housewife. Salutations to You! </b></font>
 </p>
 
 <p>
-Dear All,<br>
+<font size="+0">Dear All,<br>
 Wishing you all a very Happy Diwālī!<br>
 Today we begin our 2020 Diwālī Celebrations with Dhanteras, the 13th day of the moon on Nov. 13, when we worship Śhrī Laxmi in Her form of Śhrī Gṛuhalakṣhmī.<br>
 On Nov. 14th, unusually, we have Narakachaturdashi and Diwālī Day together. Naraka Chaturdashi falls in the morning followed by Diwālī the same evening.<br>
 We are very fortunate to have received our Self-realization from the Divine Mother Herself, the same One Mother, who is the embodiment of all the Shaktis, Devis, Deities, etc., and in particular of all Forms of Lakshmi.<br> 
-Let's get together and get full advantage of this auspicious time so that all these Aspects of the Divine we are celebrating are awakening within us and are manifested to bring out the Divine Vision of Śhrī Mataji.
+Let's get together and get full advantage of this auspicious time so that all these Aspects of the Divine we are celebrating are awakening within us and are manifested to bring out the Divine Vision of Śhrī Mātājī.</font>
 </p>
 
 <div style="text-align: left"><img src="/images/image556.png" /></div>
