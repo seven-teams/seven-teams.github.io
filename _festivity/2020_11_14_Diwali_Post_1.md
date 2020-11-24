@@ -10,7 +10,7 @@ permalink: /festivity/2020/11/14
 <p>
 <font color="DarkRed">"Today we are here, all of us, to celebrate the Diwālī, that is Dīpawali meaning the rows of lights.<br>
 In the darkness of Kali Yuga when you find from every place confusion of the worst type creating the darkness which cannot be penetrate into, and which looks like a solid mountain around us, and which can never be covered, as we feel, by the Grace of God. And even with the Grace of God, it would never melt.<br>
-<b>In that darkness, in that hopeless state, when the creation is on the verge of its destruction, the light of Sahaja Yoga has arrived.<b>"</font><br>
+<b>In that darkness, in that hopeless state, when the creation is on the verge of its destruction, the light of Sahaja Yoga has arrived.</b>"</font><br>
 <font size="+0"><b>1988-1113 Diwālī Pūjā (5th day after Diwālī Day), You Are the Dīpas, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
 </p>
 
