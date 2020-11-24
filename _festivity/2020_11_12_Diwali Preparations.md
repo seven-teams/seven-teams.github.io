@@ -1,7 +1,7 @@
 ---
 title: '2020 Celebrating Diwālī Festivity: "That’s the real Diwālī: the enlightenment of human beings. It&#8217;s not candle, it’s not some lamp, but it’s human beings." '
 date: 2020-11-12
-permalink: /festivity/2020/01/132
+permalink: /festivity/2020/11/12
 tags:
   - Diwali
 ---
