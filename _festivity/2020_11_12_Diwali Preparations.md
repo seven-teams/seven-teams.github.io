@@ -103,7 +103,7 @@ I think her responsibility is much more difficult, subtler than that of men and 
 <div style="text-align: center"><img src="/images/image555.png" /></div>
 
 <p style="text-align:center;">
-<font color="FireBrick">"<b>"I would describe it to you that Lakṣhmī is the One who is a Mother by nature.</b><br> 
+<font color="Purple">"<b>"I would describe it to you that Lakṣhmī is the One who is a Mother by nature.</b><br> 
 So a person who has Lakṣhmī, a person who has got wealth must have a motherly benevolent temperament. That’s one thing.<br>
 Then another thing is that She stands on the lotus, in the water. So a person who has got Lakṣhmī must stand ... have a balance.<br>
 If he moves this side or that side, left or right side he, immediately goes inside the Bhavasāgar.<br>
