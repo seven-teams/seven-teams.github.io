@@ -30,9 +30,9 @@ It was to celebrate the coronation of Śhrī Rāma also, that is to say symbolic
 </p>
 
 <p>
-<font color="DarkRed">"<b>"Śhrī Rāma’s crowning or any other aspect of Śhrī Lakṣhmī here now becomes your crowning, that is now you have entered into the Kingdom of God and once you are there then automatically as the citizens of God’s Kingdom you are blessed and as you become the lotuses then you start spreading your fragrance all around.</b> Now you do not keep this joy to yourself but you become generous about it and you go all out to give it to others. Generosity at another level, at a lower level is transformed into this Universal Love. Whatever you gain, whatever joy, satisfaction, vibrations, knowledge, all that you want to give it to others. You want to spread it because now you got the reality and you don’t want to keep it to yourself, you think it is very important that everyone in the world should know about reality.<br>
+<font color="DarkRed">"<b>Śhrī Rāma’s crowning or any other aspect of Śhrī Lakṣhmī here now becomes your crowning, that is now you have entered into the Kingdom of God and once you are there then automatically as the citizens of God’s Kingdom you are blessed and as you become the lotuses then you start spreading your fragrance all around.</b> Now you do not keep this joy to yourself but you become generous about it and you go all out to give it to others. Generosity at another level, at a lower level is transformed into this Universal Love. Whatever you gain, whatever joy, satisfaction, vibrations, knowledge, all that you want to give it to others. You want to spread it because now you got the reality and you don’t want to keep it to yourself, you think it is very important that everyone in the world should know about reality.<br>
 This is significant in putting these lights, that now you are the lights. It is the darkest night today, tonight is the darkest night, in the same way these are the darkest days, this is the Kali Yuga and it is the core Kali Yuga, the worst time where the worst things are happening, human beings are going to the worst level and at this time we have to put Sahaja Yoga before them. You know what is the ordeal one has to go through to break the hard nuts of the brains of people, but it is working, it has clicked already.<br>
-..Now you have to enlighten many lights, we call it Dīpawali, Diwālī is dīpāwali, means the rows of lights, and by celebrating this Diwālī with so many of you I’m sure we’ll have such a torch of light which will go around the whole world. Just remember you are not a small drop, now you have become the Ocean and you have to spread. Now you are sitting on your thrones and assume your powers. You have all the powers within you, you have to just manifest it."</font><br>
+...... Now you have to enlighten many lights, we call it Dīpawali, Diwālī is dīpāwali, means the rows of lights, and by celebrating this Diwālī with so many of you I’m sure we’ll have such a torch of light which will go around the whole world. Just remember you are not a small drop, now you have become the Ocean and you have to spread. Now you are sitting on your thrones and assume your powers. You have all the powers within you, you have to just manifest it."</font><br>
 <font size="+0"><b>1992-1025 Diwālī Pūjā (Diwālī Day), Sala Olimpia (Olympia Sports Hall), Timişoara, Romania</b></font>
 </p>
 
@@ -77,7 +77,7 @@ I bless you all from My heart, all of you, for a very happy and prosperous Diwā
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1999-1107 Diwālī Pūjā (Diwālī Day), You Have to Be Very Meditative to Mature or Remove All the Darkness of Kali Yuga, Apollon Camping, Delphi, Greece</b></font>
-<a href="outube.com/watch?reload=9&v=cN0R36i0ODc&feature=emb_logo&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a><br>
+<a href="https://www.youtube.com/watch?reload=9&v=cN0R36i0ODc&feature=emb_logo&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -113,7 +113,7 @@ I bless you all from My heart, all of you, for a very happy and prosperous Diwā
 
 <p>
 <font color="green"><b>Vishwa Vandita</b></font><br>
-<a href="https://www.youtube.com/watch?v=-1L2orIZ1DU&feature=youtu.be&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
