@@ -2,6 +2,7 @@
 title: '2020 Celebrating Diwālī Festivity: "Diwālī is very significant because today is the darkest day, darkest night and longest night, and to end it up they put lights." '
 date: 2020-11-14
 permalink: /festivity/2020/11/14
+tags:
   - Diwali
 ---
 
