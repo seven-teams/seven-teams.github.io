@@ -9,8 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"How I give you Second Birth you know very well. I conceive you in My heart, otherwise I cannot do it.
-Because My heart is so pure, it cleanses you, My compassion, My love cleanses you, and then I can take you out of My Sahasrāra, otherwise, how will I do that? And when that is happened you have become a new personality.
+<font color="DarkRed">"How I give you Second Birth you know very well. I conceive you in My heart, otherwise I cannot do it. Because My heart is so pure, it cleanses you, My compassion, My love cleanses you, and then I can take you out of My Sahasrāra, otherwise, how will I do that? And when that is happened you have become a new personality.<br>
 So you are very different from all others because a Spirit has given birth to your Spirit. You have been cleansed by the Spirit. So you cannot live like that like all other human beings are living."</font><br>
 <font size="+0"><b>1983-1106 Diwālī Pūjā (Bhāūbīj Day), Become the Ideals (Unless and Until You Become Your Ideals You Are Not a Sahaja Yogi), Temple of All Faiths, Hampstead, London, UK</b></font>
 </p>
@@ -35,11 +34,12 @@ So you are very different from all others because a Spirit has given birth to yo
 <div style="text-align: center"><img src="/images/image567.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
+<font color="DarkRed"><b>"...... this new awakening within you that you have to achieve God now, is the Power of Mahālakṣhmī.</b> 
+By the Power of Mahālakṣhmī only, you achieve your saintliness, your Realization.</b></font><br>
 <font size="+0"><b>1980-1109 Diwālī Pūjā (Bhāūbīj Day), The Mahālakṣhmī Power, Temple of All Faiths, Hampstead, London, UK</b></font><br>
 <br>
 <font color="DarkRed"><b>
-Om Twameva sākṣhāt Śhrī Jagan-mātā, Mahālakṣhmī sākṣhāt,<br>
+Auṃ Twameva sākṣhāt Śhrī Jagan-mātā, Mahālakṣhmī sākṣhāt,<br>
 Śhrī Nirmalā Devī namo namaḥ</b></font><br>
 Śhrī Mātājī Nirmalā Devī, You are the Mother of this Universe<br>
 and the Power of Evolution.
@@ -101,7 +101,7 @@ about something making everybody’s life miserable. It’s against human dignit
 <div style="text-align: center"><img src="/images/image569.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"Then, <b>it has got two red, pink flowers in the hand, that are lotus flowers again.</b><br>
+<font color="DarkRed">"Then, <b>it has got two red, pink flowers in the hand, that are lotus flowers again.</b><br>
 Now the lotus is regarded as a very holy flower in India, because it is so receptive to everything that is crude and funny.
 First of all it is born in the mud. Just think of it, in the mud, in the filth, where the horrible smell is coming out, the lotus is born. 
 And the one lotus gives the fragrance, the beautiful fragrance to the whole atmosphere, and kills all that’s filth and everything, and covers the whole pond with its big, big leaves so that it looks a beautiful pond. That’s what is the lotus for. But this lotus is a pink lotus, means pink, you know is the sign of love.<br> 
@@ -110,7 +110,7 @@ Pink is the sign of love. So such a person has to have tremendous love and that 
 </p>
 
 <p>
-<font color="HotPink"><b>Happy Diwālī</b></font>	
+<font color="HotPink"><b>Happy Diwālī</b></font><br>	
 <font size="+0"><b>Jai Śhrī Mātājī!</b><br>
 <b>On behalf of the festivity team!</b></font>
 </p>
