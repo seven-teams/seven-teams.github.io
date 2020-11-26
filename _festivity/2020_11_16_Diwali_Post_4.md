@@ -62,12 +62,12 @@ This is the most important thing, which Sahaj Yogis don’t understand, that you
 <p style=" text-align:center;">
 <font color="DarkRed"><b>"So, for today’s New Year, let us vow within ourselves, that the selfishness or the self-centeredness or the smallness in you is finished."</b></font><br>
 <font size="+0"><b>1981-1231 Talk to Sahaja Yogis, New Year's Eve, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font><br>
-<font color="DarkGreen"><font size="+0"><b>Adi Shakti Mataji tere Charano meaya hu mein</b></font></font><br>
-<font size="+0">Adi Shakti Mataji I have come to Your Lotus Feet</font><br>
+<font color="DarkGreen"><font size="+0"><b>Ādi Śhakti Mātājī tere Charano meaya hu mein</b></font></font><br>
+<font size="+0">Ādi Śhakti Mātājī I have come to Your Lotus Feet</font><br>
 <font color="DarkGreen"><font size="+0"><b>Shyam Savere gun. Tere gaon,  Tera hijaya hun mein,</b></font></font><br>
 <font size="+0">Morning and evening I sing Your praise</font><br>
-<font color="DarkGreen"><font size="+0"><b></b></font></font><br>
-<font size="+0">Shri Mataji, I Have received Second Birth from You</font><br>
+<font color="DarkGreen"><font size="+0"><b>Śhrī Mā Tera hi jaya hu mein</b></font></font><br>
+<font size="+0">Śhrī Mātājī, I Have received Second Birth from You</font><br>
 <a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&index=15&list=PLC8554007A2C98EA0&ab_channel=VIOLONISTUL">video</a>
 </p>
 
