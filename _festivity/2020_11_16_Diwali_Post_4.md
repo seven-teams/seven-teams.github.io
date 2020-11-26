@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating Diwali Festivity: "the brotherhood and sisterhood is the base of our Sahaj Yoga collectivity." '
+title: '2020 Celebrating Diwālī Festivity: "the brotherhood and sisterhood is the base of our Sahaj Yoga collectivity." '
 date: 2020-11-16
 permalink: /festivity/2020/11/16
 tags:
