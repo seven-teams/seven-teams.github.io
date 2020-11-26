@@ -92,6 +92,8 @@ about something making everybody’s life miserable. It’s against human dignit
 <font color="green"><b>Jogawa</b></font><br>
 <a href="https://www.youtube.com/watch?v=FYbd_oXbyGs&ab_channel=SahajaYoga">video</a>
 </p>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FYbd_oXbyGs" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
  
 <p>
 <font color="green"><b>Tere hi Gun gate hai</b></font><br>
