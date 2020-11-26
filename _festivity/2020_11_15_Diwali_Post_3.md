@@ -40,8 +40,8 @@ By the Power of Mahālakṣhmī only, you achieve your saintliness, your Realiza
 <br>
 <font color="DarkRed"><b>
 Auṃ Twameva sākṣhāt Śhrī Jagan-mātā, Mahālakṣhmī sākṣhāt,<br>
-Śhrī Nirmalā Devī namo namaḥ</b></font><br>
-Śhrī Mātājī Nirmalā Devī, You are the Mother of this Universe<br>
+Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
+Śhrī Mātājī Nirmalā Devī, You are the Mother of this Universe!<br>
 and the Power of Evolution.
 </p>
 
