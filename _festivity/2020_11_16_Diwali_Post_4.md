@@ -32,7 +32,7 @@ Is pure relationship, where the sister prays for the protection of the brother a
 </p>
 
 <p>
-<font color="DarkRed">"Now the last day is very important, is a very universal day I should say, called as Bhāī Dūj, this day, or they call it also in Marathi Bhāūbīj, different names. The brothers and sisters day. Now the brothers’ and sisters’ relationship has to be very, very strong. And the purity of that relationship is to be maintained.<nbr>
+<font color="DarkRed">"Now the last day is very important, is a very universal day I should say, called as Bhāī Dūj, this day, or they call it also in Marathi Bhāūbīj, different names. The brothers and sisters day. Now the brothers’ and sisters’ relationship has to be very, very strong. And the purity of that relationship is to be maintained.<br>
 It is not necessary that you should be born as brothers and sisters, not necessary. But you are born, because if you are realized Souls you are born as brothers and sisters. So that purity must be maintained in the society of Sahaja Yoga. Very important, that we should try to develop this situation that brothers and sisters are something very pure. Their relationships are very pure. And they should not be at all challenged. It is so much so that even if you call somebody your brother, he is your brother and the more you develop this relationship, the better your left Viśhuddhi will be. Because left Viśhuddhi is the relationship with God as a brother or with a Goddess as a sister."</font><br>
 <font size="+0"><b>1981-1101 Diwālī Pūjā (5th day after Diwālī Day), The Mahālakṣhmī Powers and the Powers of Water, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font>
 </p>
@@ -42,9 +42,9 @@ It is not necessary that you should be born as brothers and sisters, not necessa
 <p style="text-align:center;">
 <font color="DarkRed">"Rakṣhābandhan Day, they give a symbolic expression to their desire that their brother should be good.<br>
 <b>But on this day they worship their brothers, actually worship them.</b>"</font><br>
-<font size="+0"><b>1980-1109 Diwālī Pūjā (Bhāūbīj Day), The Mahālakṣhmī Power, Temple of All Faiths, Hampstead, London, UK</b></font>
+<font size="+0"><b>1980-1109 Diwālī Pūjā (Bhāūbīj Day), The Mahālakṣhmī Power, Temple of All Faiths, Hampstead, London, UK</b></font><br>
 <br>
-<font size="+0"><b>Bābā Māmā (1990 March): This is what the brother has written for the sister: "O Nirmalā, my sister, how much should I praise You? Because You have given the human being the experience of God."</b></font>
+<font size="+0"><b>Bābā Māmā (1990 March): This is what the brother has written for the sister: "O Nirmalā, my sister, how much should I praise You? Because You have given the human being the experience of God."</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Nirmala, Kiti Varnavi Tujhi ga Stuti</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 </p>
