@@ -110,7 +110,7 @@ And the one lotus gives the fragrance, the beautiful fragrance to the whole atmo
 </p>
 
 <p>
-<font color="HotPink"><b>Happy Diwālī</b></font><br>	
+<font color="HotPink"><b>Happy Diwālī!</b></font><br>	
 <font size="+0"><b>Jai Śhrī Mātājī!</b><br>
 <b>On behalf of the festivity team!</b></font>
 </p>
