@@ -35,7 +35,7 @@ So you are very different from all others because a Spirit has given birth to yo
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"...... this new awakening within you that you have to achieve God now, is the Power of Mahālakṣhmī.</b> 
-By the Power of Mahālakṣhmī only, you achieve your saintliness, your Realization.</b></font><br>
+By the Power of Mahālakṣhmī only, you achieve your saintliness, your Realization.</font><br>
 <font size="+0"><b>1980-1109 Diwālī Pūjā (Bhāūbīj Day), The Mahālakṣhmī Power, Temple of All Faiths, Hampstead, London, UK</b></font><br>
 <br>
 <font color="DarkRed"><b>
