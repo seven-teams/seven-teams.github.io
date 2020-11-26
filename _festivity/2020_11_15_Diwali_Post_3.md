@@ -104,8 +104,8 @@ about something making everybody’s life miserable. It’s against human dignit
 <font color="DarkRed">"Then, <b>it has got two red, pink flowers in the hand, that are lotus flowers again.</b><br>
 Now the lotus is regarded as a very holy flower in India, because it is so receptive to everything that is crude and funny.
 First of all it is born in the mud. Just think of it, in the mud, in the filth, where the horrible smell is coming out, the lotus is born. 
-And the one lotus gives the fragrance, the beautiful fragrance to the whole atmosphere, and kills all that’s filth and everything, and covers the whole pond with its big, big leaves so that it looks a beautiful pond. That’s what is the lotus for. But this lotus is a pink lotus, means pink, you know is the sign of love.<br> 
-Pink is the sign of love. So such a person has to have tremendous love and that softness of the lotus.</b></font><br>
+And the one lotus gives the fragrance, the beautiful fragrance to the whole atmosphere, and kills all that’s filth and everything, and covers the whole pond with its big, big leaves so that it looks a beautiful pond. That’s what is the lotus for. But this lotus is a pink lotus, means pink, you know, is the sign of love.<br> 
+<b>Pink is the sign of love. So such a person has to have tremendous love and that softness of the lotus.</b></font><br>
 <font size="+0"><b>1981-0327 Public Program, Cycle 1, Day 3, Nābhī Chakra (Must Have a Balanced Attitude Towards Life), Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
 </p>
 
