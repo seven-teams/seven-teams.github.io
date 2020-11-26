@@ -64,7 +64,7 @@ This is the most important thing, which Sahaj Yogis don’t understand, that you
 <font size="+0"><b>1981-1231 Talk to Sahaja Yogis, New Year's Eve, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Ādi Śhakti Mātājī tere Charano meaya hu mein</b></font></font><br>
 <font size="+0">Ādi Śhakti Mātājī I have come to Your Lotus Feet</font><br>
-<font color="DarkGreen"><font size="+0"><b>Shyam Savere gun. Tere gaon,  Tera hijaya hun mein,</b></font></font><br>
+<font color="DarkGreen"><font size="+0"><b>Shyam Savere gun. Tere gaon, Tera hijaya hun mein,</b></font></font><br>
 <font size="+0">Morning and evening I sing Your praise</font><br>
 <font color="DarkGreen"><font size="+0"><b>Śhrī Mā Tera hi jaya hu mein</b></font></font><br>
 <font size="+0">Śhrī Mātājī, I Have received Second Birth from You</font><br>
