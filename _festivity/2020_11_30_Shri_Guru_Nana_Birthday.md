@@ -49,7 +49,7 @@ That is what we do in Sahaja Yoga. We do not follow any particular Saint or Inca
 </p>
 
 <p>
-<font color="DarkRed">"So, these Ten Principles, as I told you, They established [dharma]. They are created in the Void. As you see here the Void part, this part is made out of the water element. So, whatever miracles They did, had something to do with water, like They could create water anywhere they wanted to. They would not cure people. All of Them have created water in the desert or in the places where ... like in ... Nāṇaka has created a Pan̄jā Sāhab they call it, or everywhere They have been able to create water. Whatever They touched, They could create water out of it."</font><br>
+<font color="DarkGreen">"So, these Ten Principles, as I told you, They established [dharma]. They are created in the Void. As you see here the Void part, this part is made out of the water element. So, whatever miracles They did, had something to do with water, like They could create water anywhere they wanted to. They would not cure people. All of Them have created water in the desert or in the places where ... like in ... Nāṇaka has created a Pan̄jā Sāhab they call it, or everywhere They have been able to create water. Whatever They touched, They could create water out of it."</font><br>
 <font size="+0"><b>1999-1123 Śhrī Guru Nāṇaka Jayanti (Hindi), House, Noida, Uttar Pradesh, India</b></font>
 </p>
 
@@ -59,7 +59,7 @@ That is what we do in Sahaja Yoga. We do not follow any particular Saint or Inca
 <b>Ik­oaŉkār saṯ nām karṯā purakẖ nirbẖa­o nirvair akāl mūraṯ ajūnī saibẖaŉ gur parsāḏ.</b><br>
 There is One and only One God who is transcendent as well as immanent.<br>
 True and Eternal Name. Creator and Person. Without Fear and without Enmity.<br>
-<font size="+0"><b>Śhrī Guru Nāṇaka's Mool mantra</b></font><br>
+<font size="+0"><b>Śhrī Guru Nāṇaka's Mūl Mantra</b></font><br>
 </p>
 
 
@@ -71,9 +71,8 @@ True and Eternal Name. Creator and Person. Without Fear and without Enmity.<br>
 
 <p>
 <font color="blue"><b>Guru Bin Kaun</b></font><br>
-<a href="https://www.youtube.com/watch?v=7jjdlluWX8Q&feature=youtu.be&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
  
 <p>
 <font color="blue"><b>Nāṇak Muhammad</b></font><br>
@@ -137,7 +136,7 @@ On the auspicious occasion, we humbly offer the 19 invocations to Śhrī Guru N�
 <br>
 <font color="DarkGreen"><b>-Salutations</b></font> to the One whose sister was Nānakī, an incarnation of Śhrī Mahālakṣhmī on the left Viśhuddhi.<br>
 <br>
-<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Guru Nāṇaka sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!
+<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Guru Nāṇaka sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!
 
 </b></font>
 </p>
