@@ -38,10 +38,10 @@ May God bless you.</font><br>
 <div style="text-align: center"><img src="/images/image582.png" /></div>
 
 <p style="text-align:center;">
-<font size="-1"><font color="DarkGreen"><b>Gods, Goddesses of Vaikuntha<br>
+<font color="DarkGreen"><b>Gods, Goddesses of Vaikuntha<br>
 Bless us when we get together<br>
 On the shores of Gaṇapatīpuḷe<br>
-Our hearts get united through You, Mother</b><br>
+Our hearts get united through You, Mother</b></font><br>
 </p>
 
 <p>
