@@ -1,5 +1,5 @@
 ---
-title: '2020 CelebratingFestival: "The music that was used to please the Gods and Goddesses, was used to please the kings and the queens. And from them, it came to the masses" '
+title: '2020 Celebrating Gaṇapatīpuḷe Festival: "The music that was used to please the Gods and Goddesses, was used to please the kings and the queens. And from them, it came to the masses" '
 date: 2020-12-26
 permalink: /festivity/2020/12/26
 tags:
