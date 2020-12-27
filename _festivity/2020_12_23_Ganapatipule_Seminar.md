@@ -19,8 +19,8 @@ So that your body emits the power of Spirit alone. This is the first basic of Sa
 <div style="text-align: center"><img src="/images/image578.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen">"...... next day you will be in Gaṇapatīpuḷe which you will definitely say, 'Mother, You
-have brought us to the most beautiful spot ever known.' "</b></font><br>
+<font color="DarkGreen">"...... next day you will be in Gaṇapatīpuḷe which you will definitely say, <b>'Mother, You
+have brought us to the most beautiful spot ever known.' </b>"</font><br>
 <font size="+0"><b>1985-1224 Christmas Pūjā, Pune, Maharashtra, India</b></font>
 </p>
 
