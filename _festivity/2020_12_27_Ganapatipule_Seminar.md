@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating Christmas: "Christ&#8217;s Power was of course Auṃkāra. His Power was Praṇava ...... He is the Incarnation of tapasyā." '
+title: '2020 Celebrating Gaṇapatīpuḷe Festival: "Christ&#8217;s Power was of course Auṃkāra. His Power was Praṇava ...... He is the Incarnation of tapasyā." '
 date: 2020-12-27
 permalink: /festivity/2020/12/27
 tags:
