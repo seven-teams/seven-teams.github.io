@@ -46,12 +46,6 @@ If we see in the surroundings, the ocean, so beautiful and clean is washing the 
 
 <div style="text-align: center"><img src="/images/image580.png" /></div>
 
-<p style="text-align:center;">
-<font size="-1"><font color="DarkGreen"><b></b><br>
-</font></font><br>
-<a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&index=15&list=PLC8554007A2C98EA0">video</a>
-</p>
-
 <p style="color:blue; text-align:center;">
 <b>Swagat. Agat. Swa-gatam<br> 
 Ham. Sab. Kar.te Swa-gatam  </b><br>
