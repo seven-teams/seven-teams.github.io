@@ -34,7 +34,7 @@ Is not a place you have come for holiday or just for some sort of a relaxation o
 <div style="text-align: center"><img src="/images/image579.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Here, as we see in Gaṇapatīpuḷe, Śhrī Gaṇeśhana ... uh Gaṇeśha is in is ... Its complete, matured form so that we develop also our Mahāgaṇeśha within ourselves, and our eyes become pure, powerful and divine.</b></font><br>
+<font color="DarkRed">"Here, as we see in Gaṇapatīpuḷe, Śhrī Gaṇeśhana ... uh <b>Gaṇeśha is in is ... Its complete, matured form</b> so that we develop also our Mahāgaṇeśha within ourselves, and our eyes become pure, powerful and divine.</font><br>
 <font size="+0"><b>1986-0101 Śhrī Mahāgaṇeśha Pūjā (English+Marathi), Malgund (2.4 kms N of Gaṇapatīpuḷe), Maharashtra, India</b></font>
 </p>
 
