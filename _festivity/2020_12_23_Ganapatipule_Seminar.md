@@ -56,7 +56,7 @@ Ham. Sab. Kar.te Swa-gatam  </b><br>
 Dear All,<br>
 Jai Śhrī Mātājī!<br>
 To begin this year the traditional Gaṇapatīpuḷe Seminar, let's all together welcome Śhrī Mātājī with our open hearts by performing Āratī to Her and by refreshing our treasured moments we have spent worshiping Her in Gaṇapatīpuḷe.<br>
-This year the Celebrations will continue until December 29 with the main Pujas on December 25 (Christmas) and 27 (Śhrī Adi Guru Dattatreya Jayanti).
+This year the Celebrations will continue until December 29 with the main Pujas on December 25 (Christmas) and 29 (Śhrī Adi Guru Dattatreya Jayanti).
 Wish you all many spiritual accomplishments during the Seminar. 
 </p>
 
