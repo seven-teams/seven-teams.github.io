@@ -90,7 +90,7 @@ Wish you all many spiritual accomplishments during the Seminar.
 
 <p style="text-align:center;">
 <b>Śhrī Gaṇesha Swayambhu in Gaṇapatīpuḷe</b><br>
-10 Bija mantras of Śhrī Mahāgaṇesha, UK<br>
+10 Bīja Mantras of Śhrī Mahāgaṇesha, UK<br>
 <a href="https://www.youtube.com/watch?v=cf7dQHTlpFw&ab_channel=JaiShriMatajiJSM">video</a>
 </p>
 
