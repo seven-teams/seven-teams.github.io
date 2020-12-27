@@ -19,7 +19,7 @@ tags:
 <p style="text-align:center;">
 <font color="DarkRed"><b>Śhrī Mātājī: This is about Gaṇapatīpuḷe, just see, how it is described.</b></font><br>
 <b>Sahaja Yogi</b>: From Gitanjali by Ravid ... Rabinnath [Rabindranath] Tagore: "On the shores of Bhārat where men of all races have come together. Awake, my mind ...... come together."<br>
-"Come ...... come together."<br>"
+"Come ...... come together."<br>
 <font size="+0"><b>1986-0705 Commentaries on Various Readings, during the Evening Program, Gmunden (75 kms E of Salzburg), Austria</b></font>
 </p>
 

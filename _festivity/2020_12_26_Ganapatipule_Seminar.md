@@ -25,7 +25,7 @@ On the music side same thing happened. <b>The music that was used to please the 
 <font size="+0"><b>1987-0102 Talk to Sahaja Yogis (English+Marathi), before the Evening Program, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image590.png" /></div>
+<div style="text-align: center"><img src="/images/image590.png" /></div><br>
 
 <font size="+2"><b>Music Program:</b></font> 
 <font size="+0"><b>1988-0102 Evening Program, Gaṇapatīpuḷe, India</b></font>
