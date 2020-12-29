@@ -11,7 +11,7 @@ tags:
 
 <p>
 <font color="DarkRed">"Marriage gives you now a lever to be dhārmik, to be moral. This teaches you how to respect the chastity of others and your own chastity. We have to teach ourselves. You know how much damage has been already done by having bad marriages, divorces. We have to teach ourselves, we have to bear up a little bit, we have to educate, re-educate and improve ourselves and not to say that, 'I am such and such, what can I do?'<br>
-You have to bring glory to the system of marriages because it is the system established by God Almighty. Is not established by human beings, is a wrong idea. It is established by God Almighty to have an auspicious occasion where such an auspicious thing is taken, [so] the sacredness of this is to be maintained and has to be done in such a way [that] it is a very decent relationship.<br>
+You have to bring glory to the system of <b>marriages because it is the system established by God Almighty. Is not established by human beings, is a wrong idea.</b> It is established by God Almighty to have an auspicious occasion where such an auspicious thing is taken, [so] the sacredness of this is to be maintained and has to be done in such a way [that] it is a very decent relationship.<br>
 All the culture, all the beauty of gracious living flows through happy married life. Not vulgar, not showing, not cheap, but a dignified, enjoyable, cheerful, welcoming, giving companionship. "</font><br>
 <font size="+0"><b>1981-1129 Talk to Sahaja Yogis, Marriage is Meant to Give Joy and The Key of Married Life is Purity, after Marriages Celebration, Temple of All Faiths, Hampstead, London, UK</b></font>
 </p>
