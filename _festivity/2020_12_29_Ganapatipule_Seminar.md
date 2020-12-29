@@ -19,7 +19,7 @@ tags:
 <p style=" text-align:center;">
 <font color="DarkRed">"[I] too has [have] a Guru and His name is Dattātreya. And this Guru is also created by Ādi Śhakti Herself."</font><br>
 <font size="+0"><b>1977-0701 Guru Pūjā (Guru Pūrṇimā Day), Living Room, 160 North Gower Street, 2nd Floor, Euston, London, UK</b></font><br>
-Guru Vandana<br>
+<font size="+0"><font color="green">Guru Vandana</font></font><br>
 <a href="https://www.youtube.com/watch?v=xw-C4g4swo4&list=PL407136734B2B056D&index=7&ab_channel=SahajaYoga">video</a>
 </p>
 
