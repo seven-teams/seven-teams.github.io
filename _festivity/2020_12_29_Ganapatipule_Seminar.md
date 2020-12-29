@@ -39,7 +39,7 @@ The gurus have to satisfy the Mahālakṣhmī Principle, which is just pure seek
 <div style="text-align: center"><img src="/images/image600.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen">"Today is the day of Guru Pūrṇimā. It is a Full Moon Day, that’s why it’s called as Pūrṇimā. 
+<font color="DarkGreen">"Today is the day of Guru Pūrṇimā. It is a Full Moon Day, that’s why it’s called as Pūrṇimā.<br>
 The guru has to be like a Full Moon, means completely grown, completely matured.<br>
 There are sixteen kalās or the phases of the Moon, and when the complete Pūrṇimā comes in, the Full Moon Day, all the sixteen kalās are completed."</font><br>
 <font size="+0"><b>1979-0708 Guru Pūjā, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
@@ -61,7 +61,7 @@ Dattātreya is the innocence of Śhiva, of ...<br>
 <div style="text-align: center"><img src="/images/image601.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b>Śhrī Mātājī</b></font><font color="DarkGreen">:That’s My own. I have no guru, neither I ever had, <b>but I have the Guru, I call him as
+<font color="DarkRed"><b>Śhrī Mātājī</b></font><font color="DarkGreen">: That’s My own. I have no guru, neither I ever had, <b>but I have the Guru, I call him as
 Dattātreya, if that is so, but that is also within Me. In My stomach is the Guru.</b> You ask this question,
 ‘Mother, have You any Guru?’ Just ask this question in your hand, and you will know it.</font><br>
 <font size="+0"><b></b></font><br>
@@ -84,7 +84,7 @@ O my heart, please stay under the Mother's Protection</b></font><br>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
+<font color="green"><b>Guruoon Kī Guru</b></font><br>
 <a href="https://youtu.be/a62_qGivxAM">video</a>
 </p>
 
