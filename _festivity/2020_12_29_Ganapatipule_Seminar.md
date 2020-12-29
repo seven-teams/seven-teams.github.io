@@ -10,7 +10,7 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkGreen">"Today is Śhrī Dattā Jayanti [birthday]. Today is a very great day. I think this day has come only because of His blessings that Sahaja Yoga has been blossomed in you people. The Guru of all the Gurus – Ādi Guru Śhrī Dattā Mahārāja. I bow to Him, He is My Guru also. He has taught Me quite enough on Sahaja Yoga all through My many births. And because of that only I have been able to do some work in this birth also, continuing to do."</font><br>
+<font color="DarkGreen">"<b>Today is Śhrī Dattā Jayanti [birthday].</b> Today is a very great day. I think this day has come only because of His blessings that Sahaja Yoga has been blossomed in you people. The Guru of all the Gurus – Ādi Guru Śhrī Dattā Mahārāja. I bow to Him, He is My Guru also. He has taught Me quite enough on Sahaja Yoga all through My many births. And because of that only I have been able to do some work in this birth also, continuing to do."</font><br>
 <font size="+0"><b>1973-1209 Public Program (Hindi), Day 3, Śhrī Dattātreya Jayanti, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India]</b></font>
 </p>
 
