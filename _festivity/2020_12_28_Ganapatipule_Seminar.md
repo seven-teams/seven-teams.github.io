@@ -67,10 +67,10 @@ Again and again I am telling you that it’s a very very beautiful moment when y
 <font color="DarkRed"><b>Śhrī Mātājī</b>: Now the <b>kanyādān is to give the girl to the boy</b>. All right is the point. The hand of the girl is given to the boy. Now. 
 What you have to do is to put the boy’s hand like this and the girl’s hand has to be put by the mother into the boy’s hand from the back. 
 Mother and father both. First the boy has to do and now put the hands – now.<br>
-<b>Śhrī Mātājī</b>: Not too much, little bit, yes when this mantra is said, slowly. Go on pouring the water now. Start. [Mantras are recited.]
+<b>Śhrī Mātājī</b>: Not too much, little bit, yes when this mantra is said, slowly. Go on pouring the water now. Start. [Mantras are recited.]<br>
 He’s saying, "I’m giving this daughter to you because you must take to Brahma," means the vibrations as you call it, the Brahma Śhakti, 
 "and that you must grow into it and you must create children in the same way and that you should have children of very high quality.
- That’s why I’m giving you my daughter to you."</b></font><br>
+ That’s why I’m giving you my daughter to you."</font><br>
 <font size="+0"><b>1985-0316 Talk to Sahaja Yogis, Marriages Ceremony, Tent, Back Garden, Āśhram, 1267 Burke Road, Kew, Melbourne, Victoria, Australia</b></font>
 </p>
 
@@ -96,7 +96,7 @@ May God bless you."</font><br>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1995-1229 Talk to Talk to the Brides, Take Up the Responsibility of a Wife (She Is Responsible to Built the Society of Sahaj, Look after the Whole Family of Sahaja Yogis and A Woman Has to Be Extremely Moral), before the Marriages Ceremony, Pandal, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 <a href="https://www.youtube.com/watch?v=taFKZ7563Xs&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a><br>
-<a href="https://vimeo.com/356585708"> full video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> full video</a><br>
 
 <font size="+2"><b>Bhajan:</b></font>
 
