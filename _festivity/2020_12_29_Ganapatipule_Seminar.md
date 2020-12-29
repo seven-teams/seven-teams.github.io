@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating Śhrī Ādi Guru Dattātreya's Jayanti: "Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one Teacher God, the Primordial Master, Dattātreya" '
+title: '2020 Celebrating Śhrī Ādi Guru Dattātreya&#8217;s Jayanti: "Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one Teacher God, the Primordial Master, Dattātreya" '
 date: 2020-12-29
 permalink: /festivity/2020/12/29
 tags:
