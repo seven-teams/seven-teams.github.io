@@ -111,7 +111,7 @@ O my heart, please stay under the Mother's Protection</b></font><br>
 <div style="text-align: center"><img src="/images/image602.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed">"Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one teacher God, the Primordial Master, Dattātreya. 
+<font color="DarkRed">"Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one Teacher God, the Primordial Master, Dattātreya. 
 He came onto this Earth to teach people the secrets of the Divine, to reveal God, and to help them cross the Ocean of Illusion themselves within their own identity. 
 Evolution could not go further in the hands of human beings who were in the bondage of ignorance, so they were given guidance through this 
 Incarnation of the Primordial Master (Ādi Guru) again and again in different lives.<br> 
@@ -122,7 +122,7 @@ Dattātrey hai Maitreya hai<br>
 Dattātrey hai Maitreya hai Triguṇātmika Nirmala mayi<br>
 Ādiguru Janak Lao Tze<br>
 Socrates Sāī Nirmala mayi  </font><br>
-<a href="">video</a>
+<a href="https://youtu.be/mBnW3jwrIwA">video</a>
 </p>
 
 <p>
