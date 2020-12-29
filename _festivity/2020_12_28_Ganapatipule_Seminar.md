@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating'
+title: '2020 Celebrating Gaṇapatīpuḷe Festival: "Marriage is the bondage that keeps the society in its own beautiful bondage of Mother&#8217;s Grace." '
 date: 2020-12-28
 permalink: /festivity/2020/12/28
 tags:
