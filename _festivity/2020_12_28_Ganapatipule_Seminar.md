@@ -1,7 +1,7 @@
 ---
 title: '2020 Celebrating'
-date: 2020-01-01
-permalink: /festivity/2020/01/01
+date: 2020-12-28
+permalink: /festivity/2020/12/28
 tags:
   - Ganapatipule Seminar
   - Marriages
@@ -35,7 +35,7 @@ Marriage is the bondage that keeps the society in its own beautiful bondage of M
 <div style="text-align: center"><img src="/images/image595.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"Now, the first ceremony is ... she is the Gaurī, and she is a kanyā, she is the virgin, you see. And so she worships Me as a virgin which is called as Gaurī Pūjan, is done in every wedding marriage, that Gaurī is first worshiped as a virgin because She should give Her blessings to the bride of her chastity and also the blessings that she will remain always loyal to her husband. And she praise at the Feet of Gaurī that `may call the marriage ceremony nicely and everything should be done very well.' This is the essence of it that `Let it pass, my married life be all right.' Because Gaurī Herself worshiped Śhiva like this."</font><br>
+<font color="DarkRed">"Now, the first ceremony is ... she is the Gaurī, and she is a kanyā, she is the virgin, you see. And so she worships Me as a virgin which is called as Gaurī Pūjan, is done in every wedding marriage, that Gaurī is first worshiped as a virgin because She should give Her blessings to the bride of her chastity and also the blessings that she will remain always loyal to her husband. And she praise[s] at the Feet of Gaurī that, 'May call the marriage ceremony nicely and everything should be done very well.' This is the essence of it that, 'Let it pass, my married life be all right.' Because Gaurī Herself worshiped Śhiva like this."</font><br>
 <font size="+0"><b>1983-0122 Talk to Sahaja Yogis, Marriage Ceremony of Malcolm and Meenakṣhi Murdoch, Mumbai, Maharashtra, India</b></font>
 </p>
 
