@@ -52,7 +52,7 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 
     ii. **<font color="DarkGreen">2015 Celebrating 30 Years of Vishwa Nirmala Dharma in USA and the world</font>**
 
-    iii. **<font color="DarkGreen">2016 35 Years of Sahaja Yoga in USA, Canada, Australia and Italy</font>**
+    iii. **<font color="DarkGreen">2016 Celebrating 35 Years of Sahaja Yoga in USA, Canada, Australia and Italy</font>**
 
     iv. **<font color="DarkGreen">2017 Celebrating 35 Years of Sahaja Yoga in Austria, Belgium and Germany</font>**
 
