@@ -48,17 +48,17 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 <p>
 <font color="DarkGreen">IV. Older and current database versions (the older versions ought to be used only for getting ideas how to correct the new versions or for comparisons)</font><br>
 <font color="blue">Divine Message</font><br>
-0. <a href="https://drive.google.com/file/d/1jc8fCZi6rMR3IkKxmaELenXvnduWdTJW/view?usp=sharing">current, Version 4</a> <br>
-1. <a href="https://drive.google.com/file/d/1IAKCVEtUIM3WNijfUQRbTmJLUYXP_-ZT/view?usp=sharing">older, Version 3.2</a> <br>
-2. <a href="https://drive.google.com/file/d/1ybg2HMKLypOZ2SCgUJi6vJsxEAY7hd_3/view?usp=sharing">older, Version 3.1</a> <br>
-3. <a href="https://drive.google.com/file/d/1FBNZpjoi-JiY8I43sFDiNWRigD2my-jW/view?usp=sharing">older, Version 3</a> <br>
-4. <a href="https://drive.google.com/file/d/0B3izjZneKykscmg3cWRQR1E4dWM/view?usp=sharing">older, Version 2</a> <br>
-5. <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">older, Version 1</a><br>
+00. <a href="https://drive.google.com/file/d/1jc8fCZi6rMR3IkKxmaELenXvnduWdTJW/view?usp=sharing">current, Version 4</a> <br>
+01. <a href="https://drive.google.com/file/d/1IAKCVEtUIM3WNijfUQRbTmJLUYXP_-ZT/view?usp=sharing">older, Version 3.2</a> <br>
+02. <a href="https://drive.google.com/file/d/1ybg2HMKLypOZ2SCgUJi6vJsxEAY7hd_3/view?usp=sharing">older, Version 3.1</a> <br>
+03. <a href="https://drive.google.com/file/d/1FBNZpjoi-JiY8I43sFDiNWRigD2my-jW/view?usp=sharing">older, Version 3</a> <br>
+04. <a href="https://drive.google.com/file/d/0B3izjZneKykscmg3cWRQR1E4dWM/view?usp=sharing">older, Version 2</a> <br>
+05. <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">older, Version 1</a><br>
 <font color="blue">Nirmala Vidya Amruta</font><br>
-6. <a href="https://www.amruta.org/transcripts-and-translations/">current and future</a><br>
-7. <a href="https://drive.google.com/file/d/1PmTYsTrS0Qa6GGGMD0wNVWa-IyDZMna0/view?usp=sharing">current (2021-0108)</a><br>
-8. <a href="https://drive.google.com/file/d/18qv3oDXR6C1HjTnQi5MDlpgaYDj14mcH/view?usp=sharing">older (2020-1101)</a><br>
-9. <a href="https://drive.google.com/file/d/1NrkCKDF77RnUIuhpRWUDIHjmFhgKCSYm/view?usp=sharing">older (2020-0911)</a><br>
+06. <a href="https://www.amruta.org/transcripts-and-translations/">current and future</a><br>
+07. <a href="https://drive.google.com/file/d/1PmTYsTrS0Qa6GGGMD0wNVWa-IyDZMna0/view?usp=sharing">current (2021-0108)</a><br>
+08. <a href="https://drive.google.com/file/d/18qv3oDXR6C1HjTnQi5MDlpgaYDj14mcH/view?usp=sharing">older (2020-1101)</a><br>
+09. <a href="https://drive.google.com/file/d/1NrkCKDF77RnUIuhpRWUDIHjmFhgKCSYm/view?usp=sharing">older (2020-0911)</a><br>
 10. <a href="https://drive.google.com/file/d/15tokWEN4HmOY7T5s2O48R4Z6GllylGDl/view?usp=sharing">older (2020-0717)</a><br>
 11. <a href="https://drive.google.com/file/d/1D2YJv38DcOU5fqCss8Co_eEmzBFpGAWX/view?usp=sharing">older (2020-0101)</a><br>
 12. <a href="https://drive.google.com/file/d/1et_hDoht_X9RvCL3arXYyj_pjIXjRgM5/view?usp=sharing">older (2019-0111)</a><br>
