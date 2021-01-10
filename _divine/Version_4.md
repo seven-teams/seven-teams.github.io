@@ -36,7 +36,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 1. has 16,661 pages (an increment of 620 pages from Version 3);<br>
 2. contains 4,285 transcripts started (an increment of 129 from Version 3);<br>
 3. contains 178 figures (an increment of 54 figures from Version 3);<br>
-4. has a size of 190.5 mb.<br>
+4. has a size of 246.5 mb.<br>
 </p>
 
 <p>
@@ -58,7 +58,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 6. <a href="https://www.amruta.org/transcripts-and-translations/">current and future</a><br>
 7. <a href="https://drive.google.com/file/d/1PmTYsTrS0Qa6GGGMD0wNVWa-IyDZMna0/view?usp=sharing">current (2021-0108)</a><br>
 8. <a href="https://drive.google.com/file/d/18qv3oDXR6C1HjTnQi5MDlpgaYDj14mcH/view?usp=sharing">older (2020-1101)</a><br>
-9. <a href="https://drive.google.com/file/d/1NrkCKDF77RnUIuhpRWUDIHjmFhgKCSYm/view?usp=sharing">Nirmala Vidya Amruta (2020-0911)</a><br>
+9. <a href="https://drive.google.com/file/d/1NrkCKDF77RnUIuhpRWUDIHjmFhgKCSYm/view?usp=sharing">older (2020-0911)</a><br>
 10. <a href="https://drive.google.com/file/d/15tokWEN4HmOY7T5s2O48R4Z6GllylGDl/view?usp=sharing">older (2020-0717)</a><br>
 11. <a href="https://drive.google.com/file/d/1D2YJv38DcOU5fqCss8Co_eEmzBFpGAWX/view?usp=sharing">older (2020-0101)</a><br>
 12. <a href="https://drive.google.com/file/d/1et_hDoht_X9RvCL3arXYyj_pjIXjRgM5/view?usp=sharing">older (2019-0111)</a><br>
