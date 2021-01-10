@@ -12,7 +12,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,
 
 
 We would like to share with you all the up-dated <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been working on since Divine Message, Version 3.2 was posted on November 11, 2020. The pdf file <font color="blue">Divine Message, Version 4</font> is available at the link
-<a href="">Version 4</a>
+<a href="https://drive.google.com/file/d/1jc8fCZi6rMR3IkKxmaELenXvnduWdTJW/view?usp=sharing">Version 4</a>
 
 <p>
 Please kindly share the link with all our brothers and sisters. 
@@ -48,7 +48,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 <p>
 <font color="DarkGreen">IV. Older and current database versions (the older versions ought to be used only for getting ideas how to correct the new versions or for comparisons)</font><br>
 <font color="blue"> Divine Message</font> <br>
-0. <a href="">current, Version 4</a> <br>
+0. <a href="https://drive.google.com/file/d/1jc8fCZi6rMR3IkKxmaELenXvnduWdTJW/view?usp=sharing">current, Version 4</a> <br>
 1. <a href="https://drive.google.com/file/d/1IAKCVEtUIM3WNijfUQRbTmJLUYXP_-ZT/view?usp=sharing">older, Version 3.2</a> <br>
 2. <a href="https://drive.google.com/file/d/1ybg2HMKLypOZ2SCgUJi6vJsxEAY7hd_3/view?usp=sharing">older, Version 3.1</a> <br>
 3. <a href="https://drive.google.com/file/d/1FBNZpjoi-JiY8I43sFDiNWRigD2my-jW/view?usp=sharing">older, Version 3</a> <br>
