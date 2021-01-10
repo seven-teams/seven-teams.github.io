@@ -50,7 +50,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 <font color="blue"> Divine Message</font> <br>
 0. <a href="">current, Version 4</a> <br>
 1. <a href="https://drive.google.com/file/d/1IAKCVEtUIM3WNijfUQRbTmJLUYXP_-ZT/view?usp=sharing">older, Version 3.2</a> <br>
-2. <a href="https://drive.google.com/file/d/1ybg2HMKLypOZ2SCgUJi6vJsxEAY7hd_3/view?usp=sharing"">older, Version 3.1</a> <br>
+2. <a href="https://drive.google.com/file/d/1ybg2HMKLypOZ2SCgUJi6vJsxEAY7hd_3/view?usp=sharing">older, Version 3.1</a> <br>
 3. <a href="https://drive.google.com/file/d/1FBNZpjoi-JiY8I43sFDiNWRigD2my-jW/view?usp=sharing">older, Version 3</a> <br>
 4. <a href="https://drive.google.com/file/d/0B3izjZneKykscmg3cWRQR1E4dWM/view?usp=sharing">older, Version 2</a> <br>
 5. <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">older, Version 1</a><br>
