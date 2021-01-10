@@ -47,14 +47,14 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 
 <p>
 <font color="DarkGreen">IV. Older and current database versions (the older versions ought to be used only for getting ideas how to correct the new versions or for comparisons)</font><br>
-<font color="blue"> Divine Message</font> <br>
+<font color="blue">Divine Message</font><br>
 0. <a href="https://drive.google.com/file/d/1jc8fCZi6rMR3IkKxmaELenXvnduWdTJW/view?usp=sharing">current, Version 4</a> <br>
 1. <a href="https://drive.google.com/file/d/1IAKCVEtUIM3WNijfUQRbTmJLUYXP_-ZT/view?usp=sharing">older, Version 3.2</a> <br>
 2. <a href="https://drive.google.com/file/d/1ybg2HMKLypOZ2SCgUJi6vJsxEAY7hd_3/view?usp=sharing">older, Version 3.1</a> <br>
 3. <a href="https://drive.google.com/file/d/1FBNZpjoi-JiY8I43sFDiNWRigD2my-jW/view?usp=sharing">older, Version 3</a> <br>
 4. <a href="https://drive.google.com/file/d/0B3izjZneKykscmg3cWRQR1E4dWM/view?usp=sharing">older, Version 2</a> <br>
 5. <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">older, Version 1</a><br>
-<font color="blue"> Nirmala Vidya Amruta</font> <br>
+<font color="blue">Nirmala Vidya Amruta</font><br>
 6. <a href="https://www.amruta.org/transcripts-and-translations/">current and future</a><br>
 7. <a href="https://drive.google.com/file/d/1PmTYsTrS0Qa6GGGMD0wNVWa-IyDZMna0/view?usp=sharing">current (2021-0108)</a><br>
 8. <a href="https://drive.google.com/file/d/18qv3oDXR6C1HjTnQi5MDlpgaYDj14mcH/view?usp=sharing">older (2020-1101)</a><br>
@@ -66,7 +66,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 14. <a href="https://drive.google.com/file/d/1bqjkzvHJGkpfmgt5dhEYAvom2o2LOcG2/view?usp=sharing">older (2017-0214)</a><br>
 15. <a href="https://drive.google.com/file/d/14g0NeM1bE57AgakgFDgjOOnH4oiQ12CN/view?usp=sharing">older (2017-0111)</a><br>
 16. <a href="https://drive.google.com/file/d/1UX7OLZZfoPKtsKUS_WnavbpuSsHyrX1z/view?usp=sharing">older (2016-0321)</a><br>
-Sahaja Digital Library<br>
+<font color="blue">Sahaja Digital Library</font><br>
 17. <a href="https://library.sahajaworld.org/transcripts">older</a><br>
 </p>
 
