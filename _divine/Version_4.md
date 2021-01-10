@@ -67,7 +67,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 15. <a href="https://drive.google.com/file/d/14g0NeM1bE57AgakgFDgjOOnH4oiQ12CN/view?usp=sharing">older (2017-0111)</a><br>
 16. <a href="https://drive.google.com/file/d/1UX7OLZZfoPKtsKUS_WnavbpuSsHyrX1z/view?usp=sharing">older (2016-0321)</a><br>
 Sahaja Digital Library<br>
-17. <a href="https://library.sahajaworld.org/">older</a><br>
+17. <a href="https://library.sahajaworld.org/transcripts">older</a><br>
 </p>
 
 Jay Śhrī Mātājī!
