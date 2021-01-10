@@ -56,9 +56,9 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 5. <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">older, Version 1</a><br>
 <font color="blue"> Nirmala Vidya Amruta</font> <br>
 6. <a href="https://www.amruta.org/transcripts-and-translations/">current and future</a><br>
-7. <a href="https://drive.google.com/file/d/1PmTYsTrS0Qa6GGGMD0wNVWa-IyDZMna0/view?usp=sharing">current (2021-0108)</a>
-8. <a href="https://drive.google.com/file/d/18qv3oDXR6C1HjTnQi5MDlpgaYDj14mcH/view?usp=sharing">older (2020-1101)</a>
-9. <a href="https://drive.google.com/file/d/1NrkCKDF77RnUIuhpRWUDIHjmFhgKCSYm/view?usp=sharing">Nirmala Vidya Amruta (2020-0911)</a>
+7. <a href="https://drive.google.com/file/d/1PmTYsTrS0Qa6GGGMD0wNVWa-IyDZMna0/view?usp=sharing">current (2021-0108)</a><br>
+8. <a href="https://drive.google.com/file/d/18qv3oDXR6C1HjTnQi5MDlpgaYDj14mcH/view?usp=sharing">older (2020-1101)</a><br>
+9. <a href="https://drive.google.com/file/d/1NrkCKDF77RnUIuhpRWUDIHjmFhgKCSYm/view?usp=sharing">Nirmala Vidya Amruta (2020-0911)</a><br>
 10. <a href="https://drive.google.com/file/d/15tokWEN4HmOY7T5s2O48R4Z6GllylGDl/view?usp=sharing">older (2020-0717)</a><br>
 11. <a href="https://drive.google.com/file/d/1D2YJv38DcOU5fqCss8Co_eEmzBFpGAWX/view?usp=sharing">older (2020-0101)</a><br>
 12. <a href="https://drive.google.com/file/d/1et_hDoht_X9RvCL3arXYyj_pjIXjRgM5/view?usp=sharing">older (2019-0111)</a><br>
