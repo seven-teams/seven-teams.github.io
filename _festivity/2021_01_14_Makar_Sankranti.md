@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"<b>The meaning of Makar Saṅkrānti is saṅkramaṇ, i.e., the day that brings about some change.</b> On this day the Sun starts its movement towards the Northern Hemisphere. In India, all the festivals are according to the position of the Moon. That’s why their dates are different in different years. Makar Saṅkrānti is based on the position of the Sun and that is the reason this festival is celebrated every year on fourteenth January.
+<font color="DarkRed">"<b>The meaning of Makar Saṅkrānti is saṅkramaṇ, i.e., the day that brings about some change.</b> On this day the Sun starts its movement towards the Northern Hemisphere. In India, all the festivals are according to the position of the Moon. That’s why their dates are different in different years. Makar Saṅkrānti is based on the position of the Sun and that is the reason this festival is celebrated every year on fourteenth January.<br>
 Makar Saṅkrānti indicates the day when the Sun becomes warmer. The heat of the Sun is benevolent for the human race. It is because of this heat that we can walk, we can talk. The heat of the Sun makes a human being angry. This is the reason why we take jaggery on this day so that we talk sweetly. The heat of the Sun is responsible for all the vegetation and wealth of the Earth. On this day we offer fruits and vegetables to the Devī and receive Her blessings. With the blessings of Ādi Śhakti the earth element cools down and the human race progresses."</font><br>
 <font size="+0"><b>2002-0114 Makar Saṅkrānti Pūjā (Marathi), Gain Self-confidence from the Light of the Sun and Become Radiant, House of Kalpana Shrivastava, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -63,7 +63,7 @@ So this loving, beautiful relationship that we have with each other, after Sahaj
 <div style="text-align: center"><img src="/images/image613.png" /></div>
 
 <p style=" text-align:center;">
-<font color="Gold">"Now the Sun is so much respected in this country, that in early morning time all the people get up and say namas-kārs to Sūrya 
+<font color="DarkOrange">"Now the Sun is so much respected in this country, that in early morning time all the people get up and say namas-kārs to Sūrya 
 with all His names and do a particular type of exercise to show that they are completely surrendered to the will of the Sūrya."</font><br>
 <font size="+0"><b>1985-0114 Makar Saṅkrānti Pūjā (English+Marathi), We Are Going to Make Peace with Ourselves and with Others (We Will Take to Peaceful Methods), Suryavanshi Hall (near Śhivajī Park), Dadar, Mumbai, Maharashtra, India</b></font><br>
 <a href="https://www.youtube.com/watch?v=jqmPOEnU9tg&ab_channel=NoeSahajaItalia">video</a>
@@ -77,7 +77,7 @@ I would say that all of you have become realized and vibrations are flowing thro
 
 <p>
 <font color="DarkRed">"Today this Saṅkrānti we are celebrating in the saṅkrānt, saṅkrānt means the ‘auspicious revolution’ which has to be brought about that we should inculcate the habit of giving. ......<br>
-<b>So with open heart, for our country, for our brethren, for people around us, what we do, that is to be seen. We should not try to avoid bothering ourselves. We should do charity with an open heart. There is a special joy in that, which we always enjoy. One should give with full heart and soul, the joy that is in that, it is nowhere else. Today’s festival has to be celebrated to get that joy."</font><br>
+<b>So with open heart, for our country, for our brethren, for people around us, what we do, that is to be seen. We should not try to avoid bothering ourselves. We should do charity with an open heart. There is a special joy in that, which we always enjoy. One should give with full heart and soul, the joy that is in that, it is nowhere else. Today’s festival has to be celebrated to get that joy."</b></font><br>
 <font size="+0"><b></b>1987-0114 Makar Saṅkrānti Pūjā (English+Marathi), Carry the Sun with You, House of Madhukar Dhumāḷ, Rāhurī, Maharashtra, India</font>
 </p>
 
