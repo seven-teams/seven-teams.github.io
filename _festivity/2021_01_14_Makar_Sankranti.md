@@ -123,7 +123,7 @@ May God bless you all."</b></font><br>
 </p>
 
 <p style="text-align:left;">
-<font color="Sienna"><b>Wishing you all A very Happy Makarsankranti!</b></font><br>
+<font color="Sienna"><b>Wishing you all A very Happy Makar Saṅkrānti!</b></font><br>
 <font size="+0"><b>Tīḷ-guḷ ghyā āṇi goḍ goḍ bola.</b></font>
 (eat sesame and jaggery and speak sweetly)
 </p>
