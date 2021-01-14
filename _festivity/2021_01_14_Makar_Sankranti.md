@@ -109,9 +109,8 @@ May God bless you all."</b></font><br>
 
 <p>
 <font color="green"><b>Sarva Mangala Mangale</b></font><br>
-<a href="https://www.youtube.com/watch?v=T_myaTlqb4Y&feature=youtu.be&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
  
 <p>
 <font color="green"><b>Brahma Shodile</b></font><br>
@@ -120,9 +119,8 @@ May God bless you all."</b></font><br>
 
 <p>
 <font color="green"><b>Navgraha Strotra (Stotra for the nine planets. The first stanza is in praise of Śhrī Sūrya)</b></font><br>
-<a href="https://www.youtube.com/watch?v=feugPtjSqVE&feature=youtu.be&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <p style="text-align:left;">
 <font color="Sienna"><b>Wishing you all A very Happy Makarsankranti!</b></font><br>
