@@ -14,4 +14,4 @@ Please kindly share the file with all our brothers and sisters.
 
 The Comprehensive Compilations Team
 
-[Download pdf here](http://seven-teams.github.io/files/American_Presidents_Part_8_Ronald_Wislon_Reagan.pdf)
+[Download pdf here](http://seven-teams.github.io/files/American_Presidents_Part_8_Ronald_Wilson_Reagan.pdf)
