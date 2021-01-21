@@ -8,7 +8,7 @@ tags:
 ---
 Jay Śhrī Mātājī!
 
-Please find attached the pdf file of quotes on <font color="blue">American Presidents, Part 8 (Ronald Wilson Reagan)</font> obtained by searching for all possible root combinations such as "<font color="red">Reag</font>". If by chance extra such quotes are found out, please kindly share them with all of us.<br>
+Please find below the pdf file of quotes on <font color="blue">American Presidents, Part 8 (Ronald Wilson Reagan)</font> obtained by searching for all possible root combinations such as "<font color="red">Reag</font>". If by chance extra such quotes are found out, please kindly share them with all of us.<br>
 
 Please kindly share the file with all our brothers and sisters.  
 
