@@ -1,5 +1,5 @@
 ---
-title: 'Post 23: American Presidents, Part 10a (Abraham Lincoln)'
+title: 'Post 24: American Presidents, Part 10a (Abraham Lincoln)'
 date: 2021-02-11
 permalink: /compilation/2021/0211
 tags:
