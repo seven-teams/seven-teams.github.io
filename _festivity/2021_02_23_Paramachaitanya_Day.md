@@ -25,7 +25,7 @@ tags:
 <font color="DarkRed"><b>SAKAL JAGAT MEIN YAH TERA PASARA</b></font><br>
 <b>The whole universe is but your form</b><br>
 <a href="https://www.youtube.com/watch?v=YbXMM__bZEI&feature=youtu.be&ab_channel=SahajaYoga">video</a><br>
-<font size="+0">There is a lot of surrendering in this song and Shri Mataji told the yogis to learn the song as it makes you surrendered. This song has to be sung with the awareness of the greatness of God and thus a surrendered heart surrendered to the greatness of God.<br>
+<font size="+0">There is a lot of surrendering in this song and Śhrī Mātājī told the yogis to learn the song as it makes you surrendered. This song has to be sung with the awareness of the greatness of God and thus a surrendered heart surrendered to the greatness of God.<br>
 When singing we have to be conscious (janeev.) that the entire universe has been created by Him. "Who are we ?"<br>
 (from 'Matru Snehita')</font>
 </p>	
@@ -154,7 +154,7 @@ Surrendering myself to Her, I humbly requested<br>
 <font color="DarkRed">Kuchh. Na Dalu Jholi Me</font><br>
 That no reward should be given,<br>
 <font color="DarkRed">Nir.peksh. Yahi Bhakti Kutir Hai Chaitanya Ka Aisa Dham</font><br>
-As I realized that worship can only exist through selfless surrender to the Lotus Feet of Shri Mataji, the very abode of Chaitanya.<br>
+As I realized that worship can only exist through selfless surrender to the Lotus Feet of Śhrī Mātājī, the very abode of Chaitanya.<br>
 <a href="https://www.youtube.com/watch?v=mKrVNKlY7Hg&ab_channel=salmaji">video</a>
 </p>
 
@@ -169,9 +169,9 @@ How I love You</b></font><br>
 
 <p>
 <font size="+0">Dear All,<br>
-Today, on the Mahasamadhi Day of the complete Incarnation of Shri Adi Shakti Mataji Shri Nirmal Devi, with folded hands and bended knees and in complete love and awe and gratitude, we remember the Earthly life of our Divine Mother and all She has done for the evolution, redemption, and spiritual uplifting of mankind.<br>
+Today, on the Mahasamadhi Day of the complete Incarnation of Śhrī Adi Shakti Mātājī Śhrī Nirmalā Devī, with folded hands and bended knees and in complete love and awe and gratitude, we remember the Earthly life of our Divine Mother and all She has done for the evolution, redemption, and spiritual uplifting of mankind.<br>
 <br>
-It is a time to re-commit and re-dedicate ourselves to Her Visions expressed in Her teachings, to the work of Sahaja Yoga, and to the advancement of Vishwa Nirmala Dharma and of Sahaja Culture.  We pray to Shri Mataji to help us to accomplish all Her Divine Visions.<br>
+It is a time to re-commit and re-dedicate ourselves to Her Visions expressed in Her teachings, to the work of Sahaja Yoga, and to the advancement of Vishwa Nirmala Dharma and of Sahaja Culture.  We pray to Śhrī Mātājī to help us to accomplish all Her Divine Visions.<br>
 With all these in mind, we propose to watch the documentary 'Vision'</font><br>
 Link: <a href="https://vimeo.com/27320205">video</a><br>
 </p>
@@ -189,8 +189,8 @@ Link: <a href="https://vimeo.com/27320205">video</a><br>
 <font size="+0">Let the Creator's creation be created again in you</font><br>
 <font size="+0"><font color="DarkRed">Pah.Le Dhyan. Dharo Chit. Kabhu Karo</font></font><br>
 <font size="+0">First be in meditation then take command of your attention</font><br>
-<font size="+0"><font color="DarkRed">Kundalini Tum Ap.Ni Jagaya Karo</font></font><br>
-<font size="+0">Then awaken your Kundalini</font><br>
+<font size="+0"><font color="DarkRed">Kuṇḍalinī Tum Ap.Ni Jagaya Karo</font></font><br>
+<font size="+0">Then awaken your Kuṇḍalinī</font><br>
 <font size="+0"><font color="DarkRed">Thand. Chaitanya Swayam Bahaya Karo</font></font><br>
 <font size="+0">Then allow the cool vibration to flow through you</font><br>
 <a href="https://www.youtube.com/watch?v=r45K0f-LKyc&ab_channel=ThePrawah"> video</a><br>
@@ -206,7 +206,7 @@ Let us thus spread Sahaja Yoga in the whole world</font><br>
 
 <p>
 <font size="+0"><font color="DarkRed"><b>Mā Nirmal Tere Yogi Hum</b></font></font><br>
-<font size="+0">Mother Nirmala, we are your Yogis<br>
+<font size="+0">Mother Nirmalā, we are Your Yogis<br>
 Nirmal ho Hamare Karam<br>
 May our deeds be pure<br>
 Jag ko Jagrut karein, sabka swagat karein,<br>
