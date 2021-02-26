@@ -54,7 +54,7 @@ Link: <a href="https://www.youtube.com/watch?v=tHm8jefq9bk&ab_channel=RichardPay
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>PRABHU MAZA MALA JEVHA BASE GHEUNI EKANTEE</b></font><br>	
-<b>When I am alone with my God (in meditation)<b><br>
+<b>When I am alone with my God (in meditation)</b><br>
 <font color="DarkRed">MITI VARNU MALA TEVHA GHADE JI HO SUKHAPRAPTEE</font><br>	
 The bliss that I feel is beyond words<br>
 <font color="DarkRed">MALA PAAHEE PRABHUSANGE, DUI ATMA TAI PALE DUREE</font><br>	
