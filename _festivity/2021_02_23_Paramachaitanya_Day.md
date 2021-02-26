@@ -73,7 +73,7 @@ My God himself is Truth and Love<br>
 </p>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>BHAYA KAY. TAYA PRABHU JYATZA RE</b><br></font><br>
+<font color="DarkRed"><b>BHAYA KAY. TAYA PRABHU JYATZA RE</b></font><br>
 <b>What is fear for someone to whom God belongs?</b><br>
 <font color="DarkRed">SARV. VISARALI PRA13HUMAY ZHALI</font><br>
 His words express only the glory of God and nothing else<br>
