@@ -98,8 +98,8 @@ are under the feet of such a person (meaning, none of the above can affect him â
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>HE PRABHO TU DNYANA RUPE, KALPAVRUKSHA LAVILE</b></font><br>
-<font size="+0">BAHARALYA SHAKHA TAYANCHYA, CHINTANI MAN. RANGALE</font><br>
-<font color="DarkRed"><font size="+0"></font></font><br>
+<font size="-1">O God, You in the form of knowledge have planted the tree that fulfils all desires (kalpataru)</font><br>
+<font color="DarkRed"><font size="+0">BAHARALYA SHAKHA TAYANCHYA, CHINTANI MAN. RANGALE</font></font><br>
 <font size="-1">The branches of the tree have blossomed; my mind has completely dissolved in it</font><br>
 <font color="DarkRed"><font size="+0">VISHWA HE SAMAVILE</font></font><br>
 <font size="-1">It has completely embraced the whole universe</font><br>
