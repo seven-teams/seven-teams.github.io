@@ -3,7 +3,7 @@ title: '2019 Mahasamadhi Day'
 date: 2019-02-23
 permalink: /festivity/2019/0223
 tags:
-  - Mahasamadhi Day
+  - Paramachaitanya Day
 ---
 
 ![PICTURE 1](/images/image1.png)
