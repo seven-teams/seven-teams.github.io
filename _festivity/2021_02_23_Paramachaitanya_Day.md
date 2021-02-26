@@ -107,7 +107,7 @@ are under the feet of such a person (meaning, none of the above can affect him â
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>SANSKRUTI GANGAUGH VAHE, TYAMADHE AWAGAWUNI</b></font><br>	
-The river of pure Sahaj culture is flowing and in that we are immersed<br>
+The river of pure Sahaj Culture is flowing and in that we are immersed<br>
 <font color="DarkRed">SHODHANYA SHIV. SATYA. SUNDAR. , DIVYA SHRADDHA GHEVUNI</font><br>	
 We are in search of the truth, beauty and the spirit with an enlightened faith<br>
 <font color="DarkRed">CHALALE PATH. SADHANECHA, GURU PADATE PAVALE</font><br>	
@@ -160,9 +160,9 @@ As I realized that worship can only exist through selfless surrender to the Lotu
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Mother, I adore You,<br>
-All my life I give you,<br>
-How I love you</b></font><br>
-<font size="+0"><font color="DarkRed">Mother, I adore you:</font></font><br>
+All my life I give You,<br>
+How I love You</b></font><br>
+<font size="+0"><font color="DarkRed">'Mother, I adore You':</font></font><br>
 <a href="https://www.youtube.com/watch?v=LsWaC7NktHA&list=PLuAVZW42aaCnQ3JW90xymBbcyS-gt6SE1&index=10&ab_channel=GillyGrimshaw">video</a>
 </p>
 
@@ -172,7 +172,7 @@ How I love you</b></font><br>
 Today, on the Mahasamadhi Day of the complete Incarnation of Shri Adi Shakti Mataji Shri Nirmal Devi, with folded hands and bended knees and in complete love and awe and gratitude, we remember the Earthly life of our Divine Mother and all She has done for the evolution, redemption, and spiritual uplifting of mankind.<br>
 <br>
 It is a time to re-commit and re-dedicate ourselves to Her Visions expressed in Her teachings, to the work of Sahaja Yoga, and to the advancement of Vishwa Nirmala Dharma and of Sahaja Culture.  We pray to Shri Mataji to help us to accomplish all Her Divine Visions.<br>
-With all these in mind, we propose to watch the documentary"Vision"</font><br>
+With all these in mind, we propose to watch the documentary 'Vision'</font><br>
 Link: <a href="https://vimeo.com/27320205">video</a><br>
 </p>
 
