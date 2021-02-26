@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"My vision for Sahaja Yoga is that, that all the good people, righteous people, God-loving people will rise above all that is useless, worldly, and reside in the Heavens with all the blessings of God, forever and ever."</font><br>
+<font color="DarkRed"><b>"My vision for Sahaja Yoga is that, that all the good people, righteous people, God-loving people will rise above all that is useless, worldly, and reside in the Heavens with all the blessings of God, forever and ever."</b></font><br>
 <font size="+0"><b>1987-0506 Talk to Sahaja Yogis, Burwood Ashram, Sydney</b></font>
 </p>
 
@@ -27,7 +27,7 @@ tags:
 <a href="https://www.youtube.com/watch?v=YbXMM__bZEI&feature=youtu.be&ab_channel=SahajaYoga">video</a><br>
 <font size="+0">There is a lot of surrendering in this song and Shri Mataji told the yogis to learn the song as it makes you surrendered. This song has to be sung with the awareness of the greatness of God and thus a surrendered heart surrendered to the greatness of God.<br>
 When singing we have to be conscious (janeev.) that the entire universe has been created by Him. "Who are we ?"<br>
-(from -Matru Snehita)</font>
+(from 'Matru Snehita')</font>
 </p>	
 
 
@@ -54,7 +54,7 @@ Link: <a href="https://www.youtube.com/watch?v=tHm8jefq9bk&ab_channel=RichardPay
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>PRABHU MAZA MALA JEVHA BASE GHEUNI EKANTEE</b></font><br>	
-<b>When I am alone with my God (in meditation)/b><br>
+<b>When I am alone with my God (in meditation)<b><br>
 <font color="DarkRed">MITI VARNU MALA TEVHA GHADE JI HO SUKHAPRAPTEE</font><br>	
 The bliss that I feel is beyond words<br>
 <font color="DarkRed">MALA PAAHEE PRABHUSANGE, DUI ATMA TAI PALE DUREE</font><br>	
