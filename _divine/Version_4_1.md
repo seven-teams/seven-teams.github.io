@@ -23,7 +23,7 @@ Please kindly share the link with all our brothers and sisters.
 19. <font color="MediumVioletRed">OTW</font> (Other Talks and Writings) added to the navigation system of each page. [Talks/writings not in the presence of Śhrī Mātājī will be all moved here gradually.]<br>
 </p>
 
-For older versions of <font color="blue">Divine Message</font> and of other databases, please see <a href="https://seven-teams.github.io/divine/2020/07/18"> Version 4 </a> and <a href="https://seven-teams.github.io/divine/2021/01/10"> Version 3.1 </a>. For another current database, please see <a href="https://drive.google.com/file/d/1FRriOjATDQXxm21z8SHuDZKHWafSR95i/view?usp=sharing">Nirmala Vidya Amruta (2021-0305)</a>
+For older versions of <font color="blue">Divine Message</font> and of other databases, please see <a href="https://seven-teams.github.io/divine/2021/01/10"> Version 4 </a>. For another current database, please see <a href="https://drive.google.com/file/d/1FRriOjATDQXxm21z8SHuDZKHWafSR95i/view?usp=sharing">Nirmala Vidya Amruta (2021-0305)</a>
 
 Jay Śhrī Mātājī!
 
