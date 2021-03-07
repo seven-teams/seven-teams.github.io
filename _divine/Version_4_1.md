@@ -1,5 +1,5 @@
 ---
-title: 'Divine Message, Version 4'
+title: 'Divine Message, Version 4.1'
 date: 2021-03-07
 permalink: /divine/2021/03/07
 tags:
