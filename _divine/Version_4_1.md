@@ -1,7 +1,7 @@
 ---
 title: 'Divine Message, Version 4'
-date: 2021-01-10
-permalink: /divine/2021/01/10
+date: 2021-03-07
+permalink: /divine/2021/03/07
 tags:
   - Divine Message
 ---
