@@ -151,8 +151,8 @@ Which means: His Three Powers, Triguṇātmika, Threesh Powers. So, wit[h] our T
 And, by that, we show that: ‘We give our triguṇas to You so that we become Guṇātīt.’<br>
 This is what is the Śhiva Pūjā.</b><br>
 May God bless you."</font><br>
-<font size="+0"><b>1979-0225 Śhivarātri Pūjā (Marathi+English) (Śhivarātri Day), Pune, Maharashtra, India</b></font>
-<font color="Indigo"><b>Śhiva Āratī</b><br>
+<font size="+0"><b>1979-0225 Śhivarātri Pūjā (Marathi+English) (Śhivarātri Day), Pune, Maharashtra, India</b></font><br>
+<font color="Indigo"><b>Śhiva Āratī</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
