@@ -23,7 +23,7 @@ You see, before the complete manifestation of any tree its seed has to be seen f
 That is why He is called Mahādeva, the God of Gods ......"</b></font><br>
 <font size="+0"><b>2004-0215 Śhivarātri Pūjā (Hindi+English), Kalyāṇ and Kaiyvalya, Pune, Maharashtra, India</b></font>
 <br>
-<font color="DarkRed"><b>Sat-chid’ānanda rūpah, Śhivo’ham, Śhivo’ham</b><br>
+<font color="Indigo"><b>Sat-chid’ānanda rūpah, Śhivo’ham, Śhivo’ham</b><br>
 I am in the form of Sat (truth, Self or existence), Chit (awareness or consciousness) and Ananda (bliss or pure joy)<br>
 I am Śhiva, I am Śhiva!</font>
 </p>
@@ -115,39 +115,33 @@ From Him came the desire for our emancipation.</b></font>
 
 <p>
 <font color="green"><b>Bolo Śhiv Śhiva Śhambhu Bam Bam Bam</b></font><br>
-<a href="https://www.youtube.com/watch?v=ELUhrdEYsM8&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <p>
 <font color="green"><b>Bhole baba Chale Kailash</b></font><br>
-<a href="https://www.youtube.com/watch?v=wRuvhcqZ_V4&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <p>
 <font color="green"><b>Śhiva Manasa</b></font><br>
-<a href="https://www.youtube.com/watch?v=48S8X66Nz7c&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <p>
 <font color="green"><b>Hasat Ali</b></font><br>
-<a href="https://www.youtube.com/watch?v=hLb2XmNNIBw&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <p>
 <font color="green"><b>Dum dum dhamaro baje</b></font><br>
-<a href="https://www.youtube.com/watch?v=z0KRpdPHb84&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <p>
 <font color="green"><b>Aya Mata Ka Pujan Din Aya</b></font><br>
-<a href="https://www.youtube.com/watch?v=L-h2yKX9yr8&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <p>
 <font color="green"><b>Bolo Śhiva Śhambhu Śhiva Śhaṅkara</b></font><br>
@@ -161,21 +155,18 @@ From Him came the desire for our emancipation.</b></font>
  
 <p>
 <font color="green"><b>Jay Śhiv Śhaṅkar</b></font><br>
-<a href="https://www.youtube.com/watch?v=wE3T_ydCX5Q&list=PLuAVZW42aaCl9pNxB0HDBVhjALrGm2Od_&index=13&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <p>
 <font color="green"><b>Śhiv Bhola Bhandari</b></font><br>
-<a href="https://www.youtube.com/watch?v=UbzQMIX2CaU&t=13s&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <p>
 <font color="green"><b>Śhiva Āratī</b></font><br>
-<a href="https://www.youtube.com/watch?v=QE6J_z3g4sQ&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <p style="text-align:center;">
 <font size="+0"><font color="DarkRed"><b>Prayer to Śhrī Śhiva in Śhrī Mātājī's voice:</b></font><br>
