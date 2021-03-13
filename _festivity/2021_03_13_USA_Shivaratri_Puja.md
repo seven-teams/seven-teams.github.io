@@ -97,7 +97,7 @@ So when you are looking after the benevolence of others with love, then the whol
 Above every other job, above every other performance, the highest is this.<br>
 So, with this, I ask Śhiva to give you blessings, complete blessings, so that you get transformed into the personality of Śhiva.<br>
 May God bless you all."</font><br>
-<font size="+0"><b>2002-0317 Śhivarātri Pūjā, The Power of Love, Śhrī Śhiv Chatrapatī Sports Complex Stadium, Balewadi, Mahalunge, Pune, Maharashtra, India</b></font>
+<font size="+0"><b>2002-0317 Śhivarātri Pūjā, The Power of Love, Śhrī Śhiv Chatrapatī Sports Complex Stadium, Balewadi, Mahalunge, Pune, Maharashtra, India</b></font><br>
 <font color="Indigo"><b>We, the children, bow with complete devotion and adoration to the Sacred One who resides in the heart of Śhrī Mātājī Nirmalā Devī. 
 From Him came the desire for our emancipation.</b></font>
 </p>
