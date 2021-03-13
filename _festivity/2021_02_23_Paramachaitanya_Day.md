@@ -86,7 +86,7 @@ His words express only the glory of God and nothing else<br>
 All the hurdles, diseases and death<br>
 <font color="DarkRed">PAY. ASHYA PURUSHACHA RE</font><br>
 are under the feet of such a person (meaning, none of the above can affect him — he is beyond even death)<br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=18gn-ubdNTI&feature=emb_logo&ab_channel=SahajaYoga">video</a>
 </p>
 
 <p>
@@ -114,7 +114,7 @@ We are in search of the truth, beauty and the spirit with an enlightened faith<b
 We are on the path of seeking, following the Holy feet of the Guru<br>
 <font color="DarkRed">VISHWA HE SAMAVILE</font><br>	
 It has completely embraced the whole universe<br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://www.youtube.com/watch?v=zQtmfIGDBcw&feature=emb_logo&ab_channel=SahajaYoga">video</a>
 </p>
 
 <p style="text-align:center;">
