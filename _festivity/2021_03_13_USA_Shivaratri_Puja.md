@@ -21,7 +21,7 @@ You see, before the complete manifestation of any tree its seed has to be seen f
 <p style="text-align:center">
 <font color="DarkRed"><b>"Śhrī Mahādeva is helpful in this, too. When your Kuṇḍalinī pierces the Sahasrāra, Śhrī Mahādeva is seated there.<br>
 That is why He is called Mahādeva, the God of Gods ......"</b></font><br>
-<font size="+0"><b>2004-0215 Śhivarātri Pūjā (Hindi+English), Kalyāṇ and Kaiyvalya, Pune, Maharashtra, India</b></font>
+<font size="+0"><b>2004-0215 Śhivarātri Pūjā (Hindi+English), Kalyāṇ and Kaiyvalya, Pune, Maharashtra, India</b></font><br>
 <br>
 <font color="Indigo"><b>Sat-chid’ānanda rūpah, Śhivo’ham, Śhivo’ham</b><br>
 I am in the form of Sat (truth, Self or existence), Chit (awareness or consciousness) and Ananda (bliss or pure joy)<br>
