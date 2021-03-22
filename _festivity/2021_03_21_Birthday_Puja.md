@@ -56,15 +56,15 @@ So till we are alive this light of Spirit will keep on increasing in our soul."<
 <a href="https://www.youtube.com/watch?v=qHt7_SEvKco&ab_channel=SahajaYoga">video</a><br>
 <b>Ayi ho Ma ham sab ke liye</b><br>
 <font size="+0">You have come for our sake, O Mother</font><br>
-Bas ek bahane....aj ke din</b><br>
+<b>Bas ek bahane....aj ke din</b><br>
 <font size="+0">Taking this very day as a pretext!</font><br>
-Aj ke din., Ma, aj.ke din</b><br>
+<b>Aj ke din., Ma, aj.ke din</b><br>
 <font size="+0">On this very day, O Mother, on this very day!</font><br>
-Bahe prem.hriday se jaha ke liye</b><br>
+<b>Bahe prem.hriday se jaha ke liye</b><br>
 <font size="+0">Your heart is flowing with Love for the whole universe.</font><br>
-Barhe Yog Sahaj Ma</b><br>
+<b>Barhe Yog Sahaj Ma</b><br>
 <font size="+0">Let Sahaja Yoga prosper on this very day!</font><br>
-Aj. Ke Din - Jab. Rat. Dhale</b><br>
+<font size="+0"><b>Aj. Ke Din - Jab. Rat. Dhale</b></font><br>
 <a href="https://www.youtube.com/watch?v=O3kudRDPf-E&ab_channel=VIOLONISTUL">video</a>
 </p>
 
