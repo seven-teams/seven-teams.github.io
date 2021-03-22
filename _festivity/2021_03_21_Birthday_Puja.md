@@ -136,7 +136,7 @@ May Your auspicious presence be felt<br>
 In our hearts all the time.<br>
 <font size="+0">Śhrī Mātājī Vandu Tav. Charna</font><br>
 <a href="https://www.youtube.com/watch?v=gO8ITyclHVE&ab_channel=SahajaYoga">video</a><br>
-<font size="+0">Australians presented this bhajan on occasion of 70th Birthday of Śhrī Mātājī.
+<font size="+0">Australians presented this bhajan on the occasion of 70th Birthday of Śhrī Mātājī.
 (*these lines to be sung on Śhrī Mātājī's birthday)</font>
 </p>
 
