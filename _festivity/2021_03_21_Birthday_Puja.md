@@ -178,13 +178,13 @@ Let the mankind be blessed by the presence of your Saguna Form forever<br>
 
 <p>
 <font color="green"><b>Shubh Mangalmay, Divas He Aya</b></font><br>
-Adi Shakti, Swayam Hain Padhāri<br>
+Ādi Śhakti, Swayam Hain Padhāri<br>
 <a href="https://www.youtube.com/watch?v=SYNRxZSzeDk&ab_channel=SahajaYoga">video</a>
 </p>
  
 <p>
 <font color="green"><b>Janam. din. ayo, Ādiśhakti ka</b></font><br>
-Adi Shakti's birthday has come!<br>
+Ādi Śhakti's Birthday has come!<br>
 <b>Smaran. din. ayo, Nirmal. bhakti ka</b><br>
 The day of recollection of Divine Devotion has come!<br>
 <a href="https://www.youtube.com/watch?v=4GAqyLEuQ24&ab_channel=SahajaYoga">video</a> 
