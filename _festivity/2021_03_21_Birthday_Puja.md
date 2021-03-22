@@ -161,7 +161,7 @@ All the Gods worship you, bowing themselves to Your Lotus Feet.<br>
 And it is these Lotus Feet that I now feel in Myself<br>
 <b>SPANDAN TU KANAKANAT . CHAITANATA JANIVET</b><br> 
 You pulsate in every particle and are the living force of awareness.<br>
-<b>TAV. RUPACHA PRABHAV. CHARACHARI PAHILA/<b><br>
+<b>TAV. RUPACHA PRABHAV. CHARACHARI PAHILA</b><br>
 It is You who are expressing Yourself in the mobile and immobile forms.<br>
 <b>TU ANADI TU APAAR AKSHAY . TU TU ANANT</b><br> 
 You are without beginning, You are infinite, You are without Ending, Eternal.<br>
@@ -201,7 +201,7 @@ The day of recollection of Divine Devotion has come!<br>
 </p>
 
 <p>
-<font color="green"><b>Pujhya pujani</b></font><br>
+<font color="green"><b>Pujhya Pujani</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
