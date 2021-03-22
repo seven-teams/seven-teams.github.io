@@ -185,7 +185,7 @@ Adi Shakti, Swayam Hain Padhāri<br>
 <p>
 <font color="green"><b>Janam. din. ayo, Ādiśhakti ka</b></font><br>
 Adi Shakti's birthday has come!<br>
-<font color="green"><b>Smaran. din. ayo, Nirmal. bhakti ka</b></font><br>
+<b>Smaran. din. ayo, Nirmal. bhakti ka</b><br>
 The day of recollection of Divine Devotion has come!<br>
 <a href="https://www.youtube.com/watch?v=4GAqyLEuQ24&ab_channel=SahajaYoga">video</a> 
 </p>
