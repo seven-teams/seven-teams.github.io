@@ -64,9 +64,9 @@ You have to rise into that new realm which is the Realm of God Almighty, what yo
 <div style="text-align: center"><img src="/images/image658.png" /></div>
 
 <p style="text-align:center;">
-"On the Easter Day, we give people eggs to remind them that, ‘You are egg now and you have to become the bird.’ But I don’t think people know that,<br>
+<font color="DarkRed">"On the Easter Day, we give people eggs to remind them that, ‘You are egg now and you have to become the bird.’ But I don’t think people know that,<br>
 <b>because Resurrection is the message of Christ. 
-Crucifixion is the accomplishment, but Resurrection is His Message.</b>"<br>
+Crucifixion is the accomplishment, but Resurrection is His Message.</b>"</font><br>
 <font size="+0"><b>1982-0930 Public Program, Day 4, Viśhuddhi to Sahasrāra, Urania Volkshochschulen, Volksbildungshaus, Uraniastraße 1, Vienna, Austria</b></font><br>
 <br>
 <font color="DarkGreen"><b>You were born in the primordial cosmic egg.<br>
@@ -79,7 +79,7 @@ You were attended by the Three Magi, who were Brahma, Śhiva and Vishnu.</b></fo
 <p>
 <font color="DarkRed">"The other day at the Āśhram I spoke to you about Easter, about the birth of Christ and His Resurrection and the message of Christianity that is Resurrection.<br>
 <b>An egg is a very significant thing and it is written in one of the ancient Scriptures in India [as to] why Easter should be celebrated with an egg – is most surprising. It’s very clear there, if one can see, how Christ is symbolized as an egg.</b><br>
-Now what is an egg?</b><br>
+Now what is an egg?<br>
 In Sanskrit language, a Brahmin is called as dvijaḥ, dvīhi jayati, means the one who is born twice. And a bird is also called, any bird, is called as a dvijaḥ, means twice-born. Because first the bird is born as an egg and then reborn as a bird. In the same way, a human being is born as an egg and then is born as a realized Soul."</font><br>
 <font size="+0"><b>1980-0410 Public Program, Christ Is Symbolized as An Egg (The Egg and Rebirth), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
@@ -128,7 +128,7 @@ He told some important things at that time and one most important thing out of t
 
 <p>
 <font color="Indigo"><b>Maranacha Mele Prabhu Mazhe Vijayi Zhale</b></font><br>
-(In the resurrection of Christ, death has suffered a humiliating defeat by its own death, and my Lord has emerged victorious over death)<br>
+<font size="+0">(In the resurrection of Christ, death has suffered a humiliating defeat by its own death, and my Lord has emerged victorious over death)</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
