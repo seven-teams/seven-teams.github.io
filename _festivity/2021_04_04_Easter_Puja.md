@@ -102,7 +102,7 @@ There is also a meaning why He was crucified.<br>
 <b>He was crucified on the cross and this cross is a symbol of the Swastika on the Āgñyā chakra.</b>
 He was crucified and He left His body there only. 
 He told some important things at that time and one most important thing out of this was<br>
-<b>"Wait for the Mother” – “Think of the Mother” [“Behold the Mother”]."</b> "</font<br>
+<b>"Wait for the Mother” – “Think of the Mother” [“Behold the Mother”]."</b> "</font><br>
 <font size="+0"><b>1996-0414 Easter Pūjā (Hindi), Kolkata, West Bengal, India</b></font>
 </p>
 
