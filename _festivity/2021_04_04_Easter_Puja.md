@@ -21,7 +21,7 @@ So, we have to be eternally thankful to His life and to Him, that [for] the way 
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"As you know the Sun is thus Āgñyā chakra: Christ resides in the Sun. And in the body, in the being, He is the Spirit. 
-When He is the Spirit He’s the Moon and when He acts on the Āgñyā He’s the Sun".</b></font><br>
+When He is the Spirit He’s the Moon and when He acts on the Āgñyā He’s the Sun."</b></font><br>
 <font size="+0"><b>1988-0403 Easter and Birthday Pūjā, First and Foremost Thing You Have to Be Strong like Christ (We Have to Be Strong Ourselves, We Have to Ascend and We Have to Be Collective), Attention Should Be Towards Your Ascent (It's a State of Your Personality), Follow His Footsteps in Doing Remarkable Things (Carry the Work of Christ of Resurrection), and What You Wanted Is the State of that Complete Faith Within Yourself, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font><br>
 <font color="DarkGreen"><b>You guard the gate of our Mother.<br>
 You are the Son of God.<br>
@@ -31,7 +31,7 @@ You were crucified and resurrected in pure Spirit.<br>
 You rose after three days.<br>
 You are peace.<br>
 You absorb all thought.<br>
-You abide in the Adi Agnya chakra. </b></font>
+You abide in the Ādi Āgñyā Chakra. </b></font>
 </p>
 
 <p>
@@ -73,14 +73,13 @@ Crucifixion is the accomplishment, but Resurrection is His Message.</b>"<br>
 You were conceived in the heart of Shri Mataji.<br>
 You were foretold by the Prophets.<br>
 You were heralded by a star in the East.<br>
-You were attended by the Three Magi, who were Brahma, Śhiva and Vishnu.<br>
-</b></font>
+You were attended by the Three Magi, who were Brahma, Śhiva and Vishnu.</b></font>
 </p>
 
 <p>
 <font color="DarkRed">"The other day at the Āśhram I spoke to you about Easter, about the birth of Christ and His Resurrection and the message of Christianity that is Resurrection.<br>
 <b>An egg is a very significant thing and it is written in one of the ancient Scriptures in India [as to] why Easter should be celebrated with an egg – is most surprising. It’s very clear there, if one can see, how Christ is symbolized as an egg.</b><br>
-Now what is an egg?<br>
+Now what is an egg?</b><br>
 In Sanskrit language, a Brahmin is called as dvijaḥ, dvīhi jayati, means the one who is born twice. And a bird is also called, any bird, is called as a dvijaḥ, means twice-born. Because first the bird is born as an egg and then reborn as a bird. In the same way, a human being is born as an egg and then is born as a realized Soul."</font><br>
 <font size="+0"><b>1980-0410 Public Program, Christ Is Symbolized as An Egg (The Egg and Rebirth), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
