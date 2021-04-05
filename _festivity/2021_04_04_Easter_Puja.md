@@ -50,8 +50,8 @@ Then He was given birth by the Holy Ghost who was the Mother of Christ on this E
 <font color="DarkRed">"So, it was a very sad time when He was crucified. <b>But when He got resurrected it was the most joyous, most auspicious and most beautiful time.<br>
 The Resurrection of Christ is very symbolic for Sahaja Yoga. If Christ could be resurrected, then the human beings also can be resurrected, because He came as a human being with all powers and He created the Path of Resurrection for us. This Path of Resurrection is the one that we have followed in Sahaja Yoga."</b></font><br>
 <font size="+0"><b>1998-0419 Easter Pūjā, The Message of Resurrection and Be All the Time Prepared to Sacrifice Whatever Is Possible for the Emancipation of Humanity (What We Want Now: to Give Whatever We Have Achieved to Others), Istanbul, Turkey</b></font><br>
-<font color="DarkGreen"><b>You promised the comforter who is Shri Mataji, the Holy Spirit.<br>
-You return as a king. You are Shri Kalki.<br>
+<font color="DarkGreen"><b>You promised the comforter who is Śhrī Mātājī, the Holy Spirit.<br>
+You return as a king. You are Śhrī Kalki.<br>
 You are the principle of evolution. You are the support of our evolution.</b></font>
 </p>
 
@@ -70,7 +70,7 @@ Crucifixion is the accomplishment, but Resurrection is His Message.</b>"<br>
 <font size="+0"><b>1982-0930 Public Program, Day 4, Viśhuddhi to Sahasrāra, Urania Volkshochschulen, Volksbildungshaus, Uraniastraße 1, Vienna, Austria</b></font><br>
 <br>
 <font color="DarkGreen"><b>You were born in the primordial cosmic egg.<br>
-You were conceived in the heart of Shri Mataji.<br>
+You were conceived in the heart of Śhrī Mātājī.<br>
 You were foretold by the Prophets.<br>
 You were heralded by a star in the East.<br>
 You were attended by the Three Magi, who were Brahma, Śhiva and Vishnu.</b></font>
@@ -112,17 +112,17 @@ He told some important things at that time and one most important thing out of t
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="Indigo"><b>Shri Ganesha Jai Shri Ganesha</b></font><br>
+<font color="Indigo"><b>Śhrī Gaṇeśha Jay Śhrī Gaṇeśha</b></font><br>
 <a href="https://www.youtube.com/watch?v=GCgN6qnmNiA&ab_channel=SahajaYoga">video</a>
 </p>
 
 <p>
-<font color="Indigo"><b>Omkar Pradhana Rup Ganeshache </b></font><br>
+<font color="Indigo"><b>Omkar Pradhana Rup Gaṇeśhache </b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
-<font color="Indigo"><b>Gajanana Shri Gan Raya</b></font><br>
+<font color="Indigo"><b>Gajānana Śhrī Gaṇarāyā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
@@ -133,19 +133,19 @@ He told some important things at that time and one most important thing out of t
 </p>
 
 <p>
-<font color="Indigo"><b>Shri Mahalakshmi Stotram</b></font><br>
+<font color="Indigo"><b>Śhrī Mahālakṣhmī Stotram</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
-<font color="Indigo"><b>Ek Ganapati Ek Īsā</b></font><br>
+<font color="Indigo"><b>Ek Gaṇapati Ek Īsā</b></font><br>
 <a href="https://www.youtube.com/watch?v=Dg41OjGhrU8&list=PLuAVZW42aaCl9pNxB0HDBVhjALrGm2Od_&ab_channel=YengChanNg">video</a> 
 </p>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Sarva Granthi Vibhedinī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
-(Shri Mataji is breaking our shells of ego and superego through Easter egg breaking and mentions that the mantra for this is Sarva Granthi Vibhedini)<br>
-Breaking Easter Eggs<br>
+<font size="+0">(Śhrī Mātājī is breaking our shells of ego and superego through Easter egg breaking and mentions that the mantra for this is Sarva Granthi Vibhedini)<br>
+Breaking Easter Eggs</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
