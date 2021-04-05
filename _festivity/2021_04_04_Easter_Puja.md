@@ -19,14 +19,19 @@ So, we have to be eternally thankful to His life and to Him, that [for] the way 
 
 <div style="text-align: center"><img src="/images/image656.png" /></div>
 
-
 <p style="text-align:center;">
-"So, it was a very sad time when He was crucified. <b>But when He got resurrected it was the most joyous, most auspicious and most beautiful time.<br>
-The Resurrection of Christ is very symbolic for Sahaja Yoga. If Christ could be resurrected, then the human beings also can be resurrected, because He came as a human being with all powers and He created the Path of Resurrection for us. This Path of Resurrection is the one that we have followed in Sahaja Yoga.</b>"<br>
+<font color="DarkRed"><b>"As you know the Sun is thus Āgñyā chakra: Christ resides in the Sun. And in the body, in the being, He is the Spirit. 
+When He is the Spirit He’s the Moon and when He acts on the Āgñyā He’s the Sun".</b></font><br>
 <font size="+0"><b>1988-0403 Easter and Birthday Pūjā, First and Foremost Thing You Have to Be Strong like Christ (We Have to Be Strong Ourselves, We Have to Ascend and We Have to Be Collective), Attention Should Be Towards Your Ascent (It's a State of Your Personality), Follow His Footsteps in Doing Remarkable Things (Carry the Work of Christ of Resurrection), and What You Wanted Is the State of that Complete Faith Within Yourself, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font><br>
-<font color="DarkGreen"><b>You promised the comforter who is Shri Mataji, the Holy Spirit.<br>
-You return as a king. You are Shri Kalki.<br>
-You are the principle of evolution. You are the support of our evolution.</b></font>
+<font color="DarkGreen"><b>You guard the gate of our Mother.<br>
+You are the Son of God.<br>
+You are the only way to the Kingdom of God.<br>
+<br>
+You were crucified and resurrected in pure Spirit.<br>
+You rose after three days.<br>
+You are peace.<br>
+You absorb all thought.<br>
+You abide in the Adi Agnya chakra. </b></font>
 </p>
 
 <p>
@@ -49,7 +54,6 @@ The Resurrection of Christ is very symbolic for Sahaja Yoga. If Christ could be 
 You return as a king. You are Shri Kalki.<br>
 You are the principle of evolution. You are the support of our evolution.</b></font>
 </p>
-
 
 <p>
 <font color="DarkRed">"<b>Today we are celebrating the Resurrection of Christ [and] with it we also have to celebrate the Resurrection of human beings, of Sahaja Yogis who have been resurrected as realized Souls.</b> With that we have to understand that we enter into a new awareness. There was no need for Christ to enter into any new awareness, He had to come down and again to show to this world that you are the eternal life, that you lead a life that is spiritual, which never perishes.<br>
@@ -140,7 +144,7 @@ He told some important things at that time and one most important thing out of t
 </p>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Sarva Granthi Vibhedinī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></<br>
+<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Sarva Granthi Vibhedinī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 (Shri Mataji is breaking our shells of ego and superego through Easter egg breaking and mentions that the mantra for this is Sarva Granthi Vibhedini)<br>
 Breaking Easter Eggs<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
