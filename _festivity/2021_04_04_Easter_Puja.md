@@ -78,8 +78,8 @@ You were attended by the Three Magi, who were Brahma, Śhiva and Vishnu.<br>
 </p>
 
 <p>
-<font color="DarkRed">"The other day at the Āśhram I spoke to you about Easter, about the birth of Christ and His Resurrection and the message of Christianity that is Resurrection.</b><br>
-An egg is a very significant thing and it is written in one of the ancient Scriptures in India [as to] why Easter should be celebrated with an egg – is most surprising. It’s very clear there, if one can see, how Christ is symbolized as an egg.</b><br>
+<font color="DarkRed">"The other day at the Āśhram I spoke to you about Easter, about the birth of Christ and His Resurrection and the message of Christianity that is Resurrection.<br>
+<b>An egg is a very significant thing and it is written in one of the ancient Scriptures in India [as to] why Easter should be celebrated with an egg – is most surprising. It’s very clear there, if one can see, how Christ is symbolized as an egg.</b><br>
 Now what is an egg?<br>
 In Sanskrit language, a Brahmin is called as dvijaḥ, dvīhi jayati, means the one who is born twice. And a bird is also called, any bird, is called as a dvijaḥ, means twice-born. Because first the bird is born as an egg and then reborn as a bird. In the same way, a human being is born as an egg and then is born as a realized Soul."</font><br>
 <font size="+0"><b>1980-0410 Public Program, Christ Is Symbolized as An Egg (The Egg and Rebirth), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
