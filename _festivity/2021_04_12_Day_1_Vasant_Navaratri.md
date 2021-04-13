@@ -66,13 +66,13 @@ But the most important, the greatest advancement is done by giving the Universal
 </p>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Sruteenām moordhāno dadhati tava yau saekhara tayā<br>
+<font color="DarkRed"><b>Sruteenām mūrdhāno dadhati tava yau saekhara tayā<br>
 mama apyaetou Matah sirasi dayayā dhehi charanou,<br>
-yayoh pādyam pāthah Pashupati jata joota tatinee<br>
-yayorlakshā Lakshmīr aruna Hari Choodamani ruchih.</b><br>
-O Jagan Mātā! Thy two Feet are adored as the crowns on the peaks (Upanishads) of the Vedas.<br>
-The water that washes your feet is the celestial river Ganga in the matted hair locks of Lord Pashupati.<br>
-The lustre of the lac dye used on your Feet imparts red colour to the ruby that glorifies the diadem of Śhrī Hari.<br>
+yayoh pādyam pāthah Paśhupati jata jūta tatinee<br>
+yayorlakshā Lakshmīr aruna Hari Chūdamani ruchih.</b><br>
+O Jagan Mātā! Thy two Feet are adored as the crowns on the peaks (Upaniṣhads) of the Vedas.<br>
+The water that washes Your Feet is the celestial river Ganga in the matted hair locks of Lord Paśhupati.<br>
+The lustre of the lac dye used on Your Feet imparts red colour to the ruby that glorifies the diadem of Śhrī Hari.<br>
 O Mother, please place them on my head too, taking mercy on me</font><br>
 <font size="+0">(Śhrī Ādi Śhaṅkarāchārya)</font>
 </p>
