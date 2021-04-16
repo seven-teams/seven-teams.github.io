@@ -35,8 +35,7 @@ You reside in the Muladhara, and are served by those devoted to the Kaula path.<
 <div style="text-align: center"><img src="/images/image672.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">image.png
-"If we have to ascend, if we have to go to the Kingdom of God, we have to cleanse yourselves, 
+<font color="DarkRed">"If we have to ascend, if we have to go to the Kingdom of God, we have to cleanse yourselves, 
 you have to become pure human beings, that we are acceptable.<br>
 Now, individually, even, if you improve, if collectively if you are not improving, you are not improving at all!<br>
 Because <b>it’s collectivity which is going to make you nice, that is going to mold you, that is going to make you the beautiful people of the progeny, beautiful parents, beautiful children, 
