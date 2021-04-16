@@ -6,7 +6,7 @@ tags:
   - Easter Puja
 ---
 
-<div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
+<div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
 <font color="DarkRed">"<b>Today we are here to celebrate the Resurrection of Christ. Resurrection of Christ has the greatest significance for all the Sahaja Yogis and we have to understand that He resurrected Himself so that we could resurrect ourselves.</b><br>

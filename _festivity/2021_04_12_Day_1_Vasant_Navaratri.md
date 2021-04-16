@@ -6,7 +6,7 @@ tags:
   - Vasant Navaratri
 ---
 
-<div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
+<div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
 <font color="DarkGreen">"<b>In India, Navarātri falls twice in a year. Once it is in the month of Chaitra as it is today.</b> On this day Devī is worshiped as Śhailaputrī, means the daughter of Himalaya. Devī has many other names also but first of all She incarnated as Śhailaputrī in the cold of Himalayas. She incarnated and whatever She was to do. She started there.<br>

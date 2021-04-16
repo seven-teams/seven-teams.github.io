@@ -6,7 +6,7 @@ tags:
   - Paramachaitanya Day
 ---
 
-<div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
+<div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
 <font color="DarkRed"><b>"My vision for Sahaja Yoga is that, that all the good people, righteous people, God-loving people will rise above all that is useless, worldly, and reside in the Heavens with all the blessings of God, forever and ever."</b></font><br>

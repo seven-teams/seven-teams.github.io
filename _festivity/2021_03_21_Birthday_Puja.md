@@ -6,7 +6,7 @@ tags:
   - Birthday Puja
 ---
 
-<div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
+<div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
 <font color="DarkRed">"<b>The birthday of your Mother, and all such celebrations have a very deep significance because on such occasions</b>, special vibrations flow in the atmosphere. When all the celestial bodies, the Eternal Personalities, Gods, and Goddesses, sing the praise, and that’s how the whole atmosphere is filled with mirth and happiness. Human beings also express their gratitude. <b>Expression of gratitude and love is done in different, different ways in different countries, but the substance remains the same and the forms change.</b><br>

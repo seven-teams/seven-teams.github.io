@@ -6,7 +6,7 @@ tags:
   - Vasant Panchami
 ---
 
-<div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
+<div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
 <font color="DarkRed">"There is God and also we know that He is reflected in us, in our heart as Spirit, as Ātmā, as Self.<br>

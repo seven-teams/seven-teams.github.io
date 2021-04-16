@@ -7,7 +7,7 @@ tags:
   - Shivaratri Puja
 ---
 
-<div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
+<div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
 <font color="DarkRed">"I have told you about the origin before. <b>Because on the Day of Mahāśhivarātri, when there is a talk about Śhivjī, then it has to begin with origin. How much He is Primordial, means when there is a first manifestation of form of God Almighty.</b>

@@ -7,7 +7,7 @@ tags:
   - Shivaratri Puja
 ---
 
-<div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
+<div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
 <font color="DarkRed">"<b>Today is the day when we celebrate Mahāśhivarātri.</b> It’s a great day, or we should say great night. This Pūjā should have been in the night!<br>
