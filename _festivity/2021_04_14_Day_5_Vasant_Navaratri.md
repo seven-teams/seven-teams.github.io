@@ -22,9 +22,9 @@ The Kuṇḍalinī is the energy that you know which gives you your ascent, but 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Kushala Komalakara, Kuru-kulla Kuleshvarı,<br>
 Kula-kund.alaya Kaula-marga-tatpara-sevita.</b><br>
-O Skillful Goddess, of tender form, Shri Kuru-kulla, Ruler of Sushumna Nadi;<br>
+O Skillful Goddess, of tender form, Śhrī Kuru-kulla, Ruler of Sushumna Nadi;<br>
 You reside in the Muladhara, and are served by those devoted to the Kaula path.</font><br>
-<font size="+0"><b>(Shri Lalita Sahastranama, verse 93)</b></font>
+<font size="+0"><b>(Śhrī Lalitā Sahasrānama, verse 93)</b></font>
 </p>
 
 <p>

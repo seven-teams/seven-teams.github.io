@@ -19,9 +19,9 @@ tags:
 <font color="DarkGreen"><b>Prabhavatı Prabha-rupa, Prasiddha Parameshvarı,<br> 
 Mula-prakritir-avyakta, Vyakt’avyakta-swarupinı.</b></font><br>
 Full of light, as light is Your form, You are the Established, Supreme Ruler of the Universe; 
-You are the Kundalini Shakti, imperceptible, 
+You are the Kuṇḍalinī Śhakti, imperceptible, 
 both the manifest and the unmanifest are Your forms.
-<font size="+0"><b>(Shri Lalita Sahastranama, verse 86)</b></font>
+<font size="+0"><b>(Śhrī Lalitā Sahasrānama, verse 86)</b></font>
 </p>
 
 <p>
@@ -54,12 +54,12 @@ Enlightenment, we have to understand that we get completely enlightened by Love.
 <div style="text-align: center"><img src="/images/image669.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
-<font size="+0"><b>Adi Shakti Mataji tere Charano mein aaya hu mein</b><br>
-Adi Shakti Mataji I have come to Your Lotus Feet<br>
+<font size="+0"><b>Ādi Śhakti Mātājī tere Charano mein aaya hu mein</b><br>
+Ādi Śhakti Mātājī I have come to Your Lotus Feet<br>
 <b>Shyam Savere gun. Tere gaon,  Tera hi jaya hun mein,</b><br>
 Morning and evening I sing Your Praise<br>
-<b>Shri Ma Tera hi jaya hu mein</b><br>
-Shri Mataji I Have received second birth from You</font><br>
+<b>Śhrī Mā Tera hi jaya hu mein</b><br>
+Śhrī Mātājī I Have received Second Birth from You</font><br>
 <a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&list=PLC8554007A2C98EA0&index=16&ab_channel=VIOLONISTUL">video</a>
 </p>
 
