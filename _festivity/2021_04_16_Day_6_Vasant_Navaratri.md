@@ -24,7 +24,12 @@ So the major propelling force, you can say, the major work had to be done in the
 </p>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
+<font color="DarkGreen"><b>Kul’angana Kul’anta-stha, Kaulinı Kula-yoginı,<br>
+Akula Samayanta-stha, Samayachara-tatpara. </b></font><br>
+O Chaste Lady, residing in the Sacrum bone, whose creation is the chakras,<br> 
+and who knows all the secret techniques of the path to Self-realisation;<br>
+You are beyond all categories and reside in the Sahasrara,<br>
+and are to be found through inner worship You are devoted to those who worship You internally.<br>
 <font size="+0"><b>(Śhrī Lalitā Sahasrānama, verse 37)</b></font>
 </p>
 
