@@ -83,10 +83,8 @@ My God himself is Truth and Love<br>
  
 <p>
 <font color="green"><b>Jay He Jay He Jay He Devī</b></font><br>
-<a href="https://www.youtube.com/watch?v=HvBIgQbSd3c&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
-%<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 
 <p>
 <font color="green"><b>Nirmalā Mā Kahiye</b></font><br>
