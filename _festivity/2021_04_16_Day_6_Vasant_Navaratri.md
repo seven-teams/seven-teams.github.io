@@ -49,7 +49,7 @@ and are to be found through inner worship You are devoted to those who worship Y
 
 <p>
 <font color="DarkGreen">"<b>You have to be first of all fully equipped with readiness, readiness to serve the Divine.</b><br>
-Unless and until you have that readiness, that 'I don’t want anything. I don’t want. I just want to serve the Divine.'<br>'
+Unless and until you have that readiness, that 'I don’t want anything. I don’t want. I just want to serve the Divine.'<br>
 As long as you are striving for it and asking for it with full heart, with full sincerity, then I’m sure this Kuṇḍalinī will be strengthened and 
 She’ll cleanse you completely and you’ll one day be Mahāyogis.<br>
 May God bless you all."</font><br>
@@ -59,7 +59,7 @@ May God bless you all."</font><br>
 <p style="text-align:center;">
 <font color="DarkRed"><b>Anyatha Sharanam Nasti Sharanam Twameva Cha!<br>
 Tastmat Karunya Bhavena Raksha Raksha Parmeshwari!</b></font><br>
-<font size="+0">O Supreme Goddess, I surrender to you alone and no one else. Hence have compassion on me and protect me.</font><br>
+<font size="+0"><b>O Supreme Goddess, I surrender to you alone and no one else. Hence have compassion on me and protect me.</b></font><br>
 <a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&index=15&list=PLC8554007A2C98EA0">video</a>
 </p>
 

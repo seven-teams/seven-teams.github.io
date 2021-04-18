@@ -20,7 +20,7 @@ Now, this desire to be one with the Divine is the purest and the highest. And to
 <font color="DarkGreen">"Kuṇḍalinī Śhakti is the Power of Desire of Bhagavatī.<br>
 She is easily awakened just by the Wish (Saṅkalpa) of Bhagavatī.<br>
 A person of very high order has to put in great efforts for it."<br>
-<font size="+0">1979-0000 Letter to Sahaja Yogis (Marathi) on Human Chitta from Nirmala Yoga, Issue 13 (January-February 1983), Pages 16 and 17<b></b></font>
+<font size="+0"><b>1979-0000 Letter to Sahaja Yogis (Marathi) on Human Chitta from Nirmala Yoga, Issue 13 (January-February 1983), Pages 16 and 17</b></font><br>
 <a href="https://www.youtube.com/watch?v=ecnk5GEJzS8&ab_channel=SahajaYoga">video</a>
 </p>
 
