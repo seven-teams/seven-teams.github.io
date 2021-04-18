@@ -11,7 +11,7 @@ tags:
 <p>
 <font color="DarkRed">"Now, as far as Sahaja Yoga is concerned, the basic thing is Kuṇḍalinī. And <b>the Kuṇḍalinī, as I have told you, is the pure desire. Again it, listen to it carefully: pure desire. That means all other desires are impure. There’s only one pure desire. And that is to be one with the Divine. One with the Brahma, one with God,</b> that’s the only pure des... desire. All other desires are impure. So, train your mind gradually to achieve that desire as the main thing. If you train your mind in that fashion, then you can develop pure desire, so all other desires will negate, gradually. All right.<br>
 Now, this desire to be one with the Divine is the purest and the highest. And to achieve that, what have you to do? <b>To achieve that you have to keep your Mother pleased, very simple.</b> Ādi Śhaṅkarāchārya has said that “You don’t bother about anything, just keep your Mother pleased.” You have to be simple person, not try to be cunning with Me or clever with Me, I know everyone very well. Try to tell yourself that, ‘I should say things, I should behave in a manner that will please my Mother.’ Supposing you are in Sahaja Yoga and you are doing wrong things, it is not going to please Me at all. So, ‘How to please Mother,’ that you should try to see for yourself, what kind of a thing pleases Me the best. I am also a very simple person. So I want a simple-hearted person, who is simple-hearted."</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1983-0121 Śhrī Devī Pūjā, Keep Your Mother Pleased, Vaitarna, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image675.png" /></div>
