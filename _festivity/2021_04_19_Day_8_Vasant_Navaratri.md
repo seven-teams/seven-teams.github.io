@@ -22,7 +22,7 @@ and She does that</b>."</b></font><br>
 </p>
 
 <p style="text-align:center;">
-<font color="blue">Kundalini Kundalini Nirmala Mata Mataji!</font><br>
+<font color="blue">Kuṇḍalinī Kuṇḍalinī Nirmalā Mātā Mātājī!</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -44,7 +44,7 @@ There's a silence in my heart, it grows and it grows<br>
 See the light shine within, a beam of love so pure<br>
 You may say it's all a dream, but we can show it's true<br>
 Yes we can show it's true</font><br>
-<font size="+0"><b>(Kundalini, Sacred Mother, English Song)</b></font>
+<font size="+0"><b>(Kuṇḍalinī, Sacred Mother, English Song)</b></font>
 </p>
 
 <p>
@@ -85,17 +85,17 @@ We all sing Your glory together</font><br>
 </p>
  
 <p>
-<font color="green"><b>Kundalini Stuti Stotra</b></font><br>
+<font color="green"><b>Kuṇḍalinī Stuti Stotra</b></font><br>
 <a href="https://www.youtube.com/watch?v=dKQR9NozR64&list=PLuAVZW42aaCnQ3JW90xymBbcyS-gt6SE1&index=69&ab_channel=SahajayogaCulture">video</a> 
 </p>
 
 <p>
-<font color="green"><b>Jay Ambe Kundalini Mā</b></font><br>
+<font color="green"><b>Jay Ambe Kuṇḍalinī Mā</b></font><br>
 <a href="https://www.youtube.com/watch?v=V98lTrcSZec&ab_channel=SahajaYoga">video</a> 
 </p>
 
 <p>
-<font color="green"><b>Kundalini Chadhi Badhi</b></font><br>
+<font color="green"><b>Kuṇḍalinī Chadhi Badhi</b></font><br>
 <a href="https://www.youtube.com/watch?v=KOKeT0HOmXU&list=RDKOKeT0HOmXU&ab_channel=VIOLONISTUL">video</a> 
 </p>
 
