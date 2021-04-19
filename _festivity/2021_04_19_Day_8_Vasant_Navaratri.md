@@ -16,7 +16,7 @@ tags:
 <div style="text-align: center"><img src="/images/image677.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"...... the power of Kuṇḍalinī is Absolute Purity, auspiciousness, holiness, chastity, self-respect, pure love, detachment, concern, enlightened attention – to give you joy. As every mother wants that her child should get the joy. Whichever way is possible, She’ll try to give joy to Her children. In the same way, <b>this Kuṇḍalinī has only one power – how to give joy to Her own children, 
+<font color="DarkGreen">"...... the power of Kuṇḍalinī is Absolute Purity, auspiciousness, holiness, chastity, self-respect, pure love, detachment, concern, enlightened attention – to give you joy. As every mother wants that her child should get the joy. Whichever way is possible, She’ll try to give joy to Her children. In the same way, <b>this Kuṇḍalinī has only one power – how to give joy to Her own children, 
 and She does that</b>."</b></font><br>
 <font size="+0"><b>1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b></font>
 </p>
