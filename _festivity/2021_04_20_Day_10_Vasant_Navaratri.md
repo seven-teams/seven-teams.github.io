@@ -22,7 +22,7 @@ You all know his childhood life and you have already heard about his qualities, 
 <font color="DarkRed">"<b>On the night of Full Moon, you should meditate on Śhrī Rāma and surrender yourself to Him for protection.</b>
 The meaning of the word rāmachandra is ‘creativity'. You should completely dedicate your creative powers to Him.<br>
 Thus you have to take special care of yourself on these two days.<br>
-<b>However, on the seventh (Saptamī) and ninth (Navamī) days of Lunar fortnights, you have My special blessings.</b>
+However, <b>on the seventh (Saptamī) and ninth (Navamī) days of Lunar fortnights, you have My special blessings.</b><br>
 Remember that you are specially blessed by Me on these two days.<br>
 Make some special arrangements so that you can have proper meditation on these days."</font><br>
 <font size="+0"><b>1976-0529 Talk to Sahaja Yogis (Hindi), Dhyān Kaise Karein (How to Meditate), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
@@ -48,7 +48,7 @@ Actually, all the events that occurred in the life span of Śhrī Rāma like Ahi
 </p>
 
 <p>
-<font color="Indigo">"<b>Shrī Rāma was the Purushottama – means He was the best among all the human beings. That means He incarnated as a human being, total human being, showing all the qualities of human beings.</b> Like He was, He married the Lakṣhmī principle that was Sītā, and then also He lived a normal married life. When He gave Her up He lived like an ascetic to show how a man should lead his life in proper dharma as a married man. And even when the wife has gone away, how He was leading a life of complete chastity."</font><br>
+<font color="Indigo">"<b>Shrī Rāma was the Puruṣhottama – means He was the best among all the human beings. That means He incarnated as a human being, total human being, showing all the qualities of human beings.</b> Like He was, He married the Lakṣhmī principle that was Sītā, and then also He lived a normal married life. When He gave Her up He lived like an ascetic to show how a man should lead his life in proper dharma as a married man. And even when the wife has gone away, how He was leading a life of complete chastity."</font><br>
 <font size="+0"><b>1989-0814 Śhrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, UK</b></font>
 </p>
 
@@ -62,22 +62,22 @@ of proper judgment, fair play, and righteousness.<br>
 </p>
 
 <p>
-<font color="Indigo">"<b>Śhrī Rāma came on this Earth to establish the institution of benevolent king.</b> The political development and the political evolution started from this [right] side. <b>He is the one who gave leadership as a benevolent king, the one who represents God and who is a king. The idea of a king related to God came from Śhrī Rāma.</b> But the modern kings are not like that, they have no relation with God.<br>
+<font color="DarkRed">"<b>Śhrī Rāma came on this Earth to establish the institution of benevolent king.</b> The political development and the political evolution started from this [right] side. <b>He is the one who gave leadership as a benevolent king, the one who represents God and who is a king. The idea of a king related to God came from Śhrī Rāma.</b> But the modern kings are not like that, they have no relation with God.<br>
 On the contrary, they are horrid people. Some of them are nothing but satanic people, absolutely Satan is there and you can see from the way they lead their lives, and they have led their life before. So the benevolence of Śhrī Rāma is here [shows the right Heart] to be followed by all the political leaders and all the people who are at the helm of affairs. He is the ideal that was created for human beings, to run their authority as the head, or the loving compassionate benevolent leader of the people, who has to govern them by making them respectful, by respect. And if human beings create such things who are not respectable, those who have no human values, those who have no moral courage, those who are selfish, those who are self-centered, then they have nothing to do to be there.<br>
 So this is the position of Rāma who is the Father. So the head of every state has to be the father of his subjects, that’s what He has tried to show by His life. So much so that He had to sacrifice His beloved Wife, whom He loved so much"</font><br>
-<font size="+0"><b>1981-0930 Public Program, Day 7 (2nd Day and 3rd Day of Navarātri), I Am the Holy Ghost, Christ Church (United Methodist), 524 Park Avenue, Manhattan, New York City, NY, U.S.A.</b></font>
+<font size="+0"><b>1981-0929 Navarātri Pūjā (1st Day), Sahaja Yogi's Home, Staten Island, New York City, NY, U.S.A.</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image684.png" /></div>
 
 <p style="text-align:center;">
-<font color="blue"><b>Shrī Rāmachandra charanau manasā smarāmi</b></font><br><br>
+<font color="blue"><b>Shrī Rāmachandra charanau manasā smarāmi</b></font><br>
 I worship the Feet of Śhrī Rāmachandra in my heart. <br>
-<font color="blue"><b>Shrī Rāmachandra charanau vachasā gṛunāmi</b></font><br><br>
+<font color="blue"><b>Shrī Rāmachandra charanau vachasā gṛunāmi</b></font><br>
 Through my songs and prayers, I praise the Feet of Śhrī Rāmachandra.<br>
-<font color="blue"><b>Shrī Rāmachandra charanau shirasā namāmi</b></font><br><br>
+<font color="blue"><b>Shrī Rāmachandra charanau shirasā namāmi</b></font><br>
 I bow at the Feet of Śhrī Rāmachandra. <br>
-<font color="blue"><b>Shrī Rāmachandra charanau sharanam prapadye</b></font><br><br>
+<font color="blue"><b>Shrī Rāmachandra charanau sharanam prapadye</b></font><br>
 I surrender at the Feet of Śhrī Rāmachandra. <br>
 <font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Sītā-Rāma sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font>
 </p>
