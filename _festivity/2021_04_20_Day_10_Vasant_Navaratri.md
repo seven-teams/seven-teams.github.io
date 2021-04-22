@@ -126,8 +126,8 @@ Baajat painjaniyaan<br>
 (Baby) Śhrī Ram…. His anklets ring in tune with his steps<br>
 Kilaki kilaki uthat dhaay girat bhuumi latapataay<br>
 Dhaay maat god let dasharath kii raniyaan</font><br>
-<font size="+0">Laughing joyously he stumbles around on the ground
-He is fondly picked into the laps of King Dasharath’s queens</font>
+<font size="+0">Laughing joyously he stumbles around on the ground<br>
+He is fondly picked into the laps of King Dasharath’s queens</font><br>
 <font color="blue"><font size="+0">Thumak Chalat</font></font><br>
 <a href="https://www.youtube.com/watch?v=3kjgprOXnAU&ab_channel=SahajaYoga">video</a><br>
 <font size="+0"><font color="DarkRed"><b>"That is a very beautiful song was written by him. But still, the description of a child, how when he runs when he runs, when he jumps, when he walks it’s a beautiful songs about Śhrī Rāma.<br>
