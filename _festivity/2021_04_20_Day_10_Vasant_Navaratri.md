@@ -116,16 +116,15 @@ I surrender at the Feet of Śhrī Rāmachandra. <br>
 <p>
 <font color="green"><b>Āratī and the Three Great Mantras</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-</p>
-
+</p>ā
 <p style="text-align:center;">
 <font color="DarkGreen">Thumak chalat Rāmachandra<br>
 Thumak chalat Rāmachandra<br>
-Bājat painjaniyaan<br>
+Bājat painjaniyan<br>
 (Baby) Śhrī Rām walks, swaying unsteadily<br>
 (Baby) Śhrī Rām ... His anklets ring in tune with his steps<br>
-Kilaki kilaki uthat dhaay girat bhuumi latapataay<br>
-Dhaay maat god let dasharath kii raniyaan</font><br>
+Kilaki kilaki uthat dhāy girat bhuumi latapatāy<br>
+Dhāy māt god let dasharath kii raniyān</font><br>
 <font size="+0">Laughing joyously he stumbles around on the ground<br>
 He is fondly picked into the laps of King Dasharath’s queens</font><br>
 <font color="blue"><font size="+0">Thumak Chalat</font></font><br>
