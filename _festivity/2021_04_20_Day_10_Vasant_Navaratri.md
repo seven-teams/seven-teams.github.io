@@ -99,7 +99,7 @@ I surrender at the Feet of Śhrī Rāmachandra. <br>
 </p>
 
 <p>
-<font color="green"><b>Śhrī Mātājī singing Raghupati Ram</b></font><br>
+<font color="green"><b>Śhrī Mātājī singing Raghupati Rām</b></font><br>
 <a href="https://www.youtube.com/watch?v=6cK5TEzmE7Q&ab_channel=SahajaYoga">video</a>
 </p>
  
@@ -119,11 +119,11 @@ I surrender at the Feet of Śhrī Rāmachandra. <br>
 </p>
 
 <p style="text-align:center;">
-<font color="DarkGreen">Thumak chalat raamachandra<br>
-Thumak chalat raamachandra<br>
-Baajat painjaniyaan<br>
-(Baby) Śhrī Ram walks, swaying unsteadily<br>
-(Baby) Śhrī Ram…. His anklets ring in tune with his steps<br>
+<font color="DarkGreen">Thumak chalat Rāmachandra<br>
+Thumak chalat Rāmachandra<br>
+Bājat painjaniyaan<br>
+(Baby) Śhrī Rām walks, swaying unsteadily<br>
+(Baby) Śhrī Rām ... His anklets ring in tune with his steps<br>
 Kilaki kilaki uthat dhaay girat bhuumi latapataay<br>
 Dhaay maat god let dasharath kii raniyaan</font><br>
 <font size="+0">Laughing joyously he stumbles around on the ground<br>
