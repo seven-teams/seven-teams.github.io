@@ -19,7 +19,7 @@ You all know his childhood life and you have already heard about his qualities, 
 <div style="text-align: center"><img src="/images/image681.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"<b>On the night of Full Moon, you should meditate on Śhrī Rāma and surrender yourself to Him for protection.</b>
+<font color="DarkRed">"<b>On the night of Full Moon, you should meditate on Śhrī Rāma and surrender yourself to Him for protection.</b><br>
 The meaning of the word rāmachandra is ‘creativity'. You should completely dedicate your creative powers to Him.<br>
 Thus you have to take special care of yourself on these two days.<br>
 However, <b>on the seventh (Saptamī) and ninth (Navamī) days of Lunar fortnights, you have My special blessings.</b><br>
