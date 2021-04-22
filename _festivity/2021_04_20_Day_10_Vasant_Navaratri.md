@@ -116,7 +116,7 @@ I surrender at the Feet of Śhrī Rāmachandra. <br>
 <p>
 <font color="green"><b>Āratī and the Three Great Mantras</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-</p>ā
+</p>
 <p style="text-align:center;">
 <font color="DarkGreen">Thumak chalat Rāmachandra<br>
 Thumak chalat Rāmachandra<br>
