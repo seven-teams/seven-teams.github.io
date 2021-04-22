@@ -122,11 +122,11 @@ I surrender at the Feet of Śhrī Rāmachandra. <br>
 Thumak chalat Rāmachandra<br>
 Bājat painjaniyan<br>
 (Baby) Śhrī Rām walks, swaying unsteadily<br>
-(Baby) Śhrī Rām ... His anklets ring in tune with his steps<br>
-Kilaki kilaki uthat dhāy girat bhuumi latapatāy<br>
-Dhāy māt god let dasharath kii raniyān</font><br>
-<font size="+0">Laughing joyously he stumbles around on the ground<br>
-He is fondly picked into the laps of King Dasharath’s queens</font><br>
+(Baby) Śhrī Rām ... His anklets ring in tune with His steps<br>
+Kilaki kilaki uthat dhāy girat bhūmi latapatāy<br>
+Dhāy māt god let dasharath kī raniyān</font><br>
+<font size="+0">Laughing joyously He stumbles around on the ground<br>
+He is fondly picked into the laps of King Daśharath’s queens</font><br>
 <font color="blue"><font size="+0">Thumak Chalat</font></font><br>
 <a href="https://www.youtube.com/watch?v=3kjgprOXnAU&ab_channel=SahajaYoga">video</a><br>
 <font size="+0"><font color="DarkRed"><b>"That is a very beautiful song was written by him. But still, the description of a child, how when he runs when he runs, when he jumps, when he walks it’s a beautiful songs about Śhrī Rāma.<br>
