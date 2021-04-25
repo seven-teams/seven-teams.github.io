@@ -39,13 +39,13 @@ But as He belonged to the left side, He has described Hell very clearly. Fundame
 <div style="text-align: center"><img src="/images/image686.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"He was a Reincarnation of Saint Michael and He resides on the left side, on the Iḍā nāḍī. 
-And He looks after the whole of it, right from Mūlādhāra onwards up to the Sahasrāra. 
-So Saint Michael was born as Mahāvīra, meaning, <b>The Greatest Warrior. 
+<font color="DarkRed">"He was a Reincarnation of Saint Michael and He resides on the left side, on the Iḍā nāḍī.<br>
+And He looks after the whole of it, right from Mūlādhāra onwards up to the Sahasrāra.<br> 
+So Saint Michael was born as Mahāvīra, meaning, <b>The Greatest Warrior.<br>
 But when He was born, the whole place got lot of uh prosperity, that’s why He was called as Vardhamān, to begin with.</b>"</font><br>
 <font size="+0"><b>1990-0616 Śhrī Mahāvīra Pūjā, Touch Your Depth and Complete Kevalagyān (There Is Hell and You Must Learn to Have Self-discipline), Ca'n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b></font><br>
 <font color="blue"><b>Auṃ Twameva sākṣhāt Śhrī Vardhamāna sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
-O Divine Mother, You are verily the One who makes us progress and evolve! Salutations to You!
+<font color="blue">O Divine Mother, You are verily the One who makes us progress and evolve! Salutations to You!</font>
 </p>
 
 <p>
