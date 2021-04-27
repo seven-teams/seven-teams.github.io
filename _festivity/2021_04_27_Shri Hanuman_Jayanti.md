@@ -25,9 +25,8 @@ He supplies all the necessary guidance we need in our futuristic planning or in 
 <font color="red"><b>Auṃ Twameva sākṣhāt Śhrī Devadūta sākṣhāt Śhrī Ādi Śhakti Mātājī Shri Nirmalā Devī namo namaḥ</b><br>
 (The messenger of God, You are the archangel, Gabriel)</font><br>
 <font size="-1">Jay Hanumān</font><br>
-<a href="https://www.youtube.com/watch?v=Q0P6bWPz9bg&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="SaddleBrown">"What to say about Hanumāna? <b>The more powerful and wise, he was equally devoted and dedicated.</b> Generally, such a powerful person becomes right-sided and considers himself so high that he would not listen to anyone else. But Hanumāna is a special Deity, a typical Deity full of qualities. There was a perfect balance between his devotion and power. How could he achieve this balance is a thing to be understood.<br>
@@ -91,9 +90,10 @@ Please come quickly, as we are growing tired of fighting this negativity!<br>
 Ek Mukhana Bola, Bola Jay, Jay Hanumān<br>
 With one voice let us praise, victory to Hanumān.</font><br>
 <font size="+0"><b>Shri Hanumān Stuti (Anjanichya Suta)</b></font><br>
-<a href="https://www.youtube.com/watch?v=Xfctwh3_BQQ&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
+
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1989-0423 Śhrī Hanumāna Pūjā (St. George's Day), You Are All Angels, Cliftonville, Margate (123 kms ESE of London), UK</b></font>
@@ -103,27 +103,23 @@ With one voice let us praise, victory to Hanumān.</font><br>
 
 <p>
 <font color="green"><b>Śhrī Hanumāna Chalisa</b></font><br>
-<a href="https://www.youtube.com/watch?v=OLWpuXC-_mQ&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
  
 <p>
 <font color="green"><b>Śhrī Hanumāna Chalisa translation in English 1989-0423 Śhrī Hanumāna Pūjā, Margate, UK</b></font><br>
-<a href="https://www.youtube.com/watch?v=KPgRHhWhBEI&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="green"><b>Nām Gheta mukhi raghavache</b></font><br>
-<a href="https://www.youtube.com/watch?v=qO5HQIjZHJg&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="green"><b>Bhar de itni bhakti Mā</b></font><br>
-<a href="https://www.youtube.com/watch?v=X4Pa2ydPLB8&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <div style="text-align: center"><img src="/images/image692.png" /></div>
 
