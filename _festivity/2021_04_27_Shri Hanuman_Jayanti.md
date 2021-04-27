@@ -74,11 +74,9 @@ So the devotion and the power (bhakti aur śhakti) are not different things. It 
 <div style="text-align: center"><img src="/images/image691.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b>"I hope by today’s Pūjā, that enthusiasm, that venturesome nature will vibrate your Piṅgalā,<br>
-and without feeling any ego about it, in the most humble manner as Hanumāna was, you will do the jobs.<br>
+<font color="DarkRed"><b>"I hope by today’s Pūjā, that enthusiasm, that venturesome nature will vibrate your Piṅgalā, and without feeling any ego about it, in the most humble manner as Hanumāna was, you will do the jobs.<br>
 Obedience is the only thing that helps to carry out your work and you’ll become humbler and humbler.<br>
-But if you think, ‘Oh I am doing this’ – then finished. But if you know that it’s done by the Divine – ‘Paramachaitanya is doing everything,<br>
-I am just an instrument’ – the humility will be there and you will be an effective instrument."</b></font><br>
+But if you think, ‘Oh I am doing this’ – then finished. But if you know that it’s done by the Divine – ‘Paramachaitanya is doing everything, I am just an instrument’ – the humility will be there and you will be an effective instrument."</b></font><br>
 <font size="+0"><b>1989-0423 Śhrī Hanumāna Pūjā (St. George's Day), You Are All Angels, Cliftonville, Margate (123 kms ESE of London), UK</b></font><br>
 <br>
 <font color="DarkGreen">He Ale Kiti Gele Kiti, Sampale Bharara<br>
@@ -92,8 +90,6 @@ With one voice let us praise, victory to Hanumān.</font><br>
 <font size="+0"><b>Shri Hanumān Stuti (Anjanichya Suta)</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1989-0423 Śhrī Hanumāna Pūjā (St. George's Day), You Are All Angels, Cliftonville, Margate (123 kms ESE of London), UK</b></font>
