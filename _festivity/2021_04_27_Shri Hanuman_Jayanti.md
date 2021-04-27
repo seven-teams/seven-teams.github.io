@@ -123,8 +123,7 @@ With one voice let us praise, victory to Hanumān.</font><br>
 <font color="Chocolate"><b> You control people who have too much right side.<br>
 You bring down the speed of right-sided people (by giving them lethargic heaviness).<br>
 You hold a mace (the gada) in Your hand to reduce our illusions.<br>
-You are the source of enthusiasm [Through Your bhakti (ocean of love) we may use Your fire.<br>
-In this way we may act without heating up our right side]  </b></font><br>
+You are the source of enthusiasm [Through Your bhakti (ocean of love) we may use Your fire. In this way we may act without heating up our right side]  </b></font><br>
 <font size="+0"><b>The 108 holy qualities of Shrī Hanumāna<br>
 (Nirmala Vidyā: Sahaja Yoga mantra book)</b></font>
 </p>
