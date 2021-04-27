@@ -126,7 +126,7 @@ You hold a mace (the gada) in Your hand to reduce our illusions.<br>
 You are the source of enthusiasm [Through Your bhakti (ocean of love) we may use Your fire.<br>
 In this way we may act without heating up our right side]  </b></font><br>
 <font size="+0"><b>The 108 holy qualities of Shrī Hanumāna<br>
-( Nirmal Vidya: Sahaja Yoga mantra book)</b></font>
+(Nirmala Vidyā: Sahaja Yoga mantra book)</b></font>
 </p>
 
 <p>
