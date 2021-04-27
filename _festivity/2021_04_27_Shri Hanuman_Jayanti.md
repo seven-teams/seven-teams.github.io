@@ -22,7 +22,7 @@ So <b>in the left side, we have gaṇas, on the right side, we have angels. And 
 He supplies all the necessary guidance we need in our futuristic planning or in our mental activities.<br>
 <b>He gives us guidance and protection.</b>"</font><br>
 <font size="+0"><b>1990-0831 Śhrī Hanumāna Pūjā, Electromagnetic Force, Schloss Schwetzingen, Frankfurt, Germany</b></font><br>
-<font color="red"><b>Auṃ Twameva sākṣhāt Śhrī Devadūta sākṣhāt Śhrī Ādi Śhakti Mātājī Shri Nirmalā Devī namo namaḥ</b><br>
+<font color="red"><b>Auṃ Twameva sākṣhāt Śhrī Devadūta sākṣhāt Śhrī Ādi Śhakti Mātājī Shri Nirmalā Devī namo namaḥ!</b><br>
 (The messenger of God, You are the archangel, Gabriel)</font><br>
 <font size="-1">Jay Hanumān</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
@@ -32,7 +32,7 @@ He supplies all the necessary guidance we need in our futuristic planning or in 
 <font color="SaddleBrown">"What to say about Hanumāna? <b>The more powerful and wise, he was equally devoted and dedicated.</b> Generally, such a powerful person becomes right-sided and considers himself so high that he would not listen to anyone else. But Hanumāna is a special Deity, a typical Deity full of qualities. There was a perfect balance between his devotion and power. How could he achieve this balance is a thing to be understood.<br>
 In Sahaja Yoga, when we are enlightened, we get many powers. Then we have to keep balance. We love others and with the power of the love, we keep on doing our duties.<br>
 Śhrī Hanumāna was very powerful. He had many Divine Powers in Him Navadhā, that is Garima, Laghima, etc. He could be as big as he wanted to be and as small as an atom. He had achieved all these powers. Without attaining balance and coming to the central path. Such a powerful person generally goes crazy.<br>
-Each cell of Śhrī Hanumāna’s body was filled with power and devotion. Because of this specialty today we worship Śhrī Hanumāna all over the world.</font><br>
+<b>Each cell of Śhrī Hanumāna’s body was filled with power and devotion.</b> Because of this specialty today we worship Śhrī Hanumāna all over the world.</font><br>
 <font size="+0"><b>1999-0331 Śhrī Hanumāna Pūjā (Hindi), Krishna Sundar Garden, Amit Gaikwad Mala, Erandwane, Mhatre Bridge, Pune, Maharashtra, India</b></font>
 </p>
 
@@ -51,12 +51,12 @@ This is the sign of a powerful Sahaja Yogi. Anybody who is powerful has to be hu
 and viveka means the discrimination and buddhi means the intelligence.<br>
 <b>So, intelligence to discriminate between the truth and untruth is given to us by Śhrī Hanumāna.</b>"</font><br>
 <font size="+0"><b>1990-0831 Śhrī Hanumāna Pūjā, Electromagnetic Force, Schloss Schwetzingen, Frankfurt, Germany</b></font><br>
-<font color="orange"><b></b>Jay Hanumāna gyana guna sagara</font><br>
+<font color="orange"><b></b>Jay Hanumāna Gyāna Guṇa Sagara</font><br>
 Victory to Shri Hanumāna, the Ocean of Knowledge and Virtue.<br>
 <font color="orange"><b>Jay Kapisa tihun-loka ujagara</b></font><br>
 Hail! Great Lord of the monkeys who illuminates the three Worlds.<br>
-<font size="+0"><b>Śhrī Hanumāna Chalisa</b></font>
-<font size="+0">(Verses in praise of Śhrī Hanumāna by Tulsidas)</font>
+<font size="+0"><b>Śhrī Hanumāna Chalisa</b></font><br>
+<font size="+0">(Verses in praise of Śhrī Hanumāna by Tulasīdāsa Goswāmī)</font>
 </p>
 
 <p>
