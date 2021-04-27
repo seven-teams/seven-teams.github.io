@@ -51,7 +51,7 @@ This is the sign of a powerful Sahaja Yogi. Anybody who is powerful has to be hu
 and viveka means the discrimination and buddhi means the intelligence.<br>
 <b>So, intelligence to discriminate between the truth and untruth is given to us by Śhrī Hanumāna.</b>"</font><br>
 <font size="+0"><b>1990-0831 Śhrī Hanumāna Pūjā, Electromagnetic Force, Schloss Schwetzingen, Frankfurt, Germany</b></font><br>
-<font color="orange"><b></b>Jay Hanumāna Gyāna Guṇa Sagara</font><br>
+<font color="orange"><b>Jay Hanumāna Gyāna Guṇa Sagara</b></font><br>
 Victory to Shri Hanumāna, the Ocean of Knowledge and Virtue.<br>
 <font color="orange"><b>Jay Kapisa tihun-loka ujagara</b></font><br>
 Hail! Great Lord of the monkeys who illuminates the three Worlds.<br>
