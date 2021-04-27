@@ -93,7 +93,7 @@ With one voice let us praise, victory to Hanumān.</font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1989-0423 Śhrī Hanumāna Pūjā (St. George's Day), You Are All Angels, Cliftonville, Margate (123 kms ESE of London), UK</b></font>
-<a href=""> video</a><br>
+<a href="https://www.youtube.com/watch?v=WTCQPB-qKxk&t=2s&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
