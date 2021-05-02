@@ -10,7 +10,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,
 
 Jay Śhrī Mātājī!
 
-As part of the celebration of the 51st anniversary of the Sahasrāra Day, we are pleased to offer at the Lotus Feet of our Divine Mother and to bring to your attention the <font color="blue"><b>Eternal Moments</b></font> website of Photographs of Śhrī Mātājī that was started in 2018. 
+As part of the celebration of the 51st anniversary of the <font color="DeepPink"><b>Sahasrāra Day</></font>, we are pleased to offer at the Lotus Feet of our Divine Mother and to bring to your attention the <font color="blue"><b>Eternal Moments</b></font> website of Photographs of Śhrī Mātājī that was started in 2018. 
 
 <i>The website treasures the eternal moments with Śhrī Mātājī by organizing some of Her Photographs within collections as well as chronologically.</i>
 The link to the website is:
