@@ -20,7 +20,7 @@ Initially the website was thought to help the Festivity Team and all Sahaja Yogi
 
 The website has currently 6,379 Photographs of Śhrī Mātājī, including versions. More than half of the Photographs come from 9 collections. Among the 9 collections, 7 of them were shared with us (to work on them by titling them and eventually upload them to the website). The eighth collection is the one of Ray Harris that has been around for many years but not dated. A ninth collection was added as titles for the 1982 to 1984 period Photographs provide invaluable material for the whole database.
 
-We hope very much that you will enjoy the .<font color="blue"><b>Eternal Moments</b></font> website
+We hope very much that you will enjoy the <font color="blue"><b>Eternal Moments</b></font> website
 
 At this moment we are seeking your feedback on the website and we are considering enlarging the Photo Team, a sub team of CCT.
 
