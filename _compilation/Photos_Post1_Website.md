@@ -22,7 +22,7 @@ We hope very much that you will enjoy the <font color="blue"><b>Eternal Moments<
 
 At this moment we are seeking your feedback on the website and we are considering enlarging the team.
 
-The Photographs of the website can be currently extracted in many ways, say by copying. Until the Download buttons are activated, the extracted Photographs will not come up with their displayed titles. But the extraction part suffices for most projects. We aim to activate the Download buttons in the next couple of months, once the links to Galleries are better set up. 
+The Photographs of the website can be currently extracted in many ways, say by copying. Until the download buttons are activated, the extracted Photographs will not come up with their displayed titles. But the extraction part suffices for most projects. We aim to activate the download buttons in the next couple of months, once the links to Galleries are better set up. 
 
 We thank you in advance for any help, support, and feedback. Please write to us at sahajayoga.compilations@gmail.com
 
