@@ -128,7 +128,7 @@ For every particle is manifesting sheer joy, when in my heart resides the joy of
 Mother incarnated to raise our awareness to feel the formless,<br>
 <b>NIJARUPI RANGALE DHYAN, JADATET MATE CHAITANYA</b><br>
 As we meditate upon Her, we discovered the chaitanya in this mundane world<br>
-<a href="">video</a>
+<a href="https://www.youtube.com/watch?v=b30MtjwiJDY&ab_channel=SahajaYoga">video</a>
 </p>
 
 <p>
