@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"<b>Today we are celebrating the Sahasrāra Day.</b>
+<font color="DarkRed">"<b>Today we are celebrating the Sahasrāra Day.</b><br>
 Perhaps we have not realized what a day it must have been. Without opening the Sahasrāra, God Itself was a myth, religion itself was a myth, all talk about Divinity was a myth. People believed in it but it was just a belief. And the science, as it was put forward, was about to obliterate all the value system, all the proof of God Almighty."</font><br>
 <font size="+0"><b>1992-0510 Sahasrāra Pūjā, The Will of God, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
@@ -57,23 +57,24 @@ As soon as Sahasrāra was opened, the whole atmosphere was filled with tremendou
 <div style="text-align: center"><img src="/images/image695.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Jagat. Janani Nirmala</b></font><br>
-Mother of the whole world, giver of birth to everybody,
+	<br>
+<font color="DarkGreen"><b>Jagat. Janani Nirmalā</b></font><br>
+Mother of the whole world, giver of birth to everybody,<br>
 <font color="DarkGreen"><b>Mulaprakriti Akhileshwar.ki</b></font><br>
-You are behind the whole Nature created by God
+You are behind the whole Nature created by God<br>
 <font color="DarkGreen"><b>Nitya Satya Sanatana</b></font><br>
-You are all the time everywhere, ever fresh, You are the truth
+You are all the time everywhere, ever fresh, You are the truth<br>
 <font color="DarkGreen"><b>Parashakti Parameshwar.ki</b></font><br>
-You are from the beginning to the end the Power of God Almighty.
+You are from the beginning to the end the Power of God Almighty.<br>
 <font color="DarkGreen"><b>Vishwadharini, Mangalakarini</b></font><br>
-You are the one who supports the whole world & takes care of the benevolence of Her devotees
+You are the one who supports the whole world & takes care of the benevolence of Her devotees<br>
 <font color="DarkGreen"><b>Shubhadam Varadam Namo Namah</b></font><br>
 Giver of auspiciousness, benevolence, and boons, we bow to You.<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="DarkRed">"<b>Sahaja Yoga was known to Me all along.</b> It is a unique knowledge with which I was born. It was not so easy to reveal it and I wanted to find out how to reveal it.
+<font color="DarkRed">"<b>Sahaja Yoga was known to Me all along.</b> It is a unique knowledge with which I was born. It was not so easy to reveal it and I wanted to find out how to reveal it.<br>
 First of all, I thought that the seventh chakra must be opened, which I did, on 05th May 1970. It is a secret in a way. Formerly, the Brahmachaitanya was avyakta. It was not manifested. It was not expressed by itself, and so the people who managed to reach Brahmachaitanya somehow, by attaining ‘realization’, said – “it was nirākār kā guṇa” “you are like a drop that gets dissolved in the ocean.”<br>
 No one could say, explain or tell people anything more about it. The Great Incarnations also who came out of this Great Ocean of Brahmachaitanya, tried their best to share it with the best available followers – which were very few – and introduce them to this Brahmachaitanya. But because the Brahmachaitanya was not in avyakta form, these Incarnations got dissolved in it.<br>
 ...... <b>Now I have come as the Incarnation of the Brahmachaitanya as a whole.</b> The sea of the Nirākār has now become a big cloud [Sākār]. It has taken a form. Those who came before were all a part and parcel of it. Now the whole has come. This cloud has rainwater. The rainwater is nourishing the minds of the people. Gradually they are brought to a level where their Kuṇḍalinīs have risen. They have got their Realization and now gradually they are feeling everything on their senses, their fingertips. This is the reason why nobody has talked about vibrations so clearly. They managed to talk about Chaitanya Laharī.<br>
@@ -90,6 +91,10 @@ I don’t know if some of you must have read My book, first book [Book of Ādi �
 <div style="text-align: center"><img src="/images/image696.png" /></div>
 
 <p style="text-align:center;">
+<font color="DarkRed">"<b>"Now, the Will of God, you are feeling it on your fingertips.<br>
+After Realization, now, you have discovered the Absolute Science, which is the Will of God, which is an Absolute Science."</b></font><br>
+<font size="+0"><b>1992-0510 Sahasrāra Pūjā, The Will of God, Tent, Cabella Ligure, Alessandria, Italy</b></font><br>
+<br>
 <font color="DarkGreen"><b>Tuzhya Krupe Nid.Rit. Shakti Urdhvamukhe Yei</b></font><br>
 The energy which is awakened with your blessings start to rise<br>
 <font color="DarkGreen"><b>Sat. Chakre Tichya Sparshe Jagrut. Ti Hoi</b></font><br>
