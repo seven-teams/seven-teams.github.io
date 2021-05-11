@@ -121,7 +121,7 @@ We were the clay but You all the Supreme Creator <br>
 Salutations to the Queen of Sahasrāra, salutations again and again to the Queen of the Seven Peaks.<br>
 Today, on this great, great day, we see the Universe at Your Feet.</b></font><br>
 <font size="+0"><b>1994-0508 Sahasrāra Pūjā, Mahāmāyā Swarūpa, Tent, Cabella Ligure, Alessandria, Italy</b></font><br>
-<font color="DarkGreen"><font size="+0">O Queen of universe</font></font><br>
+<font color="DarkGreen"><font size="+0"><b>O Queen of universe</</font></font><br>
 <a href="https://www.youtube.com/watch?v=1Y2Z3tNAs0I&ab_channel=SahajaYogafamilymeditation">video</a>
 </p>
 
