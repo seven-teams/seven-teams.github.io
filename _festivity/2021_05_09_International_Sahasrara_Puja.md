@@ -167,7 +167,7 @@ Grant me in goodwill benign | Your Benevolent Grace Divine<br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1999-0509 Sahasrāra Pūjā, Awareness Has to Become Paramachaitanya or Paramachaitanya Is with You, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
-<a href=""> video</a><br>
+<a href="https://www.youtube.com/watch?v=xOp4Y-rjecg&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
