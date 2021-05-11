@@ -200,7 +200,7 @@ It produces them, nurses them, and weans them.<br>
 The trees and flowers become kind mothers of their great fruits and seeds.<br>
 And the Mother, the prototype of all existence, is the Eternal Spirit, full of beauty and love.</font><br>
 <font size="+0"><b>(Kahlil Gibran -” Broken Wings”)</b></font><br>
-<font color="DarkGreen"><b>Mother, I Adore You</font><br>
+<font color="DarkGreen"><b>Mother, I Adore You</b></font><br>
 <a href="https://www.youtube.com/watch?v=LsWaC7NktHA&ab_channel=GillyGrimshaw">video</a>
 </p>
 
