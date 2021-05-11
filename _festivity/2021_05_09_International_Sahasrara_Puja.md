@@ -27,7 +27,7 @@ You are worshipped by the lords of the universe.<br>
 <font color="DarkRed">"<b>Vishwashraya ye twayi bhakti namraha</b></font><br>
 Those who are devoted to You themselves become supporters of the universe<br>
 <font color="DarkGreen"><font size="+0"><b>Prayer to Śhrī Rājarājeśhwarī.<br>
-(79 names of Śhrī Rājarājeśhwarī created by Śhrī Mātājī Herself and read out during Sahasrāra Pūjā in Cabella Ligure, 2000)</b></font></font><br>
+(79 names of Śhrī Rājarājeśhwarī created by Śhrī Mātājī Herself and read out during 2000-0507 Sahasrāra Pūjā, Sahaja Avasthā (Sahaja State), Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy)</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=7jLDenmw7So&ab_channel=NoeSahajaItalia">video</a>
 </p>
 
