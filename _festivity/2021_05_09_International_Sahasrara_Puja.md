@@ -55,9 +55,10 @@ Shri Nirmala Devi, Namostute</b></font><br>
 Shri Nirmala Devi, Salutations to You<br>
 <br>
 [The 350 Sahaja Yogis present had just finished singing ‘Namostute’.]<br>
-<b>"Beautifully rendered! It’s a song written much before, I think just after the first Sahasrāra Day.<br>
-I mean, it’s a very ancient song. And still is maintained so well."</b><br>
+<font color="DarkRed"><b>"Beautifully rendered! It’s a song written much before, I think just after the first Sahasrāra Day.<br>
+I mean, it’s a very ancient song. And still is maintained so well."</b></font><br>
 <font size="+0"><b>1987-0502 Talk to Sahaja Yogis, after the Evening Program, the day before Sahasrāra Pūjā, Thredbo Village, Kosciuszko National Park, New South Wales, Australia</b></font><br>
+<font color="DarkGreen"><font size="+0"><b>Namostute</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=30F02gXLuGw&ab_channel=SahajaYoga">video</a>
 </p>
 
