@@ -136,19 +136,25 @@ O Devī, who is worshipped by the dwellers of the three worlds,<br>
 <font color="DarkGreen"><b>Lokanam varda bhava</b></font><br>
 Please grant boons to all the people.<br>
 <br>
-<b>Sahaja Yogi</b>: ``Ātā Viśhwātmakeṃ deveṃ yeṇe vāgyajñeṃ toṣhāveṃ. Toṣho..."<br>
+<font size="+0"><b>Sahaja Yogi</b>: <b>``Ātā Viśhwātmakeṃ deveṃ yeṇe vāgyajñeṃ toṣhāveṃ. Toṣho..."</b></font><br>
 <font color="DarkRed"><b>Śhrī Mātājī</b>: Now it says that all of you, who are one in your Spirit -- this all description of Sahaja Yoga today, is the future, the present that you will get it, at this time what is going to happen. It is so beautifully shown, you'll be surprised, that you all will become one in the universe. The Spirit of the Universe will be satisfied with the Yagñyas they are going to do, with the fire ceremonies you are going to do. How it is appropriated! He said it three hundred years back.</font><br>
-<b>Sahaja Yogi</b>: ``Toṣhoniṃ maja jñāve pasāyadāna heṃ."<br>
+<br>
+<font size="+0"><b>Sahaja Yogi</b>: <b>``Toṣhoniṃ maja jñāve pasāyadāna heṃ."</b></font><br>
 <font color="DarkRed"><b>Śhrī Mātājī</b>: And then you will, should give us the milk of your blessings by getting the complete satisfaction from us.</font><br>
-<b>Sahaja Yogi</b>: ``Jeṃ khaḷāṃchī vyaṃkaṭī sāṃḍo."<br>
+<br>
+<font size="+0"><b>Sahaja Yogi</b>: <b>``Jeṃ khaḷāṃchī vyaṃkaṭī sāṃḍo."</b></font><br>
 <font color="DarkRed"><b>Śhrī Mātājī</b>: That time all the horrible evil people will be ruined and their ... their plans will be spoiled.</font><br>
-<b>Sahaja Yogi</b>: ``Tayā satkarmī-ratī vāḍho."<br>
+<br>
+<font size="+0"><b>Sahaja Yogi</b>: <b>``Tayā satkarmī-ratī vāḍho."</b></font><br>
 <font color="DarkRed"><b>Śhrī Mātājī</b>: And people will take to righteousness. This is the description [{\bf{\textcolor{amber+}{unclear}}}] Gupta.</font><br>
-<b>Sahaja Yogi</b>: ``Bhūtaṃ paraspare paḍo maitra jīvācheṃ."<br>
+<br>
+<font size="+0"><b>Sahaja Yogi</b>: <b>``Bhūtaṃ paraspare paḍo maitra jīvācheṃ."</b></font><br>
 <font color="DarkRed"><b>Śhrī Mātājī</b>: At that time there will be a tremendous friendship of the Spirit among people. </font><br>
-<b>Sahaja Yogi</b>: ``Duritāṃche timira jāvo."<br>
+<br>
+<font size="+0"><b>Sahaja Yogi</b>: <b>``Duritāṃche timira jāvo."</b></font><br>
 <font color="DarkRed"><b>Śhrī Mātājī</b>: Those who are in ignorance will get light.</font><br>
-<b>Sahaja Yogi</b>: ``Viśhwa Swadharma Sūryeṃ pāho."<br>
+<br>
+<font size="+0"><b>Sahaja Yogi</b>: <b>``Viśhwa Swadharma Sūryeṃ pāho."</b></font><br>
 <font color="DarkRed"><b>Śhrī Mātājī</b>: The whole universe will see the light, the sun of One Universal Religion.</font><br>
 <font size="+0"><b>1984-0213 Śhrī Devī Pūjā, What Is Expected of Sahaja Yogis and Where Are We, Bordi, Maharashtra, India</b></font><br>
 <font color="DarkGreen"><b>Pasāyadān</b></font><br>
