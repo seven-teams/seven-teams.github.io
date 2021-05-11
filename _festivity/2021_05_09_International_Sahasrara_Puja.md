@@ -108,7 +108,7 @@ First of all, you should understand yourself. If you don’t understand yourself
 </p>
 
 <p style="text-align:center;">
-<b>Sahaja Yogi</b>: Salutations to the Queen of Sahasrāra, salutations to the Queen of the Seven Peaks.<br>
+<b>Sahaja Yogi</b>: <font color="DarkRed"><b>Salutations to the Queen of Sahasrāra, salutations to the Queen of the Seven Peaks.<br>
 Today, on this great, great day, we see the Universe at Your Feet.<br>
 Nothing ever had a meaning nor a life, everyone so dry and so weak, then You came,<br>
 O Mother, so caring, so sweet.<br>
@@ -119,7 +119,7 @@ Today, on this great, great day, we see the Universe at Your Feet.<br>
 We were the clay but You all the Supreme Creator <br>
 ......<br>
 Salutations to the Queen of Sahasrāra, salutations again and again to the Queen of the Seven Peaks.<br>
-Today, on this great, great day, we see the Universe at Your Feet.<font color="DarkRed"><b></b></font><br>
+Today, on this great, great day, we see the Universe at Your Feet.</b></font><br>
 <font size="+0"><b>1994-0508 Sahasrāra Pūjā, Mahāmāyā Swarūpa, Tent, Cabella Ligure, Alessandria, Italy</b></font><br>
 <a href="https://www.youtube.com/watch?v=1Y2Z3tNAs0I&ab_channel=SahajaYogafamilymeditation">video</a>
 </p>
