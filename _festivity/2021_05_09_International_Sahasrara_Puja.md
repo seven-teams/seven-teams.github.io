@@ -129,11 +129,11 @@ Today, on this great, great day, we see the Universe at Your Feet.</b></font><br
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Prana-tanam prasida twam</b></font><br>
 O Devī, the remover of the afflictions of the universe,<br>
-<font color="DarkGrreen"><b>Devī Vishw'arti-harni</b></font><br>
+<font color="DarkGreen"><b>Devī Vishw'arti-harni</b></font><br>
 e pleased with us who are prostrating at Your Lotus Feet.<br>
-<font color="DarkGrreen"><b>Trailokya vasinam'idye</b></font><br>
+<font color="DarkGreen"><b>Trailokya vasinam'idye</b></font><br>
 O Devī, who is worshipped by the dwellers of the three worlds,<br>
-<font color="DarkGrreen"><b>Lokanam varda bhava</b></font><br>
+<font color="DarkGreen"><b>Lokanam varda bhava</b></font><br>
 Please grant boons to all the people.<br>
 <br>
 <b>Sahaja Yogi</b>: ``Ātā Viśhwātmakeṃ deveṃ yeṇe vāgyajñeṃ toṣhāveṃ. Toṣho..."<br>
