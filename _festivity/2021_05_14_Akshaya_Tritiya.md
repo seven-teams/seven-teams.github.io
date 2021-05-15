@@ -36,8 +36,8 @@ Once the instrument is all right, then you project outside. And now how do you p
 <div style="text-align: center"><img src="/images/image707.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
-<b>Kundalini Kundalini Nirmalā Mātā, Mātā Mā<br>
-Jay Nirmala Śhakti, Bhagawati, Nirmal Bhakti<br>
+<b>Kuṇḍalinī Kuṇḍalinī Nirmalā Mātā, Mātā Mā<br>
+Jay Nirmala Śhakti, Bhagavatī, Nirmal Bhakti<br>
 Ādi Śhakti, Nirmalā Devī, Nirmalā Mātā Mātājī</b><br>
 <font size="+0">Kuṇḍalinī Kuṇḍalinī</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
@@ -63,13 +63,13 @@ Please bless us with that eternal love of God.</b></font><br>
 I bow my head at Your Feet<br>
 <font color="DarkRed"><b>Āratī of Nirmalā Mātā</b></font><br>
 <br>
-<font color="DarkRed"><b></b></font><br>
+<font color="DarkRed"><b>Ādi Śhakti Kuṇḍalinī</b></font><br>
 Primordial Energy Kuṇḍalinī,<br>
-<font color="DarkRed"><b></b></font><br>
+<font color="DarkRed"><b>Sarva Vishwachi Janani</b></font><br>
 Mother of the entire Universe<br>
-<font color="DarkRed"><b></b></font><br>
+<font color="DarkRed"><b>Nirguna He Rupa Tuzhe</b></font><br>
 Your form is formless,<br>
-<font color="DarkRed"><b></b></font><br>
+<font color="DarkRed"><b>Zahli Saguna Tu Ata</b></font><br>
 Now You are in form.<br>
 <a href="https://www.youtube.com/watch?v=2btBuq4VYL4&ab_channel=mdeniel108">video</a><br>
 <br>
