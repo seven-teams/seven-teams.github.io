@@ -104,13 +104,13 @@ May Thy grace prevail! Amen.</b><br>
 <div style="text-align: center"><img src="/images/image713.png" /></div>
 
 <p style="text-align:center;">
-<font color="purple"><b>Buddham śharaṇaṃ gacchāmi</b><br></font><br>
+<font color="purple"><b>Buddham śharaṇaṃ gacchāmi</b></font><br>
 I surrender myself to my Self-realization and to all those who are realized Souls (Buddhas)<br>
-<font color="purple"><b>Dhammam śharaṇaṃ gacchāmi</b><br></font><br>
+<font color="purple"><b>Dhammam śharaṇaṃ gacchāmi</b></font><br>
 I surrender myself to dharma, to the Innate Religion, that is, Vishwa Nirmala Dharma<br>
-<font color="purple"><b>Saṅghaṃ śharaṇaṃ gacchāmi</b><br></font><br>
+<font color="purple"><b>Saṅghaṃ śharaṇaṃ gacchāmi</b></font><br>
 I surrender myself to collectivity and to the collective community of realized Souls<br>
-<font color="purple"><b>Śhrī Ādi Śhaktyai Nirmalā Mātaram śharaṇaṃ gacchāmi</b><br></font><br>
+<font color="purple"><b>Śhrī Ādi Śhaktyai Nirmalā Mātaram śharaṇaṃ gacchāmi</b></font><br>
 I surrender myself to Śhrī Ādi Śhakti Mātājī<br>
 <font size="+0"><b>Buddham śharaṇaṃ gacchāmi</b></font><br>
 <a href="https://www.youtube.com/watch?v=3IRvnyOjUdI&ab_channel=SahajaYoga">video</a>
