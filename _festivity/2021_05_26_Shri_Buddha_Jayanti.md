@@ -113,9 +113,8 @@ I surrender myself to collectivity and to the collective community of realized S
 <font color="purple"><b>Śhrī Ādi Śhaktyai Nirmalā Mātaram śharaṇaṃ gacchāmi</b></font><br>
 I surrender myself to Śhrī Ādi Śhakti Mātājī<br>
 <font size="+0"><b>Buddham śharaṇaṃ gacchāmi</b></font><br>
-<a href="https://www.youtube.com/watch?v=3IRvnyOjUdI&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>
