@@ -112,7 +112,7 @@ I surrender myself to dharma, to the Innate Religion, that is, Vishwa Nirmala Dh
 I surrender myself to collectivity and to the collective community of realized Souls<br>
 <font color="purple"><b>Śhrī Ādi Śhaktyai Nirmalā Mātaram śharaṇaṃ gacchāmi</b></font><br>
 I surrender myself to Śhrī Ādi Śhakti Mātājī<br>
-<font size="+0"><b>Buddham śharaṇaṃ gacchāmi</b></font><br>
+<font color="DarkGreen"><font size="+0"><b>Buddham śharaṇaṃ gacchāmi</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
