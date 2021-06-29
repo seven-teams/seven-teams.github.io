@@ -116,7 +116,7 @@ When there is no love and compassion, there cannot be any divine spark in that p
 <font color="DarkGreen"><b>Shyam Savere gun. Tere gaon,  Tera hijaya hun mein,</b></font><br>
 Morning and evening I sing Your Praise<br>
 <font color="DarkGreen"><b>Śhrī Ma Tera hi jaya hu mein<b></font><br>
-Śhrī Mātājī I Have received second birth from You</b></font><br>
+Śhrī Mātājī I Have received second birth from You<br>
 <a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&list=PLC8554007A2C98EA0&index=16&ab_channel=VIOLONISTUL">video</a><br>
 <br>
 <font color="FireBrick"><b>Thank You for submitting us to the benevolent attention of the deities and all celestial beings.<br>
