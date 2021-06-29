@@ -82,7 +82,7 @@ He Ādi Mā, He Anti Mā</b></font><br>
 <p style=" text-align:center;">
 <font color="FireBrick"><b>Śhrī Ādi Śhakti, to describe You is the work of poets and saints, yet words cannot even begin to express Your magnificence.</b></font><br>
 <br> 
-<font color="FireBrick"><b>ou are Paraśhakti, the power beyond all powers.</b></font><br>
+<font color="FireBrick"><b>You are Paraśhakti, the power beyond all powers.</b></font><br>
 <br> 
 <font color="FireBrick"><b>Give us, O Śhrī Ādi Śhakti, greater humility so that we can gain some small glimpse of Your glory.</b></font><br>
 <br> 
