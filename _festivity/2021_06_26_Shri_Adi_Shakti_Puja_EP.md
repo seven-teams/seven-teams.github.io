@@ -39,9 +39,9 @@ The glory of hundred thousand suns is shining on Your face<br>
 <div style="text-align: center"><img src="/images/image720.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkGreen">All sciences are part of you. The feminine power of all women is from you.<br>
-By you alone, O Great Mother, by you alone this world is filled.<br> 
-How can we sing your praise when you are beyond praise? All the sublime words are deficient.</font><br>
+<font color="DarkGreen">All sciences are part of You. The feminine power of all women is from You.<br>
+By You alone, O Great Mother, by You alone this world is filled.<br> 
+How can we sing Your praise when You are beyond praise? All the sublime words are deficient.</font><br>
 <br>
 <font color="DarkRed"><b>The Goddess said:</b> And whoever, with full attention, regularly praises me with these hymns, I will quiet every trouble for him.</font><br>
 <font size="+0"><b>From the Devī Mahātmyam</b><br>
@@ -68,9 +68,8 @@ Be pleased with us who prostrate themselves at Your Feet.<br>
 O Devī, who are worthy of praise by all the dwellers of three worlds,<br>
 <font color="DarkRed"><b>Lokanam varada bhava</b></font><br>
 Please grant boons to all the people<br>
-<font color="DarkRed"><b>From the Devī Mahātmyam</b></font><br>
-<font size="+0"><b></b></font>
 <br>
+<font size="+0"><b>From the Devī Mahātmyam</b></font><br>
 <font size="+0"><b>(Chapter 11, Narayani stotram, shlokas 33 and 35)<br>
 He Ādi Mā, He Anti Mā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
