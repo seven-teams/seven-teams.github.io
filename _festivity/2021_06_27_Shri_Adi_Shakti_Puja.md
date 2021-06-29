@@ -113,9 +113,9 @@ When there is no love and compassion, there cannot be any divine spark in that p
 <p style=" text-align:center;">
 <font color="DarkGreen"><b>Ādi Śhakti Mātājī tere Charano meaya hu mein</b></font><br>
 Ādi Śhakti Mātājī I have come to Your Lotus Feet<br>
-<font color="DarkGreen"><b>Shyam Savere gun. Tere gaon,  Tera hijaya hun mein,/b></font><br>
+<font color="DarkGreen"><b>Shyam Savere gun. Tere gaon,  Tera hijaya hun mein,</b></font><br>
 Morning and evening I sing Your Praise<br>
-<font color="DarkGreen"><b>Śhrī Ma Tera hi jaya hu mein/b></font><br>
+<font color="DarkGreen"><b>Śhrī Ma Tera hi jaya hu mein<b></font><br>
 Śhrī Mātājī I Have received second birth from You</b></font><br>
 <a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&list=PLC8554007A2C98EA0&index=16&ab_channel=VIOLONISTUL">video</a><br>
 <br>
