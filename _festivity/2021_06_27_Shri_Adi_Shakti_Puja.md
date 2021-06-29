@@ -168,7 +168,7 @@ Thank You for being our Mother.</b></font><br>
 
 <p>
 <font color="green"><b>Mavena Nayani Ananda</b></font><br>
-<a href="https://www.youtube.com/watch?v=b30MtjwiJDY&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
