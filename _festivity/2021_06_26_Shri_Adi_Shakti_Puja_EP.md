@@ -3,8 +3,7 @@ title: '2021 Celebrating Śhrī Ādi Śhakti Pūjā: Evening program before Śhr
 date: 2021-06-26
 permalink: /festivity/2021/06/26
 tags:
-  - New Year
-  - Shri Mahalakshmi
+  - Shri Adi Shakti Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
