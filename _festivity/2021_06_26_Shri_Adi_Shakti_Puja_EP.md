@@ -88,7 +88,7 @@ He Ādi Mā, He Anti Mā</b></font><br>
 <br> 
 <font color="FireBrick"><b>Make us like the Sufis and the Gnostics adoring You at every moment.</b></font><br>
 <br> 
-<font color="FreBrick"><b>Thank You, O Śhrī Ādi Śhakti, for the seeking which brought us to Sahaja Yoga.<br>
+<font color="FireBrick"><b>Thank You, O Śhrī Ādi Śhakti, for the seeking which brought us to Sahaja Yoga.<br>
 You now lift up humanity into the omega of the Last Judgement.</b></font><br>
 <font size="+0"><b>Adorations to Śhrī Ādi Śhakti (Mantra Book, Page 231)</b></font><br>
 <br>
