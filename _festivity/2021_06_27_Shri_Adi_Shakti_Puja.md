@@ -153,12 +153,12 @@ Thank You for being our Mother.</b></font><br>
 
 <p>
 <font color="green"><b>He Ādi Śhakti Mā</b></font><br>
-<a href="https://www.youtube.com/watch?v=b7fLaveK-pg&t=117s&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
 <font color="green"><b>Nirmal Mā Jagdambe Mā</b></font><br>
-<a href="https://www.youtube.com/watch?v=bkuIgsoTXoo&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
