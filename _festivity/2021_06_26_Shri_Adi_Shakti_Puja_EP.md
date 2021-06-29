@@ -68,9 +68,9 @@ Be pleased with us who prostrate themselves at Your Feet.<br>
 O Devī, who are worthy of praise by all the dwellers of three worlds,<br>
 <font color="DarkRed"><b>Lokanam varada bhava</b></font><br>
 Please grant boons to all the people<br>
-<br>
 <font size="+0"><b>From the Devī Mahātmyam</b></font><br>
 <font size="+0"><b>(Chapter 11, Narayani stotram, shlokas 33 and 35)<br>
+<br>
 He Ādi Mā, He Anti Mā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
@@ -79,9 +79,9 @@ He Ādi Mā, He Anti Mā</b></font><br>
 <div style="text-align: center"><img src="/images/image722.png" /></div>
 
 <p style=" text-align:center;">
-<font color="FireBrick"><b>Śhrī Ādi Śhakti, to describe You is the work of poets and saints, yet words cannot even begin to express Your magnificence.</b></font><br>
+<font color="FireBrick"><b>Śhrī Ādi Śhakti, to describe You is the work of poets and Saints, yet words cannot even begin to express Your magnificence.</b></font><br>
 <br> 
-<font color="FireBrick"><b>You are Paraśhakti, the power beyond all powers.</b></font><br>
+<font color="FireBrick"><b>You are Paraśhakti, the Power beyond all powers.</b></font><br>
 <br> 
 <font color="FireBrick"><b>Give us, O Śhrī Ādi Śhakti, greater humility so that we can gain some small glimpse of Your glory.</b></font><br>
 <br> 
