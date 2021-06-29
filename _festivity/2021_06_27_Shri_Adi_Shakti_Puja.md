@@ -1,6 +1,5 @@
 ---
-title: '2021 Worshiping Śhrī Ādi Śhakti: : "So Ādi Śhakti is the desire, complete desire of Sadāśhiva, and Kuṇḍalinī, Ādi Kuṇḍalinī, is the desire, complete desire of Ādi Śhakti."
-'
+title: '2021 Worshiping Śhrī Ādi Śhakti: : "So Ādi Śhakti is the desire, complete desire of Sadāśhiva, and Kuṇḍalinī, Ādi Kuṇḍalinī, is the desire, complete desire of Ādi Śhakti." '
 date: 2021-06-27
 permalink: /festivity/2021/06/27
 tags:
@@ -16,7 +15,7 @@ Some say She is the Desire and some say that She’s the Entire Power of Sadāś
 ..The first thing is, we must know, that She created a Kuṇḍalinī in the Mother Earth Itself and She created Śhrī Gaṇeśha out of the Mother Earth, it’s very interesting.<br>
 So, the Mother Earth becomes a very important thing for us. If we do not know how to respect the Mother Earth, we do not know how to respect ourselves.<br>
 The expression of Ādi Śhakti within you is the Kuṇḍalinī, no doubt. That is the reflection of Ādi Śhakti in you. But the reflection in the Mother Earth is also expressed, as you all know, in different places, different countries, different cities as the manifestation of chakras and Ādi Śhakti’s creations. It was very important first to create a very holy Mother Earth for human beings to be born on them [it]. So the reflection of the Ādi Śhakti as Kuṇḍalinī first was on the Mother Earth.<br>
-Kuṇḍalinī is a, we should say, is a wee part of the Ādi Śhakti. Or we can say that She is the desire, pure desire of the Ādi Śhakti. So Ādi Śhakti is the desire, complete desire of Sadāśhiva, and Kuṇḍalinī, Ādi Kuṇḍalinī, is the desire, complete desire of Ādi Śhakti."</font><br>
+<b>Kuṇḍalinī is a, we should say, is a wee part of the Ādi Śhakti. Or we can say that She is the desire, pure desire of the Ādi Śhakti. So Ādi Śhakti is the desire, complete desire of Sadāśhiva, and Kuṇḍalinī, Ādi Kuṇḍalinī, is the desire, complete desire of Ādi Śhakti.</b>"</font><br>
 <font size="+0"><b>1997-0525 Śhrī Ādi Śhakti Pūjā, You Must Give this Love to Others or Respect the Mother Earth, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -43,7 +42,7 @@ Kuṇḍalinī is a, we should say, is a wee part of the Ādi Śhakti. Or we can
 <font size="+0"><b>I am the five elements of creation and beyond the five elements of creation.</b></font><br>
 <font color="FireBrick"><b>Aham-akhilam jagat</b></font><br>
 <font size="+0"><b>I am this whole manifested world.</b></font><br>
-<font size="+0">Śhrī Devī Atharva Shīrsham (The highest praise of the Supreme Devī)</font>
+<font size="+0">Śhrī Devī Atharva Śhīrṣham (The highest praise of the Supreme Devī)</font>
 </p>
 
 <p>
@@ -58,12 +57,12 @@ If you see your own desires, come out of what? Not out of the Divine Love but ou
 <div style="text-align: center"><img src="/images/image724.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b>Somebody asked Me “Is it necessary to have this Pūjā.” I think if there is any Pūjā you should do, it is this one – is Ādi Śhakti.<br>
+<font color="DarkRed"><b>Somebody asked Me, “Is it necessary to have this Pūjā.” I think if there is any Pūjā you should do, it is this one -- is Ādi Śhakti.<br>
 It is very important that this Pūjā must be performed,</b><br>
 because that is how you grow, this reflection improves and you grow more and more within yourself,<br>
 through the power of Ādi Śhakti or through the power of Kuṇḍalinī.<br>
 As you know that Ādi Śhakti has her own Kuṇḍalinī, which is the Ādi Kuṇḍalinī, and the reflection of that within you – is the Kuṇḍalinī.<br>
-So you have to worship and it’s the best way to please your own Kuṇḍalinī, your own Mother, who has given you this birth.</b></font><br>
+So you have to worship and it’s the best way to please your own Kuṇḍalinī, your own Mother, who has given you this birth.</font><br>
 <font size="+0"><b>1996-0609 Śhrī Ādi Śhakti Pūjā, Kuṇḍalinī -- the Binding Principle or You Dissolve into the Divine Power, Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
 <br>
 <font color="DarkGreen"><b>Vin.ti Suniye Ādi Śhakti Meri</b></font><br>
@@ -91,16 +90,16 @@ That is why the result of all these three Powers was like this, that Śhrī Ādi
 and She can penetrate the Sahasrāra of everyone.<br> 
 As you know, She is in front of you and you know all about it, so I need not tell anything more."</font><br>
 <font size="+0"><b>1986-0106 Śhrī Mahālakṣhmī Pūjā (English+Marathi+English), Ascent Is the Main Attention, Sangli, Maharashtra, India</b></font><br>
+<br>
 <font color="DarkGreen">Bolo Ādi Śhakti Śhrī Mātājī, Śhrī Nirmalā Devī kī Jay<br>
-Mahalakshmi, Mahasarawati, Mahakali Ki Jay<br>
-Ma Bhakti Priya, Ma Nishka Ma<br>
-Hay Nirguna Ma, Nishpapa Ma<br>
-Sara Brahmand. Hai Jisme Racha Nirmal Ki Jay<br>
-Maha Lakshmi, Maha Saraswati, Maha Kali Ki Jay<br>
+Mahālakṣhmī, Mahāsaraswatī, Mahākālī kī Jay<br>
+Mā Bhakti Priya, Mā Nishkama<br>
+Hay Nirguna Ma, Nishpapa Mā<br>
+Sara Brahmand. Hai Jisme Racha Nirmal kī Jay<br>
+Mahālakṣhmī, Mahāsaraswatī, Mahākālī kī Jay<br>
 <font size="+0"><b>Bolo Ādi Śhakti</b></font></font><br>
-<a href="https://www.youtube.com/watch?v=2EDVlAAUdBg&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="DarkRed">"...... in India people talked about Kuṇḍalinī since long ago, and [they know] that she is the Ādi Śhakti, reflected within us. Now understand that this <b>Ādi Śhakti is the Power of Love, of Pure Love, of Compassion. There is nothing else She has: only the Pure Love within Her heart. But this Pure Love is so powerful, is so powerful!
@@ -139,15 +138,13 @@ Thank You for being our Mother.</b></font><br>
 
 <p>
 <font color="green"><b>Jay Ganapati Vandan Gan nayak</b></font><br>
-<a href="https://www.youtube.com/watch?v=UYUFjJDsD48&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="green"><b>Tujhya pujani (2001-0707 Guru Pūjā, Cabella)</b></font><br>
-<a href="https://www.youtube.com/watch?v=iJiGVlWeUlA&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="green"><b>He Nirmalā Mā</b></font><br>
@@ -166,9 +163,8 @@ Thank You for being our Mother.</b></font><br>
  
 <p>
 <font color="green"><b>Sare Jag Mein tere Dhūm</b></font><br>
-<a href="https://www.youtube.com/watch?v=arW9AP5V3tI&ab_channel=SahajaYoga">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-%pr
 
 <p>
 <font color="green"><b>Mavena Nayani Ananda</b></font><br>
@@ -187,7 +183,7 @@ Thank You for being our Mother.</b></font><br>
 I declare I am the One who is Ādi Śhakti, who is the Mother of all the Mothers, who is the Primordial Mother, the Śhakti, the Desire of God, who has incarnated on this Earth to give Its meaning to Itself, to this creation, to human beings, and I’m sure through My Love and Patience and My Powers, I am going to achieve it.<br>
 I was the One who was born again and again, but now in My Complete Form and Complete Powers, I have come on this Earth, not only for salvation of human beings, not only for their emancipation, but for granting them, the Kingdom of Heaven, the Joy, the Bliss, that your Father wants to bestow upon you."</b></font><br>
 <font size="+0"><b>1979-1202 Guru Pūjā, The Declaration, Living Room, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font><br>
-<font color="DarkGreen"><b>THE 64 ADORATIONS OF ŚHRī ĀDI ŚHAKTI</b></font><br>
+<font color="DarkGreen"><b>THE 64 ADORATIONS OF ŚHRĪ ĀDI ŚHAKTI</b></font><br>
 <a href="https://www.youtube.com/watch?v=wj74gNpcy0s&list=PLC8554007A2C98EA0&index=49&ab_channel=BESAHAJ">video</a><br>
 <br>
 <font color="DarkRed"><b>Bolo Śhrī Ādi Śhakti Mātājī, Śhrī Nirmalā Devī kī jay!</b></font><br>
