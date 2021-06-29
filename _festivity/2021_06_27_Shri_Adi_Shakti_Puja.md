@@ -173,7 +173,7 @@ Thank You for being our Mother.</b></font><br>
 
 <p>
 <font color="green"><b>Sabko Dua Dena Ma Sabko Dua Dena and Three Mahamantras</b></font><br>
-<a href="https://www.youtube.com/watch?v=lGC_kUMmabQ&list=PLC8554007A2C98EA0&index=96&ab_channel=%D0%A2%D0%B0%D1%82%D1%8C%D1%8F%D0%BD%D0%B0%D0%93%D1%80%D0%B8%D0%B3%D0%BE%D1%80%D1%8C%D0%B5%D0%B2%D0%B0">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <div style="text-align: center"><img src="/images/image727.png" /></div>
