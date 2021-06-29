@@ -17,20 +17,20 @@ tags:
 <div style="text-align: center"><img src="/images/image719.png" /></div>
 
 <p style=" text-align:center;">
-<font color="FireBrick"><b>  SAHASRĀRĪ VANDUYA NIRMALĀ MĀTĀ DEYIJĪ SARVA SAHAJA YOGA</b><br>
+<font color="FireBrick"><b>  SAHASRĀRĪ VANDUYA NIRMALĀ MĀTĀ DEYIJĪ SARVA SAHAJA YOGA</b></font><br>
 Let us worship Śhrī Mātājī at our Sahasrāra, Who is the giver of Sahaja Yoga<br>
-<font color="FireBrick"><b>ZAG.VI TYA KUNDALINI SARV. JANANCHYA SOD.VI TYA JANMANCHYA FERYA</b><br>
+<font color="FireBrick"><b>ZAG.VI TYA KUNDALINI SARV. JANANCHYA SOD.VI TYA JANMANCHYA FERYA</b></font><br>
 She is awakening the Kuṇḍalinī of everyone, snaking us free from the circle of birth and death<br>
 <br>
-<font color="FireBrick"><b>BHUVARI ALI, ĀDI ŚHAKTI MĀTĀ, UDDHARANYA SARV. JANA</b><br>
+<font color="FireBrick"><b>BHUVARI ALI, ĀDI ŚHAKTI MĀTĀ, UDDHARANYA SARV. JANA</b></font><br>
 The Primordial Mother has taken birth on this Earth, for the salvation of the whole world<br>
-<font color="FireBrick"><b>RUP. TE SAJI RE, NIRMALĀ MĀTĀ ZAG.VI SACCHI DANANDA</b><br>
+<font color="FireBrick"><b>RUP. TE SAJI RE, NIRMALĀ MĀTĀ ZAG.VI SACCHI DANANDA</b></font><br>
 How beautiful You are, Mother Nirmalā who has awakened Satchitananda<br>
-<font color="FireBrick"><b>NAMAN. NIRMALĀ MĀTĀ, TUMHA NAMAN. NIRMALĀ MĀTĀ</b><br>
+<font color="FireBrick"><b>NAMAN. NIRMALĀ MĀTĀ, TUMHA NAMAN. NIRMALĀ MĀTĀ</b></font><br>
 Salutations to You, Mother Nirmalā!<br>
-<font color="FireBrick"><b>SAHASRAKOTI SURYACHE TEJ . SHOBHATASE TUMCHYA VAD. NA</b><br>
+<font color="FireBrick"><b>SAHASRAKOTI SURYACHE TEJ . SHOBHATASE TUMCHYA VAD. NA</b></font><br>
 The glory of hundred thousand suns is shining on Your face<br>
-<font color="FireBrick"><b>DHARI YELYA SARV. DEV.TA TUMHI NAMI TI TUM. CHYA CHAR. NA</b><br>
+<font color="FireBrick"><b>DHARI YELYA SARV. DEV.TA TUMHI NAMI TI TUM. CHYA CHAR. NA</b></font><br>
 (You are bearing) all the Gods and Goddesses Bow down at Your Lotus Feet</font><br>
 <font size="+0"><b>Naman Nirmal Mātā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
