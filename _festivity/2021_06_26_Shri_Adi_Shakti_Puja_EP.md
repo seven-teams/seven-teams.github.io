@@ -43,7 +43,7 @@ The glory of hundred thousand suns is shining on Your face<br>
 By you alone, O Great Mother, by you alone this world is filled.<br> 
 How can we sing your praise when you are beyond praise? All the sublime words are deficient.</font><br>
 <br>
-<font color="DarkRed"><b>The Goddess said:</b> And whoever, with full attention, regularly praises me with these hymns, I will quiet every trouble for him. 
+<font color="DarkRed"><b>The Goddess said:</b> And whoever, with full attention, regularly praises me with these hymns, I will quiet every trouble for him.</font><br>
 <font size="+0"><b>From the Devī Mahātmyam</b><br>
 Shrī Nirmalā Chalisa</font><br>
 <a href="https://www.youtube.com/watch?v=NmQ7mIhsVxA&list=PLC8554007A2C98EA0&index=20&ab_channel=AndreeaAiacoboaie">video</a>
