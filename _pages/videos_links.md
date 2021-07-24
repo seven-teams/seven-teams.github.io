@@ -47,6 +47,8 @@ author_profile: false
 <a href="https://www.youtube.com/watch?v=lGC_kUMmabQ&list=PLC8554007A2C98EA0&index=96&ab_channel=%D0%A2%D0%B0%D1%82%D1%8C%D1%8F%D0%BD%D0%B0%D0%93%D1%80%D0%B8%D0%B3%D0%BE%D1%80%D1%8C%D0%B5%D0%B2%D0%B0">video</a> 
 </p>
 
+<br>
+
 <font color="DeepPink"><b>2021 Celebrating Śhrī Ādi Śhakti Pūjā: Evening program before Śhrī Ādi Śhakti Pūjā</b></font>
 
 <p>
@@ -68,6 +70,8 @@ author_profile: false
 <font color="green"><b>Sare Jag Mein tere Dhūm</b></font><br>
 <a href="https://www.youtube.com/watch?v=arW9AP5V3tI&ab_channel=SahajaYoga">video</a> 
 </p>
+
+<br>
 
 <font color="DeepPink"><b>2021 Celebrating Śhrī Buddha Jayanti: "Buddha means a person who is enlightened"</b></font>
 
@@ -96,6 +100,8 @@ author_profile: false
 <a href="https://www.youtube.com/watch?v=3IRvnyOjUdI&ab_channel=SahajaYoga">video</a>
 </p>
 
+<br>
+
 <font color="DeepPink"><b>2021 Celebrating Akṣhaya Tṛitīya: "it is the Pūjā of the Kundalinī"</b></font>
 
 <p style="color:DarkGreen; text-align:center;">
@@ -106,12 +112,16 @@ Jay Nirmala Śhakti, Bhagawati, Nirmal Bhakti<br>
 <a href="https://www.youtube.com/watch?v=eA5CQ3iSK2A&ab_channel=SahajaYoga">video</a>
 </p>
 
+<br>
+
 <font color="DeepPink"><b>2021 Celebrating Sahasrāra Pūjā: "Today, it;s a great day because Sahasrāra Day and Mother's Day have come together ...... Sahasrāra and the motherhood go together"</b></font>
 
 <p>
 <font color="green"><b>Ughad. Sahastrār. Mate</b></font><br>
 <a href="https://www.youtube.com/watch?v=JHpK7bJV6wM&ab_channel=SahajaYoga">video</a> 
 </p>
+
+<br>
 
 <font color="DeepPink"><b>2021 Celebrating the Sahasrāra Day: "All these Chaitanya, Ādi Śhakti, is nothing but the Will of God."</b></font>
 
@@ -145,6 +155,8 @@ Jay Nirmala Śhakti, Bhagawati, Nirmal Bhakti<br>
 <a href="https://www.youtube.com/watch?v=a89XDrTOInY&ab_channel=SahajaYoga">video</a>
 </p>
 
+<br>
+
 <font color="DeepPink"><b>2021 Celebrating Śhrī Hanumān Jayanti: "Each cell of Śhrī Hanumāna’s body was filled with power and devotion"</b></font>
 
 <p>
@@ -177,6 +189,8 @@ Jay Nirmala Śhakti, Bhagawati, Nirmal Bhakti<br>
 <a href="https://www.youtube.com/watch?v=X4Pa2ydPLB8&ab_channel=SahajaYoga">video</a> 
 </p>
 
+<br>
+
 <font color="DeepPink"><b>2021 Celebrating Śhrī Mahāvīr Jayanti: "Mahāvīra, meaning The Greatest Warrior."</b></font>
 
 <p>
@@ -189,12 +203,16 @@ Jay Nirmala Śhakti, Bhagawati, Nirmal Bhakti<br>
 <a href="https://www.youtube.com/watch?v=pzk1kA7KAwc&list=PL2DF5CA6DDD2E1E30&index=15&ab_channel=SahajaYoga">video</a> 
 </p>
 
+<br>
+
 <font color="DeepPink"><b>2021 Celebrating the Birth of Śhrī Rāma: "He was the Embodiment of Dharma"</b></font>
 
 <p>
 <font color="green"><b>Āratī and the Three Great Mantras</b></font><br>
 <a href="https://www.youtube.com/watch?v=a89XDrTOInY&ab_channel=SahajaYoga">video</a> 
 </p>
+
+<br>
 
 <font color="DeepPink"><b>2021 Celebrating Day 8 of Vasant Navaratri: "Kuṇḍalinī has only one power – how to give joy to Her own children, and She does that"</b></font>
 
@@ -203,12 +221,16 @@ Jay Nirmala Śhakti, Bhagawati, Nirmal Bhakti<br>
 <a href="https://www.youtube.com/watch?v=eA5CQ3iSK2A&ab_channel=SahajaYoga">video</a>
 </p>
 
+<br>
+
 <font color="DeepPink"><b>2021 Celebrating Day 7 of Vasant Navarātri: "Kuṇḍalinī is the pure desire. Again it, listen to it carefully: pure desire"</b></font>
 
 <p>
 <font color="green"><b>Jay He Jay He Jay He Devī</b></font><br>
 <a href="https://www.youtube.com/watch?v=HvBIgQbSd3c&ab_channel=SahajaYoga">video</a> 
 </p>
+
+<br>
 
 <font color="DeepPink"><b>2021 Celebrating Day Fifth Day of Vasant Navarātri: "the Kuṇḍalinī is the Virgin, the Virgin Mother of Śhrī Gaṇeśha"</b></font>
 
@@ -217,7 +239,9 @@ Jay Nirmala Śhakti, Bhagawati, Nirmal Bhakti<br>
 <a href="https://www.youtube.com/watch?v=KbUT-S2AcBY&t=3s&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2021 Celebrating Day 1 of Vasant Navarātri : "Today is the Day of Guḍhī Pāḍavā."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2021 Celebrating Day 1 of Vasant Navarātri : "Today is the Day of Guḍhī Pāḍavā."</b></font>
 
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
@@ -229,7 +253,9 @@ Jay Nirmala Śhakti, Bhagawati, Nirmal Bhakti<br>
 <a href="https://www.youtube.com/watch?v=sDHdeRTcVjc&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2021 Celebrating Easter: "The Resurrection of Christ is very symbolic for Sahaja Yoga."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2021 Celebrating Easter: "The Resurrection of Christ is very symbolic for Sahaja Yoga."</b></font>
 
 <p>
 <font color="Indigo"><b>Omkar Pradhana Rup Ganeshache </b></font><br>
@@ -259,7 +285,9 @@ Breaking Easter Eggs<br>
 <a href="https://www.youtube.com/watch?v=3KqQsLZk5qU&ab_channel=SahajaYoga">video</a>
 </p>
 
-<font color="DeepPink"><b>2021 Celebrating Holī festival: "Sahaja Yoga&#8217;s Holī should be the Holī of Śhrī Kṛiṣhṇa."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2021 Celebrating Holī festival: "Sahaja Yoga&#8217;s Holī should be the Holī of Śhrī Kṛiṣhṇa."</b></font>
 
 <p>
 <font color="DarkGreen"><b>Shri Mataji Playing with Dandiya Sticks</b></font><br>
@@ -271,7 +299,9 @@ Breaking Easter Eggs<br>
 <a href="https://www.youtube.com/watch?v=kAeQs-Xga_Q&ab_channel=KundaliniYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2021 Celebrating Birthday Pūjā: "Birthdays increase your age from one side and decrease your life from the other side. But in Sahaja Yoga, it is [the] opposite."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2021 Celebrating Birthday Pūjā: "Birthdays increase your age from one side and decrease your life from the other side. But in Sahaja Yoga, it is [the] opposite."</b></font>
 
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
@@ -303,7 +333,9 @@ Breaking Easter Eggs<br>
 <a href="https://www.youtube.com/watch?v=5cvyH3ZkXJQ&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2021 Celebrating International Śhivarātri Pūjā: "He is called Mahādeva, the God of Gods"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2021 Celebrating International Śhivarātri Pūjā: "He is called Mahādeva, the God of Gods"</b></font>
 
 <p>
 <font color="green"><b>Bolo Śhiv Śhiva Śhambhu Bam Bam Bam</b></font><br>
@@ -350,7 +382,9 @@ Breaking Easter Eggs<br>
 <a href="https://www.youtube.com/watch?v=QE6J_z3g4sQ&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2021 Worshipping Śhrī Sadāśhiva: "Existence comes from the Power of Sadāśhiva"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2021 Worshipping Śhrī Sadāśhiva: "Existence comes from the Power of Sadāśhiva"</b></font>
 
 <p style="text-align:center">
 <font color="Indigo"><b>Gireesham Ganesham Gale Neela Varnam<br>
@@ -464,7 +498,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=UbzQMIX2CaU&t=13s&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2021 Celebrating Śhrī Vināyaka Chaturthī: "Today is a very important day for all of us Sahaja Yogis, because today Śhrī Gaṇeśha was born."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2021 Celebrating Śhrī Vināyaka Chaturthī: "Today is a very important day for all of us Sahaja Yogis, because today Śhrī Gaṇeśha was born."</b></font>
 
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
@@ -491,7 +527,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=K1R54Pk7-70&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2021 Celebrating Makar Saṅkrānti: “Warmth of the Sun represents the warmth of God’s Love”</b></font>
+<br>
+
+<font color="DeepPink"><<b>2021 Celebrating Makar Saṅkrānti: “Warmth of the Sun represents the warmth of God’s Love”</b></font>
 
 <p>
 <font color="green"><b>Sarva Mangala Mangale</b></font><br>
@@ -503,7 +541,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=feugPtjSqVE&feature=youtu.be&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Śhrī Ādi Guru Dattātreya's Jayanti: "Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one Teacher God, the Primordial Master, Dattātreya"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Śhrī Ādi Guru Dattātreya's Jayanti: "Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one Teacher God, the Primordial Master, Dattātreya"</b></font>
 
 <p>
 <font color="green"><b>Auṃkār Swarūpa (1991-0406 Bhavasāgara Pūjā)</b></font><br>
@@ -521,7 +561,9 @@ May God bless you."</font><br>
 <a href="https://vimeo.com/356585708"> full video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Christmas: "Christ's Power was of course Auṃkāra. His Power was Praṇava ...... He is the Incarnation of tapasyā."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Christmas: "Christ's Power was of course Auṃkāra. His Power was Praṇava ...... He is the Incarnation of tapasyā."</b></font>
 
 <p>
 <font color="green"><b>He Prem Murti</b></font><br>
@@ -548,7 +590,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=HvBIgQbSd3c&feature=youtu.be&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating </b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating </b></font>
 
 <p>
 <font color="green"><b>Silent Night, Holy Night</b></font><br>
@@ -560,21 +604,27 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=_bypgtXbL6U&feature=youtu.be&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Festival: "Mother, You have brought us to the most beautiful spot ever known."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Festival: "Mother, You have brought us to the most beautiful spot ever known."</b></font>
 
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
 <a href="https://www.youtube.com/watch?v=Dxl42_lBRJ4&ab_channel=SahajaYoga"> video</a><br>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Śhrī Guru Nāṇaka Jayanti: "Is a great thing we are worshiping today Guru Nāṇaka, that&#8217;s Me, that may you become Great Guru Nāṇakas. All of Them were created by Ādi Śhakti."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Śhrī Guru Nāṇaka Jayanti: "Is a great thing we are worshiping today Guru Nāṇaka, that&#8217;s Me, that may you become Great Guru Nāṇakas. All of Them were created by Ādi Śhakti."</b></font>
 
 <p>
 <font color="blue"><b>Guru Bin Kaun</b></font><br>
 <a href="https://www.youtube.com/watch?v=7jjdlluWX8Q&feature=youtu.be&ab_channel=SahajaYoga">video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Diwālī Festivity: "By the power of Mahālakṣhmī only, you achieve your saintliness, your Realization."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Diwālī Festivity: "By the power of Mahālakṣhmī only, you achieve your saintliness, your Realization."</b></font>
 
 <p>
 <font color="green"><b>Śhrī Mahālakṣhmī Stotram</b></font><br>
@@ -586,7 +636,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=rHzvd5Rzfvo&feature=youtu.be&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Diwali Festivity: "the brotherhood and sisterhood is the base of our Sahaj Yoga collectivity."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Diwali Festivity: "the brotherhood and sisterhood is the base of our Sahaj Yoga collectivity."</b></font>
 
 <p>
 <font size="+0"><b>Bābā Māmā (1990 March): This is what the brother has written for the sister: "O Nirmalā, my sister, how much should I praise You? Because You have given the human being the experience of God."</b></font>
@@ -600,7 +652,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=rA_-R8LsPuc&feature=youtu.be&ab_channel=SahajaYoga">video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Diwālī Festivity: "Diwālī is very significant because today is the darkest day, darkest night and longest night, and to end it up they put lights."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Diwālī Festivity: "Diwālī is very significant because today is the darkest day, darkest night and longest night, and to end it up they put lights."</b></font>
 
 <p>
 <font color="green"><b>Ayi, ayi, aaj Diwālī</b></font><br>
@@ -627,7 +681,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=a89XDrTOInY&ab_channel=SahajaYoga">video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Diwālī Festivity: "That’s the real Diwālī: the enlightenment of human beings. It&#8217;s not candle, it’s not some lamp, but it’s human beings."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Diwālī Festivity: "That’s the real Diwālī: the enlightenment of human beings. It&#8217;s not candle, it’s not some lamp, but it’s human beings."</b></font>
 
 <p>
 <font color="green"><b>Pavan Utsav ayya re</b></font><br>
@@ -639,7 +695,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=QQEav2Sqdkk&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Kojāgirī Pūrṇimā or Śhārad Pūrṇimā</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Kojāgirī Pūrṇimā or Śhārad Pūrṇimā</b></font>
 
 <p>
 <font size="+2"><b>Suggested Talk:</b></font>
@@ -647,7 +705,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=lw5h5fnhqm4&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "This recognition itself will fulfill all the Incarnations of Navarātri."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Navarātri Festival: "This recognition itself will fulfill all the Incarnations of Navarātri."</b></font>
 
 <p>
 <font color="green"><b>Gaṇesha Atharva Śhīrṣha</b></font><br>
@@ -679,7 +739,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=a89XDrTOInY&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "...... today is a very great day for you to thank Her; thank Her for Her protection and for Her understanding"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Navarātri Festival: "...... today is a very great day for you to thank Her; thank Her for Her protection and for Her understanding"</b></font>
 
 <p>
 <font color="green"><b>Raghu Pati Raghav</b></font><br>
@@ -706,14 +768,18 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=a89XDrTOInY&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "Sahaja Yoga is the Power of Compassion and Love of God Almighty."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Navarātri Festival: "Sahaja Yoga is the Power of Compassion and Love of God Almighty."</b></font>
 
 <p>
 <font color="green"><b>Durgati Harini Durgā Ambe</b></font><br>
 <a href="https://www.youtube.com/watch?v=8wJBzMrRPHA&ab_channel=SahajaYoga">video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "Worshiping is not just out of sheer reading or some sort of a chanting or anything, but it’s the deep attention of your heart."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Navarātri Festival: "Worshiping is not just out of sheer reading or some sort of a chanting or anything, but it’s the deep attention of your heart."</b></font>
 
 <p>
 <font color="green"><b>Śhrī Devī Atharva Sheersha in the presence of Śhrī Mātājī</b></font><br>
@@ -736,7 +802,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=DXp2gNxp0tc&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "in the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day. Ṣhaṣhṭhī Day is of Śhākambharī Devī"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Navarātri Festival: "in the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day. Ṣhaṣhṭhī Day is of Śhākambharī Devī"</b></font>
 
 <p>
 <font size="+2"><b>Suggested Talk:</b></font>
@@ -753,7 +821,9 @@ May God bless you."</font><br>
 <font color="green"><b>Namostute (Mantra of Śhrī Kātyāyanī is taken)</b></font><br>
 <a href="https://www.youtube.com/embed/xlhoVI-SylQ?hl=en&fs=1">video</a>
 
-<font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "In Sahaja Yoga, Navarātri is the most important Pūjā I would say ...... Navarātri is the one which has brought you to Sahasrāra."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Navarātri Festival: "In Sahaja Yoga, Navarātri is the most important Pūjā I would say ...... Navarātri is the one which has brought you to Sahasrāra."</b></font>
 
 <p>
 <font color="green"><b>Śhrī Jagadambe Aye re</b></font><br>
@@ -765,14 +835,18 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=kczfqzGLoc4&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "Help us to fight our negativity within us. Give us Your tiger so that we fight, give us Your lion so we fight."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Navarātri Festival: "Help us to fight our negativity within us. Give us Your tiger so that we fight, give us Your lion so we fight."</b></font>
 
 <p>
 <font color="green"><b>Devī Kavach</b></font><br>
 <a href="https://www.youtube.com/embed/XdTzTciM-Hg?hl=en&fs=1"> video</a><br>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "the significance of Pūjā ... is this, that when you do the Pūjā you recognize Me"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Navarātri Festival: "the significance of Pūjā ... is this, that when you do the Pūjā you recognize Me"</b></font>
 
 <p>
 <font color="green"><b>Ayi Giri Nandini</b></font><br>
@@ -784,14 +858,18 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=RtV1vuDJDnM&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "Celibacy must come from within, the purity must come from within"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Navarātri Festival: "Celibacy must come from within, the purity must come from within"</b></font>
 
 <p>
 <font color="green"><b>Yā Devī sarvabhūteśhu</b></font><br>
 <a href="https://www.youtube.com/watch?v=c11jL6LzviE&ab_channel=SahajaYoga"> video</a><br>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "You are made in the pattern of Śhrī Gaṇeśha ... you should have devotion and innocence like Shrī Gaṇesha's"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Navarātri Festival: "You are made in the pattern of Śhrī Gaṇeśha ... you should have devotion and innocence like Shrī Gaṇesha's"</b></font>
 
 <p>
 <font color="green"><b>Gaṇesha Atharva Śhīrṣha</b></font><br>
@@ -808,14 +886,18 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=KbUT-S2AcBY&ab_channel=SahajaYoga">video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Preparations for Celebrating Navarātri</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Preparations for Celebrating Navarātri</b></font>
 
 <p>
 <font color="green"><b>Nav Durgā kī</b></font><br>
 <a href="https://www.youtube.com/watch?v=yuxz7SjLorw&ab_channel=SahajaYoga">video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Śhrī Gaṇeśha Chaturthī: "The greatest quality of Śhrī Gaṇeśha is joy"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Śhrī Gaṇeśha Chaturthī: "The greatest quality of Śhrī Gaṇeśha is joy"</b></font>
 
 <p>
 <font color="green"><b>Oṃkār Pradhāna Rūp Gaṇeśhache by Saint Tukārām</b></font><br>
@@ -847,7 +929,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=a89XDrTOInY">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Śhrī Kṛiṣhṇa Pūjā: "you should be a perfect machine, a perfect channel, a perfect flute for My Lord to play that tune of love."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Śhrī Kṛiṣhṇa Pūjā: "you should be a perfect machine, a perfect channel, a perfect flute for My Lord to play that tune of love."</b></font>
 
 <p>
 <font color="green"><b>Shri Ganesha Atharva Sheersha</b></font><br>
@@ -894,7 +978,9 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=DEzt1vmETlk">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Kṛiṣhṇa Janmāṣhṭamī: "central part of the Viśhuddhi chakra is United States. The central part of the Viśhuddhi chakra is governed by Śhrī Kṛiṣhṇa. And His Power is Rādhā. "</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Kṛiṣhṇa Janmāṣhṭamī: "central part of the Viśhuddhi chakra is United States. The central part of the Viśhuddhi chakra is governed by Śhrī Kṛiṣhṇa. And His Power is Rādhā. "</b></font>
 
 </p>
 <p style=" text-align:center;">
@@ -916,7 +1002,9 @@ Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa
 <a href="https://www.youtube.com/watch?v=DEzt1vmETlk">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Mother Mary&#8217;s Assumption and India&#8217;s Independence Day. "She is the redeemer and She connects you to God."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Mother Mary&#8217;s Assumption and India&#8217;s Independence Day. "She is the redeemer and She connects you to God."</b></font>
 
 <p>
 <font color="green"><b>Jai Gaṇeśha ji ke Mā Ambe</b></font><br>
@@ -928,7 +1016,9 @@ Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa
 <a href="https://www.youtube.com/watch?v=OqHJsJS5zNs">video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Rakshābandhan: "This rākhī is nothing but the Viṣhṇumāyā’s Power, which protects the brother"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Rakshābandhan: "This rākhī is nothing but the Viṣhṇumāyā’s Power, which protects the brother"</b></font>
 
 <p>
 <font color="blue"><b>Nirmalaa, Kiti Varnaavi Tujhiga Stuti</b></font><br>
@@ -952,7 +1042,9 @@ Baba Mama, (March 1990): This is what the brother has written for the sister:<br
 <a href="https://www.youtube.com/watch?v=-duFOybhebA&feature=youtu.be">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Guru Pūjā: "guru is a person who makes you meet God; he raises the Kuṇḍalinī and makes you one with God."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Guru Pūjā: "guru is a person who makes you meet God; he raises the Kuṇḍalinī and makes you one with God."</b></font>
 
 <p>
 <font color="DarkRed"><b>Guru Totz Mhanavi Kara Mazha</b></font><br>
@@ -990,7 +1082,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=TBxa1OKh4yw&index=14&list=PL407136734B2B056D">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Worshiping Shri Ādi Śhakti: "Ādi Śhakti is a complete personality."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Worshiping Shri Ādi Śhakti: "Ādi Śhakti is a complete personality."</b></font>
 
 <p>
 <font color="green"><b>Tujhya pujani (2001-0707 Guru Puja, Cabella)</b></font><br>
@@ -1002,7 +1096,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=lGC_kUMmabQ&index=95&list=PLC8554007A2C98EA0">video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Śhrī Kabīra Jayanti: "He brought forth so many fundamental truths in his poetry and he talked about it"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Śhrī Kabīra Jayanti: "He brought forth so many fundamental truths in his poetry and he talked about it"</b></font>
 
 <p>
 <font color="green"><b>Guru Bin Kaun Batave Bāt.</b></font><br>
@@ -1010,14 +1106,18 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=7jjdlluWX8Q">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Mother's Day : "The Mother is the source of love."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Mother's Day : "The Mother is the source of love."</b></font>
 
 <p>
 <font color="green"><b>Isi Liye Mataji hamko</b></font><br>
 <a href="https://www.youtube.com/watch?v=oFGGshAsz2Q">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating 50 years of opening of Sahasrara: "When we enter into the Realm of Sahasrāra, then only we have right to do the Sahasrāra Pūjā"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating 50 years of opening of Sahasrara: "When we enter into the Realm of Sahasrāra, then only we have right to do the Sahasrāra Pūjā"</b></font>
 
 <p>
 <font color="green"><b>Namami Shri Gan raj Dayal</b></font><br>
@@ -1034,7 +1134,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=a89XDrTOInY">video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating 50 years of opening of Sahasrara: "Sahaja Yoga teaches how to love and adore the human body as the temple of God Almighty."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating 50 years of opening of Sahasrara: "Sahaja Yoga teaches how to love and adore the human body as the temple of God Almighty."</b></font>
 
 <p>
 <font color="green"><b>Vishwa Vandita (1998-1025 Diwali Pūjā, Cabella)</b></font><br>
@@ -1046,14 +1148,18 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=LttGjMLmpW4">video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating 50 years of opening of Sahasrara: "Sahaj Yog is the Union between you and God, and the sincerity must be full, must be complete"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating 50 years of opening of Sahasrara: "Sahaj Yog is the Union between you and God, and the sincerity must be full, must be complete"</b></font>
 
 <p>
 <font color="green"><b>Ughad. Sahastrār. Mate</b></font><br>
 <a href="https://www.youtube.com/watch?v=JHpK7bJV6wM">video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Akṣhaya Tṛitīya: "Akṣhaya Tṛitīya, means un-destructible third day of the moon. That’s actually nobody knew, but it is the Pūjā of the Kundalinī."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Akṣhaya Tṛitīya: "Akṣhaya Tṛitīya, means un-destructible third day of the moon. That’s actually nobody knew, but it is the Pūjā of the Kundalinī."</b></font>
 
 <p>
 <font color="green"><b>Kuṇḍalinī Kuṇḍalinī</b></font><br>
@@ -1065,7 +1171,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=oFGGshAsz2Q">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Easter: "He created the Path of Resurrection for us. This Path of Resurrection is the one that we have followed in Sahaja Yoga."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Easter: "He created the Path of Resurrection for us. This Path of Resurrection is the one that we have followed in Sahaja Yoga."</b></font>
 
 <p>
 <font color="green"><b>Breaking Easter Eggs (1992 0419 Easter Puja, Italy)</b></font><br>
@@ -1083,7 +1191,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=syLbk7MlTDg&feature=youtu.be"> video</a><br>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Mahavira Jayanti & Palm Sunday: "Sahaj Yoga is not just for you. It is meant for the whole world."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Mahavira Jayanti & Palm Sunday: "Sahaj Yoga is not just for you. It is meant for the whole world."</b></font>
 
 <p>
 <font color="green"><b>21 names of Shri Bhairava recited (1991-0328 Shri Mahavira Puja in Perth, Australi)</b></font><br>
@@ -1095,14 +1205,18 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=pzk1kA7KAwc&index=14&list=PL2DF5CA6DDD2E1E30">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Śhrī Rām Navami: "Śhrī Rāma came on this Earth to establish the institution of benevolent king"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Śhrī Rām Navami: "Śhrī Rāma came on this Earth to establish the institution of benevolent king"</b></font>
 
 <p>
 <font color="green"><b>Aarti and the Three Great Mantras</b></font><br>
 <a href="https://www.youtube.com/watch?v=a89XDrTOInY">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Vasant Navarātri: "When you will clear your Viśhuddhi, your vision will change and you will receive the help from the Divine."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Vasant Navarātri: "When you will clear your Viśhuddhi, your vision will change and you will receive the help from the Divine."</b></font>
 
 <p>
 <font color="green"><b>Keshava Madhava</b></font><br>
@@ -1114,7 +1228,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=-duFOybhebA">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Vasant Navarātri: "Ambā, means the pure form of power, resides in the triangular bone, like Kuṇḍalinī."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Vasant Navarātri: "Ambā, means the pure form of power, resides in the triangular bone, like Kuṇḍalinī."</b></font>
 
 <p>
 <font color="green"><b>Jay Jagadambe</b></font><br>
@@ -1126,7 +1242,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=9uEG1kl3vcw">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Vasant Navarātri: "If you get sick, it is Viṣhṇu who will preserve, who will cure you."</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Vasant Navarātri: "If you get sick, it is Viṣhṇu who will preserve, who will cure you."</b></font>
 
 <p>
 <font color="green"><b>Kuṇḍalinī Kuṇḍalinī</b></font><br>
@@ -1143,7 +1261,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=xZeKm25zKMI">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Vasant Navarātri: "My Feet are more important; they can cure your ailments of the five elements"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Vasant Navarātri: "My Feet are more important; they can cure your ailments of the five elements"</b></font>
 
 <p>
 <font size="+2"><b>Suggested Talk:</b></font>
@@ -1151,7 +1271,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?time_continue=5605&v=xHLO5TR7G6w&feature=emb_logo"> video</a>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Vasant Navarātri: "this New Year’s Day is the first day of advent of Goddess"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Vasant Navarātri: "this New Year’s Day is the first day of advent of Goddess"</b></font>
 
 <p>
 <font color="green"><b>Śhrī Gaṇeśha Atharva Sheersha</b></font><br>
@@ -1163,7 +1285,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=ks7SUsrbB-c">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating the Birthday of our Divine Mother: "Pūjā on a birthday should be such that it should be more deep, more heartfelt, more joyous"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating the Birthday of our Divine Mother: "Pūjā on a birthday should be such that it should be more deep, more heartfelt, more joyous"</b></font>
 
 <p>
 <font color="blue"><b>Shubhmangalmaye diwas hai āya</b></font><br>
@@ -1196,7 +1320,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=vTeBPNpyDmM">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Holi, the Festival of Colors: "Śhrī Kṛiṣhṇa said on this Holī Day, "Laugh, jump and enjoy as the whole world is a play." "</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Holi, the Festival of Colors: "Śhrī Kṛiṣhṇa said on this Holī Day, "Laugh, jump and enjoy as the whole world is a play." "</b></font>
 
 <p>
 <font color="green"><b>Shri Mataji Playing with Dandiya Sticks (1990-0819 Śhrī Kṛiṣhṇa Pūjā, Ipswich, UK)</b></font><br>
@@ -1208,7 +1334,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=H_-4d_cwBjE">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Holikā Dahana on Full Moon Day (Holī Pūrṇimā)</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Holikā Dahana on Full Moon Day (Holī Pūrṇimā)</b></font>
 
 <p>
 <font size="+2"><b>Suggested Video:</b></font> 
@@ -1216,7 +1344,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=Rs1AIeGGP_0"> video</a><br>
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Mahāśhivarātri: "Today’s celebration, is the establishment of Shiva on this earth"</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Mahāśhivarātri: "Today’s celebration, is the establishment of Shiva on this earth"</b></font>
 
 <p>
 <font color="DarkSlateBlue"><b>Eternal bliss and awareness am I, I am Śhiva, I am Śhiva!</b></font><br>
@@ -1258,7 +1388,9 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=QE6J_z3g4sQ">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 Celebrating Vasant Panchami: Worshipping Śhrī Mahāsaraswatī the Counselor</b></font>
+<br>
+
+<font color="DeepPink"><<b>2020 Celebrating Vasant Panchami: Worshipping Śhrī Mahāsaraswatī the Counselor</b></font>
 
 <p>
 <font color="blueviolet">"Now the second one is Mahāsaraswatī, is at Māhūragaḍ. We always sing Māhūragaḍ. Wari song, that is the one -- is Mahāsaraswatī, which is also called as Reṇukā Devī, that's the right-sided Mahāsaraswatī."</font><br>
