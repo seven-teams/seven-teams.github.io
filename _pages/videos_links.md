@@ -253,7 +253,7 @@ Jay Nirmala Śhakti, Bhagawati, Nirmal Bhakti<br>
 </p>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Sarva Granthi Vibhedinī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></<br>
+<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Sarva Granthi Vibhedinī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 (Shri Mataji is breaking our shells of ego and superego through Easter egg breaking and mentions that the mantra for this is Sarva Granthi Vibhedini)<br>
 Breaking Easter Eggs<br>
 <a href="https://www.youtube.com/watch?v=3KqQsLZk5qU&ab_channel=SahajaYoga">video</a>
@@ -450,7 +450,7 @@ And, by that, we show that: ‘We give our triguṇas to You so that we become G
 This is what is the Śhiva Pūjā.</b><br>
 May God bless you."</font><br>
 <font size="+0"><b>1979-0225 Śhivarātri Pūjā (Marathi+English) (Śhivarātri Day), Pune, Maharashtra, India</b></font>
-<font color="Indigo"><b>Śhiva Āratī</b><br>
+<font color="Indigo"><b>Śhiva Āratī</b></font><br>
 <a href="https://www.youtube.com/watch?v=QE6J_z3g4sQ&ab_channel=SahajaYoga">video</a>
 </p>
 
@@ -515,9 +515,11 @@ May God bless you."</font><br>
 <a href="https://youtu.be/NmK3OTRAc2U">video</a> 
 </p>
 
+<p>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1995-1229 Talk to Talk to the Brides, Take Up the Responsibility of a Wife (She Is Responsible to Built the Society of Sahaj, Look after the Whole Family of Sahaja Yogis and A Woman Has to Be Extremely Moral), before the Marriages Ceremony, Pandal, Gaṇapatīpuḷe, Maharashtra, India</b></font>
-<a href="https://vimeo.com/356585708"> full video</a><br>
+<a href="https://vimeo.com/356585708"> full video</a>
+</p>
 
 <font color="DeepPink"><b>2020 Celebrating Christmas: "Christ's Power was of course Auṃkāra. His Power was Praṇava ...... He is the Incarnation of tapasyā."</b></font>
 
@@ -639,9 +641,11 @@ May God bless you."</font><br>
 
 <font color="DeepPink"><b>2020 Celebrating Kojāgirī Pūrṇimā or Śhārad Pūrṇimā</b></font>
 
-<font size="+2"><b>Suggested Talk:</b></font> 
+<p>
+<font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0"><b>1984-0218 Śhrī Chandramā Pūjā (Marathi+English+Marathi), Vaitarna, Maharashtra, India</b></font>
-<a href="https://www.youtube.com/watch?v=lw5h5fnhqm4&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a><br>
+<a href="https://www.youtube.com/watch?v=lw5h5fnhqm4&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a>
+</p>
 
 <font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "This recognition itself will fulfill all the Incarnations of Navarātri."</b></font>
 
@@ -721,9 +725,11 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=8wJBzMrRPHA&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 
+<p>
+<font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0"><b>1999-1017 Navarātri Pūjā (8th Day), The Powers of Śhrī Mahākālī, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
-<a href="https://www.youtube.com/watch?v=Ck0mMuTD0cY&feature=emb_logo&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a><br>
+<a href="https://www.youtube.com/watch?v=Ck0mMuTD0cY&feature=emb_logo&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a>
+</p>
 
 <p>
 <font color="green"><b>Śhrī Durgā Chalisa</b></font><br>
@@ -732,9 +738,11 @@ May God bless you."</font><br>
 
 <font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "in the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day. Ṣhaṣhṭhī Day is of Śhākambharī Devī"</b></font>
 
-<font size="+2"><b>Suggested Talk:</b></font> 
+<p>
+<font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0"><b>1981-0407 Śhrī Lalitā Havan, after Śhrī Gṛuhalakṣhmī Pūjā, Sydney, New South Wales, Australia</b></font>
-<a href="https://www.youtube.com/watch?v=fr34fWJiodE&feature=emb_logo&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a><br>
+<a href="https://www.youtube.com/watch?v=fr34fWJiodE&feature=emb_logo&ab_channel=TeachingsofH.H.ShriMatajiNirmalaDevi"> video</a>
+</p>
 
 <p>
 <font color="green"><b>Durgā Ādi Śhakti Śhrī Mātājī</b></font><br>
@@ -924,7 +932,7 @@ Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa
 
 <p>
 <font color="blue"><b>Nirmalaa, Kiti Varnaavi Tujhiga Stuti</b></font><br>
-<iy>Baba Mama, (March 1990): This is what the brother has written for the sister:<br>
+Baba Mama, (March 1990): This is what the brother has written for the sister:<br>
 "O Nirmalā, my sister, how much should I praise You? Because You have given the human being the experience of God."<br>
 <a href="https://www.youtube.com/watch?v=ErGWNRdwSBE"> video</a><br>
 </p>
@@ -1137,11 +1145,14 @@ all praise to that Guru.</b></font><br>
 
 <font color="DeepPink"><b>Celebrating Vasant Navarātri: "My Feet are more important; they can cure your ailments of the five elements"</b></font>
 
-<font size="+2"><b>Suggested Talk:</b></font> 
+<p>
+<font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0">1989-0527 Śhrī Begum Pasha (Devī) Pūjā, The Essence of Self-respect, Flat of Carla Mottina, Istanbul, Turkey</font>
-<a href="https://www.youtube.com/watch?time_continue=5605&v=xHLO5TR7G6w&feature=emb_logo"> video</a><br>
+<a href="https://www.youtube.com/watch?time_continue=5605&v=xHLO5TR7G6w&feature=emb_logo"> video</a>
+</p>
 
 <font color="DeepPink"><b>Celebrating Vasant Navarātri: "this New Year’s Day is the first day of advent of Goddess"</b></font>
+</p>
 
 <p>
 <font color="green"><b>Śhrī Gaṇeśha Atharva Sheersha</b></font><br>
@@ -1165,9 +1176,11 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=Hx5ek4VAgG8">video</a> 
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 
+<p>
+<font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0">1990-0321 Birthday Pūjā, Sydney, Australia</font>
-<a href="https://www.youtube.com/watch?v=XiRNwWH3g28&feature=emb_logo"> video</a><br>
+<a href="https://www.youtube.com/watch?v=XiRNwWH3g28&feature=emb_logo"> video</a>
+</p>
 
 <p>
 <font color="green"><b>Tujhya pujani</b></font><br>
@@ -1286,9 +1299,11 @@ all praise to that Guru.</b></font><br>
 <a href="https://youtu.be/feugPtjSqVE"> video</a>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 
+<p>
+<font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0">1985-0114 Makar Sankranti Puja, Suryavanshi Hall, Mumbai, India</font>
-<a href="https://www.youtube.com/watch?time_continue=1&v=MX8whf99iZs&feature=emb_logo"> video</a><br>
+<a href="https://www.youtube.com/watch?time_continue=1&v=MX8whf99iZs&feature=emb_logo"> video</a>
+</p>
 
 <p>
 <font color="green"><b>Sarva Mangala Mangale</b>(Makarsankranti Puja, 1987, Rahuri, India)</font><br>
@@ -1307,7 +1322,7 @@ all praise to that Guru.</b></font><br>
 <p>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1987-0103 Śhrī Nirmalā Devī Pūjā (English+Marathi), Gaṇapatīpuḷe, Maharashtra, India</font>
-<a href="https://www.youtube.com/watch?v=NiqFR2IPsVo&feature=emb_logo"> video</a><br>
+<a href="https://www.youtube.com/watch?v=NiqFR2IPsVo&feature=emb_logo"> video</a>
 </p>
 
 <br>
@@ -1835,9 +1850,11 @@ The One who makes me my own Guru<br>
 
 <font color="DeepPink"><b>2019 Celebrating Shri Adi Shakti Puja: 20 years since the first Shri Adi Shakti Puja in USA, in the 114 acres land She has purchased 25 years ago in Fort Plain, Up-state New York</b></font>
 
-<font size="+2"><b>Suggested Talk:</b></font> 
+<p>
+<font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0">1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</font>
 <a href="https://www.youtube.com/watch?time_continue=33&v=50OO4np2ers"> video</a>
+</p>
 
 <p>
 <font color="green"><b>THE 64 ADORATIONS OF SHRI ADI SHAKTI</b></font><br>
@@ -1876,9 +1893,11 @@ The One who makes me my own Guru<br>
 <a href="https://www.youtube.com/watch?v=eA5CQ3iSK2A"> video</a>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 
+<p>
+<font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0">1992-0621 Śhrī Ādi Kuṇḍalinī Pūjā, Pure Love, Compassion, and Morality, Tent, Cabella Ligure, Italy</font>
-<a href="https://www.youtube.com/watch?v=EPQxjElAVMI"> video</a><br>
+<a href="https://www.youtube.com/watch?v=EPQxjElAVMI"> video</a>
+</p>
 
 <br>
 
@@ -1890,9 +1909,11 @@ O Mother, please open the Sahasrara!<br>
 <a href="https://www.youtube.com/watch?v=JHpK7bJV6wM">video</a>
 </p>
 
+<p>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1989-0506 Sahasrāra Pūjā, Sahaja Yoga Is Nothing but Is Love (Whole Power of Sahasrāra is Love and Jump in the Ocean of Love), Theater Cinema della Rosa, Via delle Rose, 35, Sorrento, Italy</font>
-<a href="https://www.youtube.com/watch?time_continue=1&v=FbB7lAmYpOc"> Part 1</a><br> <a href="https://www.youtube.com/watch?time_continue=4865&v=FYjcXD4x1lg"> Part 2</a><br>
+<a href="https://www.youtube.com/watch?time_continue=1&v=FbB7lAmYpOc"> Part 1</a><br> <a href="https://www.youtube.com/watch?time_continue=4865&v=FYjcXD4x1lg"> Part 2</a>
+</p>
 
 <p>
 <font color="green"><b>Vandan Karuya Matajila</b></font><br>
@@ -1911,7 +1932,7 @@ O Mother, please open the Sahasrara!<br>
 <p>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1991-0328 Śhrī Mahāvīra Pūjā, Left Side and Soul, Gidgegannup, Darling Ranges (45 kms NE of Perth), WA, Australia</font>
-<a href="https://www.youtube.com/watch?time_continue=1&v=0Xe63y5hiu8"> video, Part 1</a><br>
+<a href="https://www.youtube.com/watch?time_continue=1&v=0Xe63y5hiu8"> video, Part 1</a>
 </p>
 
 <p>
@@ -1940,7 +1961,7 @@ O Mother, please open the Sahasrara!<br>
 <p>
 <font size="+2"><b>Suggested Talk:</b></font>
 <font size="+0">1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, Weilburg, Germany</font>
-<a href="https://www.youtube.com/watch?v=7uSGgzf6Rrg"> video</a><br>
+<a href="https://www.youtube.com/watch?v=7uSGgzf6Rrg"> video</a>
 </p>
 
 <p>
@@ -1960,7 +1981,7 @@ O Mother, please open the Sahasrara!<br>
 <p>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1993-0803 Adi Shakti Puja Talk, Togliatti, Russia</font>
-<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a>
 </p>
 
 <br>
@@ -2027,7 +2048,7 @@ O Mother, please open the Sahasrara!<br>
 <p>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">1991-0228 Talk to Sahaja Yogis (Hindi+English), Raṃgavalī Holī Celebrations, New Delhi, India</font>
-<a href="https://www.youtube.com/watch?v=bc2lyMh6Beg"> video</a><br>
+<a href="https://www.youtube.com/watch?v=bc2lyMh6Beg"> video</a>
 </p>
 
 <p>
@@ -2133,7 +2154,7 @@ O Mother, please open the Sahasrara!<br>
 <p>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0">2000-1231 New Year Puja Talk, Kalwe, India</font>
-<a href="https://www.youtube.com/watch?v=VQCbvlXTQhI"> video</a><br>
+<a href="https://www.youtube.com/watch?v=VQCbvlXTQhI"> video</a>
 </p>
 
 <p>
