@@ -791,7 +791,7 @@ May God bless you."</font><br>
 <a href="https://www.youtube.com/watch?v=c11jL6LzviE&ab_channel=SahajaYoga"> video</a><br>
 </p>
 
-<font color="DeepPink"><b>Celebrating Navarātri Festival: "You are made in the pattern of Śhrī Gaṇeśha ... you should have devotion and innocence like Shrī Gaṇesha's"</b></font>
+<font color="DeepPink"><b>2020 Celebrating Navarātri Festival: "You are made in the pattern of Śhrī Gaṇeśha ... you should have devotion and innocence like Shrī Gaṇesha's"</b></font>
 
 <p>
 <font color="green"><b>Gaṇesha Atharva Śhīrṣha</b></font><br>
@@ -928,7 +928,7 @@ Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa
 <a href="https://www.youtube.com/watch?v=OqHJsJS5zNs">video</a>
 </p>
 
-<font color="DeepPink"><b>Celebrating Rakshābandhan: "This rākhī is nothing but the Viṣhṇumāyā’s Power, which protects the brother"</b></font>
+<font color="DeepPink"><b>2020 Celebrating Rakshābandhan: "This rākhī is nothing but the Viṣhṇumāyā’s Power, which protects the brother"</b></font>
 
 <p>
 <font color="blue"><b>Nirmalaa, Kiti Varnaavi Tujhiga Stuti</b></font><br>
@@ -952,7 +952,7 @@ Baba Mama, (March 1990): This is what the brother has written for the sister:<br
 <a href="https://www.youtube.com/watch?v=-duFOybhebA&feature=youtu.be">video</a> 
 </p>
 
-<font color="DeepPink"><b>Celebrating Guru Pūjā: "guru is a person who makes you meet God; he raises the Kuṇḍalinī and makes you one with God."</b></font>
+<font color="DeepPink"><b>2020 Celebrating Guru Pūjā: "guru is a person who makes you meet God; he raises the Kuṇḍalinī and makes you one with God."</b></font>
 
 <p>
 <font color="DarkRed"><b>Guru Totz Mhanavi Kara Mazha</b></font><br>
@@ -1034,7 +1034,7 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=a89XDrTOInY">video</a>
 </p>
 
-<font color="DeepPink"><b>Celebrating 50 years of opening of Sahasrara: "Sahaja Yoga teaches how to love and adore the human body as the temple of God Almighty."</b></font>
+<font color="DeepPink"><b>2020 Celebrating 50 years of opening of Sahasrara: "Sahaja Yoga teaches how to love and adore the human body as the temple of God Almighty."</b></font>
 
 <p>
 <font color="green"><b>Vishwa Vandita (1998-1025 Diwali Pūjā, Cabella)</b></font><br>
@@ -1046,14 +1046,14 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=LttGjMLmpW4">video</a>
 </p>
 
-<font color="DeepPink"><b>Celebrating 50 years of opening of Sahasrara: "Sahaj Yog is the Union between you and God, and the sincerity must be full, must be complete"</b></font>
+<font color="DeepPink"><b>2020 Celebrating 50 years of opening of Sahasrara: "Sahaj Yog is the Union between you and God, and the sincerity must be full, must be complete"</b></font>
 
 <p>
 <font color="green"><b>Ughad. Sahastrār. Mate</b></font><br>
 <a href="https://www.youtube.com/watch?v=JHpK7bJV6wM">video</a>
 </p>
 
-<font color="DeepPink"><b>Celebrating Akṣhaya Tṛitīya: "Akṣhaya Tṛitīya, means un-destructible third day of the moon. That’s actually nobody knew, but it is the Pūjā of the Kundalinī."</b></font>
+<font color="DeepPink"><b>2020 Celebrating Akṣhaya Tṛitīya: "Akṣhaya Tṛitīya, means un-destructible third day of the moon. That’s actually nobody knew, but it is the Pūjā of the Kundalinī."</b></font>
 
 <p>
 <font color="green"><b>Kuṇḍalinī Kuṇḍalinī</b></font><br>
@@ -1065,7 +1065,7 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=oFGGshAsz2Q">video</a> 
 </p>
 
-<font color="DeepPink"><b>Celebrating Easter: "He created the Path of Resurrection for us. This Path of Resurrection is the one that we have followed in Sahaja Yoga."</b></font>
+<font color="DeepPink"><b>2020 Celebrating Easter: "He created the Path of Resurrection for us. This Path of Resurrection is the one that we have followed in Sahaja Yoga."</b></font>
 
 <p>
 <font color="green"><b>Breaking Easter Eggs (1992 0419 Easter Puja, Italy)</b></font><br>
@@ -1083,7 +1083,7 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=syLbk7MlTDg&feature=youtu.be"> video</a><br>
 </p>
 
-<font color="DeepPink"><b>Celebrating Mahavira Jayanti & Palm Sunday: "Sahaj Yoga is not just for you. It is meant for the whole world."</b></font>
+<font color="DeepPink"><b>2020 Celebrating Mahavira Jayanti & Palm Sunday: "Sahaj Yoga is not just for you. It is meant for the whole world."</b></font>
 
 <p>
 <font color="green"><b>21 names of Shri Bhairava recited (1991-0328 Shri Mahavira Puja in Perth, Australi)</b></font><br>
@@ -1095,14 +1095,14 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=pzk1kA7KAwc&index=14&list=PL2DF5CA6DDD2E1E30">video</a> 
 </p>
 
-<font color="DeepPink"><b>Celebrating Śhrī Rām Navami: "Śhrī Rāma came on this Earth to establish the institution of benevolent king"</b></font>
+<font color="DeepPink"><b>2020 Celebrating Śhrī Rām Navami: "Śhrī Rāma came on this Earth to establish the institution of benevolent king"</b></font>
 
 <p>
 <font color="green"><b>Aarti and the Three Great Mantras</b></font><br>
 <a href="https://www.youtube.com/watch?v=a89XDrTOInY">video</a> 
 </p>
 
-<font color="DeepPink"><b>Celebrating Vasant Navarātri: "When you will clear your Viśhuddhi, your vision will change and you will receive the help from the Divine."</b></font>
+<font color="DeepPink"><b>2020 Celebrating Vasant Navarātri: "When you will clear your Viśhuddhi, your vision will change and you will receive the help from the Divine."</b></font>
 
 <p>
 <font color="green"><b>Keshava Madhava</b></font><br>
@@ -1114,7 +1114,7 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=-duFOybhebA">video</a> 
 </p>
 
-<font color="DeepPink"><b>Celebrating Vasant Navarātri: "Ambā, means the pure form of power, resides in the triangular bone, like Kuṇḍalinī."</b></font>
+<font color="DeepPink"><b>2020 Celebrating Vasant Navarātri: "Ambā, means the pure form of power, resides in the triangular bone, like Kuṇḍalinī."</b></font>
 
 <p>
 <font color="green"><b>Jay Jagadambe</b></font><br>
@@ -1126,7 +1126,7 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=9uEG1kl3vcw">video</a> 
 </p>
 
-<font color="DeepPink"><b>Celebrating Vasant Navarātri: "If you get sick, it is Viṣhṇu who will preserve, who will cure you."</b></font>
+<font color="DeepPink"><b>2020 Celebrating Vasant Navarātri: "If you get sick, it is Viṣhṇu who will preserve, who will cure you."</b></font>
 
 <p>
 <font color="green"><b>Kuṇḍalinī Kuṇḍalinī</b></font><br>
@@ -1143,7 +1143,7 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=xZeKm25zKMI">video</a> 
 </p>
 
-<font color="DeepPink"><b>Celebrating Vasant Navarātri: "My Feet are more important; they can cure your ailments of the five elements"</b></font>
+<font color="DeepPink"><b>2020 Celebrating Vasant Navarātri: "My Feet are more important; they can cure your ailments of the five elements"</b></font>
 
 <p>
 <font size="+2"><b>Suggested Talk:</b></font>
@@ -1151,8 +1151,7 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?time_continue=5605&v=xHLO5TR7G6w&feature=emb_logo"> video</a>
 </p>
 
-<font color="DeepPink"><b>Celebrating Vasant Navarātri: "this New Year’s Day is the first day of advent of Goddess"</b></font>
-</p>
+<font color="DeepPink"><b>2020 Celebrating Vasant Navarātri: "this New Year’s Day is the first day of advent of Goddess"</b></font>
 
 <p>
 <font color="green"><b>Śhrī Gaṇeśha Atharva Sheersha</b></font><br>
@@ -1164,7 +1163,7 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=ks7SUsrbB-c">video</a> 
 </p>
 
-<font color="DeepPink"><b>Celebrating the Birthday of our Divine Mother: "Pūjā on a birthday should be such that it should be more deep, more heartfelt, more joyous"</b></font>
+<font color="DeepPink"><b>2020 Celebrating the Birthday of our Divine Mother: "Pūjā on a birthday should be such that it should be more deep, more heartfelt, more joyous"</b></font>
 
 <p>
 <font color="blue"><b>Shubhmangalmaye diwas hai āya</b></font><br>
@@ -1209,16 +1208,18 @@ all praise to that Guru.</b></font><br>
 <a href="https://www.youtube.com/watch?v=H_-4d_cwBjE">video</a> 
 </p>
 
-<font color="DeepPink"><b>2020 2020 Celebrating Holikā Dahana on Full Moon Day (Holī Pūrṇimā)</b></font>
+<font color="DeepPink"><b>2020 Celebrating Holikā Dahana on Full Moon Day (Holī Pūrṇimā)</b></font>
 
+<p>
 <font size="+2"><b>Suggested Video:</b></font> 
 <font size="+0">1982-0815 Havan on the day of Puja to Shri Krishna as Yogeshwara, London, England</font>
 <a href="https://www.youtube.com/watch?v=Rs1AIeGGP_0"> video</a><br>
+</p>
 
 <font color="DeepPink"><b>2020 Celebrating Mahāśhivarātri: "Today’s celebration, is the establishment of Shiva on this earth"</b></font>
 
 <p>
-<font color="DarkSlateBlue"><b>Eternal bliss and awareness am I, I am Śhiva, I am Śhiva!</b><br>
+<font color="DarkSlateBlue"><b>Eternal bliss and awareness am I, I am Śhiva, I am Śhiva!</b></font><br>
 <a href="https://www.youtube.com/watch?v=egus1kFtNYg">video</a>
 </p>
 
