@@ -19,8 +19,6 @@ I hope you will all enjoy today’s music concert and all the entertainment that
 
 <div style="text-align: center"><img src="/images/image735.png" /></div>
 
-<div style="text-align: center"><img src="/images/image.png" /></div>
-
 <p style="text-align:center;">
 <font color="DarkGreen"><b>GURU EK . JAGI TRATA</b></font><br>
 The Guru is the only One in this world Who can take you across.<br>
