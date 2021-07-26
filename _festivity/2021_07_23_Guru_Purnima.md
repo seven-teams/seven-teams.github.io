@@ -104,7 +104,7 @@ That Guru is the root of meditation,<br>
 That source of worship is the Lotus Feet.<br>
 That Guru's speech is the source of Mantras.<br>
 Truly the very form of that Guru is the source of Moksha.<br>
-<font size="-1"><font color="DarkGreen"><b>Guru Vanadan</b></font></font><br>
+<font size="-1"><font color="DarkGreen"><b>Guru Vandana</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
