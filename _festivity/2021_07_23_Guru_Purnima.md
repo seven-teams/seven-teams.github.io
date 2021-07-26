@@ -62,13 +62,13 @@ So today you have to take some vows. And you have to say that we are going to do
 <div style="text-align: center"><img src="/images/image732.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Gurorrashtakam Yah pathet punya dehi</b><br>
+<font color="DarkRed"><b>Gurorrashtakam Yah pathet punya dehi</b></font><br>
 That noble soul who ponders these verses in the Guru's praise<br>
-<font color="DarkRed"><b>Yatir Bhoopatir Brahmachari Cha Gehi</b><br>
+<font color="DarkRed"><b>Yatir Bhoopatir Brahmachari Cha Gehi</b></font><br>
 Of all ascetics and students, of all rulers and wordly men<br>
-<font color="DarkRed"><b>Labhhed Vanchhitartham padam Brahma Sangyam</b><br>
+<font color="DarkRed"><b>Labhhed Vanchhitartham padam Brahma Sangyam</b></font><br>
 will attain the Brahman, the treasure conveted by all<br>
-<font color="DarkRed"><b>Gururukta Vakye Mano Yasya Lagnam</b><br>
+<font color="DarkRed"><b>Gururukta Vakye Mano Yasya Lagnam</b></font><br>
 By applying his mind with constant zeal to the Guru's teaching<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
