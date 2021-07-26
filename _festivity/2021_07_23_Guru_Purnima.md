@@ -49,9 +49,8 @@ In front of Him, even the sun and the moon appear as dull<br>
 He is Himself in the form of sun and moon<br>
 <b>Swaprakash. Rupa Nene Ved</b><br>
 He is both the light and the Vedas<br>
-<a href="https://youtu.be/fXTbFIl8x9g">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="DarkGreen">"Today is the day people, this is created by human beings and not by God, as Guru Pūrṇimā. Because as God has created days of [unclear], human beings have created days of their surrendering.<br>
