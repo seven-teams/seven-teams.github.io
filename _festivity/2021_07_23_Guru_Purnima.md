@@ -149,7 +149,7 @@ Truly the very form of that Guru is the source of Moksha.<br>
 Over and above this, he has strong dispassion, an attitude of non-attachment to the world, and especially, his conduct is stainless with regard to his True Nature.<br>
  In addition to this going on around him there is listening to discourses on Self-Knowledge, narrations about God, and explanations of Supreme Truth at all times.<br>
 <font size="-1">Dasbodh by Saint Shri Samartha Ramdas</font><br>
-<font size="-1">Chapter 5, Sub-Chapter: 2 (The Signs of a Guru)</font></b></font>
+<font size="-1">Chapter 5, Section 2 (The Signs of a Guru)</font></b></font>
 </p>
 
 <p>
