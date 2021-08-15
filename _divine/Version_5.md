@@ -57,7 +57,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 08. <a href="https://drive.google.com/file/d/0B3izjZneKykscmg3cWRQR1E4dWM/view?usp=sharing">older, Version 2 (2017-0203)</a> <br>
 09. <a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">older, Version 1 (2016-0701)</a><br>
 <font color="blue">Nirmala Vidya Amruta</font><br>
-10. <a href="https://www.amruta.org/transcripts-and-translations/"> (no current) future</a><br>
+10. <a href="https://www.amruta.org/transcripts-and-translations/"> (no recent) future</a><br>
 11. <a href="https://drive.google.com/file/d/1Db5MlW5PJFdrFLZeT4bU96s8tKRNstdM/view">older (2021-0601)</a><br>
 12. <a href="https://drive.google.com/file/d/11tAO2f18KLANb7-bswPJp0Z3hoOVAP4f/view">older (2021-0501)</a><br>
 13. <a href="https://drive.google.com/file/d/1FRriOjATDQXxm21z8SHuDZKHWafSR95i/view">older (2021-0305)</a><br>
