@@ -59,21 +59,20 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 <font color="blue">Nirmala Vidya Amruta</font><br>
 10. <a href="https://www.amruta.org/transcripts-and-translations/"> (no current) future</a><br>
 11. <a href="https://drive.google.com/file/d/1Db5MlW5PJFdrFLZeT4bU96s8tKRNstdM/view">older (2021-0601)</a><br>
-12. <a href="https://drive.google.com/file/d/1Db5MlW5PJFdrFLZeT4bU96s8tKRNstdM/view">older (2021-0601)</a><br>
-13. <a href="https://drive.google.com/file/d/11tAO2f18KLANb7-bswPJp0Z3hoOVAP4f/view">older (2021-0501)</a><br>
-14. <a href="https://drive.google.com/file/d/1FRriOjATDQXxm21z8SHuDZKHWafSR95i/view">older (2021-0305)</a><br>
-15. <a href="https://drive.google.com/file/d/1PmTYsTrS0Qa6GGGMD0wNVWa-IyDZMna0/view?usp=sharing">older (2021-0108)</a><br>
-16. <a href="https://drive.google.com/file/d/18qv3oDXR6C1HjTnQi5MDlpgaYDj14mcH/view?usp=sharing">older (2020-1101)</a><br>
-17. <a href="https://drive.google.com/file/d/1NrkCKDF77RnUIuhpRWUDIHjmFhgKCSYm/view?usp=sharing">older (2020-0911)</a><br>
-18. <a href="https://drive.google.com/file/d/15tokWEN4HmOY7T5s2O48R4Z6GllylGDl/view?usp=sharing">older (2020-0717)</a><br>
-19. <a href="https://drive.google.com/file/d/1D2YJv38DcOU5fqCss8Co_eEmzBFpGAWX/view?usp=sharing">older (2020-0101)</a><br>
-20. <a href="https://drive.google.com/file/d/1et_hDoht_X9RvCL3arXYyj_pjIXjRgM5/view?usp=sharing">older (2019-0111)</a><br>
-21. <a href="https://drive.google.com/file/d/1tKEGId5BR0GE4ry57YNthXojlUVSgFGd/view?usp=sharing">older (2018-0129)</a><br>
-22. <a href="https://drive.google.com/file/d/1bqjkzvHJGkpfmgt5dhEYAvom2o2LOcG2/view?usp=sharing">older (2017-0214)</a><br>
-23. <a href="https://drive.google.com/file/d/14g0NeM1bE57AgakgFDgjOOnH4oiQ12CN/view?usp=sharing">older (2017-0111)</a><br>
-24. <a href="https://drive.google.com/file/d/1UX7OLZZfoPKtsKUS_WnavbpuSsHyrX1z/view?usp=sharing">older (2016-0321)</a><br>
+12. <a href="https://drive.google.com/file/d/11tAO2f18KLANb7-bswPJp0Z3hoOVAP4f/view">older (2021-0501)</a><br>
+13. <a href="https://drive.google.com/file/d/1FRriOjATDQXxm21z8SHuDZKHWafSR95i/view">older (2021-0305)</a><br>
+14. <a href="https://drive.google.com/file/d/1PmTYsTrS0Qa6GGGMD0wNVWa-IyDZMna0/view?usp=sharing">older (2021-0108)</a><br>
+15. <a href="https://drive.google.com/file/d/18qv3oDXR6C1HjTnQi5MDlpgaYDj14mcH/view?usp=sharing">older (2020-1101)</a><br>
+16. <a href="https://drive.google.com/file/d/1NrkCKDF77RnUIuhpRWUDIHjmFhgKCSYm/view?usp=sharing">older (2020-0911)</a><br>
+17. <a href="https://drive.google.com/file/d/15tokWEN4HmOY7T5s2O48R4Z6GllylGDl/view?usp=sharing">older (2020-0717)</a><br>
+18. <a href="https://drive.google.com/file/d/1D2YJv38DcOU5fqCss8Co_eEmzBFpGAWX/view?usp=sharing">older (2020-0101)</a><br>
+19. <a href="https://drive.google.com/file/d/1et_hDoht_X9RvCL3arXYyj_pjIXjRgM5/view?usp=sharing">older (2019-0111)</a><br>
+20. <a href="https://drive.google.com/file/d/1tKEGId5BR0GE4ry57YNthXojlUVSgFGd/view?usp=sharing">older (2018-0129)</a><br>
+21. <a href="https://drive.google.com/file/d/1bqjkzvHJGkpfmgt5dhEYAvom2o2LOcG2/view?usp=sharing">older (2017-0214)</a><br>
+22. <a href="https://drive.google.com/file/d/14g0NeM1bE57AgakgFDgjOOnH4oiQ12CN/view?usp=sharing">older (2017-0111)</a><br>
+23. <a href="https://drive.google.com/file/d/1UX7OLZZfoPKtsKUS_WnavbpuSsHyrX1z/view?usp=sharing">older (2016-0321)</a><br>
 <font color="blue">Sahaja Digital Library</font><br>
-25. <a href="https://library.sahajaworld.org/transcripts">older</a><br>
+24. <a href="https://library.sahajaworld.org/transcripts">older</a><br>
 </p>
 
 For older versions of <font color="blue">Divine Message</font> and of other databases, please see <a href="https://seven-teams.github.io/divine/2021/01/10"> Version 4 </a> and <a href="https://seven-teams.github.io/divine/2021/03/07"> Version 4.1</a> and <a href="https://seven-teams.github.io/divine/2021/05/01"> Version 4.2</a>. For another current database, please see <a href="https://drive.google.com/file/d/1Db5MlW5PJFdrFLZeT4bU96s8tKRNstdM/view?usp=sharing">Nirmala Vidya Amruta (2021-0601)</a>
