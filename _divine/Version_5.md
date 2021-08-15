@@ -40,7 +40,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 
 <p>
 <font color="DarkGreen">III. New Key Features.</font><br>
-19. <font color="MediumVioletRed">Colored background for text without audio, video or original handwriting</font> started.  See <b>1901-0000 Letter to Rājabhāī Modi and other Sahaja Yogis (Marathi) from Nirmala Yoga, Issue 14 (March-April 1983), Pages 10 and 39 (perhaps London, 1975)</b> on Page 323 as the very first sample. This color, as well as the colors for Hindi and Marathi texts (translations), subject to improvements in future versions.<br>
+19. <font color="MediumVioletRed">Colored background for text without audio, video or original handwriting</font> started.  See <b>1901-0000 Letter to Rājabhāī Modi and other Sahaja Yogis (Marathi) from Nirmala Yoga, Issue 14 (March-April 1983), Pages 10 and 39 (perhaps London, 1975)</b> on Page 323 as the very first sample. [This color, as well as the colors for Hindi and Marathi texts (translations), subject to improvements in future versions.]<br>
 </p>
 
 <p>
