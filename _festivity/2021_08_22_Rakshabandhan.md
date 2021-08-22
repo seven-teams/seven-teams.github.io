@@ -23,7 +23,7 @@ Today is the Full Moon Day, and this day what we do is to tie a band of threads 
 </p>
 
 <p>
-<font color="CornflowerBlue">"So the relationship between Śhrī Kṛiṣhṇa and Viṣhṇumāyā is that of a brother and a sister, and surprisingly the other day we celebrated the Rākhī Bandhan, Rakṣhābandhan, which is the same thing as the brothers-sisters relationship. So now here we are celebrating actually the Deity which is the Sister of Śhrī Kṛiṣhṇa. Later on, She was born as Draupadī, and that’s why Śhrī Kṛiṣhṇa went to save Her chastity because is the brother only who is concerned about the chastity and the name of the sister."</font><br>
+<font color="StillBlue">"So the relationship between Śhrī Kṛiṣhṇa and Viṣhṇumāyā is that of a brother and a sister, and surprisingly the other day we celebrated the Rākhī Bandhan, Rakṣhābandhan, which is the same thing as the brothers-sisters relationship. So now here we are celebrating actually the Deity which is the Sister of Śhrī Kṛiṣhṇa. Later on, She was born as Draupadī, and that’s why Śhrī Kṛiṣhṇa went to save Her chastity because is the brother only who is concerned about the chastity and the name of the sister."</font><br>
 <font size="+0"><b>1990-0811 Śhrī Saraswatī Pūjā, Inform People like the Viṣhṇumāyā Does what Sahaja Yoga Is with Your Fiery Talks (Go All Out and Become Fiery), Tent, Grounds, Āśhram, Lyons Bay (near Vancouver), BC, Canada</b></font>
 </p>
 
