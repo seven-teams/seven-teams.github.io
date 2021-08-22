@@ -117,10 +117,10 @@ So one has to understand this relationship is to be kept very clean, beautiful, 
 <div style="text-align: center"><img src="/images/image753.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b>"But Rakhi day, My brother is here.<br>
-It’s nice that we can have it in a way My physical brother is here.<br>
-It’s very good we are having a rakhi program today in his presence.<br>
-And, all of you should also understand that it’s a very subtle, pure,<br>
+<font color="DarkRed"><b>"But Rākhī Day, My brother [Bābā Māmā] is here.<br>
+It's nice that we can have it in a way My physical brother is here.<br>
+It's very good we are having a rākhī program today in his presence.<br>
+And, all of you should also understand that it's a very subtle, pure,<br>
 beautiful relationship that exists between a brother and a sister."</b></font><br>
 <font size="+0"><b>1988-0820 Śhrī Viṣhṇumāyā Pūjā (1 week before Rakṣhābandhan Day), Cure that Left Viśhuddhi, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font><br>
 <br>
