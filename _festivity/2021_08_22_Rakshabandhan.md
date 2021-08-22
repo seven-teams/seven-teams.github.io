@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"<b>Today in India, we celebrate a set ... special festival. It is called as Rakṣhā-Bandhan. Rakṣhā means protection and bandhan means the bondage: the bondage of protection. Is a very nice, good, social custom to have this beautiful festival today.<br>
+<font color="DarkRed">"Today in India, we celebrate a set ... special festival. <b>It is called as Rakṣhā-Bandhan. Rakṣhā means protection and bandhan means the bondage: the bondage of protection. Is a very nice, good, social custom to have this beautiful festival today.<br>
 Today is the Full Moon Day, and this day what we do is to tie a band of threads around the person whom you want to protect. But it is done between brothers and sisters.</b> The sisters tie this bondage to the wrist of the brothers, and when they do that, they are putting all their love around the wrist, that it is the day for giving all their love, everything to their brother, as a protection, as a symbol of their protection through that thread. Is a very, very simple thread they use. And uh this is, has to be tied on the left-hand side. But people tie it on the right-hand side, which is a mistake. But it has to be tied on the left-hand side."</font><br>
 <font size="+0"><b>1980-0826 Talk to Sahaja Yogis (Rakṣhābandhan Day), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
