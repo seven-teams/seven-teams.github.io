@@ -1,5 +1,5 @@
 ---
-title: '2021 Celebrating August 15: Mother Mary&#8217;s Assumption and India's Independence Day'
+title: '2021 Celebrating August 15: Mother Mary&#8217;s Assumption and India&#8217;s Independence Day'
 date: 2021-08-15
 permalink: /festivity/2021/08/15
 tags:
