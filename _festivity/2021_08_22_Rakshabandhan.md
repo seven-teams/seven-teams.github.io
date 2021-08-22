@@ -9,25 +9,6 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div style="text-align: center"><img src="/images/image749.png" /></div>
-
-<p style="color:green; text-align:center;">
-<b></b><br>
-<br>
-<b></b><br>
-<br>
-<b></b><br>
-<br>
-<a href="">video</a>
-</p>
-
-<div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
-
-<p>
 <font color="DarkRed">"<b>Today in India, we celebrate a set ... special festival. It is called as Rakṣhā-Bandhan. Rakṣhā means protection and bandhan means the bondage: the bondage of protection. Is a very nice, good, social custom to have this beautiful festival today.<br>
 Today is the Full Moon Day, and this day what we do is to tie a band of threads around the person whom you want to protect. But it is done between brothers and sisters.</b> The sisters tie this bondage to the wrist of the brothers, and when they do that, they are putting all their love around the wrist, that it is the day for giving all their love, everything to their brother, as a protection, as a symbol of their protection through that thread. Is a very, very simple thread they use. And uh this is, has to be tied on the left-hand side. But people tie it on the right-hand side, which is a mistake. But it has to be tied on the left-hand side."</font><br>
 <font size="+0"><b>1980-0826 Talk to Sahaja Yogis (Rakṣhābandhan Day), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
@@ -61,7 +42,10 @@ Namastasyai, namastasyai, namastasyai, namo namaḥ</b><br>
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"<b>Now our Viṣhṇumāyā Principle is to be always kept very alert because it helps us in many ways.</b> First of all, it helps us to pass the messages from your heart to your head. It is the one by which we integrate.<br>
+Our heart and head is integrated by the Viṣhṇumāyā Principle more than the Viśhuddhi on the right side. Viśhuddhi on the right side can create collectivity, can create understanding with each other but on the left side, it helps you to keep a complete integration between your heart and your head.<br>
+If there is a guilt you just think of it and analyze it. It means that there’s a struggle between you in your heart and your mind, isn’t it? Simple as that. If it was integrated you would not feel guilty. And that is why all these artificial theories that have come, all these artificial yarns that you have read, and all that, you forget it.<br>
+You are a Sahaja Yogi and you have entered into the Kingdom of God – enjoy! That’s all you have to do. But you have to get to that state of enjoyment and understanding that you are above all."</font><br>
 <font size="+0"><b>1992-0704 Śhrī Viṣhṇumāyā Pūjā, Viṣhṇumāyā's Powers, Āśhram, Everbeek, Belgium</b></font>
 </p>
 
