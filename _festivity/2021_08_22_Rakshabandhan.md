@@ -124,7 +124,7 @@ And, all of you should also understand that it's a very subtle, pure,<br>
 beautiful relationship that exists between a brother and a sister."</b></font><br>
 <font size="+0"><b>1988-0820 Śhrī Viṣhṇumāyā Pūjā (1 week before Rakṣhābandhan Day), Cure that Left Viśhuddhi, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font><br>
 <br>
-<font size="+0"><font color="blue"><b>Nirmalā, Kiti Varnaavi Tujhiga Stuti:</b></font></font><br>
+<font size="+0"><font color="blue"><b>Nirmalā, Kiti Varnāvi Tujhiga Stuti:</b></font></font><br>
 <font size="-1"><b>Bābā Māmā (on 1990-0310): This is what the brother has written for the sister:<br>
 "O Nirmalā, my sister, how much should I praise You? Because You have given the human being the experience of God."</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
