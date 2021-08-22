@@ -20,8 +20,21 @@ Indians are now more westernized, anglicized than they were ever before. Before 
 <div style="text-align: center"><img src="/images/image745.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed"><b>Mahārāshtra deshā jagruta karuyā kavane karuna</b></font><br>
+Let us awaken this country of Maharashtra singing poems<br>
+<font color="DarkRed"><b>Jāgruti mohima hāti gheuyā vinamra houna</b></font><br>
+Jāgruti mohima hāti gheuyā vinamra houna  
+We will carry on this work of awakening with complete surrender<br>
+<font color="DarkRed"><b>Jyoti-madhuni jyota ujaruyā prema bhāva ne ne</b></font><br>
+We will enlighten one candle after another with love in our hearts<br>
+<font color="DarkRed"><b>Sahaj yogāchi prārthanā ātā shuddha bhāva ne ne</b></font><br>
+We will pray for Sahaja Yoga with purity in our hearts<br>
+<font color="DarkRed"><b>Ādi-śhaktitse mantra phulavuyā jāgruta houna</b></font><br>
+We will chant the mantras of Ādi Śhakti<br>
+<font color="DarkRed"><b>Jāgruti mohima hāti gheuyā vinamra houna</b></font><br>
+We will carry on this work of awakening with complete surrender<br>
+<font color="blue"><font size="-1"></font>Maharashtra Deśha</font><br>
+<a href="https://youtu.be/0gT3SnIwI4M">video</a> 
 </p>
 
 <p>
@@ -33,8 +46,27 @@ Through Sahaja Yoga you have known your Self and you know the technique or the m
 <div style="text-align: center"><img src="/images/image746.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">Sapta koti kantha kalakala nināda karāle<br>
+nisapta koti bhujaidhruta kharakarvāle<br>
+sapta koti kantha kalakala nināda karāle<br>
+nisapta koti bhujaidhruta kharakarvāle<br>
+ka bola ka noma eith bole<br>
+bahubal dhārinīn namāmi tārinīm<br>
+ripudalavārinīn mātaram<br>
+vande mātaram ......</font><br>
+<font size="+0">Who hath said thou art weak in thy lands<br>
+When the swords flash out in seventy million hands<br>
+And seventy million voices roar<br>
+Thy dreadful name from shore to shore?<br>
+With many strengths who art mighty and stored,<br>
+To thee, I call Mother and Lord!<br>
+Thou who savest, arise and save!<br>
+To her, I cry who ever her foeman drove<br>
+Back from plain and Sea<br>
+And shook herself free<br>
+Mother, to thee I praise thee.</font><br>
+<font size="+0"><b>1999-0220 Public Program (Hindi+Marathi), Hamārī Sanskṛiti ki Viśheṣhatā (Specialty of Our Culture), Śhivajī Park, Dadar West, Dadar, Mumbai, Maharashtra, India</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
@@ -43,6 +75,18 @@ Through Sahaja Yoga you have known your Self and you know the technique or the m
 </p>
 
 <div style="text-align: center"><img src="/images/image747.png" /></div>
+
+<p style="text-align:center;">
+<font color="DarkRed">Mā Teri Jay Ho Tera Hi Vijay Ho,</font><br>
+<font size="+0">Victory be to You, O Mother India</font><br>
+<font color="DarkRed">Tere Geet Se Aaj Jag Ye Jivit Ho,</font><br>
+<font size="+0">Let this world get alive today with Your song!</font><br>
+<font color="DarkRed">Mā Teri Jay Ho.</font><br>
+<font size="+0">Victory be to You, O Mother India!</font><br>
+<br>
+<font size="+0">Mā Teri sung by Śhrī Mātājī Nirmalā Devī</font><br>
+<a href="https://youtu.be/L4iJtXr9jbI">video</a> 
+</p>
 
 <p>
 <font color="DarkRed">"<b>Mahālakṣhmī's Incarnation is very important for Sahaja Yoga. First She establishes our dharma by which we become righteous, we become religious in the real sense.</b> After the light of Realization we cannot do anything that is not dharma. As you know what is dharma is, and the maryādās, the boundaries of our behavior. This transformation takes place automatically. I don't have to tell you, ``Don't do this, don't do this," like Ten Commandments. You, yourself, establish your dharma and you enjoy your virtues. This happens, as you know -- already has happened to all of you -- with the Grace of Mahālakṣhmī. Then She starts bestowing blessings on you."</font><br>
