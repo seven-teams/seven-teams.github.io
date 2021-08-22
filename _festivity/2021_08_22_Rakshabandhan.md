@@ -82,15 +82,15 @@ So one has to understand this relationship is to be kept very clean, beautiful, 
 <div style="text-align: center"><img src="/images/image752.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Rākhī is Protecting Power.</b> Its bond is very strong and extremely tender because it symbolizes the noble love of sister. Customarily, tying a rākhī to someone is establishing a place of Pure Protection. However, man's ability to understand love has become so feeble that tying of rākhī has become merely a mechanical process. All beautiful human traditions become lifeless and dry formalities if there is no warmth of faith in them.<br>
+<font color="DarkRed"><b>"Rākhī is Protecting Power.</b> Its bond is very strong and extremely tender because it symbolizes the noble love of sister. Customarily, tying a rākhī to someone is establishing a place of Pure Protection. However, man's ability to understand love has become so feeble that tying of rākhī has become merely a mechanical process. All beautiful human traditions become lifeless and dry formalities if there is no warmth of faith in them.<br>
 ......<br>
-<b>Rākhī Pūrṇimā is a day of great significance. On that day you should ask for perfection, make big decisions and keep attention on high ideals. Sahaja Yogis should not destroy their attention on trifle issues. Lot of work has yet to be done.</b></font><br>
+<b>Rākhī Pūrṇimā is a day of great significance. On that day you should ask for perfection, make big decisions and keep attention on high ideals. Sahaja Yogis should not destroy their attention on trifle issues. Lot of work has yet to be done."</b></font><br>
 <font size="+0"><b>1978-0817 Letter (Marathi) on Rakṣhābandhan and Pūrṇimā Day (0818), London, UK from Nirmala Yoga, Issue 11 (September-October 1982), Page 25</b></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1987-0808 Talk to Sahaja Yogis, Woman Plays the Most important Role or The Power of Woman, the day before Śhrī Viṣhṇumāyā Pūjā, Y.M.C.A. Holiday Hills Conference Center, 2 Lakeside Drive, Pawling, NY, U.S.A.</b></font>
-<a href="https://youtu.be/TPJjPZzas9U"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
