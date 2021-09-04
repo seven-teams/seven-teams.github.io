@@ -102,7 +102,7 @@ Devotion and love.<br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1993-1211 Śhrī Kṛiṣhṇa Pūjā, Yamunānagar, Haryana, India</b></font>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
