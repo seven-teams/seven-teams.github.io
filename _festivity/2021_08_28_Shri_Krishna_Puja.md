@@ -19,7 +19,7 @@ And that’s how people became very serious; also the attention of people was di
 <p style="text-align:center;">
 <font color="DarkRed"><b>"You become the Dharma of Virāṭ.<br>
 Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa? Is collectivity."</b></font><br>
-<font size="+0"><b>1986-0823 Śhrī Kṛiṣhṇa Pūjā, The Six Enemies and False Enemies, Hotel Primerose (now Hostellerie am Schwarzsee), Seestrasse 10, Schwarzsee (2k kms SE of Fribourg), Switzerland</b></font>
+<font size="+0"><b>1986-0823 Śhrī Kṛiṣhṇa Pūjā, The Six Enemies and False Enemies, Hotel Primerose (now Hostellerie am Schwarzsee), Seestrasse 10, Schwarzsee (2k kms SE of Fribourg), Switzerland</b></font><br>
 <font color="blue"><b>Auṃ Twameva sākṣhāt Śhrī Samuh’ānanda sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 <b>The joy of Sahaj collectivity</b>
 </p>
