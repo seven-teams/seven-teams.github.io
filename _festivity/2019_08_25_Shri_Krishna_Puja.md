@@ -125,7 +125,7 @@ You will unite the nations of the Earth at the lotus feet of Shri Adi Shakti Nir
 </p>
 
 <p>
-<font color="green"><b>Jai Radha Madhav</b></font><br>
+<font color="green"><b>Jai Radha Mādhav</b></font><br>
 <a href="https://www.youtube.com/watch?v=HbA1jA7yMCA">video</a><br>
 </p>
 

@@ -17,13 +17,13 @@ But if you are not internally enlightened enough, then how can you give out ligh
 <div style="text-align: center"><img src="/images/image213.png" /></div>
 
 <p style="text-align:center;">
-<font color="BlueViolet"><font size="+0"><b>Sumanasa vandita sundari madhavi chandra sahodari hema maye |<br>
+<font color="BlueViolet"><font size="+0"><b>Sumanasa vandita sundari mādhavi chandra sahodari hema maye |<br>
 muni gana mandita moksha pradayini manjula bhashini veda nute ||<br>
 pankaja vasini deva supujita sadguna varshini shanti yute |<br>
 jaya jaya he madhu sudana kamini adi lakshmi sada palaya mam</b></font></font><br>
 <font size="+0">O Ādi Lakṣhmī, the Primordial Goddess, protect me always.<br>
 Pious hearted devotees bow to You.<br>
-You are a beautiful spouse of Madhava, sister of Moon, golden,<br> 
+You are a beautiful spouse of Mādhava, sister of Moon, golden,<br> 
 worshipped by Sages and bestower of salvation.<br>
 Your speech is sweet. You are extolled by Vedas.<br>
 You stay on lotus flower. Devatās worship You. You shower virtues. You are serene.<br> 

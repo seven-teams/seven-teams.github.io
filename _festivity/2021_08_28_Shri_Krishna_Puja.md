@@ -120,7 +120,7 @@ Establish Shri Krishna, Who is the Charming One, within your heart!</font><br>
 </p>
 
 <p>
-<font color="green"><b>Jay Rādhā Madhav</b></font><br>
+<font color="green"><b>Jay Rādhā Mādhav</b></font><br>
 <a href="https://youtu.be/HbA1jA7yMCA">video</a>
 </p>
 

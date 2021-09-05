@@ -119,7 +119,7 @@ Stotram by Shri Vallabhacharya in sanskrit (1479–1531 CE)<br>
 </p>
 
 <p>
-<font color="green"><b>Keshava Madhava 1991-0901 Shri Krishna Puja</b></font><br>
+<font color="green"><b>Keshava Mādhava 1991-0901 Shri Krishna Puja</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 </p>
 

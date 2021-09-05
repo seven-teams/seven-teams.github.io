@@ -50,7 +50,7 @@ You are fond of devotion<br>
 with the gopas and gopis by the river Yamuna<br>
 <b>Nanda Gharicha Gayi Ha Kisi Gokuli Yadava</b><br>
 You grazed the cows of Nanda's house in Gokul<br>
-<b>Keshava Madhava</b><br>
+<b>Keshava Mādhava</b><br>
 O Lord of Creation, Sweet natured Husband of Shri Lakshmi<br>
 <b>Tujhya Namat. Re God.wa</b><br>
 There is so much sweetness in Your name<br>
