@@ -61,8 +61,7 @@ You got your Realization without any effort, I should say. It was Sahaj.</font><
 </p>
 
 <p>
-<font color="DarkRed">"make a position or an impression of others. For example, He would never go and read books like how to impress people -- very common.<br>
-So now, as you are created in the same image of Śhrī Gaṇeśh, you have to understand that you have to accept whatever God has given you, whatever position He has given you.<br>
+<font color="DarkRed">"So now, as you are created in the same image of Śhrī Gaṇeśh, you have to understand that you have to accept whatever God has given you, whatever position He has given you.<br>
 ......<br>
 So, for a Sahaja Yogi first thing is to be self-contented.<br>
 As I told you, the fundamentals of the Western life is to see and to be seen. Both things were missing completely in the Incarnation of Śhrī Gaṇeśh. So when I say these things, suddenly people start thinking, 'Let us become hippies, or let us become punks, or let us become this, let us become that.' You don't have to become anything. Whatever you have -- your body, your face, your hair -- everything is there, just meant for you. You don't have to change anything outwardly because inside is complete Chaitanya."</font><br>
