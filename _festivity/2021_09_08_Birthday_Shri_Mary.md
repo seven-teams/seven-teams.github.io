@@ -76,7 +76,10 @@ Salutations to You, Goddess of Devas,<br>
 Salutations to You, beloved of Hari,<br>
 And salutations to You, the treasure of mercy.</i><br>
 Hari priye namastubhyam, namastubhyam daya nidhe.</b></font><br>
-<br>
+<i>Salutations to You, Mahālakṣhmī,<br>
+Salutations to You, Goddess of Devas,<br>
+Salutations to You, beloved of Hari,<br>
+And salutations to You, the Treasure of Mercy.</i><br>
 <font size="+0"><b>(Śhrī Mahālakṣhmī Strotam by Sage Agastya).</b></font>
 </p>
 
