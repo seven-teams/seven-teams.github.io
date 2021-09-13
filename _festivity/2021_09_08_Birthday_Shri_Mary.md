@@ -10,7 +10,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"<b>Today is a great day when we are celebrating Mahālakṣhmī’s Pūjā.</b> You must be knowing that today is the day of Mary, Mother of Christ, who was Mahālakṣhmī.
+<font color="DarkRed">"<b>Today is a great day when we are celebrating Mahālakṣhmī’s Pūjā.</b> You must be knowing that today is the day of Mary, Mother of Christ, who was Mahālakṣhmī.<br>
 Mahālakṣhmī’s Incarnation is very important for Sahaja Yoga. First She establishes our dharma by which we become righteous, we become religious in the real sense. After the light of Realization, we cannot do anything that is not dharma. As you know what is dharma is, and the maryādās, the boundaries of our behavior. This transformation takes place automatically. I don’t have to tell you, “Don’t do this, don’t do this,” like Ten Commandments. You, yourself, establish your dharma and you enjoy your virtues. This happens, as you know – already has happened to all of you – with the Grace of Mahālakṣhmī. Then She starts bestowing blessings on you."</font><br>
 <font size="+0"><b>1993-0908 Śhrī Mahālakṣhmī Pūjā, National Palace of Culture (NDK), Boulevard Bulgaria, 1463 NDK, Sofia, Bulgaria</b></font>
 </p>
@@ -19,7 +19,7 @@ Mahālakṣhmī’s Incarnation is very important for Sahaja Yoga. First She est
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"I bow to all the Seekers of Truth.<br>
-<b>Today is a great auspicious day where I'm here on the birthday of Mother Mary</b>, but today I am going to talk to you about Reality and about Truth. Whatever is the Truth is to be known through the light of your Spirit."</b></font><br>
+<b>Today is a great auspicious day where I'm here on the birthday of Mother Mary</b>, but today I am going to talk to you about Reality and about Truth. Whatever is the Truth is to be known through the light of your Spirit."</font><br>
 <font size="+0"><b>1983-0908 Public Program, Day 1, You Are the Spirit, Sala Borromini, Biblioteca Vallicelliana, Piazza della Chiesa Nuova, 18, Rome, Italy</b></font>
 </p>
 
