@@ -110,7 +110,7 @@ And salutations to You, the Treasure of Mercy.</i><br>
 </p>
 
 <p>
-<font color="DarkGreen"><b>Nirgunache Bheti</b></font><br>
+<font color="DarkGreen"><b>Nirguṇāche Bheṭī</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
