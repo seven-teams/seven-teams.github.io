@@ -95,7 +95,7 @@ And salutations to You, the Treasure of Mercy.</i><br>
 </p>
 
 <p>
-<font color="green"><b>Auṃ Bhur Bhuvah</b></font><br>
+<font color="green"><b>Auṃ Bhūr Bhuvaḥ</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
