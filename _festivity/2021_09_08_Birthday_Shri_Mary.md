@@ -19,7 +19,7 @@ Mahālakṣhmī’s Incarnation is very important for Sahaja Yoga. First She est
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"I bow to all the Seekers of Truth.<br>
-<b>Today is a great auspicious day where I'm here on the birthday of Mother Mary</b>, but today I am going to talk to you about Reality and about Truth. Whatever is the Truth is to be known through the light of your Spirit."</font><br>
+Today is a great auspicious day where I'm here on the birthday of Mother Mary</b>, but today I am going to talk to you about Reality and about Truth. Whatever is the Truth is to be known through the light of your Spirit."</font><br>
 <font size="+0"><b>1983-0908 Public Program, Day 1, You Are the Spirit, Sala Borromini, Biblioteca Vallicelliana, Piazza della Chiesa Nuova, 18, Rome, Italy</b></font>
 </p>
 
