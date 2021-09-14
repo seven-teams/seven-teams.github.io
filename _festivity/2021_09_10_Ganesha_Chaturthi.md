@@ -45,13 +45,13 @@ But you should know He is on every chakra.<br>
 Innocence cures all the maladies: physical, mental, emotional, specially the spiritual one.<br>
 But <b>Śhrī Gaṇeśha’s quality is the most important is: that He believes in emitting vibration[s], He believes in projecting His vibrations to everyone.<br>
 That is the quality now I feel all of you, as Sahaja Yogis, can use.</b><br>
-You got your Realization without any effort, I should say. It was Sahaj."</font><br>
+You got your Realization without any effort, I should say. It was sahaj."</font><br>
 <font size="+0"><b>1995-0910 Śhrī Gaṇeśha Pūjā, Śhrī Gaṇeśha's Qualities (What Mother Says, What Mother Does, That's the Most Important Thing), Deliberately Project Your Energy (Innocence Cures All the Maladies), and We Must Know Our Qualities and Our Powers (You Are a Storehouse of Innocence), Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
 <br>
 <font size="+0"><font color="DarkRed"><b>Gaiye Ganapati Jagavandan</b></font></font><br>
 <font size="+0">Let us sing the praise of the Leader of the Gaṇas who is respected by the whole world</font><br>
 <font size="+0"><font color="DarkRed"><b>Śhankara Suvana Bhavani Nandan</b></font></font><br>
-<font size="+0">He is the son of Śhiva and the Devi</font><br>
+<font size="+0">He is the son of Śhiva and the Devī</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -83,7 +83,7 @@ Innocence, which is deep down within us - that's our character, that's our natur
 <font color="DarkRed"><font size="+0"><b>Verily You are the Protector and Supporter of devotees</b></font></font><br>
 <font color="DarkRed"><b>Namami Śhrī Gaṇarāj Dayal</b></font><br>
 <font color="DarkRed"><font size="+0"><b>We bow to You, Compassionate Gaṇeśha!</b></font></font><br>
-<a href="">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
