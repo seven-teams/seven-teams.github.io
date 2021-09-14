@@ -38,14 +38,14 @@ And if you want to awaken the powers of Śhrī Gaṇeśha within you, this is po
 <div style="text-align: center"><img src="/images/image768.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkGreen"><b>But Śhrī Gaṇeśha’s greatest contribution to Sahaja Yoga is that He makes you feel My vibrations.</b><br> 
+<font color="DarkGreen"><b>"But Śhrī Gaṇeśha’s greatest contribution to Sahaja Yoga is that He makes you feel My vibrations.</b><br> 
 He makes you feel the beauty of purity and simplicity. [It’s] only possible if Śhrī Gaṇeśha is awakened within you.<br>
 Also, the Kuṇḍalinī won’t rise without the sanction of this Chancellor. He’s the one sitting on Mūlādhāra.<br>
 But you should know He is on every chakra.<br>
 Innocence cures all the maladies: physical, mental, emotional, specially the spiritual one.<br>
 But <b>Śhrī Gaṇeśha’s quality is the most important is: that He believes in emitting vibration[s], He believes in projecting His vibrations to everyone.<br>
 That is the quality now I feel all of you, as Sahaja Yogis, can use.</b><br>
-You got your Realization without any effort, I should say. It was Sahaj.</font><br>
+You got your Realization without any effort, I should say. It was Sahaj."</font><br>
 <font size="+0"><b>1995-0910 Śhrī Gaṇeśha Pūjā, Śhrī Gaṇeśha's Qualities (What Mother Says, What Mother Does, That's the Most Important Thing), Deliberately Project Your Energy (Innocence Cures All the Maladies), and We Must Know Our Qualities and Our Powers (You Are a Storehouse of Innocence), Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
 <br>
 <font size="+0"><font color="DarkRed"><b>Gaiye Ganapati Jagavandan</b></font></font><br>
