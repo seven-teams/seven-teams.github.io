@@ -103,11 +103,11 @@ So it is only [with] Śhrī Gaṇeśha’s blessings that we really enjoy everyt
 
 <p style=" text-align:center;">
 <b>Sahaja Yogis</b> [recite]: "Jay Gaṇeśha, Jay Gaṇeśha, Jay Gaṇeśha Pāhimām, Śhrī Gaṇeśha, Jay Gaṇeśha, Jaya Gaṇeśha Rakṣhamām."<br>
-<font color="DarkRed"><b>Śhrī Mātājī</b></font>: Now, what you are doing by saying these mantras, you are awakening the innocence within you; innocence is represented by Śhrī Gaṇeśh.<br>
+<font color="DarkRed"><b>Śhrī Mātājī</b></font>: <font color="DarkGreen">Now, what you are doing by saying these mantras, you are awakening the innocence within you; innocence is represented by Śhrī Gaṇeśh.<br>
 As you know, later on, He incarnated as Lord Jesus Christ, but the innocence within us must be first of all invoked, because, before creating the universe, first of all, innocence was created, because innocence has the greatest protective power, the greatest destructive power and it is the most powerful.<br>
 So, first, we are trying to invoke the innocence.<br> 
 <b>Now, My Feet here represent Gaṇeśha, and they are innocent, and so, we are trying to worship those so that, within you, Gaṇeśha should be invoked.</b><br>
-Your innocence should be enlightened, all right?<br>
+Your innocence should be enlightened, all right?</font><br>
 <font size="+0"><b>1980-1012 Śhrī Gaṇeśha Pūjā (4th Day of Navarātri), Winterthurerstraße, Zürich, Switzerland</b></font>
 </p>
 
