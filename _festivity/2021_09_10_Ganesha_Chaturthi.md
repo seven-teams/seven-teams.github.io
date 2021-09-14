@@ -144,7 +144,7 @@ Your innocence should be enlightened, all right?<br>
  
 <p>
 <font color="green"><b>Śhrī Gaṇeśha Pancha Ratnam</b></font> (names of Śhrī Gaṇeśha)<br>
-<a href="">video</a> 
+<a href="https://youtu.be/TxotrB3Gzo0">video</a> 
 </p>
 
 <p>
