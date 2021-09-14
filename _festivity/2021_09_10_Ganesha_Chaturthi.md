@@ -78,11 +78,11 @@ Innocence, which is deep down within us - that's our character, that's our natur
 <font size="+0"><b>1985-0804 Śhrī Gaṇeśha Pūjā, The Importance of Chastity, Brighton Friends Meeting House, Ship Street, Brighton, East Sussex, UK}</b></font><br>
 <br>
 <font color="DarkRed"><b>Namami Śhrī Gaṇarāj Dayal</b></font><br>
-<font size="+0"><b>We bow to You, Compassionate Gaṇeśha!</b></font><br>
+<font color="DarkRed"><font size="+0"><b>We bow to You, Compassionate Gaṇeśha!</b></font></font><br>
 <font color="DarkRed"><b>Karat Ho Bhakt Naka Pratipal</b></font><br>
-<font size="+0"><b>Verily You are the Protector and Supporter of devotees</b></font><br>
+<font color="DarkRed"><font size="+0"><b>Verily You are the Protector and Supporter of devotees</b></font></font><br>
 <font color="DarkRed"><b>Namami Śhrī Gaṇarāj Dayal</b></font><br>
-<font size="+0"><b>We bow to You, Compassionate Gaṇeśha!</b></font></b></font><br>
+<font color="DarkRed"><font size="+0"><b>We bow to You, Compassionate Gaṇeśha!</b></font></font><br>
 <a href="">video</a>
 </p>
 
