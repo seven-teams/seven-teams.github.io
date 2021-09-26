@@ -10,7 +10,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,
 
 Jay Śhrī Mātājī!
 
-The website has now 12,926 Photographs of Śhrī Mātājī, including versions and details (an increment of 6,547 since Post 1). Also, 514 photographs Moments of Joy have been uploaded. 
+The website <a href="https://eternalmoments.smugmug.com/"> <font color="blue"><b>Eternal Moments</b></font></a> has now 12,926 Photographs of Śhrī Mātājī, including versions and details (an increment of 6,547 since Post 1). Also, 514 photographs Moments of Joy have been uploaded. 
 
 Please enjoy and share.
 
