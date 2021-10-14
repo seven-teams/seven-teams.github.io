@@ -12,7 +12,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,
 
 
 We would like to share with you all the up-dated <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been working on since Divine Message, Version 5 was posted on August 15, 2021. The pdf file <font color="blue">Divine Message, Version 5.1</font> is available at the link
-<a href="https://drive.google.com/file/d/1YNxqTV-nrpJqJAZsoNRLuTufVrRhe6iL/view?usp=sharing">Version 5.1</a>
+<a href="https://drive.google.com/file/d/1YNxqTV-nrpJqJAZsoNRLuTufVrRhe6iL/view?usp=sharing">Version 5.1</a>.
 
 <p>
 Please kindly share the link with all our brothers and sisters. 
