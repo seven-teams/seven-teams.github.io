@@ -18,7 +18,7 @@ We would like to share with you all the up-dated <font color="mediumvioletred">D
 Please kindly share the link with all our brothers and sisters. 
 </p>
 
-For older versions of <font color="blue">Divine Message</font> and of other databases, please see <a href="https://seven-teams.github.io/divine/2021/01/10"> Version 5 </a>. 
+For older versions of <font color="blue">Divine Message</font> and of other databases, please see <a href="https://seven-teams.github.io/divine/2021/08/15"> Version 5 </a>. 
 
 Jay Śhrī Mātājī!
 
