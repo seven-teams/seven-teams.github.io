@@ -36,7 +36,7 @@ of your ascent, you could not have been in a position to receive your Realizatio
 <font size="+0">You are taking care of the benevolence of Your devotees</font><br>
 <font color="DarkSlateBlue"><b>Mā Nirmalā kī jay bolo, jay bolo!</b></font><br>
 <font size="+0">Let us say Nirmalā Mā kī jay!</font><br>
-<font color="DarkGreen">Mātā O Mātā</font><br>
+<font color="DarkGreen"><b>Mātā O Mātā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -63,7 +63,7 @@ It has completely embraced the whole universe<br>
 </p>
 
 <p>
-<font color="DarkRed">"<b>Mahākālī Power, first of all, gave birth only to Śhrī Gaṇeśha. Then Śhrī Gaṇeśha was established.</b>
+<font color="DarkRed">"<b>Mahākālī Power, first of all, gave birth only to Śhrī Gaṇeśha. Then Śhrī Gaṇeśha was established.</b><br>
 Śhrī Gaṇeśha is the Deity established first of all. So is the case of Śhrī Gaṇeśha, like Mahākālī it is the Seed and the whole universe emerged out of it and again get merged into it, similarly, everything emerges out of Gaṇeśha Principle and gets merged into it. Śhrī Gaṇeśha is the seed of whatever is there, you see through your eyes, in creation, in desire. That is why Śhrī Gaṇeśha is considered first among Deities."</font><br>
 <font size="+0"><b>1979-0922 Talk to Sahaja Yogis (Marathi), Kuṇḍalinī and Śhrī Gaṇeśha Principle, Navarātri Celebrations (1st Day), Amar Hind Mandal, West Dadar, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -91,15 +91,15 @@ And innocence has a special capacity to make a person extremely peaceful, extrem
 <div style="text-align: center"><img src="/images/image779.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Today on the first day of Navarātri your attention should be on Śhrī Gaṇeśha.</b> His devotion is infinite.<br>
+<font color="DarkRed"><b>"Today on the first day of Navarātri your attention should be on Śhrī Gaṇeśha.</b> His devotion is infinite.<br>
 He has never worshiped anybody else except Mother.<br>
 Hence He is so great. All other Gods appear very strong. Everyone has some specialty. What is Mother’s specialty? Her ego (aham) is nowhere felt by others.<br>
 Hence Śhrī Gaṇeśha who has surrendered to such Mother is so wise and venerable, Mother has nothing with Her.<br>
 ......<b>You are made in the pattern of Śhrī Gaṇeśha.<br>
-Therefore, your power is unmatched, but for that, you should have devotion and innocence like Śhrī Gaṇeśha’s.</b> Then Mother would admire you and the whole world would witness that beautiful sight."<br>
-<font size="+0"><b>1978-1002 Letter to All Sahaja Yogis (Marathi) (1st Day of Navarātri), London, UK from Nirmala Yoga, Issue 11 (September-October 1982), Pages 25 and 26</b></font>
+Therefore, your power is unmatched, but for that, you should have devotion and innocence like Śhrī Gaṇeśha’s.</b> Then Mother would admire you and the whole world would witness that beautiful sight."</font><br>
+<font size="+0"><b>1978-1002 Letter to All Sahaja Yogis (Marathi) (1st Day of Navarātri), London, UK from Nirmala Yoga, Issue 11 (September-October 1982), Pages 25 and 26</b></font><br>
 <br>
-<font color="DarkSlateBlue"><b>Om Shri MahaGanapati Devatabhyo Namah Padyam Samarpayami!</b><br>
+<font color="DarkSlateBlue"><b>Auṃ Śhrī Mahāgaṇapati Devatabhyo Namah Padyam Samarpayami!</b><br>
 O Supreme Chief of  the Ganas<br>
 We pay Homage to You,<br>
 We offer You this bath of Your Holy Feet, please accept it!</font><br>
