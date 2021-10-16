@@ -19,23 +19,22 @@ Without desire, this universe would not have been created. This Desire of God is
 <p style=" text-align:center;">
 <font color="DarkRed"><b>"In Sahaja Yoga, Navarātri is the most important Pūjā, I would say.</b><br>
 Though we can say in modern Sahaja Yoga Sahasrār Day is, because that’s how you<br>
-started getting your Realization. But if you go to the whole historical events of evolution you’ll find<br>
-Navarātri is the one which has brought you to Sahasrāra.<br>
+started getting your Realization. But if you go to the whole historical events of evolution you’ll find Navarātri is the one which has brought you to Sahasrāra.<br>
 Without the help of the Devī at different stages<br>
 of your ascent, you could not have been in a position to receive your Realization."</font><br>
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Switzerland</b></font><br>
 <br>
-<font color="DarkSlateBlue">Tū hī Durgā, Tū hī Kālī</font><br>
+<font color="DarkSlateBlue"><b>Tū hī Durgā, Tū hī Kālī</b></font><br>
 You are Durgā, You are Kālī<br>
-<font color="DarkSlateBlue">Tū hī Chaṇḍī Bhavānī</font><br>
+<font color="DarkSlateBlue"><b>Tū hī Chaṇḍī Bhavānī</b></font><br>
 You are Chaṇḍī Bhavānī<br>
-<font color="DarkSlateBlue">Mā Nirmalā kī jay bolo, jay bolo!</font><br>
+<font color="DarkSlateBlue"><b>Mā Nirmalā kī jay bolo, jay bolo!</b></font><br>
 Let us say Nirmalā Mā kī jay!<br>
-<font color="DarkSlateBlue">Dush.Man. Dal.Ko Chal.Ne Wali</font><br>
+<font color="DarkSlateBlue"><b>Dush.Man. Dal.Ko Chal.Ne Wali</b></font><br>
 You are destroying the plans of our foes<br>
-<font color="DarkSlateBlue">Bhak.To Ki Kalyani</font><br>
+<font color="DarkSlateBlue"><b>Bhak.To Ki Kalyani</b></font><br>
 You are taking care of the benevolence of Your devotees<br>
-<font color="DarkSlateBlue">Mā Nirmalā kī jay bolo, jay bolo!  </font><br>
+<font color="DarkSlateBlue"><b>Mā Nirmalā kī jay bolo, jay bolo!</b></font><br>
 Let us say Nirmalā Mā kī jay!<br>
 <font color="DarkGreen">Mātā O Mātā</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
