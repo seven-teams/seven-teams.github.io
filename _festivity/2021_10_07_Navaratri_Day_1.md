@@ -142,10 +142,10 @@ We offer You this bath of Your Holy Feet, please accept it!</font><br>
 <font color="DarkRed">"Today we worship the Himalayas and the seven Goddesses whose blessings are here and pray to them to bless us with Devī Śhakti.<br>
 We have received the blessings of the Devī Śhakti from a Mother.<br>
 That is why, in the form of Mother, let us come to the feet (śharaṇāgat) of the Himalayas<br>
-<b>Keep your attention on yourself.</b>"</font><br>
+<b>Keep your attention on your Self.</b>"</font><br>
 <font size="+0"><b>1985-0329 Śhrī Śhailaputrī Devī Pūjā (English+Hindi) (7th Day of Chaitra Navarātri), Exhibition Hall, Basement of the Puruṣhottam Hotel, Talnoo, Naddi (11 kms NNE of Dharmaśhālā), Himachal Pradesh, India</b></font><br>
 <br>
-<font color="DarkMagenta">
+<font color="FireBrick">
 <b>O Daughter of the King of the mountains!<br>
 The sages say that the world has its dissolutions and Genesis<br>
 With the closing and opening of Thine Eyes,<br>
