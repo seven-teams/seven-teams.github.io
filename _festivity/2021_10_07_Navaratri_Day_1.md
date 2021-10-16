@@ -25,17 +25,17 @@ of your ascent, you could not have been in a position to receive your Realizatio
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Switzerland</b></font><br>
 <br>
 <font color="DarkSlateBlue"><b>Tū hī Durgā, Tū hī Kālī</b></font><br>
-You are Durgā, You are Kālī<br>
+<font size="+0">You are Durgā, You are Kālī</font><br>
 <font color="DarkSlateBlue"><b>Tū hī Chaṇḍī Bhavānī</b></font><br>
-You are Chaṇḍī Bhavānī<br>
+<font size="+0">You are Chaṇḍī Bhavānī</font><br>
 <font color="DarkSlateBlue"><b>Mā Nirmalā kī jay bolo, jay bolo!</b></font><br>
-Let us say Nirmalā Mā kī jay!<br>
+<font size="+0">Let us say Nirmalā Mā kī jay!</font><br>
 <font color="DarkSlateBlue"><b>Dush.Man. Dal.Ko Chal.Ne Wali</b></font><br>
-You are destroying the plans of our foes<br>
+<font size="+0">You are destroying the plans of our foes</font><br>
 <font color="DarkSlateBlue"><b>Bhak.To Ki Kalyani</b></font><br>
-You are taking care of the benevolence of Your devotees<br>
+<font size="+0">You are taking care of the benevolence of Your devotees</font><br>
 <font color="DarkSlateBlue"><b>Mā Nirmalā kī jay bolo, jay bolo!</b></font><br>
-Let us say Nirmalā Mā kī jay!<br>
+<font size="+0">Let us say Nirmalā Mā kī jay!</font><br>
 <font color="DarkGreen">Mātā O Mātā</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
