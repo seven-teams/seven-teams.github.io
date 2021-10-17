@@ -117,7 +117,7 @@ It is a state of mind where you are not involved. It is a different thing, that 
 <b>Celibacy must come from within, the purity must come from within."</b>"</font><br>
 <font size="+0"><b>1983-0203 Public Program (English+Hindi+English), Day 5, The Āgñyā Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font><br>
 <br>
-<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Brahmachāriṇī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
+<font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Brahmachāriṇī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
 O Divine Mother, You are verily Śhrī Brahmachāriṇī, the One who observes the state of celibacy!
 Salutations to You!</font><br>
 </p>
