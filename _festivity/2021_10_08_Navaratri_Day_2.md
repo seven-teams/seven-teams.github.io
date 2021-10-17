@@ -91,7 +91,7 @@ May God bless you!"</b></font><br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1982-1017 Navarātri Pūjā (1st Day), Innocence and Virginity (Your Śhakti Is Your Kuṇḍalinī and She Is Virginity or A New Page Has Been Turn), Temple of All Faiths, Hampstead, London, UK</b></font>
-<a href="https://vimeo.com/466208000"> video</a><br>
+<a href="https://vimeo.com/76009642"> video</a><br>
  
 <p>
 <font color="green"><b>Śhrī Mātājī Vandu Tav Charaṇa</b></font><br>
