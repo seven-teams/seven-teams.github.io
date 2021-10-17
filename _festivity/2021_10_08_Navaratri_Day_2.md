@@ -98,7 +98,7 @@ May God bless you!"</b></font><br>
 </p>
 
 <p>
-<font color="green"><b>He Ādi Mā he Anti Mā</b></font><br>
+<font color="green"><b>He Ādi Mā He Anti Mā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
