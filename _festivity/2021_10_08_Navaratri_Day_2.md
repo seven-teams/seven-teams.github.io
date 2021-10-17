@@ -21,7 +21,7 @@ So we can desire anything! If you want you can desire everything: you can desire
 <p style=" text-align:center;">
 <font color="DarkRed">Now, when we are <b>celebrating the greatest of greatest this Navarātri</b>,<br>
 there must be something special about it, that we have to cleanse this heart completely,<br>
-fully and make it so pure that it purifies all the blood that passes through the whole of the body."/font><br>
+fully and make it so pure that it purifies all the blood that passes through the whole of the body."</font><br>
 <font size="+0"><b>1984-0923 Navarātri Pūjā (1st Day), The Discipline, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font><br>
 <font color="DarkGreen"><b>Nav Durgā kī</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
