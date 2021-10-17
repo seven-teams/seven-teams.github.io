@@ -29,7 +29,7 @@ fully and make it so pure that it purifies all the blood that passes through the
 
 <p>
 <font color="DarkRed">"Now first of all you get your Realization, all right. Now you must know that Kuṇḍalinī Itself is the Mahākālī Śhakti because She’s the Primordial. <b>Mahākālī Śhakti is the Primordial Śhakti within us. And is the Kuṇḍalinī is the Mahākālī Śhakti. And She remains as a virgin within you. Means She’s purity: She has a power to purify. All that happens when you get your Realization. She starts manifesting Her all beautiful aspects on you.</b><br>
-Now the one who is sitting there is Śhrī Gaṇeśh. Now people don’t understand what is innocence is. Śhrī Gaṇeśha is sitting there and He is the One who presides all Mūlādhāra, even over His Mother, because He’s like a guard"</font><br>
+Now the one who is sitting there is Śhrī Gaṇeśh. Now people don’t understand what is innocence is. Śhrī Gaṇeśha is sitting there and He is the One who presides all Mūlādhāra, even over His Mother, because He’s like a guard."</font><br>
 <font size="+0"><b>1990-0912 Śhrī Mahākālī Pūjā, Qualities of Mahākālī and You Have to be Collective (Purity Means Chastity and For the Saints the Main Thing Is Their Ascent), Centre Culturel Thierry Le Luron, Le Raincy (13 kms E of Paris), France</b></font>
 </p>
 
@@ -37,8 +37,7 @@ Now the one who is sitting there is Śhrī Gaṇeśh. Now people don’t underst
 
 <p style=" text-align:center;">
 <font color="DarkRed">"But Goddess Herself has done so many things for us already, within us, though we are not aware of it. Is said that, <b>"Yā Devī sarvabhūteśhu"</b>:  "All those whom You have created," means mostly the human beings, "What do You do? As what do You exist inside the human beings?"<br>
-Now, just introspect if you have these qualities within you or not, because they are given to you by the Goddess, by the Śhakti within you.
-"</font><br>
+Now, just introspect if you have these qualities within you or not, because they are given to you by the Goddess, by the Śhakti within you."</font><br>
 <font size="+0"><b>1997-1005 Navarātri Pūjā (6th Day), Your Beautiful Qualities Will Prove the Truth of Sahaja Yoga, Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
 <font color="DarkGreen"><b>'Yā Devī Sarvabhūteśhu' in the presence of Śhrī Mātājī</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
