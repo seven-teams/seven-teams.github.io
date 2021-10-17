@@ -53,21 +53,21 @@ Va [but] without asking, without thinking of it, you have been given the fourth 
 <div style="text-align: center"><img src="/images/image783.png" /></div>
 
 <p style="color:Indigo; text-align:center;">
-<b>PRABHU MAZA MALA JEVHA BASE GHEUNI EKANTEE<br>
+<b>PRABHU MAZA MALA JEVHA BASE GHEUNI EKANTĪ<br>
 When I am alone with my God (in meditation)</b>
-MITI VARNU MALA TEVHA GHADE JI HO SUKHAPRAPTEE<br>
+MITI VARNU MALA TEVHA GHADE JI HO SUKHAPRAPTĪ<br>
 The bliss that I feel is beyond words<br>
-MALA PAAHEE PRABHUSANGE, DUI ATMA TAI PALE DUREE<br>
+MALA PĀHĪ PRABHUSANGE, DUI ATMA TAI PALE DURĪ<br>
 When I am in the company of God, evil runs away<br>
-GALE SAMARTHYA MOHACHE NURE RUNT KUTHE VAIREE<br>
+GALE SAMARTHYA MOHACHE NURE RUNT KUTHE VAIRĪ<br>
 No temptation can dominate me and nobody can confront me<br>
-MALA BODHAAMRUT PAAJEE, SADA ]AEI NAVI TRUPTEE<br>
+MALA BODHĀMRUT PĀJĪ, SADA ]AEI NAVI TRUPTĪ<br>
 Every time I experience the Divine knowledge, I feel more satisfaction and Divine Joy<br>
-KUTHE CHINTA KUTHE DUKHHE KSHANE SAARI LAVA JAATEE<br>
+KUTHE CHINTA KUTHE DUKHHE KSHANE SĀRI LAVA JĀTĪ<br>
 All moments of concerns and sorrows vanish<br>
-PRABHUSANGE MILE JEEVA, NASE KOTHE TASHI SHANTEE<br>
+PRABHUSANGE MILE JĪVA, NASE KOTHE TASHI SHANTĪ<br>
 Nowhere else can my soul find peace except in the company (in union) with God Almighty<br>
-PRABHU MAZA SWAYE NEETEE, PRABHU MAZA SWAYE PRITEE<br>
+PRABHU MAZA SWAYE NĪTĪ, PRABHU MAZA SWAYE PRITĪ<br>
 My God himself is Truth and Love<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
