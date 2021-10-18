@@ -140,7 +140,7 @@ Victory to You!</b><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Chandraghaṇṭā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 <b>O Divine Mother, You are verily Śhrī Chandraghaṇṭā, the one Who use the Moon as Her bell!<br>
-Salutations to You!</b>
+Salutations to You!</b><br>
 <font size="+0">(Śhrī Chandraghaṇṭā who rides a lion or tiger.  She has a half-moon shaped like a bell on Her forehead or uses the moon as Her bell.   
 During the battle between Her and the demons, the horrible sound produced by Her bell sent thousands of demons to Hell.)</font>
 </p>
