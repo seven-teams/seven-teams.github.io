@@ -64,15 +64,13 @@ Nirmal. Mātā Mātā Bhavānī Ādi Śhakti Śhrī Kuṇḍalinī<br>
 Jag.-Andhakar Mitanewali Jot. Jagane Wali<br>
 Man. Me Jyoti Jagane Wali<br>
 Tere Charano Me Aya Maiya Mokṣha Pane Ko</font><br>
-<br>
-<font color="Indigo"><b></b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <br>
 <font color="Indigo"><b>Auṃ Twameva sākṣhāt</b><br>
 Śhrī Kuṣhmāṇḍā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!<br>
 O Divine Mother, You are verily Śhrī Kuṣhmāṇḍā, the one whose void contains the universe!<br>
 Salutations to You!</font><br>
-<font size="+0">Shri Kush-manda, the One whose void contains the universe, is considered the creator of the universe.<br>
+<font size="+0">(Śhrī Kuṣhmāṇḍā, the One whose void contains the universe, is considered the creator of the universe.<br>
 Often She is depicted as having eight or ten hands. She holds weapons, glitter, rosary, etc., in Her hands, and She rides a lion.)</font>
 </p>
 
