@@ -1,5 +1,5 @@
 ---
-title: '2021 Celebrating Navarātri Festival: Sahaja Yogis are the epitome of the creative powers, they are the epitome of God&#8217;s Desire." '
+title: '2021 Celebrating Navarātri Festival: "Sahaja Yogis are the epitome of the creative powers, they are the epitome of God&#8217;s Desire." '
 date: 2021-10-09
 permalink: /festivity/2021/10/09
 tags:
