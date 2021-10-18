@@ -66,8 +66,8 @@ Man. Me Jyoti Jagane Wali<br>
 Tere Charano Me Aya Maiya Mokṣha Pane Ko</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <br>
-<font color="Indigo"><b>Auṃ Twameva sākṣhāt</b><br>
-Śhrī Kuṣhmāṇḍā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!<br>
+<font color="Indigo"><b>Auṃ Twameva sākṣhāt<br>
+Śhrī Kuṣhmāṇḍā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
 O Divine Mother, You are verily Śhrī Kuṣhmāṇḍā, the one whose void contains the universe!<br>
 Salutations to You!</font><br>
 <font size="+0">(Śhrī Kuṣhmāṇḍā, the One whose void contains the universe, is considered the creator of the universe.<br>
