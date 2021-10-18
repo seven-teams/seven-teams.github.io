@@ -91,7 +91,7 @@ Often She is depicted as having eight or ten hands. She holds weapons, glitter, 
 <p style="text-align:center;">
 <font color="Indigo"><b>Visṛistau sṛisti-rūpā Tvam sthiti-rūpā cha pālane,<br>
 Tathā saṁhṛiti-rūpānte jagato-'sya jagan-maye ǁ 5 ǁ</b></font><br>
-O You, whose Form is the Universe, at the time of creation You are the Creative Force,>br>
+O You, whose Form is the Universe, at the time of creation You are the Creative Force,<br>
 At the time of sustentation You are the Protective Power and at the time of the Dissolution of the World,<br>
 You are the Destructive Power.
 </p>
