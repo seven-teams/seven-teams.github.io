@@ -1,7 +1,7 @@
 ---
 title: '2021 Celebrating Kojāgirī Pūrṇimā or Śhārad Pūrṇimā: "The realized Soul is like the Full Moon" '
 date: 2021-10-19
-permalink: /festivity/2021/01/01
+permalink: /festivity/2021/10/19
 tags:
   - Sharad
   - Kojagiri
