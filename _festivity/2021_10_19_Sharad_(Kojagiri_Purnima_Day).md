@@ -24,7 +24,7 @@ For that, you will have to worship every day."</font><br>
 <br>
 <font color="DarkGreen"><b>Mauline thothavile dār</b><br>
 Mother has knocked on your door<br>
-<font color="DarkRed"><b>Houni za ata gadya par</b><br>
+<b>Houni za ata gadya par</b><br>
 Now, friend cross the ocean of Maya by getting your Realization.<br>
 AULINE THOTHAVILE DĀR</font><br>
 <a href="https://youtu.be/TEFYMvTc6V0">video</a><br>
