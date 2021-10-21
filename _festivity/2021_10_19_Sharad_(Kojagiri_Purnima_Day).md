@@ -22,7 +22,7 @@ For that, you will have to worship every day."</font><br>
 <font color="DarkRed"><b>"The Goddess comes to everybody’s house late at night on that day and She asks ‘Kojagarti?’ [Who has not awakened yet]."</b></font><br>
 <font size="+0"><b>1986-1018 Talk to Sahaja Yogis (Kojāgirī Pūrṇimā Day), Hall, Sane Gurujī Vidyālaya (English Medium) School, Bhikoba Waman Pathare Mārg, Near Dadar Catering College, Shivaji Park, West Dadar, Mumbai, Maharashtra, Mumbai, Maharashtra, India</b></font><br>
 <br>
-<font color="DarkGreen"<b>Mauline thothavile dār</b><br>
+<font color="DarkGreen"><b>Mauline thothavile dār</b><br>
 Mother has knocked on your door<br>
 <font color="DarkRed"><b>Houni za ata gadya par</b><br>
 Now, friend cross the ocean of Maya by getting your Realization.<br>
