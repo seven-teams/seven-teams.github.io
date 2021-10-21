@@ -10,8 +10,8 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"I want to tell you that, now that you have come for the Pūjā, it should be of some use to you, that all Deities within you should be awakened and that today’s Pūjā is for awakening those Deities. So, you should learn how these people awaken different Deities. When you grow up a little we will teach you the mantras with which you also will be able to help others with the Self-realization. Then you will know where and what they are catching, what are their problems, and how to cleanse them. When you master that knowledge you will also become Yogis.
-You also can awaken the Kuṇḍalinīs by just moving your hands and, you will see, those persons will also feel cool on their heads. Even now you try on anyone and you will feel that the Kuṇḍalinī is flowing from your hands. With a little upward movement of your hands, you will feel cool on the head, do it thrice and you will feel cool on your heads.
+<font color="DarkRed">"I want to tell you that, now that you have come for the Pūjā, it should be of some use to you, that all Deities within you should be awakened and that today’s Pūjā is for awakening those Deities. So, you should learn how these people awaken different Deities. When you grow up a little we will teach you the mantras with which you also will be able to help others with the Self-realization. Then you will know where and what they are catching, what are their problems, and how to cleanse them. When you master that knowledge you will also become Yogis.<br>
+You also can awaken the Kuṇḍalinīs by just moving your hands and, you will see, those persons will also feel cool on their heads. Even now you try on anyone and you will feel that the Kuṇḍalinī is flowing from your hands. With a little upward movement of your hands, you will feel cool on the head, do it thrice and you will feel cool on your heads.<br>
 For that, you will have to worship every day."</font><br>
 <font size="+0"><b>1984-0218 Śhrī Chandramā Pūjā (Marathi+English+Marathi), Vaitarna, Maharashtra, India</b></font>
 </p>
@@ -22,7 +22,7 @@ For that, you will have to worship every day."</font><br>
 <font color="DarkRed"><b>"The Goddess comes to everybody’s house late at night on that day and She asks ‘Kojagarti?’ [Who has not awakened yet]."</b></font><br>
 <font size="+0"><b>1986-1018 Talk to Sahaja Yogis (Kojāgirī Pūrṇimā Day), Hall, Sane Gurujī Vidyālaya (English Medium) School, Bhikoba Waman Pathare Mārg, Near Dadar Catering College, Shivaji Park, West Dadar, Mumbai, Maharashtra, Mumbai, Maharashtra, India</b></font><br>
 <br>
-<font color="DarkGreen">Mauline thothavile dār<b><br>
+<font color="DarkGreen"<b>Mauline thothavile dār</b><br>
 Mother has knocked on your door<br>
 <font color="DarkRed"><b>Houni za ata gadya par</b><br>
 Now, friend cross the ocean of Maya by getting your Realization.<br>
