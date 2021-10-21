@@ -45,11 +45,11 @@ This bhajan was composed by Bābā Māmā.
 <br>
 <font color="DarkGreen"><font size="+0"><b>Brahma Shodhile, Brahmand. Mirlale</b></font></font><br>
 <font size="+0"><b>I was searching for Divine Vibrations, but instead found the universe</b></font><br>
-<font color="DarkGreen"><font size="+0"><b>Ai, Tujhiya Dhami/b></font></font><br>
+<font color="DarkGreen"><font size="+0"><b>Ai, Tujhiya Dhami</b></font></font><br>
 <font size="+0"><b>Mother, at Your doorstep,</b></font><br>
-<font color="DarkGreen"><font size="+0"><b>Janmojanmachi Punyayi Az. Ali Majhiya Kami/b></font></font><br>
+<font color="DarkGreen"><font size="+0"><b>Janmojanmachi Punyayi Az. Ali Majhiya Kami</b></font></font><br>
 <font size="+0"><b>All the accumulated righteousness of many a birth today been put to proper use</b></font><br>
-<font color="DarkGreen"><font size="+0"><b>Ai, Tujhiya Dhami/b></font></font><br>
+<font color="DarkGreen"><font size="+0"><b>Ai, Tujhiya Dhami</b></font></font><br>
 <font size="+0"><b>Mother, at Your doorstep</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Brahma Shodile/b></font></font><br>
 <a href="https://youtu.be/OV64d6HbXHs">video</a>
