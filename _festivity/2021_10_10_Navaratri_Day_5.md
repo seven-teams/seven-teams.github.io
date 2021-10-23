@@ -19,7 +19,7 @@ tags:
 <p style="text-align:center;">
 <font color="DarkRed">"Navarātri is like a Mother’s Day where you give thanksgiving to Her:<br>
 which was just relentless, continuous working for Her children."</font><br>
-<font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Switzerland</b></font>
+<font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Switzerland</b></font><br>
 <font color="DarkRed"><b>Jaya Jagadambe Mā<br>
 Victory to the Divine Mother of the Universe!</b></font><br>
 </p>
@@ -35,13 +35,13 @@ Dead to the dead. Any living work can you do? Any living work? Nothing. Only aft
 
 <p style=" text-align:center;">
 <font color="Indigo"><b>RACHA PRABHU TUNEY YAHA BRAHMANDA SARA</b></font><br>
-<font size="+0"><b>O God, You have created the whole universe</b></font><br>
+<b>O God, You have created the whole universe</b><br>
 <font color="Indigo"><b>PRANON SEY PYARA, BRAHMANDA SARA</b></font><br>
-<font size="+0"><b>The whole universe is dearer than our lives</b></font><br>
+<b>The whole universe is dearer than our lives</b><br>
 <font color="Indigo"><b>TUHI MAI BANDHU, TUHI JAGAT JANANI</b></font><br>
-<font size="+0"><b>You are my Mother and brother, You are the Mother of the universe</b></font><br>
+<b>You are my Mother and brother, You are the Mother of the universe</b><br>
 <font color="Indigo"><b>SAKAL JAGAT MEIN YAH TERA PASARA</b></font><br>
-<font size="+0"><b>The whole universe is but Your Form</b></font><br>
+<b>The whole universe is but Your Form</b><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
