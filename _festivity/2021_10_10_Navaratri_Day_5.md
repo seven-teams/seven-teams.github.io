@@ -135,7 +135,7 @@ Who wore a garland of human skulls as an ornament and killed the demon, Muṇḍ
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Śhrī Saraswatī is known as Skandamātā</b>, She was not His mother and was virgin.<br>
 But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart."</font><br>
-<font size="+0"><b>1996-1221 Śhrī Kārttikeya Pūjā (Marathi+English), Śhrī Gyāneśhwara, Park (200 m from ISYRH Center), C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font>
+<font size="+0"><b>1996-1221 Śhrī Kārttikeya Pūjā (Marathi+English), Śhrī Gyāneśhwara, Park (200 m from ISYRH Center), C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font><br>
 <br>
 <font color="Indigo"><b>Kāla-rātrīm Brahma-stutām Vaishnavīm Skanda-mātaram <br>
 Saraswatīm Aditim Daksha-duhitaram namāmah pāvanām shivām</b></font><br>
@@ -143,7 +143,7 @@ Saraswatīm Aditim Daksha-duhitaram namāmah pāvanām shivām</b></font><br>
 Who is praised even by Brahmadeva Himself,<br>
 Who is the Power of Śhrī Viṣhṇu, The Mother of Śhrī Kārttikeya,<br>
 Who is Saraswatī, Śhrī Aditi (Mother of the Gods),<br>
-the Daughter of Daksha, and the Consort of Shri Shiva.</font>
+the Daughter of Daksha, and the Consort of Shri Shiva.</font><br>
 <font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Skandamātā sākshāt<br>
 Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 O Divine Mother, You are verily the Mother of Śhrī Kārttikeya<br>
