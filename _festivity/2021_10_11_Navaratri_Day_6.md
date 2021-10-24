@@ -115,10 +115,10 @@ and we will digest and nourish ourselves with the Divine Knowledge."</font><br>
 <font size="+0"><b>1995-03xx Conversation with K.T. Tan with a Handwritten Line, during a Meal, Kuala Lumpur, Malaysia</b></font><br>
 <br>
 <font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Kātyāyanī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
-<b>O Divine Mother, You are verily Śhrī Kātyāyanī, the One who is the foster-daughter of Sage Kātyāyana<br>
+<b>O Divine Mother, You are verily Śhrī Kātyāyanī, the One who is the foster-daughter of Sage Kātyāyana!<br>
 Salutations to You!</b><br>
 <font color="DarkGreen"><font size="+0"><b>Namostute (Mantra of Śhrī Kātyāyanī is taken)</b></font></font><br>
-<a href="">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
