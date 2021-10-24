@@ -43,7 +43,7 @@ If you want to learn, that is the quality of Saraswatī pujārīs, that they tak
 <b>So the Saraswatī’s first thing is that through the reading, through the process of Saraswatī’s manifestation, you must reach a point to understand that this is a rat race and we have to get out of it. We have to step out.</b><br>
 When that happens, then the Mahālakṣhmī Tattwa starts working in you, that is the third tattwa, which starts working.<br>
 <b>Mahālakṣhmī Tattwa then starts expressing its love in its full extent through evolutionary process in human beings.</b> He starts evolving simultaneously. He sees on both the sides what’s happening, like a witness and he uses his Mahālakṣhmī Power."</font><br>
-<font size="+0"><b>985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Switzerland</b></font>
+<font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Switzerland</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image801.png" /></div>
