@@ -57,7 +57,7 @@ Because in the Śhāstras, it is written that the coming of the Mother is always
 <b>Ṣhaṣhṭhī Day is of Śhākambharī Devī</b>, and on that day the whole nature should be green and lush."</font><br>
 <font size="+0"><b>1986-1010 Navarātri Pūjā (Hindi) (7th Day), Lions Club SafĀri Park, Southern Avenue, Kolkata, West Bengal, India</b></font><br>
 <br>
-<font color="DarkGreen"><b>AMBE TU PĀRVATĪ PARAMESHWARI<br>
+<font color="DarkGreen"><b>AMBE TU PĀRVATĪ PARAMEŚHWARĪ<br>
 MAHĀLAKṢHMĪ TU SAPTAŚHṚIṄGĪ TU JAY JAY ŚHAKAMBHARĪ</b><br>
 You are Mahālakṣhmī, You are Saptaśhṛuṅgī, Victory to Śhākambharī (the Bearer of the Greens)<br>
 <b>JAY JOGEŚHWARĪ JAY MAHEŚHWARĪ JAY JAY PRAṆEŚHWARĪ</b><br>
