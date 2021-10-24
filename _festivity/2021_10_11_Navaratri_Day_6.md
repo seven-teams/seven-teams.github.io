@@ -20,7 +20,7 @@ In other kinds of human love, when we have relations with others, we have expect
 
 <p style=" text-align:center;">
 <font color="DarkRed">"<b>Navarātri is the day to give you the balance.</b> Those whose right hand is tired will get the power in the left hand.<br>
-Those who have the left hand tired will get the power on the right hand to share the load."/font><br>
+Those who have the left hand tired will get the power on the right hand to share the load."</font><br>
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Switzerland</b></font><br>
 <br>
 <font color="Indigo"><b>Mazhya Manichi Ga, Mazhya Manichi Manas. Puja,</b><br>
