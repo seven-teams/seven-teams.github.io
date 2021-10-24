@@ -25,11 +25,11 @@ Those who have the left hand tired will get the power on the right hand to share
 <br>
 <font color="Indigo"><b>Mazhya Manichi Ga, Mazhya Manichi Manas. Puja,</b><br>
 With all their devotion and love they worship You,<br>
-Preme Arpili Asht.bhuja</b><br>
+<b>Preme Arpili Asht.bhuja</b><br>
 Out of love, they make this offering to the eight-handed Goddess:<br>
-Khana Nar.lachi Ga, Khana Nar.lachi Oti Tula,</b><br>
+<b>Khana Nar.lachi Ga, Khana Nar.lachi Oti Tula,</b><br>
 They offer coconut and an embroidered silk cloth as 'Oti' (asking for blessings)<br>
-Bhakt. Yetil. Dar.shanas</b><br>
+<b>Bhakt. Yetil. Dar.shanas</b><br>
 Devotees all come to receive Your Darshan</font><br>
 <font color="DarkGreen"><font size="+0"><b>Mahur Gadavari</b></font></font><br>
 <a href="https://youtu.be/EWoUoau4BOw">video</a>
