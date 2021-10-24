@@ -60,7 +60,7 @@ Because in the Śhāstras, it is written that the coming of the Mother is always
 <font color="DarkGreen"><b>AMBE TU PĀRVATĪ PARAMESHWARI<br>
 MAHĀLAKṢHMĪ TU SAPTAŚHṚIṄGĪ TU JAY JAY ŚHAKAMBHARĪ</b><br>
 You are Mahālakṣhmī, You are Saptaśhṛuṅgī, Victory to Śhākambharī (the Bearer of the Greens)<br>
-JAY JOGEŚHWARĪ JAY MAHEŚHWARĪ JAY JAY PRAṆEŚHWARĪ</b><br>
+<b>JAY JOGEŚHWARĪ JAY MAHEŚHWARĪ JAY JAY PRAṆEŚHWARĪ</b><br>
 Victory to Yogeśhwarī (Goddess of Yoga), Victory to Maheśhwarī (Goddess of Śhrī Śhiva), Victory to Praṇeśhwarī (Goddess of vital breath)</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
