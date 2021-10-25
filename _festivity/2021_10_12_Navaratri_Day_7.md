@@ -27,7 +27,7 @@ And <b>the seventh day is for tremendous activity, tremendous ... uh ... creativ
 
 <p>
 <font color="DarkRed">"Today we have gathered here to do the Pūjā of the Śhakti. Till today many Saints have written and spoken a lot about the Śhakti. Those who could not explain the Śhakti in their texts they did it in their poems.<br>
-Additionally, they learnt different meanings of the Śhakti. But one thing probably we may not know is that inside every human beings these powers are present in a dormant state and all these powers human being can awaken within himself. All these powers which are present in the dormant state are endless, nor anybody can guess their limit because as an example there are 35 crores [350 million] Deities seated within you. Apart from that, there are several powers that are running them, but at least we can understand that the Self-realization that we received today, certainly some Śhaktis must have worked this out. Without this work, you cannot get your Self-realization. When we are receiving our Self-realization we think that we got it very easily"</font><br>
+Additionally, they learnt different meanings of the Śhakti. But one thing probably we may not know is that inside every human beings these powers are present in a dormant state and all these powers human being can awaken within himself. All these powers which are present in the dormant state are endless, nor anybody can guess their limit because as an example there are 35 crores [350 million] Deities seated within you. Apart from that, there are several powers that are running them, but at least we can understand that the Self-realization that we received today, certainly some Śhaktis must have worked this out. Without this work, you cannot get your Self-realization. When we are receiving our Self-realization we think that we got it very easily."</font><br>
 <font size="+0"><b>1990-1009 Śhrī Devī Pūjā (Hindi), New Delhi, India</b></font>
 </p>
 
@@ -118,12 +118,12 @@ May God bless you all!"</font><br>
 But Mahālakṣhmī Ati Raudra Rudra Swarūpi[n] and Rudra is very necessary. Otherwise, this negativity will not go away.<br>
 This will only go away with the Rudra Form."</b></font><br>
 <font size="+0"><b>1994-1211 Śhrī Ādi Śhakti Pūjā (Hindi), Mahāmāyā, Mahākālī, Śhāradā Devī, Mahālakṣhmī, Jaipur, Rajasthan, India</b></font><br>
-<font color="Indigo"><b><br>
-</b><br>  
-<br>
-<br>
-<br>
-</font><br>
+<font color="Indigo"><b>Jaya Twam Devī Chāmuṇḍe jaya bhū-tāpa-hāriṇi,<br>
+Jaya Sarva-gate Devī Kāḷarātri namostute</b><br>  
+Victory be to You, O Devī Chāmuṇḍā<br>
+Victory be to You Who destroys the suffering of all living beings.<br>
+Victory be to You, O Devī Who is present everywhere.<br>
+Salutations to You, O Kāḷarātri (the longest night)</font><br>
 <font size="+0">(from Argala Strotram)</font><br>
 <font color="Maroon"><b>"Auṃ Twameva sākṣhāt Śhrī Kāḷarātri sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 <i>O Divine Mother, You are verily Śhrī Kāḷarātri, the One who is the dark night of dissolution<br>
