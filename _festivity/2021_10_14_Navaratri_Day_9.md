@@ -103,7 +103,7 @@ tags:
 <font color="DarkRed"><b></b></font><br>
 <font size="+0"><b></b></font><br>
 <a href="">video</a><br>
-<font color="Indigo"><font size="+0"><b></b><</font></font><br>
+<font color="Indigo"><font size="+0"><b></b></font></font><br>
 <font size="+0"></font><br>
 </p>
 
