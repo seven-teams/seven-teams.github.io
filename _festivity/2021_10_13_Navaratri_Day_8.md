@@ -93,7 +93,7 @@ O Devī, O Mahādevī, please protect us.</b></font>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Narayani Stuti</b></font><br>
+<font color="green"><b>Nārāyanī Stuti</b></font><br>
 <a href="https://youtu.be/T_V1ka6e4Xo">video</a>
 </p>
 
