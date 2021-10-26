@@ -53,7 +53,7 @@ And Happiness itself, we bow constantly.
 </p>
 
 <p>
-<font color="DarkRed">"And on an Aṣhṭamī, that is today, is the eighth day of the Moon, of the Moon which is increasing, Śhuklapakṣhi; that first time all the weapons of the Goddess are to be worshiped. This was a great idea because these weapons who work all the time, not only to kill the evil but to protect the good, were never worshiped before; and that today, if human beings realize their importance and significance, then lots of problems of atomic bombs and all these things that have been created could be solved by diverting them to the right direction, using them for the destructions of the evil forces and not the good; also for protecting human life, nourishing human life. The same weapons can be used in a wrong direction; but, rightly used, they can be dedicated for the use of God's work."</font><br>
+<font color="DarkRed">"And on an Aṣhṭamī, <b>that is today, is the eighth day of the Moon</b>, of the Moon which is increasing, Śhuklapakṣhi; that first time all the weapons of the Goddess are to be worshiped. This was a great idea because these weapons who work all the time, not only to kill the evil but to protect the good, were never worshiped before; and that today, if human beings realize their importance and significance, then lots of problems of atomic bombs and all these things that have been created could be solved by diverting them to the right direction, using them for the destructions of the evil forces and not the good; also for protecting human life, nourishing human life. The same weapons can be used in a wrong direction; but, rightly used, they can be dedicated for the use of God's work."</font><br>
 <font size="+0"><b>1982-0926 Śhrī Durgā Pūjā, Mind Is just like a Donkey, House of Grégoire de Kalbermatten, Sternwartestrasse 62, Vienna, Austria</b></font>
 </p>
 
@@ -85,7 +85,6 @@ May God bless you."</font><br>
 <font color="DarkRed"><b>We pray to the Supreme Goddess today<br>
 O Devī, O Mahādevī, please protect us.</b></font>
 </p>
-%pr
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
@@ -115,7 +114,7 @@ O Devī, O Mahādevī, please protect us.</b></font>
 
 <p>
 <font color="green"><b>Devī Mahātmyam Eighth Night</b></font><br>
-<a href="https://youtu.be/mKmlaXSVuYo">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <div style="text-align: center"><img src="/images/image811.png" /></div>
