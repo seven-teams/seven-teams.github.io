@@ -25,7 +25,7 @@ Seven chakras you already know. Above that you become the master yourself, and t
 May God bless you!"</font><br>
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Switzerland</b></font><br>
 <br>
-<font color="Indigo">Manav. me ahankar. bhara hai<br>
+<font color="Navy">Manav. me ahankar. bhara hai<br>
 <b>But mankind is full of ego,</b><br>
 Ap.ni Shakti se dur. khada hai<br>
 <b>Divorcing itself from its own powers. </b><br>
@@ -56,7 +56,7 @@ You must understand that the goodness of a person is very important. If you are 
 <div style="text-align: center"><img src="/images/image813.png" /></div>
 
 <p style="text-align:center;">
-<font color="Indigo"><b>We should devote ourselves to that Devī<br>
+<font color="Navy"><b>We should devote ourselves to that Devī<br>
 Who resides at the center of our lotus hearts,<br>
 Whose glory is like that of the rising sun,<br>
 Whose face is pleasing,<br>
@@ -91,7 +91,7 @@ May You protect the universe!</font><br>
 <font color="DarkRed"><b>Shrī Mātājī: This is a prayer.</b></font><br>
 <font size="+0"><b>1980-0719 Comments on the Reading from Devī Māhātmyam, before the Talk on the Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font><br>
 <br>
-<font color="Indigo"><b>Sawayam Sadhya swayam siddhi<br>
+<font color="Navy"><b>Sawayam Sadhya swayam siddhi<br>
 Sawayam sidha swayam Prabha<br>
 Saguna Ratna sukruta krutya<br>
 Sumati Ganga Samu jwalam<br>
@@ -145,7 +145,7 @@ And ṛiddhi is by which contentment, peace, joy. Means that you grow into that,
 <font size="+0"><b>1992-1014 Talk to Sahaja Yogis, after Śhrī Mahākālī Pūjā, Salvador, Bahia, Brazil</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Viśhwa Vandita</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
-<font color="Indigo"><font size="+0"><b>Auṃ Twameva sākṣhāt Śhrī Siddhidatrī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ</b></font></font><br>
+<font color="Navy"><font size="+0"><b>Auṃ Twameva sākṣhāt Śhrī Siddhidatrī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ</b></font></font><br>
 <font size="+0">O Divine Mother, You are verily Siddhidatrī, the One who is the bestower of siddhis (Divine Powers)!
 Salutations to You!</font><br>
 </p>
