@@ -86,7 +86,7 @@ First of all the Realization. Thanks, thanks for the Realization. Thanksgiving i
 <div style="text-align: center"><img src="/images/image814.png" /></div>
 
 <p style=" text-align:center;">
-<font color="SaddleBrown"><b>Sahaja Yogi</b> [continues to read]: ...... O Devī, we bow before You, who are Yourself good fortune in the dwellings of the virtuous, and ill-fortune in those of the vicious, intelligence in the hearts of the learned, faith in the hearts of the good, and modesty in the hearts of the high-born. May You protect the universe!"<br> 
+<font color="SaddleBrown"><b>Sahaja Yogi</b> [continues to read]: "...... O Devī, we bow before You, who are Yourself good fortune in the dwellings of the virtuous, and ill-fortune in those of the vicious, intelligence in the hearts of the learned, faith in the hearts of the good, and modesty in the hearts of the high-born. May You protect the universe!"<br> 
 May You protect the universe!</font><br>
 <font color="DarkRed"><b>Shrī Mātājī: This is a prayer.</b></font><br>
 <font size="+0"><b>1980-0719 Comments on the Reading from Devī Māhātmyam, before the Talk on the Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font><br>
