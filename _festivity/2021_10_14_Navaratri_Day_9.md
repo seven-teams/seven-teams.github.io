@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"<b>God is the witness and She is doing the play and She creates those chakras. In the chakras She places all these Deities to govern.</b>
+<font color="DarkRed">"<b>God is the witness and She is doing the play and She creates those chakras. In the chakras She places all these Deities to govern.</b><br>
 Now, there is the existence, there is the creation, creative force, and there is the evolutionary force, all inside the Virāṭa State.<br>
 Now, this is at the Vaikuṇṭha State, we say, because this state is on this first reflection. It is not in us, or we cannot feel it, the Vaikuṇṭha State, because it is in the first thing.<br>
 Then another state was created, then third was created, but the fourth one is the Bhavasāgara: is the state at which all of us were born. First, in the fourth state.<br>
