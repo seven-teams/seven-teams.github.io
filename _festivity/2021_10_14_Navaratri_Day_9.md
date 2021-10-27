@@ -140,8 +140,8 @@ I surrender my self consciousness, I surrender all songs, At Your Lotus Feet, Mo
 
 <p style=" text-align:center;">
 <font color="DarkRed">" <b>“Ṛiddhi siddhi ki dātri hai”: means She is the giver of siddhis.<br>
-Siddhis means by which you get powers, to give Realization to people, to cure people, to manifest all the Divinity, Siddhis."</b><br>
-And ṛiddhi is by which contentment, peace, joy. Means that you grow into that, ṛiddhi.</font><br>
+Siddhis means by which you get powers, to give Realization to people, to cure people, to manifest all the Divinity, Siddhis.</b><br>
+And ṛiddhi is by which contentment, peace, joy. Means that you grow into that, ṛiddhi."</font><br>
 <font size="+0"><b>1992-1014 Talk to Sahaja Yogis, after Śhrī Mahākālī Pūjā, Salvador, Bahia, Brazil</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Viśhwa Vandita</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
