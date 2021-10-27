@@ -13,7 +13,7 @@ tags:
 Now, there is the existence, there is the creation, creative force, and there is the evolutionary force, all inside the Virāṭa State.<br>
 Now, this is at the Vaikuṇṭha State, we say, because this state is on this first reflection. It is not in us, or we cannot feel it, the Vaikuṇṭha State, because it is in the first thing.<br>
 Then another state was created, then third was created, but the fourth one is the Bhavasāgara: is the state at which all of us were born. First, in the fourth state.<br>
-...So, you are born in the Bhavasāgara. At this state you are at the Bhavasāgara State. At this Bhavasāgara State, now, you are created and you have to evolve. <b>At this time the Mahālakṣhmī Power acts to evolve you.</font>"</font><br>
+...... So, you are born in the Bhavasāgara. At this state you are at the Bhavasāgara State. At this Bhavasāgara State, now, you are created and you have to evolve. <b>At this time the Mahālakṣhmī Power acts to evolve you."</font><br>
 <font size="+0"><b>1977-0220 Public Program, Creation and Evolution, New Delhi, India</b></font>
 </p>
 
