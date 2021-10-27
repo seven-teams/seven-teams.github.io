@@ -22,7 +22,7 @@ Then another state was created, then third was created, but the fourth one is th
 <p style=" text-align:center;">
 <font color="DarkRed">"<b>This Navarātri should give you that power, those Nine Powers of Nine Chakras.</b><br>
 Seven chakras you already know. Above that you become the master yourself, and then you become the Power yourself.<br>
-May God bless you!"<=</font><br>
+May God bless you!"</font><br>
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Switzerland</b></font><br>
 <br>
 <font color="Indigo">Manav. me ahankar. bhara hai<br>
