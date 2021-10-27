@@ -149,7 +149,6 @@ And ṛiddhi is by which contentment, peace, joy. Means that you grow into that,
 <font size="+0">O Divine Mother, You are verily Siddhidatrī, the One who is the bestower of siddhis (Divine Powers)!
 Salutations to You!</font><br>
 </p>
-%pr
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>
