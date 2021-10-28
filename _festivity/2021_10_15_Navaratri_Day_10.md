@@ -161,6 +161,7 @@ You being the Mother of Universe why should I seek elsewhere, and Ambe having em
 <a href="https://youtu.be/BUcvc6e_9-E">video</a> 
 </p>
 
+<p>
 <font color="green"><b>Nirmal Mā Jagadambe Mā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
@@ -185,6 +186,7 @@ You being the Mother of Universe why should I seek elsewhere, and Ambe having em
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
+</p>
 <font color="green"><b>Jai He Jai He Jai He Devī</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
@@ -209,6 +211,7 @@ You being the Mother of Universe why should I seek elsewhere, and Ambe having em
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
+<p>
 <font color="green"><b>Viśhwa Vandita</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
@@ -232,7 +235,9 @@ You being the Mother of Universe why should I seek elsewhere, and Ambe having em
 
 <p>
 <font color="DarkRed">"<b>Today especially it's a very great day of Dussehra we call it. This is the day when, as you know, Rāvaṇa was burned. Effigies of Rāvaṇa are burnt all over the place. When Śhrī Rāma came this was done. His victory.</b> 
-But in His victory, it was not that He made Sahaja Yogis or He gave Realization -- No! His victory was that He killed Rāvaṇa. That was done that time for today's preparation, for today's happenings. It was done long time back that these days will come when people will have a proper value system of the victory of Śhrī Rāma. But it doesn't happen, it doesn't happen, because this Incarnation of Mātājī Nirmalā Devī is very different, is very illusive -- Mahāmāyā. "</font><br>
+But in His victory, it was not that He made Sahaja Yogis or He gave Realization -- No! His victory was that He killed Rāvaṇa. That was done that time for today's preparation, for today's happenings. It was done long time back that these days will come when people will have a proper value system of the victory of Śhrī Rāma. But it doesn't happen, it doesn't happen, because this Incarnation of Mātājī Nirmalā Devī is very different, is very illusive -- Mahāmāyā.<br>
+......<br>
+So now, I have to just tell you that, on this day of this Pūjā, it's such a combination that it's the Dussehra, I am here and also you can call it the last day of the Devī Pūjā."</font><br>
 <font size="+0"><b>1993-1024 Navarātri Pūjā (Dussehra Day), Reintrospect Yourself, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
