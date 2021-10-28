@@ -39,7 +39,7 @@ And the sustaining Power, we bow to You.</font><br>
 </p>
 
 <p>
-<font color="SaddleBrown">"<b>Now the tenth Navarātri today is to celebrate actually the Ādi Śhakti. So today we are really going to worship the Ādi Śhakti.</b> On one side the Ādi Śhakti is Mahākālī, on the other side She is Mahāsaraswatī, in the center She is Mahālakṣhmī, and also She is the Ambā, the one who is the Kuṇḍalinī. But She’s also beyond that. She’s Parāśhakti, She’s beyond all the powers because She is the Generator of Power, so She has to be beyond all that.
+<font color="SaddleBrown">"<b>Now the tenth Navarātri today is to celebrate actually the Ādi Śhakti. So today we are really going to worship the Ādi Śhakti.</b> On one side the Ādi Śhakti is Mahākālī, on the other side She is Mahāsaraswatī, in the center She is Mahālakṣhmī, and also She is the Ambā, the one who is the Kuṇḍalinī. But She’s also beyond that. She’s Parāśhakti, She’s beyond all the powers because She is the Generator of Power, so She has to be beyond all that.<br>
 So today when we are worshiping Her, we have to worship Her in all these forms."</font><br>
 <font size="+0"><b>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
 </p>
@@ -61,7 +61,7 @@ Nirmalā Mā namō‛stu te</b><br>
 You are the Auspiciousness of All Goodness,<br>
 Benevolent Devi, who accomplishes every Object,<br>
 The Giver of Refuge, O Three-eyed Gauri,<br>
- Salutations to Our Immaculate Mother Shri Mataji.</font><br>
+ Salutations to Our Immaculate Mother Śhrī Mātājī.</font><br>
 </p>
 
 <p>
