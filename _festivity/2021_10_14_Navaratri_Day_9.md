@@ -33,7 +33,7 @@ Peedith. narak. me bhayi, Par. kare Nirmala mayi<br>
 <b>Mother Nirmalā grants Realization even to those suffering in Hell.</b><br>
 Devī par.marth. ko ayi re, Meri Nirmalā Mā<br>
 <b>She has arrived for the salvation of all mankind, my Mother Nirmalā.</b></font><br>
-<font color="DarkGreen"><font size="+0"><b>Śhrī Jagadambe Aiyere</b></font></font><br>
+<font color="DarkGreen"><font size="+0"><b>Śhrī Jagadambe Ayi Re</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
