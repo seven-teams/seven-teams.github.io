@@ -28,7 +28,7 @@ Moreover, the person who has Lakṣhmī has to be a very humble man. For example
 <font color="blue"><b>1996-0716 Śhrī Lakṣhmī Pūjā, Lakṣhmī Principle and We Have to Live like One Family, Moscow, Russia</b></font><br>
 </p>
 
-Suggested talk on vimeo: <a href="https://vimeo.com/113281959"> video</a>
+Suggested talk on vimeo: <a href="https://vimeo.com/25070516"> video</a>
 
 <p style="color:red;">Jay Shri Mataji!<br></p>
 

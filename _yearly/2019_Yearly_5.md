@@ -24,7 +24,7 @@ Recently I read a beautiful book, so big as that, has come out that 'Media Versu
 <font color="blue"><b>1993-0518 Śhrī Fāṭimah Pūjā, You Must Learn to Respect a Woman Who Is Chaste, Mövenpick Hotel, Istanbul, Turkey</b></font><br>
 </p>
 
-Suggested talk on vimeo: <a href=" https://vimeo.com/292705923">  video</a>
+Suggested talk on vimeo: <a href="https://vimeo.com/43227319">  video</a>
 
 <p style="color:red;">Jay Shri Mataji!<br></p>
 
