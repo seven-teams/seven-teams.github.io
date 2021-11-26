@@ -118,8 +118,15 @@ See the brotherhood of mankind as the highest order of yogis; conquer your own m
 <font color="DarkGreen"><b>Śhrī Guru Nāṇaka</b></font><br>
 <br>
 <font size="+1">Aarti - Gagan Main Thaal, Guru Nāṇak Āratī (Śhrī Guru Nāṇaka)</font><br>
-<a href=""> video</a><br>
+<a href="https://youtu.be/jNeQY2lnjko"> video</a><br>
 </p>
+
+<p>
+<font size="+1"><b>Guru Nāṇak Dev</b> has imagined the entire universe decorated as a prayer-platter on the altar of the Almighty. The starting verses of the Āratī are as follows:<br>
+<font color="DarkGreen"><b>Gagan mein thaal, rav chand deepak bane, taarka mandal janak moti dhūp malay aan lao, pawan chavro kare sagal ban rāi phulant jyoti kaisi Āratī hoye, bhavkhandana teri Āratī.<br>
+Anhat sabad bajant bheri kaisi Āratī hoye, bhavkhandana teri Āratī.</b></font><br>
+Means: The sky is the prayer-platter, the sun and the moon are the lamps, the stars and the constellations are the pearls and jewels. The air coming from the sandalladen Malay mountain are the incense, air is the fan, entire flora of the Earth are the flowers ...... oh ...... what an Āratī is it! O destroyer of fear!</font>
+</p>  
 
 
 <p>
