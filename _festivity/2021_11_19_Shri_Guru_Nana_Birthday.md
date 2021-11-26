@@ -117,7 +117,7 @@ Abide pure amidst the impurities of the world."</b></font><br>
 See the brotherhood of mankind as the highest order of yogis; conquer your own mind, and conquer the world."</b></font><br>
 <font color="DarkGreen"><b>Śhrī Guru Nāṇaka</b></font><br>
 <br>
-<font size="+1">Aarti - Gagan Main Thaal, Guru Nāṇak Āratī (Śhrī Guru Nāṇaka)</font><br>
+<font size="+1"><b>Āratī - Gagan Main Thaal, Guru Nāṇak Āratī (Śhrī Guru Nāṇaka)</b></font><br>
 <a href="https://youtu.be/jNeQY2lnjko"> video</a><br>
 </p>
 
