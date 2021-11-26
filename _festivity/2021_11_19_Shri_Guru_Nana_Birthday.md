@@ -101,7 +101,7 @@ Just desire, have earnestness in you and alertness to achieve it."</font><br>
 
 <div style="text-align: left"><img src="/images/image852.png" /></div>
 
-<p style="text-align:center;">
+<p style="text-align:left;">
 <font color="blue"><b>"Religion consisteth not in mere words<br>
 He who looketh not in wandering to tombs<br>
 Or places of cremation<br>
@@ -112,7 +112,7 @@ Abide pure amidst the impurities of the world."</b></font><br>
 <font color="DarkGreen"><b>Śhrī Guru Nāṇaka</b></font><br>
 </p>
 
-<p style="text-align:center;">
+<p style="text-align:left;">
 <font color="blue"><b>"No one is my enemy, No one is a foreigner, For me, there is no Hindu, no Muslim, With all I am at peace. God within us renders us, Incapable of hate and prejudice.
 See the brotherhood of mankind as the highest order of yogis; conquer your own mind, and conquer the world."</b></font><br>
 <font color="DarkGreen"><b>Śhrī Guru Nāṇaka</b></font><br>
