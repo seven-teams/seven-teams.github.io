@@ -10,7 +10,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,
 
 Jay Śhrī Mātājī!
 
-The website <a href="https://eternalmoments.smugmug.com/"> <font color="blue"><b>Eternal Moments</b></font></a> has now 17,572 Photographs of Śhrī Mātājī, including versions and details (an increment of 4,646 since Post 2), and 638 photos Moments of Joy (an increment of 124 since Post 2). Also, it has now a navigation menu accessible on every page. 
+The website <a href="https://eternalmoments.smugmug.com/"> <font color="blue"><b>Eternal Moments</b></font></a> has now 17,572 Photographs of Śhrī Mātājī, including versions and details (an increment of 4,646 since Post 2), and 638 photos Moments of Joy (an increment of 124 since Post 2). Also, it now has a navigation menu accessible on every page. 
 
 Please enjoy and share.
 
