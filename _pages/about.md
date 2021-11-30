@@ -41,7 +41,7 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 2. **<font color="blue">Comprehensive Compilations Teams.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 It's Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a><br>
-For other Websites of Photographs please see:
+For other websites of Photographs please see:
 
     i. <a href="https://www.divinecoolbreeze.org/PHOTOGRAPHS/"> The Divine Cool Breeze</a>
 
