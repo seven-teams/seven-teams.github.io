@@ -36,17 +36,17 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 **<font color="blue">On the Posts of the Seven Teams</font>**
 ======
 
-1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from  Śhrī Mātājī's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Śhrī Mātājī) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.  
+1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Śhrī Mātājī) together with Photographs and links to Video/Audio talks of Śhrī Mātājī. E-mail: festivityteam@gmail.com
 
-2. **<font color="blue">Comprehensive Compilations Teams.</font>** Quotes from  Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.  
+2. **<font color="blue">Comprehensive Compilations Teams.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order. E-mail: 
 
-4. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from  Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.  
+4. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.  
 
 4. **<font color="blue">Scriptures Team.</font>** Quotes from all Scriptures of the World.
 
-5. **<font color="blue">Chronology Team.</font>** Quotes from  Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. 
+5. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. 
 
-6. **<font color="blue">Yearly Topics Team.</font>** Quotes from  Śhrī Mātājī's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.  
+6. **<font color="blue">Yearly Topics Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.  
 
     i. **<font color="DarkGreen">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
 
