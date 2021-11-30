@@ -38,8 +38,9 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 
 1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Śhrī Mātājī) together with Photographs and links to Video/Audio talks of Śhrī Mātājī. E-mail: <b>festivityteam@gmail.com</b>
 
-2. **<font color="blue">Comprehensive Compilations Teams.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order. E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
-It's Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a>
+2. **<font color="blue">Comprehensive Compilations Teams.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.<br>
+E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
+It's Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a><br>
 For other Websites of Photographs please see:
 
     i. <a href="https://www.divinecoolbreeze.org/PHOTOGRAPHS/"> The Divine Cool Breeze</a>
@@ -52,13 +53,17 @@ For other Websites of Photographs please see:
 
     v. <a href="https://imageevent.com/sahaja"> Pavan Burd</a>
 
-3. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.  E-mail: <b>sakshat.avatar@gmail.com</b>
+3. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.<br> 
+E-mail: <b>sakshat.avatar@gmail.com</b>
 
-4. **<font color="blue">Scriptures Team.</font>** Quotes from all Scriptures of the World. E-mail: <b>shuddhvidya@gmail.com</b>
+4. **<font color="blue">Scriptures Team.</font>** Quotes from all Scriptures of the World. 
+<br>E-mail: <b>shuddhvidya@gmail.com</b>
 
-5. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. E-mail: <b>sahajagyaan@gmail.com</b>
+5. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. 
+<br>E-mail: <b>sahajagyaan@gmail.com</b>
 
-6. **<font color="blue">Yearly Topics Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.  E-mail: yearlycelebrations@gmail.com
+6. **<font color="blue">Yearly Topics Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.<br>
+E-mail: <b>yearlycelebrations@gmail.com</b>
 
     i. **<font color="DarkGreen">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
 
@@ -77,7 +82,8 @@ For other Websites of Photographs please see:
     viii. **<font color="DarkGreen">2021 Celebrating 40 Years of Sahaja Yoga in Australia, Canada, Italy and U.S.A. and its Culture</font>**
 
 
-7. **<font color="blue">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017. E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
+7. **<font color="blue">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017.<br>
+E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 For other databases of transcripts please see:
 
 
