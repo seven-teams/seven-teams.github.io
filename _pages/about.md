@@ -52,7 +52,7 @@ For other Websites of Photographs please see:
 
     v. <a href="https://imageevent.com/sahaja"> Pavan Burd</a>
 
-4. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.  E-mail: sakshat.avatar@gmail.com
+3. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.  E-mail: sakshat.avatar@gmail.com
 
 4. **<font color="blue">Scriptures Team.</font>** Quotes from all Scriptures of the World. E-mail: shuddhvidya@gmail.com
 
