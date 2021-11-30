@@ -36,7 +36,8 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 **<font color="blue">On the Posts of the Seven Teams</font>**
 ======
 
-1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Śhrī Mātājī) together with Photographs and links to Video/Audio talks of Śhrī Mātājī. E-mail: <b>festivityteam@gmail.com</b>
+1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Śhrī Mātājī) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.<br>
+E-mail: <b>festivityteam@gmail.com</b>
 
 2. **<font color="blue">Comprehensive Compilations Teams.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
