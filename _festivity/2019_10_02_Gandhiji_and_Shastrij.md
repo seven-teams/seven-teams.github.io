@@ -3,8 +3,8 @@ title: '2019 Celebrating Gandhiji Jayanti and Shastriji Jayanti'
 date: 2019-10-02
 permalink: /festivity/2019/1002b
 tags:
-  - Gandhi
-  - Shastri
+  - Mahatma Gandhi
+  - Lal Bahadur Shastri
 ---
 
 ![PICTURE 1](/images/image1.png)

@@ -4,7 +4,6 @@ date: 2019-04-17
 permalink: /festivity/2019/0417
 tags:
   - Shri Mahavira
-  - Mahavira Jayanti
   - Shri Bhairava
 ---
 

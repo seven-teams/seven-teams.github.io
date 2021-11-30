@@ -3,7 +3,6 @@ title: '2021 Celebrating Śhrī Mahāvīr Jayanti: "Mahāvīra, meaning The Grea
 date: 2021-04-25
 permalink: /festivity/2021/04/25
 tags:
-  - Mahavira Jayanti
   - Shri Mahavira
 ---
 

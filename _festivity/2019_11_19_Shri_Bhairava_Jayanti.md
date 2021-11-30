@@ -4,7 +4,7 @@ date: 2019-11-19
 permalink: /festivity/2019/11/19
 classes: wide
 tags:
-  - Bhairava
+  - Shri Bhairava
 
 ---
 
