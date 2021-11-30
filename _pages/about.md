@@ -52,13 +52,13 @@ iv. <a href="hhttps://www.flickr.com/photos/colinheinsenalbionstudio/albums"> Al
 
 v. <a href="https://imageevent.com/sahaja"> Pavan Burd</a>
 
-4. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.  
+4. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.  E-mail: sakshat.avatar@gmail.com
 
-4. **<font color="blue">Scriptures Team.</font>** Quotes from all Scriptures of the World.
+4. **<font color="blue">Scriptures Team.</font>** Quotes from all Scriptures of the World. E-mail: shuddhvidya@gmail.com
 
-5. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. 
+5. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. E-mail: sahajagyaan@gmail.com
 
-6. **<font color="blue">Yearly Topics Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.  
+6. **<font color="blue">Yearly Topics Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.  E-mail: yearlycelebrations@gmail.com
 
     i. **<font color="DarkGreen">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
 
@@ -77,7 +77,8 @@ v. <a href="https://imageevent.com/sahaja"> Pavan Burd</a>
     viii. **<font color="DarkGreen">2021 Celebrating 40 Years of Sahaja Yoga in Australia, Canada, Italy and U.S.A. and its Culture</font>**
 
 
-7. **<font color="blue">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017. For other databases of transcripts please see:
+7. **<font color="blue">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017. E-mail: sahajayoga.compilations@gmail.com
+For other databases of transcripts please see:
 
 
     i. <a href="https://www.amruta.org/transcripts-and-translations/"> Nirmala Vidya Amruta</a>
