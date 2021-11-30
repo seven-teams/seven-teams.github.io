@@ -36,9 +36,9 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 **<font color="blue">On the Posts of the Seven Teams</font>**
 ======
 
-1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Śhrī Mātājī) together with Photographs and links to Video/Audio talks of Śhrī Mātājī. E-mail: festivityteam@gmail.com
+1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Śhrī Mātājī) together with Photographs and links to Video/Audio talks of Śhrī Mātājī. E-mail: <b>festivityteam@gmail.com</b>
 
-2. **<font color="blue">Comprehensive Compilations Teams.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order. E-mail: sahajayoga.compilations@gmail.com
+2. **<font color="blue">Comprehensive Compilations Teams.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order. E-mail: sahajayoga.compilations@gmail.com<br>
 It's Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a>
 For other Websites of Photographs please see:
 
@@ -77,7 +77,7 @@ For other Websites of Photographs please see:
     viii. **<font color="DarkGreen">2021 Celebrating 40 Years of Sahaja Yoga in Australia, Canada, Italy and U.S.A. and its Culture</font>**
 
 
-7. **<font color="blue">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017. E-mail: sahajayoga.compilations@gmail.com
+7. **<font color="blue">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017. E-mail: sahajayoga.compilations@gmail.com<br>
 For other databases of transcripts please see:
 
 
