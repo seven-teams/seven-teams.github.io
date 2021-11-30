@@ -38,7 +38,19 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 
 1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Śhrī Mātājī) together with Photographs and links to Video/Audio talks of Śhrī Mātājī. E-mail: festivityteam@gmail.com
 
-2. **<font color="blue">Comprehensive Compilations Teams.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order. E-mail: 
+2. **<font color="blue">Comprehensive Compilations Teams.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order. E-mail: sahajayoga.compilations@gmail.com
+It's Photo Subteam maintains the website https://eternalmoments.smugmug.com/
+For other Websites of Photographs please see:
+
+i. <a href="https://www.divinecoolbreeze.org/PHOTOGRAPHS/"> The Divine Cool Breeze</a>
+
+i. <a href="https://www.flickr.com/people/74539343@N05/"> Photos of Shri Mataji (taken by Matthew Fogarty)</a>
+
+iii. <a href="https://library.sahajaworld.org/photos/"> Sahaja Digital Library</a>
+
+iv. <a href="hhttps://www.flickr.com/photos/colinheinsenalbionstudio/albums"> Albion Studio of Colin Heinsen</a>
+
+v. <a href="https://imageevent.com/sahaja"> Pavan Burd</a>
 
 4. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.  
 
