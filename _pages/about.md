@@ -44,7 +44,7 @@ E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 It's Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
 For other websites of Photographs please see:
 
-    i. <a href="https://imageevent.com/sahaja"> Pavan Burd (created in 2004)</a>
+    i. <a href="https://imageevent.com/sahaja"> Sahaja Image Events (albums by Pavan Burd) (created in 2004)</a>
 
     ii. <a href="https://www.divinecoolbreeze.org/PHOTOGRAPHS/"> The Divine Cool Breeze (created around 2008)</a>
 
