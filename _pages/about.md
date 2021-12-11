@@ -44,15 +44,15 @@ E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 It's Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
 For other websites of Photographs please see:
 
-    i. <a href="https://imageevent.com/sahaja"> Sahaja Image Events (albums by Pavan Burd) (created in 2004)</a>
+    i. <a href="https://imageevent.com/sahaja"> Sahaja Image Events</a> (albums by Pavan Burd) (created in 2004)
 
-    ii. <a href="https://www.divinecoolbreeze.org/PHOTOGRAPHS/"> The Divine Cool Breeze (created around 2008)</a>
+    ii. <a href="https://www.divinecoolbreeze.org/PHOTOGRAPHS/"> The Divine Cool Breeze</a> (created around 2008)
 
-    iii. <a href="hhttps://www.flickr.com/photos/colinheinsenalbionstudio/albums"> Albion Studio (of Colin Heinsen) (created in 2008)</a>
+    iii. <a href="https://www.flickr.com/photos/colinheinsenalbionstudio/albums"> Albion Studio</a> (of Colin Heinsen) (created in 2008)
 
-    iv. <a href="https://www.flickr.com/people/74539343@N05/"> Photos of Shri Mataji (taken by Matthew Fogarty) (created in 2012)</a>
+    iv. <a href="https://www.flickr.com/people/74539343@N05/"> Photos of Shri Mataji</a> (taken by Matthew Fogarty) (created in 2012)
 
-    v. <a href="https://library.sahajaworld.org/photos/"> Sahaja Digital Library (created in 2017)</a>
+    v. <a href="https://library.sahajaworld.org/photos"> Photos</a> (of Sahaja Digital Library) (created in 2017)
 
 3. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.<br> 
 E-mail: <b>sakshat.avatar@gmail.com</b>
