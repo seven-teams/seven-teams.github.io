@@ -18,7 +18,7 @@ We would like to share with you all the up-dated <font color="mediumvioletred">D
 Please kindly share the link with all our brothers and sisters. 
 </p>
 
-For older versions of <font color="blue">Divine Message</font> and of other databases, please see <a href="https://seven-teams.github.io/divine/2021/10/14"> Version 5.1 </a> and <a href="https://seven-teams.github.io/divine/2021/08/15"> Version 5 </a>. For another current database, please see <a href="https://drive.google.com/file/d/1FWaCLWj-SltoKhxI8Ll9xeX2988VhPJ_/view?usp=sharing">Nirmala Vidya Amruta (2021-1212)</a>
+For older versions of <font color="blue">Divine Message</font> and of other databases, please see <a href="https://seven-teams.github.io/divine/2021/10/14"> Version 5.1 </a> and <a href="https://seven-teams.github.io/divine/2021/08/15"> Version 5 </a>. For another current database, please see <a href="https://drive.google.com/file/d/1FWaCLWj-SltoKhxI8Ll9xeX2988VhPJ_/view?usp=sharing">Nirmala Vidya Amruta (2021-1212).</a>
 
 Jay Śhrī Mātājī!
 
