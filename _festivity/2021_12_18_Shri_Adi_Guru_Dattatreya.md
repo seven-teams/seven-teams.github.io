@@ -1,5 +1,5 @@
 ---
-title: '2021 Celebrating Śhrī Ādi Guru Dattātreya's Jayanti'
+title: '2021 Celebrating Śhrī Ādi Guru Dattātreya&#8217;s Jayanti'
 date: 2021-12-18
 permalink: /festivity/2021/12/18
 tags:
