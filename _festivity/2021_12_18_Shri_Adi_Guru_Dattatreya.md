@@ -43,9 +43,9 @@ He is the same who incarnated on this earth as Moses as Abraham, has incarnated 
 <div style="text-align: center"><img src="/images/image859.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed">Today is the day of Guru Pūrṇimā. It is a Full Moon Day, that’s why it’s called as Pūrṇimā. 
+<font color="DarkRed">"Today is the day of Guru Pūrṇimā. It is a Full Moon Day, that’s why it’s called as Pūrṇimā. 
 The guru has to be like a Full Moon, means completely grown, completely matured.<br>
-There are sixteen kalās or the phases of the Moon, and when the complete Pūrṇimā comes in, the Full Moon Day, all the sixteen kalās are completed.</font><br>
+There are sixteen kalās or the phases of the Moon, and when the complete Pūrṇimā comes in, the Full Moon Day, all the sixteen kalās are completed."</font><br>
 <font size="+0"><b>1979-0708 Guru Pūjā, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font><br>
 <font size="+0"><font color="DarkGreen"><b>Guru Vandana</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
@@ -60,13 +60,13 @@ There are sixteen kalās or the phases of the Moon, and when the complete Pūr�
 
 <div style="text-align: center"><img src="/images/image860.png" /></div>
 
-<p>
+<p style=" text-align:center;">
 <font color="DarkRed"><b>Śhrī Mātājī:</b> That's My own. I have no guru, neither I ever had, <b>but I have the Guru, I call him as Dattātreya, if that is so, but that is also within Me. In My stomach is the Guru.</b> You ask this question, 'Mother, have You any Guru?' Just ask this question in your hand, and you will know it.</font><br>
 <font size="+0"><b>1979-0530 Public Program, A Higher Life, A World of Bliss and Joy (The Three Paths of Evolution), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font><br>
 <font color="DarkGreen"><b>Aei mān Guru Sharan. me rahio, rahio,<br> 
 He man Ma ki Sharan. Me rahio rahio</b><br>
 <font size="+0"><b>O my heart, please stay under the Guru’s Protection,<br> 
-O my heart, please stay under the Mother’s Protection<br></b></font></font><br>
+O my heart, please stay under the Mother’s Protection</b></font></font><br>
 <a href="https://youtu.be/qRDLZNVcF6M">video</a>
 </p>
 
