@@ -9,7 +9,8 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"<b>Today is Śhrī Dattā Jayanti [birthday]. Today is a very great day.</b> I think this day has come only because of His blessings that Sahaja Yoga has been blossomed in you people. The Guru of all the Gurus -- Ādi Guru Śhrī Dattā Mahārāja. I bow to Him, He is My Guru also. He has taught Me quite enough on Sahaja Yoga all through My many births. And because of that only I have been able to do some work in this birth also, continuing to do.<br>
+<b>``Gurūr Brahmā Gurūr Viṣhṇu Gurūr devo Maheśhwara, Gurūr sākṣhāt Parabrahma tasmai Śhrī Guru dev namaḥ." The Guru is Brahmā [creator], Viṣhṇu [sustainer] and Maheśh [destroyer] and the Guru who is Himself God, I offer My obeisance to Him.</b>"</font><br>
 <font size="+0"><b>1973-1209 Public Program (Hindi), Day 3, Śhrī Dattātreya Jayanti, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -22,7 +23,7 @@ Evolution could not go further in the hands of human beings who were in the bond
 He was created as the three-headed child, Dattātreya, by Ādi Śhakti who appeared on Earth during the Tretā Yuga as Satī Anasūyā, wife of the Sage Atreya."</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations – Ambassadors of God</b></font><br>
 <br>
-<font color="DarkRed">Brahmā Viṣhṇu Maheśh kī Abodhita hai Ādi Guru<br>
+<font color="DarkGreen">Brahmā Viṣhṇu Maheśh kī Abodhita hai Ādi Guru<br>
 Dattatrey hai Matreya hai<br>
 Dattātreya hai Ma[i]treya hai Triguṇātmika Nirmala mayi<br>
 Ādi Guru Janak Lao Tze<br>
