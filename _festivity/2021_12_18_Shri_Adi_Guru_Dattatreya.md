@@ -34,7 +34,9 @@ Socrates Sāī Nirmala mayi</font><br>
 <p>
 <font color="DarkRed">"We have amongst ourselves Hindus, Muslims, Christians all that, you know that. All these people can feel it within themselves as a religion in their stomachs, they can feel it. <b>They can find out where is a religion because I say the religion in the stomach is looked after by the Deities of Primordial Master who we call as Dattātreya in the Sanskrit language. I don't mean in Hinduism.</b> It doesn't mean Hinduism at all.<br>
 But it is called as Dattātreya in the Sanskrit language, in English it's Primordial Master.<br>
-He is the same who incarnated on this earth as Moses as Abraham, has incarnated as Muhammad Sāhib, as Rāja Janaka, as Nāṇaka, and also as Śhirḍī Sāī Nāth. Can you believe that Muhammad Sāhib is the same as our Nāṇak?"</font><br>
+He is the same who incarnated on this earth as Moses as Abraham, has incarnated as Muhammad Sāhib, as Rāja Janaka, as Nāṇaka, and also as Śhirḍī Sāī Nāth. Can you believe that Muhammad Sāhib is the same as our Nāṇak?"
+......
+... The living religion is within us ...... So your religion automatically awakens and you just don't have to bother. Nobody has to tell you ...... So this is a religion that is within you which is enlightened through Kuṇḍalinī and then it works out. But it is an Absolute Religion in the sense that you all feel the same thing.</font><br>
 <font size="+0"><b>1979-0507 Public Program, Sahaja Yoga and Christianity, Bharatiya Vidyā Bhavan, London, UK</b></font>
 </p>
 
