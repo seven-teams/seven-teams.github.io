@@ -143,11 +143,6 @@ May God bless you.</b>"</font><br>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="https://youtu.be/cpAg0HUPE9M">video</a> 
-</p>
-
-<p>
   <font color="Red"><b>Wishing you all a Merry Christmas!!!</b></font>
 </p>  
 
