@@ -1,10 +1,10 @@
 ---
-title: '2021 Celebrating'
-date: 2021-01-01
-permalink: /festivity/2021/01/01
+title: '2021 Celebrating Christmas: "Merry Christmas is enjoyment for joy. Out of peace comes the joy, the light of joy, the happiness"
+'
+date: 2021-12-25
+permalink: /festivity/2021/12/25
 tags:
-  - New Year
-  - Shri Mahalakshmi
+  - Christmas Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
