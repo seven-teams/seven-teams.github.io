@@ -104,7 +104,6 @@ Do not desire for anything! Whatever is your desire is not correct, that’s all
 Morning and evening I sing Your praise
 <b>Śhrī Mātājī Tera hi jaya hu mein</b><br>
 Śhrī Mātājī I have received Second Birth from You.</font><br>
-<br>
 <a href="https://youtu.be/L1wSDCxZKS0">video</a>
 </p>
 
