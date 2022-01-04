@@ -108,7 +108,7 @@ Morning and evening I sing Your praise
 </p>
 
 <font size="+2"><font color="blue"><b>Suggested Talk:</b></font></font> 
-<font size="+0"><b>1990-0101 Pūjā, Mother Depends on Us and Marriages and Advice to Women, Sangli, Maharashtra, India<</b></font>
+<font size="+0"><b>1990-0101 Pūjā, Mother Depends on Us and Marriages and Advice to Women, Sangli, Maharashtra, India</b></font>
 <a href="https://vimeo.com/25165137"> video</a><br>
 
 <font size="+2"><font color="blue"><b>Bhajans:</b></font></font>
