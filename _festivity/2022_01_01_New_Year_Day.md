@@ -108,11 +108,11 @@ Morning and evening I sing Your praise
 <a href="https://youtu.be/L1wSDCxZKS0">video</a>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 
+<font size="+2"><font color="blue"><b>Suggested Talk:</b></font></font> 
 <font size="+0"><b>1990-0101 Pūjā, Mother Depends on Us and Marriages and Advice to Women, Sangli, Maharashtra, India<</b></font>
 <a href="https://vimeo.com/25165137"> video</a><br>
 
-<font size="+2"><b>Bhajans:</b></font>
+<font size="+2"><font color="blue"><b>Bhajans:</b></font></font>
 
 <p>
 <font color="green"><b>Anyatha Śharanam Nāsti</b></font><br>
