@@ -73,7 +73,7 @@ The whole universe is in the hands of a woman who creates children."</font><br>
 <b>Thank You</b> for inviting all of us to the court of the Goddess.<br>
 <b>Thank You</b> for establishing the Kingdom of God on Earth.<br>
 <b>Thank You</b> for accepting our offerings and prayers.<br>
-<b>Thank You</b> for showering Your blessings endlessly upon us.<br>
+<b>Thank You</b> for showering Your blessings endlessly upon us.</font><br>
 </p>
 
 <p>
