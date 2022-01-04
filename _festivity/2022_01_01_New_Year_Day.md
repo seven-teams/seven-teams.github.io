@@ -96,14 +96,14 @@ Live like an ocean and like a lion.<br>
 Don’t roar at others, I mean [be] generous and don’t be afraid of anything. Everything is taken care of, but believe that everything is taken care of. Sometimes you might feel you are let down, sometimes you’ll feel, “Oh, this should have happened.”<br>
 Do not desire for anything! Whatever is your desire is not correct, that’s all. If the desire is correct and is deserving, it will happen – hundred percent!<br>
 <b>So all the best, and the greatest year, and happiness and joy.</b>"</font><br>
-<font size="+0"><b>1981-1231 Talk to Sahaja Yogis, New Year's Eve, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font>
+<font size="+0"><b>1981-1231 Talk to Sahaja Yogis, New Year's Eve, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font><br>
 <br>
-<b>Ādi Śhakti Mātājī Tere Charano me aya hu mein</b><br>
+<font color="DarkRed">b>Ādi Śhakti Mātājī Tere Charano me aya hu mein</b><br>
 Ādi Śhakti Śhrī Mātājī I have come to Your Lotus Feet
 <b>Shyam saveregun. Tere gaon Tera hi jaya hu mein</b><br>
 Morning and evening I sing Your praise
 <b>Śhrī Mātājī Tera hi jaya hu mein</b><br>
-Śhrī Mātājī I have received Second Birth from You.<br>
+Śhrī Mātājī I have received Second Birth from You.</font><br>
 <br>
 <a href="https://youtu.be/L1wSDCxZKS0">video</a>
 </p>
