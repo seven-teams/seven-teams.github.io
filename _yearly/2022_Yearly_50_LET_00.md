@@ -16,11 +16,12 @@ tags:
 </p>
 
 <p>
-Dear All,
-
-We would like to announce that this year the weekly celebrations will be centered on the 50 Years of Life Eternal Trust in Indi and the World, with a specific emphasize on its objectives as listed on the original document from March 8, 1972.<br>
+Dear All,<br>
+<br>
+We would like to announce that this year the weekly celebrations will be centered on the 50 Years of Life Eternal Trust in India and the World, with a specific emphasize on its objectives as listed in the original March 1972 document.<br>
+<br>
 We hope very much that you will follow and enjoy all the posts.<br>
-
+<br>
 If you would like to contribute or to join our little team, please let us know asap.<br>
 </p>
 
