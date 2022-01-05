@@ -12,7 +12,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b>Celebrating 50 Years of Life Eternal Trust and its Objects</b><br></font>
+<font size="+2"><b>Celebrating 50 Years Of Life Eternal Trust And Its Objects</b><br></font>
 </p>
 
 <p>
