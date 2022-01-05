@@ -18,7 +18,7 @@ tags:
 <p>
 Dear All,<br>
 <br>
-We would like to announce that this year the weekly celebrations will be centered on the 50 Years of Life Eternal Trust in India and the World, with a specific emphasize on its objectives as listed in the original March 1972 document.<br>
+We would like to announce that this year the weekly celebrations will be centered on the 50 Years of Life Eternal Trust in India and the World, with a specific emphasis on its objectives as listed in the original March 1972 document.<br>
 <br>
 We hope very much that you will follow and enjoy all the posts.<br>
 <br>
