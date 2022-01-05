@@ -11,7 +11,7 @@ tags:
 <div style="text-align: center"><img src="/images/image876_Phot-Credit_Alessabdra_Pallini.png" /></div>
 
 <br>
-<p style="color:DeepPink; text-align:center">
+<p style="color:DarkGreen; text-align:center">
 <font size="+2"><b>Celebrating 50 Years of Life Eternal Trust and its Objects</b><br></font>
 </p>
 
