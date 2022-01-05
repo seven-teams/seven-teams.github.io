@@ -6,7 +6,7 @@ tags:
   - 50 Years of Life Eternal Trust and its Objects
 ---
 
-<div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="250" /></div><br>
+<div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
 <div style="text-align: center"><img src="/images/image876_Phot-Credit_Alessabdra_Pallini.png" /></div>
 
