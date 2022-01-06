@@ -30,9 +30,9 @@ The three people who went to see Jesus when He was born were Brahmā, Viṣhṇu
 </p>
 
 <p>
-<b>Objectives:</b>
-To spread the news of the descent of the Divine Grace, with the help of self-realized disciples of Mātājī.<br>
-To unite all genuine Seekers of Truth divided by dogmas and ignorance so that Satya Yuga (the Age of Truth) is born out of the present Kali Yuga (the Age of Darkness) rather than complete annihilation. To harness all the human resources to achieve this great task for which mass evolution will be needed.
+<b>Objectives:</b><br>
+6. To spread the news of the descent of the Divine Grace, with the help of self-realized disciples of Mātājī.<br>
+21. To unite all genuine Seekers of Truth divided by dogmas and ignorance so that Satya Yuga (the Age of Truth) is born out of the present Kali Yuga (the Age of Darkness) rather than complete annihilation. To harness all the human resources to achieve this great task for which mass evolution will be needed.
 </p>  
 
 Links to suggested talk: <a href="https://vimeo.com/104918602"> vimeo</a>, <a href="https://www.youtube.com/watch?v=RHjHc8BaT_k"> youtube</a><br>
