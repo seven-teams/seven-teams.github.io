@@ -8,7 +8,7 @@ tags:
 
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image876_Phot-Credit_Alessabdra_Pallini.png" /></div>
+<div style="text-align: center"><img src="/images/image876_Photo_Credit_Alessabdra_Pallini.png" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
