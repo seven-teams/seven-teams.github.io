@@ -25,7 +25,7 @@ So, without any further introduction from me, it gives me great pleasure, ladies
 
 We have no organization, you know, in Sahaja Yoga. And every ps ... type of a person is allowed to come in Sahaja Yoga, so that he gets the full advantage of his destiny.<br>
 ......<br>
-The three people who went to see Jesus when He was born were Brahmā, Viṣhṇu, Maheśha. Is described, were the three great people who went to see Jesus He was born was Śhrī Kṛiṣhṇa as Viṣhṇu, and Maheśha is Śhiva, and Brahmā as Brahmadeva. All these people went to worship Her. Nobody knew from where they came, who they were: they were called as the three wise men.<br>
+The three people who went to see Jesus when He was born were Brahmā, Viṣhṇu, Maheśha. Is described: where the three great people who went to see Jesus [when] He was born was Śhrī Kṛiṣhṇa as Viṣhṇu, and Maheśha is Śhiva, and Brahmā as Brahmadeva. All these people went to worship Her. Nobody knew from where they came, who they were: they were called as the three wise men.<br>
 <font color="blue"><b>1983-0307 Public Program, Day 2, Meeting Room, Town Hall, 128 King William Street and Pirie Street, Adelaide, SA, Australia</b></font><br>
 </p>
 
