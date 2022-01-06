@@ -19,7 +19,7 @@ tags:
 <b>Sahaja Yogi</b>: She is the One who is respected by the Saints as the Mother, as the Mātājī, who has come on this Earth to give the blessings of God to the seekers, and to give the Creation its own meaning.<br>
 So, without any further introduction from me, it gives me great pleasure, ladies and gentlemen, to introduce to you again: Her Holiness Śhrī Mātājī Nirmalā Devī.<br>
 ......<br>
-<font color="red"><b>Śhrī Mātājī</b>: ...... Or, there is no other measure by which you are going to be judged, but by knowing how far truthful you are about your seeking and how far you can gain something about it. 
+<font color="red"><b>Śhrī Mātājī</b></font>: ...... Or, there is no other measure by which you are going to be judged, but by knowing how far truthful you are about your seeking and how far you can gain something about it. 
 ......<br>
  It would be very civil of you to be away from us because we are not identified with any organization but with our own Self. 
 
