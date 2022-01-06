@@ -6,9 +6,9 @@ tags:
   - 50 Years of Life Eternal Trust and its Objects
 ---
 
-<div style="text-align: left"><img src="/images/Celebrating50LET.png" width="350" /></div><br>
+<div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image877_Jo_Băjescu_Collection.jpg" /></div>
+<div style="text-align: center"><img src="/images/image877_Jo_Bajescu_Collection.jpg" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
