@@ -37,7 +37,7 @@ But still, to grow in that you have to know what it is.<br>
 Actually, he made a horrible thing which I ... uh you can't imagine. I mean, if I tell you, you'll be shocked! He made a deed. He made the deed for the so-called registration of the ...... Vishwa Nirmala Dharma [in the U.S.A.].<br>
 ......<br>
 You can say Life Eternal Trust.<br>
-And what he wrot... he ... what he did was that: when I die he becomes the head! He becomes the head of the whole of the world, Mister Danny! That his great wife has achieved it. And, when [poiting towards him:] he found it out, he told Me, "Mother, what are You doing?"<br>
+And what he wrot... he ... what he did was that: when I die he becomes the head! He becomes the head of the whole of the world, Mister Danny! That his great wife has achieved it. And, when [pointing towards him:] he found it out, he told Me, "Mother, what are You doing?"<br>
 I trusted him so -- he's such a good man. I don't know how he got into this trap of getting some sort of a power.<br> 
 Can you do that? You cannot!"<br>
 <font color="blue"><b>1986-0113 Talk to Sahaja Yogis, Health Advice, the Sun, Western Habits, the Brain and Medical Matters, the day before Makar Saṅkrānti Pūjā, Tent, Banks of the Musalawāḍī Lake (10 kms NE of Rāhurī), Maharashtra, India</b></font><br>
