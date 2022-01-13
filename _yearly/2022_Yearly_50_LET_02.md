@@ -1,5 +1,5 @@
 ---
-title: 'Celebrating 50 Years of Life Eternal Trust and its Objects, Post 2 on on the Eve of Makarsankranti'
+title: 'Celebrating 50 Years of Life Eternal Trust and its Objects, Post 2 on on the Eve of Makar Saṅkrānti'
 date: 2022-01-13
 permalink: /yearly/2022/0113
 tags:
