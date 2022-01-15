@@ -39,7 +39,7 @@ Because of this axis we, we have seasons. The seasons are created beautifully to
 <div style="text-align: center"><img src="/images/image880.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"...... when on the Saṅkrānti, when the day changes, on the fourteenth of January when the Sun changes over, then they give the sweet,[unclear] saying that, ‘We’ll give you the sweet and speak to us in the same way in a sweet manner’ – so friendship. <b>Sugar gives you friendship. You give sweets to people to establish friendship.</b>"</b></font><br>
+<font color="DarkRed">"...... when on the Saṅkrānti, when the day changes, on the fourteenth of January when the Sun changes over, then they give the sweet,[unclear] saying that, ‘We’ll give you the sweet and speak to us in the same way in a sweet manner’ – so friendship. <b>Sugar gives you friendship. You give sweets to people to establish friendship.</b>"</font><br>
 <font size="+0"><b>1982-1009 Bestowing of Boons Pūjā, House of Maria Laventzi, Irchester (near Wellingborough), UK</b></font>
 </p>
 
