@@ -127,7 +127,7 @@ May God bless you all."</b></font><br>
 <font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Śhākambharī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ</b></font><br>
 <a href="https://soundcloud.com/nirmala-vidya-portal/2009-0114-ankranti-puja-pune"> audio</a><br>
 <font size="+0">songs from 2:31 to 26:30</font><br>
-<font size="+0"><b>1. Purvechya Deva tuze Sūrya Dev naav</b></font><br>
+<font size="+0"><b>1. Purvechya Deva tuze Sūrya Dev nāv</b></font><br>
 <font size="+0"><b>2. Gagan sadan tejomay</b></font><br>
 <font size="+0"><b>3. Udhalita Shat kirana</b></font><br>
 <font size="+0"><b>4. Suraj ki garmi se</b></font>
