@@ -108,7 +108,7 @@ May God bless you all."</b></font><br>
 </p>
 
 <p>
-<font color="OrangeRed><b>Brahma Shodile (after 1988-0110 Śhrī Sūrya Pūjā)</b></font><br>
+<font color="OrangeRed"><b>Brahma Shodile</b> (after 1988-0110 Śhrī Sūrya Pūjā)</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -120,7 +120,7 @@ May God bless you all."</b></font><br>
 <div style="text-align: center"><img src="/images/image883.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"The heat of the Sun is responsible for all the vegetation and wealth of the Earth. <b>On this day we offer fruits and vegetables to the Devī and receive Her blessings.</b> With the blessings of Ādi Śhakti the earth element cools down and the human race progresses."</b></font><br>
+<font color="DarkRed">"The heat of the Sun is responsible for all the vegetation and wealth of the Earth. <b>On this day we offer fruits and vegetables to the Devī and receive Her blessings.</b> With the blessings of Ādi Śhakti the earth element cools down and the human race progresses."</font><br>
 <font size="+0"><b>2002-0114 Makar Saṅkrānti Pūjā (Marathi), Gain Self-confidence from the Light of the Sun and Become Radiant, House of Kalpana Shrivastava, Mumbai, Maharashtra, India</b></font><br>
 <font size="+0">(photo from 2005-0114 Śhrī Śhākambharī Pūjā (Hindi), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India)</font><br>
 <br>
