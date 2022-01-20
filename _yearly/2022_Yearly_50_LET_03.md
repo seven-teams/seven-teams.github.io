@@ -30,7 +30,7 @@ Links to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/19
 
 <p>
 <b>Objectives:</b><br>
-1. To achieve the evolution described in the foregoing para through the method of ``Sahaja Yoga" which means effortless, easy, relaxed method of meditation evolved by Mātājī. ......
+1. To achieve the evolution described in the foregoing para through the method of ``Sahaja Yoga" which means effortless, easy, relaxed method of meditation evolved by Mātājī. ......<br>
 2. By the process, to reach a Zero point where one becomes effortless and starts feeling the play of the supreme. ...... 
 </p>
 
