@@ -1,5 +1,5 @@
 ---
-title: 'Celebrating 50 Years of Life Eternal Trust and its Objects, Post 1 on the Epiphany Day'
+title: 'Celebrating 50 Years of Life Eternal Trust and its Objects, Post 3'
 date: 2022-01-20
 permalink: /yearly/2022/0120
 tags:
