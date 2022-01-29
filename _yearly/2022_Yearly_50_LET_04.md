@@ -28,6 +28,12 @@ Even when they get Realization, even when they get vibrations, even when they ar
 
 Links to suggested talk: <a href="https://vimeo.com/365219829"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/sets/1982-0126-puja-on-the-republic"> soundcloud</a><br>
 
+<p>
+<b>Objectives:</b><br>
+3. ...... Ultimately to reach the stage where one loses the Ego and one becomes one with the Creator and His creation.<br>
+6. To spread the news of the descent of the Divine Grace, with the help of self-realized disciples of Mātājī.
+</p>
+
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
 Comprehensive Compilations and Yearly Topics Teams
