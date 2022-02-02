@@ -1,7 +1,7 @@
 ---
 title: 'Celebrating 50 Years of Life Eternal Trust and its Objects, Post 5'
 date: 2022-02-02
-permalink: /yearly/2022/0106
+permalink: /yearly/2022/0202
 tags:
   - 50 Years of Life Eternal Trust and its Objects
 ---
