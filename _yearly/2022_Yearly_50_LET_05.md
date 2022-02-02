@@ -8,7 +8,7 @@ tags:
 
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image886.png" /></div>
+<div style="text-align: center"><img src="/images/image886_Usha_Peter_Brownscombe_Collection.png" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
