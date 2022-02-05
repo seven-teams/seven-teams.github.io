@@ -125,8 +125,9 @@ Lord Gaṇeśha, please give us devotion<br>
 In this land of Śhrī Gaṇeśha<br>
 <b>Ek.ta ki Śhakti sab ko</b><br>
 Please grant us the power of collectivity<br>
-<b>Jai Jai Bolo Nirmal Ganesh. ki</b><br>
+<b>Jay Jay Bolo Nirmal Gaṇeśha kī</b><br>
 Victory to Śhrī Gaṇeśha!</font></font><br>
+<b>Jay Jay Bolo Nirmal Gaṇeśha kī</b><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
