@@ -176,7 +176,7 @@ We always sing Māhūragaḍ. Wari song, that is the one – is Mahāsaraswatī,
 <font color="DarkGreen"><font size="+0"><b>Sā mām pātu Saraswatī Bhagavatī</b></font></font><br>
 <font size="+0"><b>O You, who are that Goddess Saraswatī Bhagavatī, please bless us and protect us.</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Nishesha jādy’āpahā </b></font></font><br>
-<font size="+0"><b></b></font>Destroy all our ignorance. </font><br>
+<font size="+0"><b></b>Destroy all our ignorance.</font><br>
 <font size="+0">Śhrī Saraswatī Vandanā (Prayer to Śhrī Saraswatī)  </font>
 </p>
 
