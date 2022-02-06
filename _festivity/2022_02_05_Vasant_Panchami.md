@@ -40,7 +40,7 @@ First of all, those who think too much or those who create too much without Real
 
 <div style="text-align: center"><img src="/images/image892.png" /></div>
 
-<p>
+<p style="text-align:center;">
 <font color="DarkRed">"...... only for hymns to be sung in the praise of God. All music should be in the praise of God. All rāgas should be in the praise of God."</font><br>
 <font size="+0"><b>1983-0202 Public Program (English+Hindi), Day 4, The Viśhuddhi Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font><br>
 <br>
