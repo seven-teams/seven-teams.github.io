@@ -117,7 +117,7 @@ We always sing Māhūragaḍ. Wari song, that is the one – is Mahāsaraswatī,
 <font color="DarkGreen"><font size="+0"><b>Bhakt. Yetil. Dar. Shanas.</b></font></font><br>
 <font size="-1">Devotees all come to receive Your darśhan</font><br> 
 <font size="+0">(Mahurgad, where the Shrī Mahāsaraswatī/Shrī Renuka Devī swayambhū is)</font><br>
-<font size="+0"><font color="DarkGreen">Mahur gadavari</font></font><a href="https://www.youtube.com/watch?v=EWoUoau4BOw&ab_channel=SahajayogaCulture">video</a><br>
+<font size="+0"><font color="DarkGreen">Mahur gadavari:</font></font> <a href="https://www.youtube.com/watch?v=EWoUoau4BOw&ab_channel=SahajayogaCulture">video</a><br>
 <br>
 <font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Mahāsaraswatī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font>
 </p>
