@@ -162,20 +162,20 @@ We always sing Māhūragaḍ. Wari song, that is the one – is Mahāsaraswatī,
 
 <p style="text-align:center;">
 <font color="DarkGreen"><font size="+0"><b>Yā kundendu tushāra hāra dhavalā</b></font></font><br>
-<font size="+0"><b>She who is as fair as fragrant white Kunda flowers, the moon, the fine misty spray of the waterfall and the white garland;</b></font></font><br>
+<font size="+0"><b>She who is as fair as fragrant white Kunda flowers, the moon, the fine misty spray of the waterfall and the white garland;</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Yā shubhra vastrā vṛutā</b></font></font><br>
-<font size="+0"><b>She who is covered with white garments; </b></font></font><br>
+<font size="+0"><b>She who is covered with white garments; </b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Yā vīnā vara danda mandita karā </b></font></font><br>
-<font size="+0"><b>She whose hands are decorated with the vina’s slender neck;</b></font></font><br>
+<font size="+0"><b>She whose hands are decorated with the vina’s slender neck;</b></font>><br>
 <font color="DarkGreen"><font size="+0"><b>Yā shweta padm’āsanā </b></font></font><br>
-<font size="+0"><b>She who resides in a white lotus;</b></font></font><br>
+<font size="+0"><b>She who resides in a white lotus;</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Yā Brahm’āchyuta Shaṅkara Prabhṛutibhir</b></font></font><br>
-<font size="+0"><b>She whom Śhrī Brahmā, Śhrī Viṣhṇu, Śhrī Śhiva and all the Deities</b></font></font><br>
+<font size="+0"><b>She whom Śhrī Brahmā, Śhrī Viṣhṇu, Śhrī Śhiva and all the Deities</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Devaihi sadā vanditā</b></font></font><br>
-<font size="+0"><b>Constantly praise and worship;</b></font></font><br>
+<font size="+0"><b>Constantly praise and worship;</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Sā mām pātu Saraswatī Bhagavatī</b></font></font><br>
-<font size="+0"><b>O You, who are that Goddess Saraswatī Bhagavatī, please bless us and protect us.</b></font></font><br>
-<font color="DarkGreen"><font size="+0"><b></b></font></font><br>
+<font size="+0"><b>O You, who are that Goddess Saraswatī Bhagavatī, please bless us and protect us.</b></font><br>
+<font color="DarkGreen"><font size="+0"><b>Nishesha jādy’āpahā </b></font></font><br>
 <font size="+0"><b></b></font>Destroy all our ignorance. </font><br>
 <font size="+0">Śhrī Saraswatī Vandanā (Prayer to Śhrī Saraswatī)  </font>
 </p>
