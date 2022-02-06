@@ -71,8 +71,8 @@ All the Three Powers meet at Āgñyā."</font><br>
 <div style="text-align: center"><img src="/images/image893.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"The second power, which He gave us, which He sent to us, was Mahāsaraswatī and to this Mahāsaraswatī Power, He called Counselor, the one who will counsel you – that means, who helps us for Yoganirūpaṇ [to see the form of Yoga].<br>
-With the help of this second power, we will get Gyān [Knowledge], we will know the subtle knowledge."</b></font><br>
+<font color="DarkRed">"The second power, which He gave us, which He sent to us, was Mahāsaraswatī and to this Mahāsaraswatī Power, <b>He called Counselor, the one who will counsel you – that means, who helps us for Yoganirūpaṇ [to see the form of Yoga]</b>.<br>
+With the help of this second power, we will get Gyān [Knowledge], we will know the subtle knowledge."</font><br>
 <font size="+0"><b>1996-0414 Easter Pūjā (Hindi), Kolkata, West Bengal, India</b></font>
 </p>
 
