@@ -102,7 +102,7 @@ if art is taken up, then it becomes very fragrant and beautiful in the hands of 
 <font color="DarkRed">
 "Now the second one is Mahāsaraswatī, is at Māhūragaḍ. 
 We always sing Māhūragaḍ. Wari song, that is the one – is Mahāsaraswatī, which is also called as Reṇukā Devī, that’s the right-sided Mahāsaraswatī."</font><br>
-<font size="+0"><font color="DarkGreen"><b>1990-1221 Śhrī Mahālakṣhmī Pūjā (Hindi+English), Hall, Kolhapur, Maharashtra, India</b></font><br>
+<font size="+0"><b>1990-1221 Śhrī Mahālakṣhmī Pūjā (Hindi+English), Hall, Kolhapur, Maharashtra, India</b></font><br>
 <br>
 <font color="DarkGreen"><font size="+0"><b>Mahur Gadawari, Mahur Gadawari ga Tujha Vasa,</b></font></font><br>
 <font size="-1">On the hill of Mahur (village close to Nagpur), O goddess You stay,</font><br>
