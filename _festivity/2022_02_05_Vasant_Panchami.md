@@ -52,7 +52,7 @@ all its words and the tune, comes from You.</font><br>
 Only with Your compassion we become pār in Sahaj.</font><br>
 <font color="DarkGreen"><b>Nirmal Vidya ka vardan de ma</b><br>
 Please grant us the boon of Śhrī Nirmala Vidya.</font><br>
-<a href="www.youtube.com/watch?v=v7T1xpKkYFU">video</a>
+<a href="https://youtu.be/v7T1xpKkYFU">video</a>
 </p>
 
 <p>
