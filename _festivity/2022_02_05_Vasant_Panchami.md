@@ -78,8 +78,9 @@ With the help of this second power, we will get Gyān [Knowledge], we will know 
 
 <p>
 <font color="DarkRed">"Saraswatī cleanses all that is impure in nature, while with our brain activity we are spoiling all that.<br>
-All our brain activity goes against pure intelligence. And that's what one has to understand: that this pure intelligence is not to be soiled by our thinking. Our thinking can make us so bumptious, so ego-oriented, so impure that we can really eat the poison and say, 'What wrong?'' Just the opposite of Saraswatī. If Saraswatī will be in u ... is within us, She gives us subuddhi, wisdom.<br>
-And that's why, to worship Saraswatī, to worship Sūrya, we must have that clear vision as to what we have to be, what we are doing, what filth we are living in, what our mind is getting into. After all, we are here for emancipation and not for just pampering our ego and living with our filth that is with us.<br>
+All our brain activity goes against pure intelligence. And that's what one has to understand: that this pure intelligence is not to be soiled by our thinking. Our thinking can make us so bumptious, so ego-oriented, so impure that we can really eat the poison and say, 'What wrong?'' Just the opposite of Saraswatī.<br>
+<b>If Saraswatī will be in u ... is within us, She gives us subuddhi, wisdom.</b><br>
+<b>And that's why, to worship Saraswatī, to worship Sūrya, we must have that clear vision as to what we have to be, what we are doing, what filth we are living in, what our mind is getting into.</b> After all, we are here for emancipation and not for just pampering our ego and living with our filth that is with us.<br>
 So, this Light has come within us and we should try to rise above our own mental filth, which is being created around us. "</font><br>
 <font size="+0"><b>1983-0114 Śhrī Saraswatī Pūjā (English+Marathi) (Makar Saṅkrānti Day), Śhrī Saraswatī's Blessings (The Basis of All Creativity of Saraswatī is Love, Permeating Spirit, The Purest Form of Nature Is within Us and Subudhi), Dhule, Maharashtra, India</b></font>
 </p>
