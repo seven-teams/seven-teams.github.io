@@ -22,9 +22,7 @@ But to achieve that state, first of all, is important. That's why in Sahaja Yoga
 ......<br>
 So it is necessary for Indian Sahaja Yogis to understand how we have failed. We must know our defects: `Why we have failed in our pursuit of God? Why there are so many temples?'<br>
 ......<br>
-But we have to change the whole system upside down, otherwise things won't work out. The whole system has to be changed.<br>
-......
-"<br>
+But we have to change the whole system upside down, otherwise things won't work out. The whole system has to be changed."<br>
 <font color="blue"><b>1986-0125 Pūjā, Why We Have Failed in Our Pursuit of God (The Whole System Has to Be Changed), Chennai, Tamil Nadu, India</b></font><br>
 </p>
 
