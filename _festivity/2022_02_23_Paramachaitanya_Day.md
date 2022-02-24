@@ -9,8 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"It's better to tell you after Realization that, "I am the Holy Ghost -- no doubt. I am the one about which Christ has talked." 
-
+<font color="DarkRed">"It's better to tell you after Realization that, "I am the Holy Ghost -- no doubt. I am the one about which Christ has talked."<br>
 I have told them, I had never said this on -- from a platform and I told -- they have been telling Me, "Mother, You must say that once." I said, <b>"In America I'll declare it." So, today I declare that, "I am the Holy Ghost, I am the Holy Spirit, who has incarnated on this Earth for your Realization."</b><br>
 May God bless you!"</font><br>
 <font size="+0"><b>1981-0930 Public Program, Day 7 (2nd Day and 3rd Day of Navarātri), I Am the Holy Ghost, Christ Church (United Methodist), 524 Park Avenue, Manhattan, New York City, NY, U.S.A.</b></font>
@@ -33,7 +32,7 @@ But deliver us from evil;<br>
 For thine is the Father,<br>
 The children and the glory,<br>
 Forever and ever, Amen.</b></font><br>
-<font size="+0"><b></b></font><br>
+<font size="+0"><b>1986-0713 Śhrī Kārttikeya Pūjā, From Gaṇeśha State to the State of Kārttikeya and Kārttikeya's the One Who Commands Innocence (The Powers of a Woman Are that of Love and When Men Develop the Women's Quality then They Become Saints), Großhartpenning (38 kms S of Münich), Germany</b></font><br>
 <a href="https://youtu.be/tHm8jefq9bk">video</a>
 </p>
 
