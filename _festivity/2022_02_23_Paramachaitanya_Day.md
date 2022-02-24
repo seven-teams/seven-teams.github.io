@@ -19,7 +19,7 @@ May God bless you!"</font><br>
 <div style="text-align: center"><img src="/images/image898.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b>Our Mother, who art on Earth,
+<b>Sahaja Yogis:</b> <font color="DarkRed"><b>Our Mother, who art on Earth,
 Hallowed be Thy name.<br>
 Thy Kingdom come,<br>
 Thy Will be done<br>
