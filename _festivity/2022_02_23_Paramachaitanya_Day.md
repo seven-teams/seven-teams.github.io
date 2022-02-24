@@ -146,13 +146,11 @@ As I realized that worship can only exist through selfless surrender to the Lotu
 <font color="FireBrick"><b>Ankhe band karu</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="FireBrick"><b>Mā Nirmal Tere Yogi Hum</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="FireBrick"><b>Tum Asha Vishwas Hamare</b></font><br>
