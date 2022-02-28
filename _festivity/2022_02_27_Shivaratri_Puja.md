@@ -69,7 +69,7 @@ I bow to the Lord God Almighty.</font><br>
 <p>
 <font color="DarkRed">"<b>When Śhiva closes His eyes, He is called a destroyer</b> (saṃhārak). <b>He only is the state and He only is the laya</b> [extinction], <b>because He can be a state, He can also be laya</b> [extinction]. I had told you about Śhiva’s place in Kuṇḍalinī Śhāstra. In a man’s heart, He always enlightens like the light of a lamp. Because of which the knowledge of right-wrong, discretion remains awakened, which goes on forbidding us, ‘Don’t do this, this is wrong, this is unrighteous. This is wrong, this is deceitfulness, this is is greed, this is pride, this is jealousy, this is adharm, this is below the dignity of a man, this is not worthwhile.’ But the independence that a man has is used by him very badly and he disregards Śhiva.<br>
 Śhiva drinks the poison of the whole world. Whatever amount of poison is settled in our heart, aversion towards others, evil, etc., very impure thoughts, our heart becomes poisonous, when Śhiva awakens within us, He drinks that poison. Śhiva’s food, His drink is poison, whatever intoxicating things are there, the intoxicants, etc., all that is injurious to consciousness is consumed (prāśhan) by Śhiva."</font><br>
-<font size="+0"><b>1977-0216 Śhivarātri Pūjā (Hindi), Śhivajī Ke Ūpara Sārā Saṃsāra Nirbhara Hai (The Whole World Is Dependent on Śhivajī), New Delhi, India</font>
+<font size="+0"><b>1977-0216 Śhivarātri Pūjā (Hindi), Śhivajī Ke Ūpara Sārā Saṃsāra Nirbhara Hai (The Whole World Is Dependent on Śhivajī), New Delhi, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image905.png" /></div>
@@ -88,7 +88,7 @@ We have to be one with the Spirit, and all the rest is not important.<br>
 You are in the beautiful Kingdom of God where all ugliness drops out like when the lotus opens out; all the mud drops out from it.<br>
 <b>In the same beautiful way, let My children become fragrant beautiful offerings to Lord Sadāshiva.<br> 
 May God bless you.</b>"</font><br>
-<font size="-1"><b>Śhrī Mātājī's prayer for the Spirit (left heart): Prayer, praises and protocol, page 142</b></font>
+<font size="+0"><b>Śhrī Mātājī's prayer for the Spirit (left heart): Prayer, praises and protocol, page 142</b></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
