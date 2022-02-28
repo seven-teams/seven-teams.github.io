@@ -140,9 +140,9 @@ May God bless you.</b>"</font><br>
 <div style="text-align: center"><img src="/images/image906.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkSlateBlue"><b>Aum Shivam Shivakaram Shāntam Shiv’ākaram</b><br>
-Aum to the auspicious One, the bestower of auspiciousness, the One who is peace, who is the auspicious Spirit,<br>
-<b>Shiv’ottamam Shivamārga Pranetāram Pranatosmi Sadāshivam</b><br>
+<font color="DarkSlateBlue"><b>Auṃ Śhivam Śhivakaram Śhāntam Śhiv’ākaram</b><br>
+Auṃ to the auspicious One, the bestower of auspiciousness, the One who is peace, who is the auspicious Spirit,<br>
+<b>Śhiv’ottamam Śhivamārga Pranetāram Pranatosmi Sadāśhivam</b><br>
 The highest, most auspicious and beautiful One, who is the path of auspiciousness, before whom everyone prostrates, 
 I bow to the Lord God Almighty.<br>
 <b>We, the children, bow with complete devotion and adoration to the Sacred One who resides in the heart of Shri Mataji Nirmala Devi. 
