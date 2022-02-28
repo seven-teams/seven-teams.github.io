@@ -141,7 +141,7 @@ May God bless you.</b>"</font><br>
 
 <p style="text-align:center;">
 <font color="DarkSlateBlue"><b>Aum Shivam Shivakaram Shāntam Shiv’ākaram</b><br>
-Aum to the auspicious One, the bestower of auspiciousness, the One who is peace, who is the auspicious Spirit,</font><br>
+Aum to the auspicious One, the bestower of auspiciousness, the One who is peace, who is the auspicious Spirit,<br>
 <b>Shiv’ottamam Shivamārga Pranetāram Pranatosmi Sadāshivam</b><br>
 The highest, most auspicious and beautiful One, who is the path of auspiciousness, before whom everyone prostrates, 
 I bow to the Lord God Almighty.<br>
