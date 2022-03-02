@@ -185,7 +185,7 @@ Whatever work I do, all that is Your Ārādhanā (Worship), O Śhambhu.</font><b
 <div style="text-align: center"><img src="/images/image911.png" /></div>
 
 <p style=" text-align:center;">
-<font color="Brown"><b>hen your Kuṇḍalinī pierces the Sahasrāra, Śhrī Mahādeva is seated there.<br>
+<font color="Brown"><b>"When your Kuṇḍalinī pierces the Sahasrāra, Śhrī Mahādeva is seated there.<br>
 That is why He is called Mahādeva, the God of Gods ......"</b></font><br>
 <font size="+0"><b>2004-0215 Śhivarātri Pūjā (Hindi+English), Kalyāṇ and Kaiyvalya, Pune, Maharashtra, India</b></font><br>
 <br>
