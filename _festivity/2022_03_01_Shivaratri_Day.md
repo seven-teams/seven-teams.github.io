@@ -143,7 +143,7 @@ Whatever work I do, all that is Your Ārādhanā (Worship), O Śhambhu.</font><b
 </p>
 
 <p>
-<font color="green"><b>Bhole baba Chale Kailash</b></font><br>
+<font color="green"><b>Bhole Bābā Chale Kailash</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
