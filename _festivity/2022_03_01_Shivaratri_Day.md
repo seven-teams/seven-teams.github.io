@@ -191,8 +191,6 @@ That is why He is called Mahādeva, the God of Gods ......"</b></font><br>
 I am in the form of Sat (truth, Self or existence), Chit (awareness or consciousness) and Ananda (bliss or pure joy)<br>
 I am Śhiva, I am Śhiva!</font><br>
 <br>
-<font color="Indigo"><b></b></font><br>
-<br>
 <br>
 <font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Śhiva sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 <font color="DarkRed"><b>O Divine Mother, You are verily Śhrī Śhiva.<br> 
