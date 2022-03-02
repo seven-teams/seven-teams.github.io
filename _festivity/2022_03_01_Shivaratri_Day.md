@@ -18,10 +18,8 @@ Every matter has been created with a Deity in [it]. And that Deity is establishe
 <div style="text-align: center"><img src="/images/image907.png" /></div>
 
 <p style="text-align:center;">
-<font color="Brown">"<b>Today is the great day I said of Mahāshivaratri. It’s really a very great day because today is this great Kailasha was established.</b><br>
-... He was reflected on this Earth as Shiva on the Kailasha. His residence is Kailash.<br>
-That is why He is a dakshinamurti, He is looking at the dakshin – means looking at the south.<br>
-He’s looking at the south because He is the man who is The Spectator of all the things that are happening."</font><br>
+<font color="Brown">"<b>Today is the great day I said of Mahāśhivarātri. It's really a very great day because today is this great Kailāśha was established.</b><br>
+...... He was reflected on this Earth as Śhiva on the Kailāśha. His residence is Kailāśh. That is why He is a Dakṣhiṇāmūrti, He is looking at the dakṣhiṇ -- means looking at the south. He's looking at the south because He is the man who is the Spectator of all the things that are happening."</font><br>
 <font size="+0"><b>1982-0222 Public Program (English+Hindi) (Śhivarātri Day), Day 5, Lord Śhiva, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font><br>
 <br>
 <font color="Indigo"><b>Lalat.Pe Hai Chandra Mā<br>
@@ -189,9 +187,9 @@ Whatever work I do, all that is Your Ārādhanā (Worship), O Śhambhu.</font><b
 That is why He is called Mahādeva, the God of Gods ......"</b></font><br>
 <font size="+0"><b>2004-0215 Śhivarātri Pūjā (Hindi+English), Kalyāṇ and Kaiyvalya, Pune, Maharashtra, India</b></font><br>
 <br>
-<font color="Indigo"><b>Sat-chid’ānanda rūpah, Shivo’ham, Shivo’ham</b><br>
+<font color="Indigo"><b>Sat-chid’ānanda rūpah, Śhivo’ham, Śhivo’ham</b><br>
 I am in the form of Sat (truth, Self or existence), Chit (awareness or consciousness) and Ananda (bliss or pure joy)<br>
-I am Shiva, I am Shiva!</font><br>
+I am Śhiva, I am Śhiva!</font><br>
 <br>
 <font color="Indigo"><b></b></font><br>
 <br>
