@@ -22,7 +22,7 @@ Every matter has been created with a Deity in [it]. And that Deity is establishe
 ... He was reflected on this Earth as Shiva on the Kailasha. His residence is Kailash.<br>
 That is why He is a dakshinamurti, He is looking at the dakshin – means looking at the south.<br>
 He’s looking at the south because He is the man who is The Spectator of all the things that are happening."</font><br>
-<font size="+0"><b>982-0222 Public Program (English+Hindi) (Śhivarātri Day), Day 5, Lord Śhiva, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font><br>
+<font size="+0"><b>1982-0222 Public Program (English+Hindi) (Śhivarātri Day), Day 5, Lord Śhiva, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font><br>
 <br>
 <font color="Indigo"><b>Lalat.Pe Hai Chandra Mā<br>
 Jata Me Gangadhar.<br>
@@ -38,7 +38,7 @@ Hai Koti Sūrya Ka Prakāśh<br>
 Śheṣha (the Serpent God) is coiled around Your neck like a garland.<br>
 In His devotion to You, Śheṣha is doing a joyful dance by rhythmically swaying His head from side to side.<br>
 The power of Your Śhakti (Śhiv Śhakti) is illuminating Your Being as well as the cosmos with the radiance of a thousand suns.<br>
-<a href="">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
