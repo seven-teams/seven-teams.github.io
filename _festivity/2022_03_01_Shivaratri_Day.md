@@ -114,7 +114,7 @@ So, with our Three Powers, our Triguṇās, our Three Powers, we surrender ourse
 And, by that, we show that:<br>
  ‘We give our triguṇas to You so that we become Guṇātīt.’<br>
 This is what is the Śhiva Pūjā.</b><br>
-May God bless you."</b></font><br>
+May God bless you."</font><br>
 <font size="+0"><b>1979-0225 Śhivarātri Pūjā (Marathi+English) (Śhivarātri Day), Pune, Maharashtra, India</b></font><br>
 <br>
 <font color="Indigo"><b>Ātmā Tvam Girija Mātī Sahachara Pranah Śharīram Griham<br>
