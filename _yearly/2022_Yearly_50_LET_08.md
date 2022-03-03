@@ -18,7 +18,7 @@ tags:
 <p>
 "So, you have to give up your mind. Somebody else should work it out: the Divine.<br>
 ......
-This is the secret of your Mother's māyā, also. This is the secret of your Mother's māyā: `That I live on limited plane, and do unlimited things. That's how I create māyā.'<br>
+This is the secret of your Mother's māyā, also. This is the secret of your Mother's māyā: 'That I live on limited plane, and do unlimited things. That's how I create māyā.'<br>
 ......<br>
 And this is what one should know that our foundations have been made very weak, by [the] satanic force. Our foundations are very weak.<br>
 We have been given all these ideas for days in and day out. The satanic forces have built it up since long! Since long these ideas have been built up.<br>
@@ -35,7 +35,7 @@ Every one of you has to become a leader.<br>
 ......<br>
 So channelize yourself properly, cleanse yourself properly, and dedicate.<br>
 ......<br>
-I don't care [about] your protocols and your ritualistic things, are nonsense for Me. What does it matter for Me? The one who loves others is the one who really loves Me. Take it from Me. I have had all these rituals and all that and I have no care for these things. Makes no difference whether you say, `Good morning' to Me or, `Good evening' to Me, it's not important. What you say to your brothers and sisters is the most important thing."<br>
+I don't care [about] your protocols and your ritualistic things, are nonsense for Me. What does it matter for Me? The one who loves others is the one who really loves Me. Take it from Me. I have had all these rituals and all that and I have no care for these things. Makes no difference whether you say, 'Good morning' to Me or, 'Good evening' to Me, it's not important. What you say to your brothers and sisters is the most important thing."<br>
 <font color="blue"><b>1981-0524 Talk to Sahaja Yogis, Subconscious, Supraconscious and Our Correct Ideals, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font><br>
 </p>
 
@@ -43,7 +43,7 @@ Links to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/19
 
 <p>
 <b>Objectives:</b><br>
-20. To counteract through mass spiritual power the destructive forces against spiritualism such as evil spirits, the cult of hypnotism, siddhis and the use of ``religion" for the exploitation of the innocent.<br>
+20. To counteract through mass spiritual power the destructive forces against spiritualism such as evil spirits, the cult of hypnotism, siddhis and the use of "religion" for the exploitation of the innocent.<br>
 21. To unite all genuine Seekers of Truth divided by dogmas and ignorance so that Satya Yuga (the Age of Truth) is born out of the present Kali Yuga (the Age of Darkness) rather than complete annihilation. To harness all the human resources to achieve this great task for which mass evolution will be needed.
 </p>
 
