@@ -8,7 +8,7 @@ tags:
 
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image913.png" /></div>
+<div style="text-align: center"><img src="/images/image913.jpg" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
