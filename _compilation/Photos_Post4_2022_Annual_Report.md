@@ -10,8 +10,8 @@ Dear Sahaja Yogis and Sahaja Yoginīs,
 
 Jay Śhrī Mātājī!
 
-The website <a href="https://eternalmoments.smugmug.com/"> <font color="blue"><b>Eternal Moments</b></font></a> has now 21,055 572 Photographs of Śhrī Mātājī, including versions and details (an increment of 3,483 since Post 3), and 3,483 photos Moments of Joy (an increment of 2,845 since Post 3). 
-There are 21 Collections with 19,946 Photographs of Śhrī Mātājī and 3,444 photos Moments of Joy. 
+The website <a href="https://eternalmoments.smugmug.com/"> <font color="blue"><b>Eternal Moments</b></font></a> has now 21,064 Photographs of Śhrī Mātājī, including versions and details (an increment of 3,492 since Post 3), and 3,483 photos Moments of Joy (an increment of 2,845 since Post 3). 
+There are 21 Collections with 19,954 Photographs of Śhrī Mātājī and 3,444 photos Moments of Joy. 
 
 Gradually, the Photographs and the photos Moments of Joy that are not part of the Collections will be also made available in the XYZ Folder of the Collections. 
 
@@ -21,7 +21,7 @@ In just a few days, Search will be added to the Navigation Menu.
 
 Besides the Keywords that are automatically coming from the titles, we are manually adding a large list of Keywords. The list will considerably grow as we reupload more and more Photographs and photos Moments of Joy. Currently, besides the colors, it consists of the following words:
 
-<i>candle, closed eyes, crown, curtain, darśhan, face, family, fan, furniture, garland, glasses, hand, Lotus Feet, mike, miracle, namaskār, nature, night, nose ring, scarf, sea, shawl, smile, walk, wall, Yogi</i>
+<i>BW, candle, child, closed eyes, crown, curtain, darśhan, face, family, fan, furniture, garden, garland, glasses, hand, laugh, Lotus Feet, mike, miracle, namaskār, nature, night, nose ring, painting, Photo, scarf, purse, sea, seeker, shawl, smile, walk, wall, Yogi</i>
 
 Please kindly suggest carefully chosen extra Keywords. Also, please kindly enjoy and share.
 
