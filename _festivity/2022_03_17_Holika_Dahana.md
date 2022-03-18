@@ -71,7 +71,7 @@ that is “O God, give me the love of Your Lotus Feet.”</b> "</font><br>
 <font size="+0"><b>1975-1222 Public Program (Hindi), Day 1, Prabhu ke Prem kā Anubhav (Experiences of Lord's Love), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
-<font size="+2"><b>Suggested Talk:</b></font> 
+<font size="+2"><b>Suggested Video:</b></font> 
 <font size="+0"><b>1982-0815 Havan, before Śhrī Yogeśhwara Pūjā, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 
