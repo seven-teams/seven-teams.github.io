@@ -67,7 +67,7 @@ Today, the great day of Holikā Dahana, where the symbolism of this occasion is 
 <font color="DarkGreen">"The experience of God’s Love has been described in many books of ours but nobody believes in them.<br>
 For example, when Prahlād, in whose presence Narasiṃha incarnated, was asked, “What do you want?” he replied,<br>
 <b>“Tav Charaṇa arvinde prīti [The love of Your Lotus Feet]”<br>
-that is “O God, give me the love of Your Lotus Feet.”</b> "</b></font><br>
+that is “O God, give me the love of Your Lotus Feet.”</b> "</font><br>
 <font size="+0"><b>1975-1222 Public Program (Hindi), Day 1, Prabhu ke Prem kā Anubhav (Experiences of Lord's Love), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
