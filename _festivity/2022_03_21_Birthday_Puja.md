@@ -61,9 +61,9 @@ So He has created this Universe to create realized Souls, not to create useless 
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Shubh Mangalmay, Divas He Aya</b></font><br>
-<font size="+0">The Auspicious Benevolent Day has come</font>
+<font size="+0">The Auspicious Benevolent Day has come</font><br>
 <font color="DarkGreen"><b>Ādi Śhakti, Swayam Hain Padhāri </b></font><br>
-<font size="+0">Ādi Śhakti has come Herself</font>
+<font size="+0">Ādi Śhakti has come Herself</font><br>
 <font color="DarkGreen"><b>Shubh Mangalmay, Divas He Aya</b></font><br>
 <font size="+0">The Auspicious Benevolent Day has come.</font>
 <font color="DarkGreen">Sur Nar Muni, Sab Jhūm Rahe Hain<br>
