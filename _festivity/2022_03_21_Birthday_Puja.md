@@ -115,7 +115,7 @@ You all are Sahaja Yogis. You all have got your Realization, that is, your Spiri
 <font color="DarkRed"><b></b></font><br>
 <font size="+0"><b></b></font>
 <br>
-<font color="DarkGreen"><b>SAHAJACHI HA YOG. MALA TAV. KRUPE MIRALA</b>><br>
+<font color="DarkGreen"><b>SAHAJACHI HA YOG. MALA TAV. KRUPE MIRALA</b><br>
 By Your grace was I blessed with this Yoga so easily.<br>
 <b>TAV. CHARANI LABHALA</b><br>
 And at Your Lotus Feet, I received it.<br>
