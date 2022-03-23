@@ -44,7 +44,7 @@ And we have a special request to You<br>
 <font color="DarkGreen"><b>Mangal. Murti hi Apuli</b></font><br>
 May Your auspicious presence be felt<br>
 In our hearts all the time.<br>
-<font size="+0">Shri Mataji Vandu Tav. Charaṇa</font><br>
+<font size="+0">Śhrī Mātājī Vandu Tav. Charaṇa</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <font size="+0">Australian's presented this bhajan on occasion of 70th Birthday of Śhrī Mātājī.<br>
 (*these lines to be sung on Śhrī Mātājī's Birthday)</font>
