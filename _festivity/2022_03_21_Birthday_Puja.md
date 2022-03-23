@@ -22,7 +22,7 @@ The first thing is needed: a sincerity to yourself."</font><br>
 <p style="text-align:center;">
 <font color="DarkRed">"If you are coming to Sahaja Yoga, what you have to get is an Ocean of Love within your heart, and to see that in others also. 
 It's a love -- which helps you to do everything so smoothly, so beautifully."</font><br>
-<font size="+0"><b>2001-0321 Birthday Pūjā, New Delhi, India</b></font>
+<font size="+0"><b>2001-0321 Birthday Pūjā, New Delhi, India</b></font><br>
 <br>
 <font color="DarkGreen"><b>Śhrī Mātājī Vandu Tav Charaṇa,</b></font><br>
 Śhrī Mātājī, we bow to Your Lotus Feet<br>
@@ -45,14 +45,14 @@ And we have a special request to You<br>
 May Your auspicious presence be felt<br>
 In our hearts all the time.<br>
 <font size="+0">Shri Mataji Vandu Tav. Charaṇa</font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <font size="+0">Australian's presented this bhajan on occasion of 70th Birthday of Śhrī Mātājī.<br>
 (*these lines to be sung on Śhrī Mātājī's Birthday)</font>
 </p>
 
 <p>
-<font color="DarkRed">"In these modern times, to have such bhaktas, itself is a big blessing for Me. So as you say, “Mother, bless us,” I say, “You also bless Me.” You have already blessed Me by this beautiful arrangement you have made, the way you have put yourself, surrendered yourself for this great Pūjā. Because all is such an interdependent process. You do the Pūjā. I can’t do the Pūjā. <b>You have to do the Pūjā. When you do the Pūjā, the chakras are awakened. Mine are awakened, but in you, they are awakened.</b>
-Now how to explain to people what is the importance of Pūjā is. If you have not tasted the fruit of a Pūjā it is impossible to explain. It is at a higher level only one can understand all these things. But so far whatever was done was at such a lower level by such low type of people that everything became absolutely unholy. It was all unholy doing and because of that unholy doing God, Himself is unhappy.
+<font color="DarkRed">"In these modern times, to have such bhaktas, itself is a big blessing for Me. So as you say, “Mother, bless us,” I say, “You also bless Me.” You have already blessed Me by this beautiful arrangement you have made, the way you have put yourself, surrendered yourself for this great Pūjā. Because all is such an interdependent process. You do the Pūjā. I can’t do the Pūjā. <b>You have to do the Pūjā. When you do the Pūjā, the chakras are awakened. Mine are awakened, but in you, they are awakened.</b><br>
+Now how to explain to people what is the importance of Pūjā is. If you have not tasted the fruit of a Pūjā it is impossible to explain. It is at a higher level only one can understand all these things. But so far whatever was done was at such a lower level by such low type of people that everything became absolutely unholy. It was all unholy doing and because of that unholy doing God, Himself is unhappy.<br>
 So He has created this Universe to create realized Souls, not to create useless people, not to create people who do not believe in God, who do not believe in higher life, who do not believe in leading a life of purity. He never created this Universe for them. They are just existing, just like dead people. They are not living people. <b>So those who believe in God, those who worship Him with all purity, are actually, in a way, giving blessings to God because it is so pleasurable for Him to see that they have understood, that they have felt it, that they have liked it.</b>"</font><br>
 <font size="+0"><b>1983-0330 Birthday Pūjā and Havan (English+Marathi), Birla Matushri Sabhagar, New Marine Lines, Churchgate, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -86,7 +86,7 @@ On such occasions a special type of feelings develop, which we cannot express in
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Happy Birthday Śhrī Mātājī!!!</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <font color="DarkRed"><b>Janam. din. ayo, Ādi Śhakti ka</b></font><br>
 Ādi Śhakti's Birthday has come!<br>
 <font color="DarkRed"><b>Smaran. din. ayo, Nirmal. Bhakti ka</b></font><br>
