@@ -114,10 +114,10 @@ You all are Sahaja Yogis. You all have got your Realization, that is, your Spiri
 <p style="text-align:center;">
 <font color="DarkRed">"With your good wishes, with your prayers, this world will be so beautiful, so enchanting, that, <b>in the history, people will describe that,
  ‘The world itself became a lotus, full of fragrance of Divinity.’
-You are the petals, you are the corona, you are the color, you are the beauty, you are the pollen of that beautiful lotus, which is My vision of this world.</b>
-I hope, today, you all will decide to work for Sahaja Yoga, to spread Sahaja Yoga, and work for yourself also.
-The only danger is: that one should not allow ego to sit on your heads. That’s the only horse. 
-If you could ride yourself and don’t ... don’t allow the horse to ride you, you’ll progress very fast, beautifully.
+You are the petals, you are the corona, you are the color, you are the beauty, you are the pollen of that beautiful lotus, which is My vision of this world.</b><br>
+I hope, today, you all will decide to work for Sahaja Yoga, to spread Sahaja Yoga, and work for yourself also.<br>
+The only danger is: that one should not allow ego to sit on your heads. That’s the only horse.<br>
+If you could ride yourself and don’t ... don’t allow the horse to ride you, you’ll progress very fast, beautifully.<br>
 <b>Thus, I am sure, Sahaja Yoga will spread.</b>"</font><br>
 <font size="+0"><b>1993-0321 Birthday Pūjā, Satya Yuga, New Delhi, India</b></font><br>
 <br>
