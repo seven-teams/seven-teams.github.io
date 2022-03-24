@@ -27,7 +27,7 @@ So the difference between the reality and the concept is this: that with concept
 Concepts give you all misidentifications, with everything.<br>
 So when it comes to reality, all these misidentishifications [misidentifications] just drop out. And that's why I have seen people transform so fast. I mean, you cannot believe it, how people transform.<br>
 ......
-And this is the day today, we have to recognize, that, as Sahaja Yogis, we stand no dangers in life. We are fearless people, but we are humble people, loving people, and anxious to save as many as possible. To eman... to raise the whole humanity into another awareness, in the process of your evolution you have to achieve ghat, for which you have to work hard. "<br>
+And this is the day today, we have to recognize that, as Sahaja Yogis, we stand no dangers in life. We are fearless people, but we are humble people, loving people, and anxious to save as many as possible. To eman... to raise the whole humanity into another awareness, in the process of your evolution you have to achieve ghat, for which you have to work hard. "<br>
 <font color="blue"><b>1983-0328 Public Program (Holikā Dahana), Concept and Reality, Birthday Celebration, Ajwan-E-Ghalib, New Delhi, India</b></font><br>
 </p>
 
