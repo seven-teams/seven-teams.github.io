@@ -6,7 +6,7 @@ tags:
   - Incarnations
 ---
 
-Please find attached the pdf file <font color="blue">Shri_Draupadi.pdf</font> obtained by searching for Shri <font color="red">Draupadī</font>.   
+Please find attached the pdf file <font color="blue">Shri_Draupadi.pdf</font> obtained by searching for Śhrī <font color="red">Draupadī</font>.   
 
 If by chance extra quotes on <font color="blue">Śhrī Draupadī</font> are found out, please kindly share them with all of us.  
 
