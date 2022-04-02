@@ -1,7 +1,7 @@
 ---
 title: '2022 Celebrating Vasant Navarātri Guḍhī Pāḍavā: "establishment of the Gaurī is taken place during these nine days. But Gaṇeśha has to be established before anything else." '
 date: 2022-04-02
-permalink: /festivity/2022/04/04
+permalink: /festivity/2022/04/02
 tags:
   - Vasant Navaratri
 ---
