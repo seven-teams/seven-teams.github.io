@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"Today it’s a great day, very, very great day. I said about this day at [unclear]. <b>That first day [Guḍhī Pāḍavā] of these nine nights [of Vasant Navarātri], in this year, will start the manifestation of the New Age.</<br>
+<font color="DarkRed">"Today it’s a great day, very, very great day. I said about this day at [unclear]. <b>That first day [Guḍhī Pāḍavā] of these nine nights [of Vasant Navarātri], in this year, will start the manifestation of the New Age.</b><br>
 Of course, the New Age has come long time back. But the manifestation did not work out that much. It will start, I’m sure.<br>
 But I find that attitude of human beings towards any divine working is little strange. It has been very strange. If it was not – they never recognized Christ, they never recognized Rāma, they never recognized Kṛiṣhṇa. In the same way, they will never recognize also Satya Yuga, this New Age.<br>
 When these people came, nobody bothered. Those who bothered were only bothered to see how they kill or torture Them. Nobody could see through Their principles, through Their lives, Their power, that, ‘There is something great in these Incarnations, and we must make use of it.’<br>
