@@ -34,7 +34,7 @@ You know, in the past it was a practice with all people in Maharashtra to take [
 <div style="text-align: center"><img src="/images/image930.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"<b>Chaitra is the month.</ And this is the time when – [Marathi] – <b>Gaurī is the Chaitra</. 
+<font color="DarkRed">"<b>Chaitra is the month.</b> And this is the time when – [Marathi] – <b>Gaurī is the Chaitra</b>. 
 So the establishment of the Gaurī is taken place during these nine days.<br>
 But Gaṇeśha has to be established before anything else.<br>
 Though first Gaurī had to come, you can see that. Gaurī had to come first to establish Gaṇeśha."</font><br>
