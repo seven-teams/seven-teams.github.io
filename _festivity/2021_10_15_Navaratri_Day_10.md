@@ -132,7 +132,7 @@ You being the Mother of Universe why should I seek elsewhere, and Ambe having em
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Gaṇeśha Atharva Śhīrṣha</b></font><br>
+<font color="green"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
