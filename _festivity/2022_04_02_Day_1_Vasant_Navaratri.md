@@ -34,7 +34,7 @@ You know, in the past it was a practice with all people in Maharashtra to take [
 <div style="text-align: center"><img src="/images/image930.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"<b>Chaitra is the month.</b> And this is the time when – [Marathi] – <b>Gaurī is the Chaitra</b>. 
+<font color="DarkGreen">"<b>Chaitra is the month.</b> And this is the time when – [Marathi] – <b>Gaurī is the Chaitra</b>.<br>
 So the establishment of the Gaurī is taken place during these nine days.<br>
 But Gaṇeśha has to be established before anything else.<br>
 Though first Gaurī had to come, you can see that. Gaurī had to come first to establish Gaṇeśha."</font><br>
@@ -61,7 +61,7 @@ Kumbh represents Kuṇḍalinī. They tie a shawl and keep a Kumbh on top. The m
 <div style="text-align: center"><img src="/images/image931.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"Today is the day, as you know, My forefathers called it the first day of the year [Guḍhī Pāḍavā, New Year Day of Śhālivāhan Calendar].<br>
+<font color="DarkGreen"><b>"Today is the day, as you know, My forefathers called it the first day of the year [Guḍhī Pāḍavā, New Year Day of Śhālivāhan Calendar].<br>
 And they have the Kalaśha and the Shawl of the Goddess as the emblem or you can call it as a flag of Śhālivāhanas."</b></font><br>
 <font size="+0"><b>1985-0321 Birthday Pūjā (Marathi+English), Completely Surrender Our Lives to Sahaja Yoga and People Should See through You the Greatness of Sahaja Yoga (We Have Started Vishwa Nirmala Dharma and the Great Religion of Realized Souls), Mumbai, Maharashtra, India</b></font>
 </p>
@@ -126,7 +126,7 @@ You see, these ceremonies, little ceremonies are important because they express 
 <div style="text-align: center"><img src="/images/image933.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"<b>Today is new year day and the beginning of the Moon. That is why this day is given so much significance. It is known as Guḍhī Pāḍavā.</b><br>
+<font color="DarkGreen">"<b>Today is new year day and the beginning of the Moon. That is why this day is given so much significance. It is known as Guḍhī Pāḍavā.</b><br>
 A flag is put on a stick and on it is put a small pitcher. This pitcher represents Kuṇḍalinī. It is taken as a symbol. 
 The Śhālivāhanas were the devotees of the Devī [Goddess] and it is told that they used to offer shawl to the Goddess. 
 In the beginning, they were called Sāt[a]vāhans because they worshiped Seven Plexuses and this Sāt[a]vāhana was ultimately changed into Śhālivāhana.<br>
