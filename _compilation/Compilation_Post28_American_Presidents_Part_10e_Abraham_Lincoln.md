@@ -14,7 +14,7 @@ Please kindly share the file with all our brothers and sisters.
 
 The Comprehensive Compilations Team
 
-[Download pdf of this Part 10d here](http://seven-teams.github.io/files/American_Presidents_Part_10e_Abraham_Lincoln.pdf)
+[Download pdf of this Part 10e here](http://seven-teams.github.io/files/American_Presidents_Part_10e_Abraham_Lincoln.pdf)
 
 [Download pdf of the prior Part 10d here](http://seven-teams.github.io/files/American_Presidents_Part_10d_Abraham_Lincoln.pdf)
 
