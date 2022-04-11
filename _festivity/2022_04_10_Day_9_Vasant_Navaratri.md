@@ -95,11 +95,11 @@ May God bless you."</font><br>
 <br>
 <font color="DarkGreen"><b>Śhrī Rāma-chandra charanau manasā smarāmi</b><br>
 I worship the Feet of Shri Śhrī Rāma-chandra in my heart. <br>
-<font color="DarkGreen"><b>Śhrī Rāma-chandra charanau vachasā gṛunāmi</b><br>
+<b>Śhrī Rāma-chandra charanau vachasā gṛunāmi</b><br>
 Through my songs and prayers I praise the Feet of Śhrī Rāma-chandra. <br>
-<font color="DarkGreen"><b>Śhrī Rāma-chandra charanau shirasā namāmi</b><br>
+<b>Śhrī Rāma-chandra charanau shirasā namāmi</b><br>
 I bow at the Feet of Śhrī Rāma-chandra<br>
-<font color="DarkGreen"><b>Śhrī Rāma-chandra charanau sharanam prapadye</b><br>
+<b>Śhrī Rāma-chandra charanau sharanam prapadye</b><br>
 I surrender at the Feet of Śhrī Rāma-chandra</font><br>
 </p>
 
