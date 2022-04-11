@@ -67,8 +67,7 @@ They were enemies but while performing the Pūjā the enmity was completely forg
 <font color="DarkGreen"><b>Sāsi-tūna-dhanur-bāna-pānim nak-tan-charāntakam</b><br>
 He has a sword in one hand and a bow and arrow in the other and spare arrows in His quiver to kill the rākṣhasas.<br>
 <b>Sva-līlayā jagatrātum-āvir-bhūtam-ajam Vibhum</b><br>
-He is beyond birth and death, His powers have no limits and through His own Divine Play (Līlā),<br>
-He has incarnated to destroy all the negative forces and to protect this world.<br>   
+He is beyond birth and death, His powers have no limits and through His own Divine Play (Līlā),He has incarnated to destroy all the negative forces and to protect this world.</font><br> 
 </p>
 
 <p>
