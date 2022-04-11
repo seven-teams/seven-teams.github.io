@@ -53,7 +53,7 @@ They were enemies but while performing the Pūjā the enmity was completely forg
 </p>
 
 <p>
-<font color="DarkRed">"And this is another quality of Śhrī Rāma, is a saṅkoch. There’s no word in English language because you have ‘formality’ which is a very insipid word to describe ‘saṅkoch’. Because, there is no integration between your heart and formality.<br>
+<font color="DarkRed">"And this is another quality of Śhrī Rāma, is a saṅkoch. There’s no word in English language because you have ‘formality’ which is a very insipid word to describe saṅkoch. Because, there is no integration between your heart and formality.<br>
 ...... So that saṅkocha, that understanding comes if you love someone and understand. Now, you have to love all the seekers of the world. They have done wrong, they have done all kinds of ego trips, they have done all kinds of mistakes but your Mother loves them and you have to love them. If they are to be corrected I’ll do that. You just don’t do that way that they feel hurt. Put a saṅkocha. While talking to each other educate yourself, train yourself to say things which are sweet and nice, which will make another person feel that this person is a properly brought up person in Sahaja Yoga tradition. So we have a Sahaja Yoga tradition also, in which, when we speak to each other, we have that saṅkocha within us of Śhrī Rāma. And if you do not have that saṅkocha you get the right Heart [catch]."</font><br>
 <font size="+0"><b>1982-0402 Śhrī Rāma Pūjā, Rāma Navamī, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font>
 </p>
