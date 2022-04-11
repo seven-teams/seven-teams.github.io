@@ -86,7 +86,7 @@ We have to go too far with ourselves, to training up ourselves, educating oursel
 <div style="text-align: center"><img src="/images/image942.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"Today I said that Śhrī Rāma was born at 12 o’clock hence the Pūjā should be at time as such it is not long Pūjā but we have to understand that the human form within us in form of humanity in which we understand and make changes in our mind, curiosity and thoughts.<br>
+<font color="DarkRed">"Today I said that Śhrī Rāma was born at twelve o’clock hence the Pūjā should be at time as such it is not long Pūjā but we have to understand that the human form within us in form of humanity in which we understand and make changes in our mind, curiosity and thoughts.<br>
 Through the medium of Śhrī Rāma can bring change in our thoughts, he can bring change in our behavior because he is ideal for us, reaching this ideal we can reach other ideals since he is ideal of human being.<br>
 <b>This is big thing that the God Himself came on this Earth and become ideal.<br>
 We don’t leave our dharma ‘Vishwa Nirmala Dharma’ even if we have lot of difficulties.</b><br>
@@ -143,7 +143,7 @@ I surrender at the Feet of Śhrī Rāma-chandra</font><br>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>On the night of Full Moon, you should meditate on Śhrī Rāma and surrender yourself to Him for protection.</b> The meaning of the word rāmachandra is `creativity'. You should completely dedicate your creative powers to Him. Thus you have to take special care of yourself on these two days.<br>
-However, <b>on the seventh (Saptamī) and ninth (Navamī) days of Lunar fortnights you have My special blessings.</b> Remember that you are specially blessed by Me on these two days. Make some special arrangements so that you can have proper meditation on these days.</font><br>
+However, <b>on the seventh (Saptamī) and ninth (Navamī) days of Lunar fortnights you have My special blessings.</b> Remember that you are specially blessed by Me on these two days. Make some special arrangements so that you can have proper meditation on these days."</font><br>
 <font size="+0"><b>1976-0529 Talk to Sahaja Yogis (Hindi), Dhyān Kaise Karein (How to Meditate), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
