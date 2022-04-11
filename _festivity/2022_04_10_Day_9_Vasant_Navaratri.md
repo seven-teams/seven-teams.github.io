@@ -17,7 +17,7 @@ You know that Śhrī Rāma has a very important place on our chakra, He is situa
 <div style="text-align: center"><img src="/images/image939.png" /></div>
 
 <p style="text-align:center;">
-<font color="Blue"><b>Auṃ Twameva sākṣhāt Śhrī Puruṣhottama sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ</b></font><br>
+<font color="Blue"><b>Auṃ Twameva sākṣhāt Śhrī Puruṣhottama sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 <font size="+0"><b> The highest among the Puruṣhas (ideal human beings)</b></font>
 </p>
 
@@ -48,7 +48,7 @@ They were enemies but while performing the Pūjā the enmity was completely forg
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"<b>So Śhrī Rāma’s another great quality was once given a promise – is to be kept.</b> This is another quality we have to have that, if you have promised anything, you have to keep it. If you have said, “I will do this,” you must do it. You should not find out excuses to avoid it. It’s absolutely an anti-God activity to avoid doing things that you have promised. Your Deities will never be happy. You must see that, whatever you have promised you must do."</font><br>
 <font size="+0"><b>1982-0402 Śhrī Rāma Pūjā, Rāma Navamī, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font>
 </p>
 
