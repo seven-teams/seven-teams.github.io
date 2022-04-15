@@ -1,5 +1,5 @@
 ---
-title: '2021 Celebrating Śhrī Mahāvīr Jayanti: "Mahāvīra, meaning The Greatest Warrior." '
+title: '2021 Celebrating Śhrī Mahāvīra Jayanti: "Mahāvīra, meaning The Greatest Warrior." '
 date: 2021-04-25
 permalink: /festivity/2021/04/25
 tags:
