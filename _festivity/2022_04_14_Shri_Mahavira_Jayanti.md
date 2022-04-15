@@ -9,8 +9,8 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"Today we are going to celebrate the birthday of Mahāvīra.<br>
-Mahāvīra is the Incarnation of Bhairavanāth, or you call Him as Saint Michael. Now these two Saints as you know one as the Gabriel, Hanumāna, and another is Saint Michael. One is placed on the Piṅgalā nāḍī and another one, Saint Michael, on the Iḍā nāḍī. "</font><br>
+<font color="DarkRed">"<b>Today we are going to celebrate the birthday of Mahāvīra.</b><br>
+Mahāvīra is the Incarnation of Bhairavanāth, or you call Him as Saint Michael. Now these two Saints as you know one as the Gabriel, Hanumāna, and another is Saint Michael. One is placed on the Piṅgalā nāḍī and another one, Saint Michael, on the Iḍā nāḍī."</font><br>
 <font size="+0"><b>1991-0328 Śhrī Mahāvīra Pūjā, Left Side and Soul, Gidgegannup, Darling Ranges (45 kms NE of Perth), WA, Australia</b></font>
 </p>
 
