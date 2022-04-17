@@ -117,7 +117,7 @@ When we belong to God, what is there to fear?<br>
 <div style="text-align: center"><img src="/images/image958.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">Christ came on this Earth to say that we have to seek our Spirit. <b>The message of His life is His Resurrection.</b> On the Easter Day we give eggs to each other. It is very symbolic.</b> In Indian language a bird is called as khaga -- kha-ga -- and also dvijaḥ. The first one means the one which goes in the sky, flies in the sky. The second one means the twice-born. And a realized Soul is also called as dvijaḥ.<br>
+<font color="DarkRed">"Christ came on this Earth to say that we have to seek our Spirit. <b>The message of His life is His Resurrection. On the Easter Day we give eggs to each other. It is very symbolic.</b> In Indian language a bird is called as khaga -- kha-ga -- and also dvijaḥ. The first one means the one which goes in the sky, flies in the sky. The second one means the twice-born. And a realized Soul is also called as dvijaḥ.<br>
 <b>Christ has talked about your Second Birth throughout. He has said, ``You are to be born-again.</b>"</font><br>
 <font size="+0"><b>1980-1002 Public Program, Day 1, Geneva, Switzerland</b></font><br>
 <br>
