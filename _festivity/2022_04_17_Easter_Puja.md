@@ -68,11 +68,11 @@ Then He was given birth by the Holy Ghost who was the Mother of Christ on this E
 </p>
 
 <p>
-<font color="DarkRed">"<b>The Redeemer was necessary, that's why Christ was established here, who was Rādhā's Son.</b>
+<font color="DarkRed">"<b>The Redeemer was necessary, that's why Christ was established here, who was Rādhā's Son.</b><br>
 You would be surprised that Mary Herself was Rādhā. There is a reason for this, a great reason.<br>
 Sītājī was Śhrī Rāma's wife. Was married. The injustice that was done to Her by the society, made Her leave the house, by accusing Her falsely, disgraced Her. Why back then these great people had a blindfold on? Why didn't they say, that, `She is our Mother? You are asking Her to leave the house?' She already had passed the test, bypassing the fire, why were they dumbfounded then? What happened to their vigor [light] back then? All were so-called very great then. Nobody raised any point on that.<br>
 To teach them a lesson Rādhājī did not marry Kṛiṣhṇa under the societal norms. But still, the whole world knows Śhrī Kṛiṣhṇa as Rādhā-Kṛiṣhṇa. But for Him, the formal marriage is important, that's why there was no child.<br>
-But in the next life, She came as Mary and Her Child glorified Her, who was a virgin"</font><br>
+But in the next life, She came as Mary and Her Child glorified Her, who was a virgin."</font><br>
 <font size="+0"><b>1973-1208 Public Program (Hindi), Day 2, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -117,13 +117,13 @@ When we belong to God, what is there to fear?<br>
 <div style="text-align: center"><img src="/images/image958.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Christ came on this Earth to say that we have to seek our Spirit. <b>The message of His life is His Resurrection.</b> On the Easter Day we give eggs to each other. It is very symbolic.</b> In Indian language a bird is called as khaga -- kha-ga -- and also dvijaḥ. The first one means the one which goes in the sky, flies in the sky. The second one means the twice-born. And a realized Soul is also called as dvijaḥ.<br>
+<font color="DarkRed">Christ came on this Earth to say that we have to seek our Spirit. <b>The message of His life is His Resurrection.</b> On the Easter Day we give eggs to each other. It is very symbolic.</b> In Indian language a bird is called as khaga -- kha-ga -- and also dvijaḥ. The first one means the one which goes in the sky, flies in the sky. The second one means the twice-born. And a realized Soul is also called as dvijaḥ.<br>
 <b>Christ has talked about your Second Birth throughout. He has said, ``You are to be born-again.</b>"</font><br>
 <font size="+0"><b>1980-1002 Public Program, Day 1, Geneva, Switzerland</b></font><br>
 <br>
 <font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Sarva Granthi Vibhedinī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 <font size="+0">(Śhrī Mātājī is breaking our shells of ego and superego through Easter egg breaking and mentions that the mantra for this is Sarva Granthi Vibhedinī)</font><br>
-<font size="+0"><b>Breaking Easter Eggs</b></font>
+<font size="+0"><b>Breaking Easter Eggs</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
