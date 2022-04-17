@@ -10,7 +10,8 @@ tags:
 
 <p>
 <font color="DarkRed">"Today we have come here to do Hanumāna’s Pūjā. Śhrī Hanumāna is a great character in our being and He runs all the way from Swādhiṣhṭhāna to your brain and He supplies all the necessary guidance we need in our futuristic planning or in our mental activities. He gives us guidance and protection.<br>
-..It is very surprising how a Deity like Śhrī Hanumāna, who is an eternal child because He was like a monkey. His head was that of a monkey, if not of an elephant.<br>
+......<br>
+It is very surprising how a Deity like Śhrī Hanumāna, who is an eternal child because He was like a monkey. His head was that of a monkey, if not of an elephant.<br>
 So He was an eternal child and He was the one who was used to run the right side of human beings. He was told that “You must control the Sun,” to begin with He has to control the Sun, that the Sun in the people, if there is too much Sun then He must try to control it and make it cooler or smoother."</font><br>
 <font size="+0"><b>1990-0831 Śhrī Hanumāna Pūjā, Electromagnetic Force, Schloss Schwetzingen, Frankfurt, Germany</b></font>
 </p>
@@ -22,8 +23,8 @@ So He was an eternal child and He was the one who was used to run the right side
 Victory to Śhrī Hanumāna, the Ocean of Knowledge and Virtue.<br>
 <b>Jay Kapisa tihun-loka ujagara</b><br>
 Hail! Great Lord of the monkeys who illuminates the three worlds.<br> 
-<font size="+0"><b>Śhrī Hanumāna Chalisa</b></font><br>
-(Verses in praise of Śhrī Hanumāna by Tulasīdās)
+<font size="+0"><b>Śhrī Hanumāna Chalisa</b><br>
+(Verses in praise of Śhrī Hanumāna by Tulasīdās)</font>
 </p>
 
 <p>
@@ -36,8 +37,8 @@ Each cell of Śhrī Hanumāna’s body was filled with power and devotion. Becau
 <div style="text-align: center"><img src="/images/image950.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"Now, the subtle of the ether that we have is under the command of Śhrī Hanumāna.<br>
-He is the one who controls, or is the Lord of this ether, the subtle of the ether."</b></font><br>
+<font color="DarkRed">"Now, the subtle of the ether that we have is under the command of Śhrī Hanumāna.<br>
+He is the one who controls, or is the Lord of this ether, the subtle of the ether."</font><br>
 <font size="+0"><b>1990-0831 Śhrī Hanumāna Pūjā, Electromagnetic Force, Schloss Schwetzingen, Frankfurt, Germany</b></font><br>
 <br>
 <font color="Red"><b>Auṃ Twameva sākṣhāt Śhrī Devadūt sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
@@ -71,9 +72,10 @@ But Your name is ever so powerful<br>
 Please come quickly, as we are growing tired of fighting this negativity!<br>
 <font color="DarkGreen"><b>Ek Mukhana Bola, Bola Jay, Jay Hanumān</b></font><br>
 With one voice let us praise, victory to Hanumān.<br>
-<font size="+0"><b>Śhrī Hanumāna (Anjanichya Suta) (1989-0423 Śhrī Hanumāna Pūjā)</b></font>
+<font size="+0"><b>Śhrī Hanumāna (Anjanichya Suta) (1989-0423 Śhrī Hanumāna Pūjā)</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
-<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Bhakti-Śhakti Samādhikarī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
+<br>
+<font color="MediumPurplen"><b>Auṃ Twameva sākṣhāt Śhrī Bhakti-Śhakti Samādhikarī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 <font size="+0"><b>You are the master of balancing devotion (left) and power (right)</b></font>
 </p>
 
@@ -132,23 +134,6 @@ Infinite blessings."</font><br>
 
 <div style="text-align: center"><img src="/images/image953.png" /></div>
 
-<p>
-<font color="DarkRed">"Such dedication for Śhrī Rāma that by the time He grew up He got Nine Siddhis, Navadhā Siddhis. Nine Siddhis He got.<br>
-These siddhis are like this that He could become big, He could become so heavy that nobody could lift Him,<br>
-He could become so sūkṣhma that nobody could see Him, He could become so subtle that nobody could see Him.<br> 
-There are Nine Siddhis that He got.<br>
-So, a person who has got the right side too much in him, He controls him with these Nine Siddhis.<br>
-He has got another siddhis, which are very interesting is that He can extend His – He doesn’t have many weapons,<br>
-He has only one gadā in His hand and He can extend His tail to any extent and He can handle people with His tail,<br>
-He does not have to use His hand. Sitting down here, He can put the tail around anywhere.<br>
-If He wants He can just make a mountain of His tail and sit on that.<br>
-Like He has all these monkey tricks as you call them, you see, and all these tricks He has within Himself is to control a
-person who is extremely right-sided, to begin with.<br>
-Then He can fly in the air. Just ... He doesn’t have any wings, but He can just fly in the air.<br>
-That means He can become so big that the amount of air He displaces has much more weight than His own weight ......"</font><br>
-<font size="+0"><b></b></font>
-</p>
-
 <p style="text-align:center;">
 <font color="DarkRed">"Such dedication for Śhrī Rāma that by the time He grew up He got Nine Siddhis, Navadhā Siddhis. Nine Siddhis He got.<br>
 These siddhis are like this that He could become big, He could become so heavy that nobody could lift Him, He could become so sūkṣhma that nobody could see Him, He could become so subtle that nobody could see Him.<br> 
@@ -161,7 +146,7 @@ Then He can fly in the air. Just ... He doesn’t have any wings, but He can jus
 That means He can become so big that the amount of air He displaces has much more weight than His own weight ......"</font><br>
 <font size="+0"><b>1990-0831 Śhrī Hanumāna Pūjā, Electromagnetic Force, Schloss Schwetzingen, Frankfurt, Germany</b></font><br>
 <br>
-<font color="DarkRed"><b>Aum Ham Hanumate Rudr'atmakaya Hum Phat</b><br>
+<font color="blue"><b>Aum Ham Hanumate Rudr'atmakaya Hum Phat</b><br>
 Śhrī Hanumān, whose Soul is Śhrī Śhiva Himself</font>
 </p>
 
