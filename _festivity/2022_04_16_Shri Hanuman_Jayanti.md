@@ -9,7 +9,8 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"Today we have come here to do Hanumāna’s Pūjā. Śhrī Hanumāna is a great character in our being and He runs all the way from Swādhiṣhṭhāna to your brain and He supplies all the necessary guidance we need in our futuristic planning or in our mental activities. He gives us guidance and protection.<br>
+<font color="DarkRed">"Today we have come here to do Hanumāna’s Pūjā.<br>
+Śhrī Hanumāna is a great character in our being and He runs all the way from Swādhiṣhṭhāna to your brain and He supplies all the necessary guidance we need in our futuristic planning or in our mental activities. He gives us guidance and protection.<br>
 ......<br>
 It is very surprising how a Deity like Śhrī Hanumāna, who is an eternal child because He was like a monkey. His head was that of a monkey, if not of an elephant.<br>
 So He was an eternal child and He was the one who was used to run the right side of human beings. He was told that “You must control the Sun,” to begin with He has to control the Sun, that the Sun in the people, if there is too much Sun then He must try to control it and make it cooler or smoother."</font><br>
@@ -23,8 +24,8 @@ So He was an eternal child and He was the one who was used to run the right side
 Victory to Śhrī Hanumāna, the Ocean of Knowledge and Virtue.<br>
 <b>Jay Kapisa tihun-loka ujagara</b><br>
 Hail! Great Lord of the monkeys who illuminates the three worlds.<br> 
-<font size="+0"><b>Śhrī Hanumāna Chalisa</b><br>
-(Verses in praise of Śhrī Hanumāna by Tulasīdās)</font>
+<font size="+0"><b>Śhrī Hanumāna Chalisa<br>
+(Verses in praise of Śhrī Hanumāna by Tulasīdās)</b></font>
 </p>
 
 <p>
