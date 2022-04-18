@@ -1,5 +1,5 @@
 ---
-title: 'Post 28: American Presidents, Part 10f (Abraham Lincoln)'
+title: 'Post 29: American Presidents, Part 10f (Abraham Lincoln)'
 date: 2022-04-18
 permalink: /compilation/2022/0418
 tags:
