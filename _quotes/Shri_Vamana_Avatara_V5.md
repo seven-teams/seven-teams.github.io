@@ -1,7 +1,7 @@
 ---
 title: 'Quotes on Śhrī Vāmana Avatāra, Version 5'
-date: 2021-04-21
-permalink: /quotes/2021/0421
+date: 2022-04-21
+permalink: /quotes/2022/0421
 tags:
   - Incarnations
 ---
