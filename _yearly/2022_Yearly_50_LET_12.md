@@ -12,7 +12,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b>You Resurrect People</b><br></font>
+<font size="+2"><b>You Resurrect People and Religion of Humanity</b><br></font>
 </p>
 
 <p>
@@ -24,7 +24,7 @@ Our work in Sahaja Yoga is doing well, I must say, but it has to stop this horri
 So you might ask then, 'What to do, Mother? What to do to destroy this destruction?' Answer is in the life of Christ: you resurrect people, you resurrect them, enlighten them, bring them to a state where they understand what is right and what is wrong. Let them feel, let them feel, the compassion and love that is within you. When that starts, that third force within us starts acting, our ego also comes down, our conditioning also comes down.<br>
 For example, if we think, 'We are Muslims, we have a right to kill others,' if we think, uh, 'We are Jews, we have a right to kill other,' all these differentiations and this kind of discrimination that we have is so stupid, because: 'You are human beings, they are human beings. You are killing human beings!' Not that they have committed any sin or they have done anything wrong, except that, in their foolishness, they believe that they are this and they are that. You are not! You are just human beings.<br>
 ......<br>
-You have got Kuṇḍalinī, everybody else has got Kuṇḍalinī. So you can only belong to the religion of humanity, where every human being has got Kuṇḍalinī.<br>
+You have got Kuṇḍalinī, everybody else has got Kuṇḍalinī. So you can only belong to the Religion of Humanity, where every human being has got Kuṇḍalinī.<br>
 ......<br>
 For this, we have Christ. We have Christ, a person who was absolutely free: free from all kinds of prejudices, all kinds of temptations, all kinds of nonsense that human beings follow.<br>
 But one may say that, 'Mother, after all, He was Divine!' He was Divine and now you are made divine also. <br>
