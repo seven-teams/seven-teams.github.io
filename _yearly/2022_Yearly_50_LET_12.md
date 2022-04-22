@@ -29,7 +29,7 @@ You have got Kuṇḍalinī, everybody else has got Kuṇḍalinī. So you can o
 For this, we have Christ. We have Christ, a person who was absolutely free: free from all kinds of prejudices, all kinds of temptations, all kinds of nonsense that human beings follow.<br>
 But one may say that, 'Mother, after all, He was Divine!' He was Divine and now you are made divine also. <br>
 So, how can we now join together to make a full effort, full effort to make, to tell people that, 'What are you doing? Why are you doing it? What is the need to do such things?' <br>
-On one side is, we can say, a mass destruction through stupidity, another side is your own self-destruction. Take to drinking, take to-oo other self-destructive things which are immoral, that's very easily available, and people like it very much. Andhey don't like when you talk, that, 'This is destructive.' <br>
+On one side is, we can say, a mass destruction through stupidity, another side is your own self-destruction. Take to drinking, take to-oo other self-destructive things which are immoral, that's very easily available, and people like it very much. And they don't like when you talk, that, 'This is destructive.' <br>
 So, either we destroy others or destroy ourselves. Christ was destroyed by others, and He resurrected by Himself.<br>
 So we are also in the same position now."<br>
 <font color="blue"><b>1999-0425 Easter Pūjā, We Have to Establish Our Meditation, Istanbul, Turkey</b></font><br>
