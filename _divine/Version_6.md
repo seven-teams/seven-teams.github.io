@@ -1,7 +1,7 @@
 ---
 title: 'Divine Message, Version 6'
 date: 2022-02-11
-permalink: /divine/2022/02/10
+permalink: /divine/2022/02/11
 tags:
   - Divine Message
 ---
