@@ -6,7 +6,9 @@ tags:
   - Incarnations
 ---
 
-Please find attached the pdf file <font color="blue">Shri_Renuka_Devi_V3.pdf</font> obtained by searching for Śhrī <font color="red">Reṇukā</font>.   
+Please find attached the pdf file <font color="blue">Shri_Renuka_Devi_V3.pdf</font> obtained by searching for Śhrī <font color="red">Reṇukā</font>. 
+
+This version has 1 quote from an extra talk and 2 extra versions of prior quotes, while everything has been updated .
 
 If by chance extra quotes on <font color="blue">Śhrī Reṇukā</font> are found out, please kindly share them with all of us.  
 
