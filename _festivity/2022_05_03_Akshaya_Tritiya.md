@@ -9,8 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"Had a very nice Pūjā in Pune which I had to perform on the thirteenth because it is the date called <b>Akṣhaya Tṛitīya, means un-destructible [indestructible] third day of the Moon. That's actually nobody knew, but it is the Pūjā of the Kuṇḍalinī.</b> That day everybody felt very, very clear. Very clear. Pūjā was hardly for about half an hour, the real Pūjā of the Kuṇḍalinī. But everybody felt extremely clear and beautiful. 
-
+<font color="DarkRed">"Had a very nice Pūjā in Pune which I had to perform on the thirteenth because it is the date called <b>Akṣhaya Tṛitīya, means un-destructible [indestructible] third day of the Moon. That's actually nobody knew, but it is the Pūjā of the Kuṇḍalinī.</b> That day everybody felt very, very clear. Very clear. Pūjā was hardly for about half an hour, the real Pūjā of the Kuṇḍalinī. But everybody felt extremely clear and beautiful.<br>
 So, that sort of Pūjā we should do tomorrow also, if possible, so that we'll have the feelings of Sahasrāra completely opened out because even if Sahasrāra is opened, the rest of the chakras, if they are caught up then you have problems. It's better to clear out all the chakras and then the Sahasrāra. So, tomorrow we'll do the Pūjā in that fashion and I hope it will work out very well for all of you."</font><br>
 <font size="+0"><b>1987-0502 Talk to Sahaja Yogis, On Arrival before the Evening Program, the day before Sahasrāra Pūjā, Thredbo Village, Kosciuszko National Park, New South Wales, Australia</b></font>
 </p>
