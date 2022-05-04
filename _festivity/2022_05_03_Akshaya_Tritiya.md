@@ -92,7 +92,7 @@ Mother of the entire Universe<br>
 Your form is formless,<br>
 <font color="DarkRed"><b>Zahli Saguna Tu Ata</b></font><br>
 Now You are in form.<br>
-<a href="https://youtu.be/2btBuq4VYL4">video</a><br"
+<a href="https://youtu.be/2btBuq4VYL4">video</a><br>"
 <br>
 <font color="Red"><b>Auṃ Twameva sākṣhāt Śhrī Kuṇḍalinī Mātā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font>
 </p>
