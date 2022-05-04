@@ -8,7 +8,7 @@ tags:
 
 Please find attached the pdf file <font color="blue">Shri_Vamana_Avatara_V5.pdf</font> obtained by searching for Shri <font color="red">Vāman, short man, small man</font>.   
 
-This version has quotes from 3 extra talks.
+This version has quotes from 1 extra talk and 2 extra versions of prior quotes, while everything has been updated.
 
 If by chance extra quotes on <font color="blue">Śhrī Vāmana Avatāra</font> are found out, please kindly share them with all of us.  
 
