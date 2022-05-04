@@ -36,7 +36,7 @@ Once the instrument is all right, then you project outside. And now how do you p
 
 <p>
 <font color="DarkRed">"Today we have gathered here to do the Pūjā of Ādi Kuṇḍalinī as well as your own Kuṇḍalinī.
-First of all, I think this is the most important thing to understand about your own Kuṇḍalinī, as Self-realization is Self-knowledge. And the one who gives you Self-knowledge is this, your own Kuṇḍalinī, because when She rises She points it out what are the problems on your chakras.<be>
+First of all, I think this is the most important thing to understand about your own Kuṇḍalinī, as Self-realization is Self-knowledge. And the one who gives you Self-knowledge is this, your own Kuṇḍalinī, because when She rises She points it out what are the problems on your chakras.<br>
 Now, we say that it is pure desire, but we do not know what purity means. It means your chaste desire. It means it has no lust, greed, anything in it. That power is your own mother and is settled in your triangular bone. She’s your own mother. She knows everything about you, it’s like a tape recorder. She knows everything about you and She is absolutely the knowledge – because She’s so pure."</font><br>
 <font size="+0"><b>1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b></font>
 </p>
