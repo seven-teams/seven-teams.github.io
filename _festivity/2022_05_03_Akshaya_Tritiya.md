@@ -17,7 +17,7 @@ So, that sort of Pūjā we should do tomorrow also, if possible, so that we'll h
 <div style="text-align: center"><img src="/images/image961.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>So when you worship the Ādi Kuṇḍalinī, what you are trying to do is to cleanse your Kuṇḍalinī as well as please the Deities. Because this is an object, it is object, it is not to be changed -- but the reflection can change.</b></font><br>
+<font color="DarkGreen"><b>:So when you worship the Ādi Kuṇḍalinī, what you are trying to do is to cleanse your Kuṇḍalinī as well as please the Deities. Because this is an object, it is object, it is not to be changed -- but the reflection can change."</b></font><br>
 <font size="+0"><b>1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b></font><br>
 <br>
 <font color="DarkRed"><b>Kuṇḍalinī Kuṇḍalinī Nirmalā Mātā, Mātā Mā<br>
