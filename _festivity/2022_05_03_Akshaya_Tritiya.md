@@ -59,7 +59,7 @@ Beyond that, is eternity. So whatever you have to ask, you should ask for someth
 <div style="text-align: center"><img src="/images/image963.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"Today is a special day called as Akṣhay Tṛitīya [unclear].<br>
+<font color="DarkGreen"><b>"Today is a special day called as Akṣhay Tṛitīya [unclear].<br>
 Akṣhay means the thing that cannot be destroyed, can... cannot be turnished, that cannot be challenged. And that is on third day of the Moon, is Tṛitīya."</b></font><br>
 <font size="+0"><b>1999-0418 Akṣhaya Tṛitīya Pūjā, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -98,7 +98,7 @@ Now You are in form.<br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0">1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany<b></b></font>
+<font size="+0"><b>1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b></font>
 <a href="https://vimeo.com/72858499"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
