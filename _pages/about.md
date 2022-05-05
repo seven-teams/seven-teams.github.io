@@ -82,7 +82,7 @@ E-mail: <b>yearlycelebrations@gmail.com</b>
 
     viii. **<font color="DarkGreen">2021 Celebrating 40 Years of Sahaja Yoga in Australia, Canada, Italy and U.S.A. and its Culture</font>**
 
-    ix. **<font color="DarkGreen">2022 Celebrating 50 Years of Life Eternal Trust and its Mission</font>**
+    ix. **<font color="DarkGreen">2022 Celebrating 50 Years of Life Eternal Trust and its Objects</font>**
 
 
 7. **<font color="blue">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017.<br>
