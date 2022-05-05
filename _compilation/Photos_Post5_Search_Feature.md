@@ -42,7 +42,7 @@ We are constantly working in re-uploading and manually adding keywords, and as s
 <i>IV. Other words:></i> Āratī, baby, blessing, book, building, BW, candle, cake, chappal, child, closed eyes, crown, curtain, darśhan, face, family, fan, furniture, garden, garland, glasses, hand, laugh, Lotus Feet, meal, mike, miracle, namaskār, nature, night, nose ring, ocean, painting, Photo, prasād, procession, scarf, purse, sandal, sea, shoe, seeker, shawl, Śhrī, smile, sweater, walk, wall, Sahaja Yogi.<br>
 <i>V. Collections:</i> Alessandra, Anant, Asha, Balwant, Băjescu, Brenner, Brownscombe, Bruno, Burd, Călin, CCT, Chavhāṇ, Chiroiu, Colin, Cooper, Daulat, Deity, Descaves, Durand, Harris, Heinsen, Jatobá, Karan, Khurana, Kolkata, Kumbhojkar, Louis, Mahajan, Marian, Marie, Mark, Markl, Matthew, Michael, Pallini, Paul, Pavan, Peter, Prabhakar, Radu, Ray, Taylor, Vasiliu, Willi, XYZ, Yogi.<br>
 <i>VI. Colors:<i> essentially all.<br>
-<i>VII. Cities:<i> essentially all, the ones with IAST will be gradually added here as well so that they can be copied and pasted [the issue is an incompatibility between different devices, like ā will work in a search, but ā will not, though they look the same].
+<i>VII. Cities:<i> essentially all, the ones with IAST will be gradually added here as well so that they can be copied and pasted [the issue is an incompatibility between different devices, like ā will work in a search, but ā will not, though they look the same].
 
 All these suggested words are also listed on the main page of the website.  
 
