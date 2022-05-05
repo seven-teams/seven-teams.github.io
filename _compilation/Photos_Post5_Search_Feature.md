@@ -24,7 +24,7 @@ a. coming automatically from the title of the Photos and photos Moments of Joy (
 b. manually added.
 
 <b>WARNING:</b> 
-For a: ONLY Photos uploaded or re-uploaded after November 25, 2021 have the keywords automatically created from the titles.<br>
+For a: ONLY Photos uploaded or re-uploaded after November 25, 2021 have the keywords automatically created from the titles (they are in thousands).<br>
 For b: We are still working to manually add keywords to the Photos from 255 months of the years 1981 to 2010 and for photos Moments of Joy from the years 1983 to 2011.
 
 <b>Very important:</b> none of these keywords, that are automatic or manually added, are on the Photos or photos Moments of Joy (i.e., later on when download button will be added, via download only the original keywords will be there.
