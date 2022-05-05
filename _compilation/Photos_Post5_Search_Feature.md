@@ -51,5 +51,3 @@ We thank you in advance for any help, support, and feedback. Please write to us 
 Jay Śhrī Mātājī!
 
 The Comprehensive Compilations Team
-
-Śhrī Kuan Yin
