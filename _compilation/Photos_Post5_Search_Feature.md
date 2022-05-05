@@ -32,7 +32,7 @@ For b: We are still working to manually add keywords to the Photos from 255 mont
 We are constantly working on re-uploading and manually adding keywords, and as such it was felt that it is the right time to start the search feature.
 
 <b>Two ways to use the search feature:</b><br>
-<i>A (apriori set search):</i> i. clicking on SEARCH; ii. below the elongated horizontal box choosing the right category (basically Photos or Galleries, in most cases being actually Photos); iii. typing in the elongated horizontal box the keywords that would delimit the search most, the words ought to be separated by space (say, typing: public India)<br>
+<i>A (a priori set search):</i> i. clicking on SEARCH; ii. below the elongated horizontal box choosing the right category (basically Photos or Galleries, in most cases being actually Photos); iii. typing in the elongated horizontal box the keywords that would delimit the search most, the words ought to be separated by space (say, typing: public India)<br>
 <i>B (inspired search or seeking to set a search):</i> i. clicking on any Photo or photo Moments of Joy; ii. clicking on the top left little icon that is an i-circled (Photo Details); iii. From the details lists, click on anyone of the KEYWORDS of that Photo or photo Moments of Joy
 
 <b>SUGGESTED KEYWORDS FOR TYPING VIA COPY AND PASTE (to be enlarged):</b><br>
