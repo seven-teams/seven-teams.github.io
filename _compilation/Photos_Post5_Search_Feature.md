@@ -10,12 +10,12 @@ Dear Sahaja Yogis and Sahaja Yoginīs,
 
 Jay Śhrī Mātājī!
 
-As part of the celebration of the 52nd anniversary of the <font color="DeepPink"><b>Sahasrāra Day</b></font>, we are pleased to offer at the Lotus Feet of our Divine Mother and to bring to your attention the search feature added to the navigation menyu of the website <font color="blue"><b>Eternal Moments</b></font> website of Photographs of Śhrī Mātājī. 
+As part of the celebration of the 52nd anniversary of the <font color="DeepPink"><b>Sahasrāra Day</b></font>, we are pleased to offer at the Lotus Feet of our Divine Mother and to bring to your attention the search feature added to the navigation menu of the website <font color="blue"><b>Eternal Moments</b></font> website of Photographs of Śhrī Mātājī. 
 
 The link to the website is: <a href="https://eternalmoments.smugmug.com/"> link</a>
 
 <b>The search feature serves at least four purposes as follows:</b><br>
-1. One can built its own gallery for the enyoment of vibrations and blessings.<br>
+1. One can build its own gallery for the enjoyment of vibrations and blessings.<br>
 2. To help in identifying untitled (undated or unplaced or unspecified) Photos and photos Moments of Joy.<br>
 3. To help in identifying unedited or original Photos or photos Moments of Joy so that all edited Photos and photos that are inappropriately circulating on facebook, etc., could be identified, avoided, and hopefully eliminated.<br>
 4. To help all Sahaja Yogis and Sahaja Yoginīs involved in different projects to identify faster the Photos and photos Moments of Joy that would enhance their projects.
@@ -27,9 +27,9 @@ b. manually added.
 For a: ONLY Photos uploaded or re-uploaded after November 25, 2021 have the keywords automatically created from the titles (they are in thousands).<br>
 For b: We are still working to manually add keywords to the Photos from 255 months of the years 1981 to 2010 and for photos Moments of Joy from the years 1983 to 2011.
 
-<b>Very important:</b> none of these keywords, that are automatic or manually added, are on the Photos or photos Moments of Joy (i.e., later on when download button will be added, via download only the original keywords will be there.
+<b>Very important:</b> none of these keywords, that are automatic or manually added, are on the Photos or photos Moments of Joy (i.e., later on when the download button will be added, via download only the original keywords will be there.
 
-We are constantly working in re-uploading and manually adding keywords, and as such it was felt that it is the right time to start the search feature.
+We are constantly working on re-uploading and manually adding keywords, and as such it was felt that it is the right time to start the search feature.
 
 <b>Two ways to use the search feature:</b><br>
 <i>A (apriori set search):</i> i. clicking on SEARCH; ii. below the elongated horizontal box choosing the right category (basically Photos or Galleries, in most cases being actually Photos); iii. typing in the elongated horizontal box the keywords that would delimit the search most, the words ought to be separated by space (say, typing: public India)<br>
