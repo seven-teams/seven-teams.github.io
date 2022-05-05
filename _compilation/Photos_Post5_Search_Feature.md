@@ -44,6 +44,8 @@ We are constantly working in re-uploading and manually adding keywords, and as s
 <i>VI. Colors:<i> essentially all.<br>
 <i>VII. Cities:<i> essentially all, the ones with IAST will be gradually added here as well so that they can be copied and pasted [the issue is an incompatibility between different devices, like ā will work in a search, but ā will not, though they look the same].
 
+All these suggested words are also listed on the main page of the website.  
+
 We thank you in advance for any help, support, and feedback. Please write to us at sahajayoga.compilations@gmail.com
 
 Jay Śhrī Mātājī!
