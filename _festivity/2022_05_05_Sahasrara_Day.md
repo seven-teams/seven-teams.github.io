@@ -149,7 +149,7 @@ we are in the path of Sushumna and very close to Your Divine Form.<br>
 </p>
 
 <p>
-<font color="green"><b>Vandan Karuya Matajila</b></font><br>
+<font color="green"><b>Vandan Karuya Mātājīla</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
