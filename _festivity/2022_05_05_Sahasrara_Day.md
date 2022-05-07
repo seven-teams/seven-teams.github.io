@@ -110,7 +110,7 @@ Whenever we take Your name, You are always there to help us<br>
 Sushumnachya Marge,<br>
 Swarupachya Tiri</b></font><br>
 When we are at Your Lotus Feet our attention is settled,<br>
-we are in the path of Sushumna and very close to Your Divine form.<br>
+we are in the path of Sushumna and very close to Your Divine Form.<br>
 <a href="https://youtu.be/U0w8QSa7zNY">video</a>
 </p>
 
@@ -121,10 +121,10 @@ we are in the path of Sushumna and very close to Your Divine form.<br>
 <b>All Sahaja Yogis:</b> Auṃ Twameva sākṣhāt Śhrī Sahaja Yoga Dāyinī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ.<br>
 <font color="DarkRed"><b>Śhrī Mātājī: Now, after saying all these mantras you have reached up to Sahasrāra and you have also pierced through the Sahasrāra. The most effective mantra you know is Nirmalā and that works the best for Sahasrāra.</b></font><br>
 <font size="+0"><b>1985-0614 Small Pūjā, Farewell, Āśhram, Route de Courte Raye, Founex (19 kms N of Geneva), Switzerland<br>
-Śhrī Mātājī giving individual Sahasrāra Mantras</b></font>
+Śhrī Mātājī giving individual Sahasrāra Mantras</b></font><br>
 <a href="https://youtu.be/mPBwtVUOHKg">video</a><br>
 <br>
-<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Sahasrāra Swāminī sākṣhāt Śhrī Mokṣha Pradāyinī Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font>
+<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Sahasrāra Swāminī sākṣhāt Śhrī Mokṣha Pradāyinī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
