@@ -11,7 +11,8 @@ tags:
 <p>
 <font color="DarkRed">"<b>Today is a very great day, I must say, to celebrate Sahasrāra, the Pūjā of Sahasrāra.</b><br>
 It’s a very unique thing that has happened, that your Sahasrāras were opened out.<br>
-..So it’s a very great day because collectively this Sahasrāra has been opened. Every one of you have got it. Also all over the world, you have many people who have got their Sahasrāras open. Of course, we need many more for them to understand what is this great event of such a collective opening of Sahasrāra.<br>
+......<br> 
+So it’s a very great day because collectively this Sahasrāra has been opened. Every one of you have got it. Also all over the world, you have many people who have got their Sahasrāras open. Of course, we need many more for them to understand what is this great event of such a collective opening of Sahasrāra.<br>
 Some have grown very much, after getting their Realization, very much. They have understood Sahaja Yoga very well, and they have developed their depth, and their consciousness is really a great awareness of Oneness with the Divine.<br>
 <b>To be one with the Divine is the greatest blessing for human beings.</b>"</font><br>
 <font size="+0"><b>2002-0505 Sahasrāra Pūjā, Watch Yourself, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
