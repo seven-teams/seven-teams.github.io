@@ -57,7 +57,7 @@ In the form of the Universe You are its receptacle.<br>
 You are worshipped by the lords of the universe.<br>
 <b>Viśhwaśhraya ye twayi bhakti namraha</b><br>
 Those who are devoted to You themselves become supporters of the universe</font><br>
-<font size="+0"><b>prayer to Śhrī Rājarājeśhwarī.<br>
+<font size="+0"><b>Prayer to Śhrī Rājarājeśhwarī.<br>
 (79 names of Śhrī Rājarājeśhwarī created by Śhrī Mātājī Herself and read out during the 2000 Sahasrāra Pūjā in Albera Ligure)</b></font><br>
 <a href="https://youtu.be/7jLDenmw7So">video</a>
 </p>
