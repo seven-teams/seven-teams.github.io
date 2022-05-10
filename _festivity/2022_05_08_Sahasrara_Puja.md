@@ -150,6 +150,8 @@ Today, on this great, great day, we see the Universe at Your Feet.</b></font><br
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
+<div style="text-align: center"><img src="/images/image974.png" /></div>
+
 <p style="text-align:center;">
 <font color="DarkRed">"<b>So now you understand from there that, on this Sahasrāra Day, you have to also demand.</b><br>
 I want you to demand and ask, because I have no desire. And you just go ahead!<br>
@@ -161,16 +163,22 @@ This is a very great day today; go home, think about it. Collectively also you d
 <br>
 <b>Raman D. Kulkarni: "Ātā Viśhwātmakeṃ deveṃ yeṇe vāgyajñeṃ toṣhāveṃ. Toṣho..."</b><br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b> Now it says that all of you, who are one in your Spirit -- this all description of Sahaja Yoga today, is the future, the present that you will get it, at this time what is going to happen. It is so beautifully shown, you'll be surprised, that you all will become one in the universe. The Spirit of the Universe will be satisfied with the Yagñyas they are going to do, with the fire ceremonies you are going to do. How it is appropriated! He said it three hundred years back.</font><br>
+<br>
 <b>Raman D. Kulkarni: "Toṣhoniṃ maja jñāve pasāyadāna heṃ."</b><br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b> And then you will, should give us the milk of your blessings by getting the complete satisfaction from us</font><br>
+<br>
 <b>Raman D. Kulkarni: "Jeṃ khaḷāṃchī vyaṃkaṭī sāṃḍo."</b><br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b> That time all the horrible evil people will be ruined and their ... their plans will be spoiled.</font><br>
+<br>
 <b>Raman D. Kulkarni: "Tayā satkarmī-ratī vāḍho."</b><br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b> And people will take to righteousness. This is the description [unclear] Gupta.</font><br>
+<br>
 <b>Raman D. Kulkarni: "Bhūtaṃ paraspare paḍo maitra jīvācheṃ."</b><br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b> At that time there will be a tremendous friendship of the Spirit among people.</font><br>
+<br>
 <b>Raman D. Kulkarni: "Duritāṃche timira jāvo."</b><br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b> Those who are in ignorance will get light.</font><br>
+<br>
 <b>Raman D. Kulkarni: "Viśhwa Swadharma Sūryeṃ pāho."</b><br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b> The whole universe will see the light, the Sun of One Universal Religion.</font><br>
 <font color="DarkGreen"><b>Pasāyadān</b></font><br>
@@ -180,8 +188,6 @@ Grant me in goodwill benign | Your Benevolent Grace Divine<br>
 At the end of which Gyāneśhwar asks for the blessings of the Almighty through this Pasāyadān)</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-
-<div style="text-align: center"><img src="/images/image974.png" /></div>
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>
