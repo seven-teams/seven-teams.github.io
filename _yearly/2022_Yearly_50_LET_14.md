@@ -12,7 +12,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b>the greatest thing that has happened</b><br></font>
+<font size="+2"><b>The Greatest Thing That Has Happened</b><br></font>
 </p>
 
 <p>
