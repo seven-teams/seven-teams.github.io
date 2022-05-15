@@ -1,5 +1,5 @@
 ---
-title: 'Quotes on Śhrī Narasiṃha Avatāra and a new version (2) of quotes on Śhrī Vāmana Avatāra'
+title: 'Quotes on Śhrī Narasiṃha Avatāra, Version 2'
 date: 2022-05-15
 permalink: /quotes/2022/0515
 tags:
