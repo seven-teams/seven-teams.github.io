@@ -46,18 +46,17 @@ Thou art Śhrī Mahāmāyā, the Mother of the Ādi Ahaṅkāra, the Primordial 
 <div style="text-align: center"><img src="/images/image977.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>""The Pūjā to Shrī Buddha is being performed today to open this chakra.<br>
+<font color="DarkRed"><b>"The Pūjā to Shrī Buddha is being performed today to open this chakra.<br>
 At the level of the Āgñyā chakra, there are thoughts. Because you are all connected with the same Divine Force there can be no difference of opinion."</b></font><br>
 <font size="+0"><b>1990-0514 Śhrī Buddha Pūjā, Saint Petersburg, Russia</b></font><br>
 <br>
 <font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Siddhārtha Gautama Buddha sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 O Divine Mother, You are verily Śhrī Buddha. Salutations to You!
 <p>
-<font color="DarkRed">""</font><br>
 
 <p>
 <font color="DarkRed">"<b>So the people who today are worshiping Buddha should know that His Message of Truth, which we know through our right side, through our attention, must be applied to ourselves, first of all.</b><br>
-..The problem with Sahaja Yogis sometimes is that they don’t know the importance of what they are, they are not aware. If their ego was correct, in that ahaṅkāra, ego, the essence of it is aham-bhāva, is that, ‘I am a Sahaja Yogi.’ I am a Sahaja Yogi.’ Now keep the point of honesty with it. ‘Honestly, I’m a Sahaja Yogi and I’m a follower of a religion, which is a Universal Religion, which is innately built myself. There’s no hanky panky about it. Is my experience, and I believe in it fully, and is innately within myself.’ This is the aham-bhāva. I don’t know what is it in the English language, is could be ‘I’-ness, ‘I’-ness.<br>
+...... The problem with Sahaja Yogis sometimes is that they don’t know the importance of what they are, they are not aware. If their ego was correct, in that ahaṅkāra, ego, the essence of it is aham-bhāva, is that, ‘I am a Sahaja Yogi.’ I am a Sahaja Yogi.’ Now keep the point of honesty with it. ‘Honestly, I’m a Sahaja Yogi and I’m a follower of a religion, which is a Universal Religion, which is innately built myself. There’s no hanky panky about it. Is my experience, and I believe in it fully, and is innately within myself.’ This is the aham-bhāva. I don’t know what is it in the English language, is could be ‘I’-ness, ‘I’-ness.<br>
 Then, “I am on this Earth now, this life is for the work of God. And for that, I have to be a pure person because I belong to Vishwa Nirmal Dharm. I have to be pure. I have to achieve my purity: through meditation through every way watching myself, ‘I have to be a pure person.’ And if I am a Sahaja Yogi, if I am united with that All-pervading Power of Love, I should be the medium to give that love to others and compassion. I have no time for other things. Other things are of no value. My attention has to be pure. My life has to be pure."</font><br>
 <font size="+0"><b>1989-0520 Śhrī Buddha Pūjā, Gautama, The Lord of the Ego, Open Air near El Farell Hotel, Barcelona, Spain</b></font>
 </p>
@@ -108,7 +107,7 @@ I surrender myself to Śhrī Ādi Śhakti Nirmalā Matajī<br>
 </p>
 
 <p>
-<font color="green"><b>Maa Hai Ek. Rup Anek</b> (1991-0804 Śhrī Buddha Pūjā, Belgium)</font><br>
+<font color="green"><b>Mā Hai Ek. Rup Anek</b> (1991-0804 Śhrī Buddha Pūjā, Belgium)</font><br>
 <a href="https://soundcloud.com/sahaja-yoga-music/maa-hai-ek-rup-anek-1991-0804">video</a> 
 </p>
 
