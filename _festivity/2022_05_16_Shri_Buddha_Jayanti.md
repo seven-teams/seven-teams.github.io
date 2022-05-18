@@ -52,7 +52,7 @@ At the level of the Āgñyā chakra, there are thoughts. Because you are all con
 <br>
 <font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Siddhārtha Gautama Buddha sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 O Divine Mother, You are verily Śhrī Buddha. Salutations to You!
-<p>
+</p>
 
 <p>
 <font color="DarkRed">"<b>So the people who today are worshiping Buddha should know that His Message of Truth, which we know through our right side, through our attention, must be applied to ourselves, first of all.</b><br>
