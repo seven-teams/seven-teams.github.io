@@ -38,8 +38,8 @@ Links to suggested talk: <a href="https://vimeo.com/137191600"> vimeo</a>, <a hr
 
 <p>
 <b>Objectives:</b><br>
-.<br>
-.
+8. To give the taste of real joy that is within the Self. To practice different methods of meditation evolved by Mātājī and to hold meditation camps.<br>
+22. To open, organize and run local centers of the Life Eternal Institution in various parts of India and in foreign countries, the centers being opened on the distinct understanding that meditation is the path of the entire human destiny, and that all barriers of states, nations and races are artificial and irrelevant to Life Eternal.
 </p>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
