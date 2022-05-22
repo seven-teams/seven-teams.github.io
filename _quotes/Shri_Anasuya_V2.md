@@ -1,7 +1,7 @@
 ---
 title: 'Quotes on Śhrī Anasūyā, Version 2'
-date: 2022-05-22
-permalink: /quotes/2022/0522
+date: 2022-05-21
+permalink: /quotes/2022/0521
 tags:
   - Incarnations
 ---
