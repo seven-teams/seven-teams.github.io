@@ -45,7 +45,7 @@ And I have to specially make a very important request to the women, that, in the
 <font color="blue"><b>1988-0619 Talk to Sahaja Yogis, The Role of Women, Seminar, Day 2, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font><br>
 </p>
 
-Links to suggested talk: <a href="https://vimeo.com/137315968"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1988-0619-seminar-day-2-shudy"> soundclous</a><br>
+Links to suggested talk: <a href="https://vimeo.com/137315968"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1988-0619-seminar-day-2-shudy"> soundcloud</a><br>
 
 <p>
 <b>Objectives:</b><br>
