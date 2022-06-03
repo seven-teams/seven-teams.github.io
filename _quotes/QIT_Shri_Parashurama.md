@@ -164,7 +164,7 @@ Now He had two brothers, very interesting. I mean he had other brothers also, bu
 Now they show the two sides of a human being.<br>
 One was Lakṣhmaṇa, and he was that fiery type, you see. He couldn't bear anybody misbehaving towards Rāma. He couldn't bear anybody talking in a very mundane type to Śhrī Rāma. And he used to get so angry with all these people, that he would just come out like a big thunderbolt on anybody who tried to say anything about Śhrī Rām.<br>
 <font color="red">Even Paraśhurāma who was, there, a contemporary Incarnation of Śhrī Rāma Himself was Paraśhurāma. Is a very interesting story about that.<br>
-But, he could not bare Paraśhurāma in any way</font> [{\bf{\textcolor{amber+}{gap}}}]<br>
+But, he could not bare Paraśhurāma in any way</font> [<font color="Orange">gap</font>]<br>
 ...... He is the Śheṣha as they call it: the ... the serpent which sleeps in the Bhavasāgara, on which Śhrī Viṣhṇu rests. The same Śheṣha had taken birth as Śhrī Lakṣhmaṇa."<br>
 <font size="+0"><b>1982-0402 Śhrī Rāma Pūjā, Rāma Navamī, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
