@@ -344,7 +344,7 @@ So, I mean, we are much better off, you see? [As laughter starts:] Aren't we?"<b
 
 <div class="para-divider"></div>
 
-[Download pdf here](???)
+[Download pdf here](http://seven-teams.github.io/files/Shri_Parashurama_V2.pdf)
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
