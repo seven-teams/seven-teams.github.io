@@ -53,6 +53,8 @@ For other websites of Photographs please see:
     iv. <a href="https://www.flickr.com/people/74539343@N05/"> Photos of Shri Mataji</a> (taken by Matthew Fogarty) (created in 2012)
 
     v. <a href="https://library.sahajaworld.org/photos"> Photos</a> (of Sahaja Digital Library) (created in 2017)
+    
+    vi. <a href="https://www.instagram.com/fotosofma/"> Photos</a> (taken by Chris Patmore) (created in 2021)
 
 3. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.<br> 
 E-mail: <b>sakshat.avatar@gmail.com</b>
