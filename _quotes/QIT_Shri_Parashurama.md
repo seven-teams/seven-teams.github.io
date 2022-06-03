@@ -270,8 +270,8 @@ So, all Gods were brought to the level of human beings, with ... 'bestowed' with
 <div class="para-divider"></div>
 
 <p>
-<b>Sahaja Yogi:</b>What is it?<br>
-<b>Another Sahaja Yogi:</b>This is ...<br>
+<b>Sahaja Yogi:</b> What is it?<br>
+<b>Another Sahaja Yogi:</b> This is ...<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> This is Zeus, yeah?<br>
 <b>Same Sahaja Yogi:</b> ... Zeus.<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> Zeus, Zeus.<br>
