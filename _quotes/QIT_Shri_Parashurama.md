@@ -306,7 +306,7 @@ So, I mean, we are much better off, you see? [As laughter starts:] Aren't we?"<b
 <p>
 "His channel is the evolutionary path, and His Ten Incarnations of the Virāṭa have helped mankind to evolve:<br>
 ......<br>
-<font color="red"><i>vi. Strong Man</i> ......................................................... Paraśhurāma Avatāra</font>"<br>
+<font color="red"><i>vi. Strong Man</i> ............................................................... Paraśhurāma Avatāra</font>"<br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play, Page 14</b></font>
 </p>
 
