@@ -1,5 +1,5 @@
 ---
-title: 'ŚHRĪ PARAŚHURĀMA'
+title: 'ŚHRĪ PARAŚHURĀMA In The Words Of ŚHRĪ MĀTĀJĪ'
 date: 2022-06-03
 permalink: /quotes/2022/0603
 tags:
