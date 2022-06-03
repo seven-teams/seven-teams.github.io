@@ -1,9 +1,9 @@
 ---
-title: 'Śhrī Paraśhurāma'
+title: 'ŚHRĪ PARAŚHURĀMA'
 date: 2022-06-03
 permalink: /quotes/2022/0603
 tags:
-  - Incarnations in Human Form
+  - Incarnations
 ---
 
 <div class="para-divider"></div>
