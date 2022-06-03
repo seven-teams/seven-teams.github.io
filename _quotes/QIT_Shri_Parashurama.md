@@ -9,8 +9,7 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-"It is very surprising that till today My experience with Haṭha Yogis -- there are many Haṭha Yogis in America also -- has been that all of them have heart troubles. It is very surprising. Haṭha Yogis are especially great worshipers of Śhivjī. 
-
+"It is very surprising that till today My experience with Haṭha Yogis -- there are many Haṭha Yogis in America also -- has been that all of them have heart troubles. It is very surprising. Haṭha Yogis are especially great worshipers of Śhivjī.<br>
 <font color="red">The reason is that Haṭha Yoga is not for people leading a worldly life but for those living in the jungles, like Paraśhurām.</font> It is another thing to do a little within balance, but Haṭha Yoga is not meant for you people. If you do it in extreme, then your heart will suffer from problems."<br>
 <font size="+0"><b>1975-1222 Public Program (Hindi), Day 1, Prabhu ke Prem kā Anubhav (Experiences of Lord's Love), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -18,12 +17,9 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-"And after many Incarnations on this Earth, They gave Realization to some people, but very few. And then these people later on started giving Realization to others. 
-
-<font color="red">We can say that this all started with Paraśhurāma. When Paraśhurāma was incarnated it was the beginning of individual spirituality. People started learning spirituality by going individually to the forest. But Paraśhurāma was [an] Incarnation. 
-
-And with Paraśhurāma, Śhrī Ādi Guru Dattātreya had also many Incarnations. But due to Śhrī Dattātreya's collaboration in Śhrī Paraśhurāma's Incarnation, one in karoṛs or lākhs used to get his Realization.</font> 
-
+"And after many Incarnations on this Earth, They gave Realization to some people, but very few. And then these people later on started giving Realization to others.<br>
+<font color="red">We can say that this all started with Paraśhurāma. When Paraśhurāma was incarnated it was the beginning of individual spirituality. People started learning spirituality by going individually to the forest. But Paraśhurāma was [an] Incarnation.<br>
+And with Paraśhurāma, Śhrī Ādi Guru Dattātreya had also many Incarnations. But due to Śhrī Dattātreya's collaboration in Śhrī Paraśhurāma's Incarnation, one in karoṛs or lākhs used to get his Realization.</font><br>
 And after this, He also used to sit in the forest. He was next to the Incarnation. People used to get cured by going to Him in case of need. They thought, 'He is a Saint, we should pay our respects to Him.' "<br>
 <font size="+0"><b>1976-0527 Talk to Sahaja Yogis (Marathi), Sahaja Yoga Baddal Sarvānna Sangaychee Hi Sahajayogyānchi Jababdari Āhe (Responsibility of Sahaja Yoga), Dadar, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -31,24 +27,15 @@ And after this, He also used to sit in the forest. He was next to the Incarnatio
 <div class="para-divider"></div>
 
 <p>
-"Now, they are feelings and also they are uh these uh rajoguṇī expressions, which you can see with your eye, you see the Creation itself.
-
-But they are also feelings. 
-
-So, those who can see feelings more, a person who has been very loving and who has dealt uh in this side of life, in ... who has been a bhakti man, you can say a dedicated man, who has been praying to God and crying for Him and asking for His help and weeping before Him with all his heart, such a man uh will uh feel a person more. 
-
-And a person who is a ... more dedicated, say, to forms and things, he will see him ... uh see them in a different way as forms. 
-
-So, then they see them in colors because they are also colors. 
-
-They are also colors and they are also sounds. So the sound is also one of the elements, so they can see a sound. 
-
-And they also see them when their Kuṇḍalinī moves. You see, they see the sound moving. And they also saw. 
-
-<font color="red">Most of the people who have seen this have been the people who have been uh meditating through this, you can say, the Patañjalā [Patañjali] style of meditation where they were single people, Paraśhurāma style [austere], you see.</font> And they saw these uh forms and they saw the movement of the Kuṇḍalinī through the chakras, when It passes, It creates a sound, a word. 
-
-And so, they studied every sound: how which sound was created, what sound was created, what color was there. 
-
+"Now, they are feelings and also they are uh these uh rajoguṇī expressions, which you can see with your eye, you see the Creation itself.<br>
+But they are also feelings.<br>
+So, those who can see feelings more, a person who has been very loving and who has dealt uh in this side of life, in ... who has been a bhakti man, you can say a dedicated man, who has been praying to God and crying for Him and asking for His help and weeping before Him with all his heart, such a man uh will uh feel a person more.<br>
+And a person who is a ... more dedicated, say, to forms and things, he will see him ... uh see them in a different way as forms.<br>
+So, then they see them in colors because they are also colors.<br>
+They are also colors and they are also sounds. So the sound is also one of the elements, so they can see a sound.<br>
+And they also see them when their Kuṇḍalinī moves. You see, they see the sound moving. And they also saw.<br>
+<font color="red">Most of the people who have seen this have been the people who have been uh meditating through this, you can say, the Patañjalā [Patañjali] style of meditation where they were single people, Paraśhurāma style [austere], you see.</font> And they saw these uh forms and they saw the movement of the Kuṇḍalinī through the chakras, when It passes, It creates a sound, a word.<br>
+And so, they studied every sound: how which sound was created, what sound was created, what color was there.<br>
 And so it is the one-sided knowledge of the right-hand side, of the people who went to the right-hand side that they say, that, 'This thing was created,' 'That thing was created,' and then, 'This sound was created.' "<br>
 <font size="+0"><b>1977-0126 Talk to Sahaja Yogis (28th Republic Day), Day 1, Questions on Chakras, Bordi, Maharashtra, India</b></font>
 </p>
