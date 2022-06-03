@@ -11,7 +11,7 @@ tags:
 <p>
 "It is very surprising that till today My experience with Haṭha Yogis -- there are many Haṭha Yogis in America also -- has been that all of them have heart troubles. It is very surprising. Haṭha Yogis are especially great worshipers of Śhivjī. 
 
-<font color="DarkRed">The reason is that Haṭha Yoga is not for people leading a worldly life but for those living in the jungles, like Paraśhurām.</font> It is another thing to do a little within balance, but Haṭha Yoga is not meant for you people. If you do it in extreme, then your heart will suffer from problems."</font><br>
+<font color="DarkRed">The reason is that Haṭha Yoga is not for people leading a worldly life but for those living in the jungles, like Paraśhurām.</font> It is another thing to do a little within balance, but Haṭha Yoga is not meant for you people. If you do it in extreme, then your heart will suffer from problems."<br>
 <font size="+0"><b>1975-1222 Public Program (Hindi), Day 1, Prabhu ke Prem kā Anubhav (Experiences of Lord's Love), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -24,7 +24,7 @@ tags:
 
 And with Paraśhurāma, Śhrī Ādi Guru Dattātreya had also many Incarnations. But due to Śhrī Dattātreya's collaboration in Śhrī Paraśhurāma's Incarnation, one in karoṛs or lākhs used to get his Realization.</font> 
 
-And after this, He also used to sit in the forest. He was next to the Incarnation. People used to get cured by going to Him in case of need. They thought, 'He is a Saint, we should pay our respects to Him.' "</font><br>
+And after this, He also used to sit in the forest. He was next to the Incarnation. People used to get cured by going to Him in case of need. They thought, 'He is a Saint, we should pay our respects to Him.' "<br>
 <font size="+0"><b>1976-0527 Talk to Sahaja Yogis (Marathi), Sahaja Yoga Baddal Sarvānna Sangaychee Hi Sahajayogyānchi Jababdari Āhe (Responsibility of Sahaja Yoga), Dadar, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -49,7 +49,7 @@ And they also see them when their Kuṇḍalinī moves. You see, they see the so
 
 And so, they studied every sound: how which sound was created, what sound was created, what color was there. 
 
-And so it is the one-sided knowledge of the right-hand side, of the people who went to the right-hand side that they say, that, 'This thing was created,' 'That thing was created,' and then, 'This sound was created.'"</font><br>
+And so it is the one-sided knowledge of the right-hand side, of the people who went to the right-hand side that they say, that, 'This thing was created,' 'That thing was created,' and then, 'This sound was created.' "<br>
 <font size="+0"><b>1977-0126 Talk to Sahaja Yogis (28th Republic Day), Day 1, Questions on Chakras, Bordi, Maharashtra, India</b></font>
 </p>
 
@@ -276,7 +276,7 @@ So, people don't want to take anything in the present, but present is the truth.
 <p>
 "The Devaloka was formed here, and Devas were here, they ruled here, no doubt, but in the human awareness they were brought down to the human level.<br>
 <font color="DarkRed">Like Zeus was Paraśhurāma. Paraśhurāma: the One who was an Incarnation to announce the Advent of Śhrī Rāma. And He came before Śhrī Rām, eah ... died also very much before Śhrī Rām. But they painted Zeus as a man who, who was a womanizer.</font><br>
-So, all Gods were brought to the level of human beings, with ... 'bestowed' with all the weaknesses, you see. Actually 'decorated' with all the weaknesses. [Laughing:] Like that."</font><br>
+So, all Gods were brought to the level of human beings, with ... 'bestowed' with all the weaknesses, you see. Actually 'decorated' with all the weaknesses. [Laughing:] Like that."<br>
 <font size="+0"><b>1989-0524 Śhrī Pallas Athena Pūjā, The Origins and Role of Greece, House of Stamatis Boudouris, Athens, Greece</b></font>
 </p>
 
