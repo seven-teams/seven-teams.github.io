@@ -152,7 +152,7 @@ So when They came you said, "No, no, no, no, no, not this, not this, not this." 
 Very good. Not to believe in the person who has come now, but to believe in something that was there. Why? Because it 'helps' you a lot.<br>
 Actually it does not.<br>
 But you can use that Guru as you like. About Kṛiṣhṇa you can say what you like. About Rāma what, you say what you like. About Nāṇaka you say what you like. About everybody you can say what you like. That, 'He said so,' 'He said so,' they all feel they have become themselves the gurus. Because you can use them also very well.<br>
-But they cannot give you Realization, that's a fact.}"<br>
+But they cannot give you Realization, that's a fact."<br>
 <font size="+0"><b>1982-0223 Public Program (English+Hindi), Day 6, The Universal Sahaja Yoga Temple (Āśhram), Deities that Adorn the Centers, and After Self-realization, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India (place not sure)</b></font>
 </p>
 
@@ -292,16 +292,11 @@ So, all Gods were brought to the level of human beings, with ... 'bestowed' with
 <div class="para-divider"></div>
 
 <p>
-"And He used their powers, you see. For what? For creating so many things. 
-
-Like, if Śhrī Kṛiṣhṇa had not come we would not have known really the significance of spiritual life. He was the first who talked of spiritual life. 
-
-Rāma did not talk of spiritual life, though there was an undercurrent in India. People knew there is spiritual life because there were Saints, there were uh-uh lots of uh-uh-uh, what you call the, uh-uh-uh Seers, all of them were talking about it. But no Incarnation talked about spiritual life. 
-
-<font color="red">We had Vāmana Avatāra, then we had Paraśhurāma, we had so many of these people, never, never They talked of spiritual life, never.</font>
-
-It was Śhrī Kṛiṣhṇa only who first started talking about spiritual life, and only to Arjuna He talked. Because, you see, what was the condition: people were not prepared. So those people, Sahaja Yogis, who feel frustrated today, because there are not many Sahaja Yogis or the there's a[n] obstruction, there are certain problems, must know that at the time of Śhrī Kṛiṣhṇa, He could dare speak about spirituality only to one person, and that one was Arjuna. 
-
+"And He used their powers, you see. For what? For creating so many things.<br>
+Like, if Śhrī Kṛiṣhṇa had not come we would not have known really the significance of spiritual life. He was the first who talked of spiritual life.<br>
+Rāma did not talk of spiritual life, though there was an undercurrent in India. People knew there is spiritual life because there were Saints, there were uh-uh lots of uh-uh-uh, what you call the, uh-uh-uh Seers, all of them were talking about it. But no Incarnation talked about spiritual life.<br>
+<font color="red">We had Vāmana Avatāra, then we had Paraśhurāma, we had so many of these people, never, never They talked of spiritual life, never.</font><br>
+It was Śhrī Kṛiṣhṇa only who first started talking about spiritual life, and only to Arjuna He talked. Because, you see, what was the condition: people were not prepared. So those people, Sahaja Yogis, who feel frustrated today, because there are not many Sahaja Yogis or the there's a[n] obstruction, there are certain problems, must know that at the time of Śhrī Kṛiṣhṇa, He could dare speak about spirituality only to one person, and that one was Arjuna.<br>
 So, I mean, we are much better off, you see? [As laughter starts:] Aren't we?"<br>
 <font size="+0"><b>1990-0819 Śhrī Kṛiṣhṇa Pūjā, Hallowtree Scout Campsite, Nacton, Ipswich IP10 0JP, UK</b></font>
 </p>
