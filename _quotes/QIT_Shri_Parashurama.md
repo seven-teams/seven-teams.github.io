@@ -67,7 +67,7 @@ In human beings there are of different levels at different times.<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="Peru"><b>Gentleman:</b></font> If ... if there is no karma, does that mean there is no reincarnation? 
+<font color="Peru"><b>Gentleman:</b></font> If ... if there is no karma, does that mean there is no reincarnation?<br> 
 <font color="red"><b>Śhrī Mātājī:</b></font> Well, how can you say that? '[If] there is no karma, there is no rea ... reincarnation,' all these are their ideas, nonsense, they talk like that.<br>
 Then why did Kṛiṣhṇa Himself reincarnated so many times on this Earth? Did He have any karmas? He was Yogeśhwara Himself! You should ask them!<br>
 <font color="Peru"><b>Lady:</b></font> Who?<br>
