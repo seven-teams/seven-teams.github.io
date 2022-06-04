@@ -42,7 +42,9 @@ This materialism is a horrible stuff. Is so ridiculous, shameful! Doesn't even s
 <font color="blue"><b>1987-0503 Sahasrāra Pūjā, You Must Obey Me, Yogis in the Body of the Ādi Śhakti and The Ghost of Materialism, Thredbo Village, Kosciuszko National Park, New South Wales, Australia</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://vimeo.com/469363650"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1987-0503-1"> soundcloud</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -50,6 +52,8 @@ Links to suggested talk: <a href="https://vimeo.com/469363650"> vimeo</a>, <a hr
 14. To overcome the void between the material saturation and the unknown which is causing fear, restlessness, sleeplessness and tension leading to escapism from reality and false renunciation.<br>
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

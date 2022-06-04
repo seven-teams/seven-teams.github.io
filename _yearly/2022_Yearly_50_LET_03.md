@@ -26,7 +26,9 @@ So, effortlessness is the key word, absolutely effortlessly, whether you are med
 <font color="blue"><b>1980-0000 Public Program, In Meditation You Have to Be Absolutely Effortless, London, UK</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/1980-0000-1-how_to_meditate-1"> audio</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -34,6 +36,8 @@ Links to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/19
 2. By the process, to reach a Zero point where one becomes effortless and starts feeling the play of the supreme. ...... 
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

@@ -30,7 +30,9 @@ I'm sure great people will be born in all the Western countries, definitely. I a
 <font color="blue"><b>1982-0127 Pūjā (English+Marathi), Quality of Life Has to Be Improved (Become Dedicated to Your Inner Quality of Your Spirit and Thankfulness towards God that He Has Been Kind to Give Us His Grace), Sholapur, Maharashtra, India</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/1982-0127-1-be_thankful_to_god"> Audio, Part 1 (English)</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1982-0127-1a"> Audio, Part 2 (Marathi)</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -38,6 +40,8 @@ Links to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/19
 9. To create a new generation of self-realized people and to render motherly protection to all such children against evil intentions and to look after their well-being.
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

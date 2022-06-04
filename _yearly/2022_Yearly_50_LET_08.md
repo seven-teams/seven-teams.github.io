@@ -39,7 +39,9 @@ I don't care [about] your protocols and your ritualistic things, are nonsense fo
 <font color="blue"><b>1981-0524 Talk to Sahaja Yogis, Subconscious, Supraconscious and Our Correct Ideals, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/19810524-you-are-your-own-1"> audio</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -47,6 +49,8 @@ Links to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/19
 21. To unite all genuine Seekers of Truth divided by dogmas and ignorance so that Satya Yuga (the Age of Truth) is born out of the present Kali Yuga (the Age of Darkness) rather than complete annihilation. To harness all the human resources to achieve this great task for which mass evolution will be needed.
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

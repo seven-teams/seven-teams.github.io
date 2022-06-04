@@ -29,16 +29,21 @@ The three people who went to see Jesus when He was born were Brahmā, Viṣhṇu
 <font color="blue"><b>1983-0307 Public Program, Day 2, Meeting Room, Town Hall, 128 King William Street and Pirie Street, Adelaide, SA, Australia</b></font><br>
 </p>
 
+<br>
+Links to suggested talk: <a href="https://vimeo.com/104918602"> vimeo</a>, <a href="https://www.youtube.com/watch?v=RHjHc8BaT_k"> youtube</a><br>
+<br>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RHjHc8BaT_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe><br>
+
+
 <p>
 <b>Objectives:</b><br>
 6. To spread the news of the descent of the Divine Grace, with the help of self-realized disciples of Mātājī.<br>
 21. To unite all genuine Seekers of Truth divided by dogmas and ignorance so that Satya Yuga (the Age of Truth) is born out of the present Kali Yuga (the Age of Darkness) rather than complete annihilation. To harness all the human resources to achieve this great task for which mass evolution will be needed.
 </p>  
 
-Links to suggested talk: <a href="https://vimeo.com/104918602"> vimeo</a>, <a href="https://www.youtube.com/watch?v=RHjHc8BaT_k"> youtube</a><br>
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RHjHc8BaT_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe><br>
-
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

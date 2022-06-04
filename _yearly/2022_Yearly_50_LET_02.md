@@ -51,11 +51,15 @@ To facilitate the work of Mātājī as follows:<br>
 7. To cure people of their physical and mental ailments by blessing them with divine healing touch of Mātājī and other disciples who have developed their Collective Consciousness Self-realization. 
 </p>  
 
+<br>
 Links to suggested talk: <a href="https://vimeo.com/315769058"> vimeo</a><br>
+<br>
 
 <iframe src="https://player.vimeo.com/video/315769058?h=87c6505095" width="640" height="480" frameborder="0" allow="autoplay; fullscreen; picture-in-picture" allowfullscreen></iframe>
 <p><a href="https://vimeo.com/315769058">1986-0113 Health Advice  Rahuri</a> from <a href="https://vimeo.com/sahajalibrary">Sahaja Library</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

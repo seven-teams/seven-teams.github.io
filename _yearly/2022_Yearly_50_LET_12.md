@@ -35,7 +35,9 @@ So we are also in the same position now."<br>
 <font color="blue"><b>1999-0425 Easter Pūjā, We Have to Establish Our Meditation, Istanbul, Turkey</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://vimeo.com/22323689"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1999-0425-1-easter_puja-1-wav"> audio</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -43,6 +45,8 @@ Links to suggested talk: <a href="https://vimeo.com/22323689"> vimeo</a>, <a hre
 13. To employ the energy of love to overcome hatred that is the cause of wars, disintegration and destruction by publishing and relating the spiritual experiences of Sadhakas which prove the universal laws of love.
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

@@ -30,7 +30,9 @@ But now you will know why Muhammad Sāhab and Hazarat ʿAlī came. For what purp
 <font color="blue"><b>2000-0528 Persian Public Program, Iman Cultural Center, Los Angeles, CA, U.S.A.</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://vimeo.com/127920100"> vimeo</a>, <a href="https://www.youtube.com/watch?v=ieJDu4ml010"> youtube</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -38,6 +40,8 @@ Links to suggested talk: <a href="https://vimeo.com/127920100"> vimeo</a>, <a hr
 13. To employ the energy of love to overcome hatred that is the cause of wars, disintegration and destruction by publishing and relating the spiritual experiences of Sadhakas which prove the universal laws of love.
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams
