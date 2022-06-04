@@ -23,5 +23,3 @@ Jay Śhrī Mātājī!
 The Quotes on Incarnations Team  
 
 [Download pdf here](http://seven-teams.github.io/files/Shri_Vamana_Avatara_V5.pdf)
-
-<p><embed src="https://drive.google.com/viewerng/viewer?embedded=true&url=https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing" width="500" height="375"></p>
