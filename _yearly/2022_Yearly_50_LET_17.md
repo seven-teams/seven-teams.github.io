@@ -34,10 +34,12 @@ So you all people should also understand: 'Don't try new things in Sahaja Yoga.'
 ......<br>
 So be careful! There is no need to try new methods.<br>
 Now you have jumped on to that awareness where you have to just be steady. So don't try at this point something new! Just steady yourself! Steady yourself in balance, that's very important."<br>
-<font color="blue"><b>1985-0531 Śhrī Devī Pūjā, Steady Yourself, Āśhram, San Diego, CA, U.S.A.]</b></font><br>
+<font color="blue"><b>1985-0531 Śhrī Devī Pūjā, Steady Yourself, Āśhram, San Diego, CA, U.S.A.</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://vimeo.com/24813422"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/850531-devi-p1-dp"> soundcloud</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -45,6 +47,8 @@ Links to suggested talk: <a href="https://vimeo.com/24813422"> vimeo</a>, <a hre
 10. To build and run Ashramas of Sadhakas for their use during Sadhana and to promote all activities expressing the new dimensions of creativity.
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

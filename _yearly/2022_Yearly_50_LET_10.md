@@ -31,14 +31,18 @@ And this is the day today, we have to recognize that, as Sahaja Yogis, we stand 
 <font color="blue"><b>1983-0328 Public Program (Holikā Dahana), Concept and Reality, Birthday Celebration, Ajwan-E-Ghalib, New Delhi, India</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://vimeo.com/86389664"> vimeo</a>, <a href="https://www.youtube.com/watch?v=Ob-sCe7D2wc"> youtube</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
 4. To open the minds of people through meetings introducing ``thoughtless awareness" which discovers the subtle which at present is lost in gross words, books and dogmas. .<br>
-21 To unite all genuine Seekers of Truth divided by dogmas and ignorance so that Satya Yuga (the Age of Truth) is born out of the present Kali Yuga (the Age of Darkness) rather than complete annihilation. To harness all the human resources to achieve this great task for which mass evolution will be needed.
+21. To unite all genuine Seekers of Truth divided by dogmas and ignorance so that Satya Yuga (the Age of Truth) is born out of the present Kali Yuga (the Age of Darkness) rather than complete annihilation. To harness all the human resources to achieve this great task for which mass evolution will be needed.
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
+<br>
 
 Comprehensive Compilations and Yearly Topics Teams
