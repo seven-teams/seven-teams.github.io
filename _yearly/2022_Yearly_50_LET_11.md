@@ -27,7 +27,9 @@ To rise in dharma is the aim of Sahaja Yoga. There is no other aim. It is a stra
 <font color="blue"><b>1975-0120 Talk to Sahaja Yogis (Hindi), Day 1, Session 2 (evening), Kṣham Ki Śhakti Ka Mahatav (Power of Forgiveness) or Dharm va Adharm (Dharma and Adharma), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://soundcloud.com/sahaja-library/1975-01-20-kshma-ki-shakti"> audio</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -35,6 +37,8 @@ Links to suggested talk: <a href="https://soundcloud.com/sahaja-library/1975-01-
 9. To create a new generation of self-realized people and to render motherly protection to all such children against evil intentions and to look after their well-being.
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

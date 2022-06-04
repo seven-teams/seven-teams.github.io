@@ -26,7 +26,9 @@ Even when they get Realization, even when they get vibrations, even when they ar
 <font color="blue"><b>1982-0126 Havan, after Pūjā (33rd Republic Day Celebration), Seminar, Day 4, Lonavala, Maharashtra, India</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://vimeo.com/365219829"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/sets/1982-0126-puja-on-the-republic"> soundcloud</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -34,6 +36,8 @@ Links to suggested talk: <a href="https://vimeo.com/365219829"> vimeo</a>, <a hr
 6. To spread the news of the descent of the Divine Grace, with the help of self-realized disciples of Mātājī.
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

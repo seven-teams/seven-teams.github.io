@@ -45,7 +45,9 @@ And I have to specially make a very important request to the women, that, in the
 <font color="blue"><b>1988-0619 Talk to Sahaja Yogis, The Role of Women, Seminar, Day 2, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://vimeo.com/137315968"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1988-0619-seminar-day-2-shudy"> soundcloud</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -53,6 +55,8 @@ Links to suggested talk: <a href="https://vimeo.com/137315968"> vimeo</a>, <a hr
 13. To employ the energy of love to overcome hatred that is the cause of wars, disintegration and destruction by publishing and relating the spiritual experiences of Sadhakas which prove the universal laws of love.
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

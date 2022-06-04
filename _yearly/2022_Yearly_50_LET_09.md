@@ -24,7 +24,9 @@ Now, man in his foolishness is challenging that Holiness. He thinks he can chall
 <font color="blue"><b>1979-0310 Public Program, Day 1, Session 1 (morning), Creation, Man and His Fulfillment (Universe Is a Beautiful Cosmos), Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://soundcloud.com/sahaja-library/1979-0310-seminar-talk"> audio</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1979-0310-1"> audio</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -32,6 +34,8 @@ Links to suggested talk: <a href="https://soundcloud.com/sahaja-library/1979-031
 22. To open, organize and run local centers of the Life Eternal Institution in various parts of India and in foreign countries, the centers being opened on the distinct understanding that meditation is the path of the entire human destiny, and that all barriers of states, nations and races are artificial and irrelevant to Life Eternal.
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

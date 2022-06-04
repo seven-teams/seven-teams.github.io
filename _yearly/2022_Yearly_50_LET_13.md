@@ -27,7 +27,9 @@ For you, also, there should not be any illusions, because many of you are more b
 <font color="blue"><b>1994-0410 Śhrī Mahāmāyā Pūjā, We Are All in Her Body, Marque, Āśhram, 24 Pukenui Road, Epsom, Auckland, New Zealand</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://vimeo.com/26252489"> vimeo</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -35,6 +37,8 @@ Links to suggested talk: <a href="https://vimeo.com/26252489"> vimeo</a><br>
 21. To unite all genuine Seekers of Truth divided by dogmas and ignorance so that Satya Yuga (the Age of Truth) is born out of the present Kali Yuga (the Age of Darkness) rather than complete annihilation. To harness all the human resources to achieve this great task for which mass evolution will be needed..
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

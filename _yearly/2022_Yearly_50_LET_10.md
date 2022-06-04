@@ -43,6 +43,6 @@ Links to suggested talk: <a href="https://vimeo.com/86389664"> vimeo</a>, <a hre
 
 <br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
-<br>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

@@ -34,7 +34,9 @@ So, with all these powers, with all these understandings, with all this compassi
 <font color="blue"><b>1992-0531 Śhrī Buddha Pūjā, The Search for the Absolute, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://vimeo.com/137191600"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1992-0531-shri-buddha-puja"> soundcloud</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -42,6 +44,8 @@ Links to suggested talk: <a href="https://vimeo.com/137191600"> vimeo</a>, <a hr
 22. To open, organize and run local centers of the Life Eternal Institution in various parts of India and in foreign countries, the centers being opened on the distinct understanding that meditation is the path of the entire human destiny, and that all barriers of states, nations and races are artificial and irrelevant to Life Eternal.
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams

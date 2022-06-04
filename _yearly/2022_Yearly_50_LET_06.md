@@ -26,7 +26,9 @@ But we have to change the whole system upside down, otherwise things won't work 
 <font color="blue"><b>1986-0125 Pūjā, Why We Have Failed in Our Pursuit of God (The Whole System Has to Be Changed), Chennai, Tamil Nadu, India</b></font><br>
 </p>
 
+<br>
 Links to suggested talk: <a href="https://vimeo.com/422612752"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1986-0125-puja-madras-dp"> soundcloud</a><br>
+<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -34,6 +36,8 @@ Links to suggested talk: <a href="https://vimeo.com/422612752"> vimeo</a>, <a hr
 20. To counteract through mass spiritual power the destructive forces against spiritualism such as evil spirits, the cult of hypnotism, siddhis and the use of ``religion" for the exploitation of the innocent. 
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Comprehensive Compilations and Yearly Topics Teams
