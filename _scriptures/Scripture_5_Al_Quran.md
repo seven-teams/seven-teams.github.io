@@ -80,7 +80,7 @@ New Names of God<br>
 
 <p>
 36 Quotes<br>
-<font color="DarkRed">Like there's one boy who has fished out lots of things from Qur'ān, in German, from Qur'ān, what it has to say for Sahaj. And they said there is a Sūrah called Shasta Yoga, Shasta Yoga [Sūrah 36: Yāʾ-Sīn] and that Sūrah is dealing with Me. Because we will be ... it is said that: "We are going to send and the sent, the One who is sent will not be acceptable to you. You will deny, you will defy." Everything is described, even that, "Your hands will speak at the Time of Resurrection," all that in that Sūrah is given. It's very interesting that Sūrah is.</font><br>
+<font color="DarkRed">Like there's one boy who has fished out lots of things from Qur'ān, is German, from Qur'ān, what it has to say for Sahaj. And they said, ``Thes ... there is a Sūrah called Saishta [Śhasta] Yoga, Saishta [Śhasta] Yoga" [Sūrah 36: Yāʾ-Sīn], and that Sūrah is dealing with Me. Because eve... will be ... it is said that: ``We are going to send, and the Sent, the One who is sent, will not be acceptable to you. You will deny, you will defy." Everything is described. Even, that's, ``Your hands will speak," at the Time  of your Resurrection, all that in that Sūrah is given. It's very interesting, that Sūrah is.</font><br>
 <b>1990-0314 Śhrī Mahālakṣhmī Pūjā, Auckland, New Zealand</b><br>
 <br>
 <font color="DarkRed">Like there's one boy who has fished out lots of things from Qur'ān, [he] is German, from Qur'ān, what it has to say for Sahaj.<br>
