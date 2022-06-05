@@ -4,7 +4,6 @@ date: 2022-06-05
 permalink: /scriptures/2022/06/05
 tags:
   - Scriptures
-  - Holy Quran
 ---
 
 After quite a long interruption, we would like to restart the posts of the Scriptures Team.If you would like to be part of the Scriptures Team please let us know. At its peak, the team had 6 members and we would like to restart from scratch. 
