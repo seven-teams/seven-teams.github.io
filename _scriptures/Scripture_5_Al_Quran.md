@@ -1,7 +1,7 @@
 ---
 title: 'Post 5: Al Qur&#8217;ān'
 date: 2022-06-04
-permalink: /quotes/2022/0604
+permalink: /scriptures/2022/0604
 tags:
   - Quran
   - Islam
