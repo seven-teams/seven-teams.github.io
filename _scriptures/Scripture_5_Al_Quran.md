@@ -18,10 +18,16 @@ tags:
 <p style="text-align:center;">
 <b>Sūrah 1</b><br>
 <font color="DarkGreen"><b>The Exordium (Al-Fātiḥah)</b></font><br>
-<font color="DarkBlue"><b>The Opening</b></font><br>
+<font color="DarkBlue"><b>The Opening</b></font>
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+Names of God<br>
+<font color="DarkGreen">Compassionate, Merciful, Lord of the Universe, Sovereign of the Day of Judgment, You alone</font><br>
+<font color="DarkBlue">Allah, Beneficent, Merciful, Lord of the Worlds, Master of the Day of Judgment, Thee</font>
+</p>
 
 <p>
 1:6 Translations<br>
@@ -41,11 +47,16 @@ tags:
 
 <p style="text-align:center;">
 <b>Sūrah 2</b><br>
-<font color="DarkGreen"><b></b></font><br>
-<font color="DarkBlue"><b></b></font><br>
+<font color="DarkGreen">The Cow (Al-Baqarah)<b></b></font>
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+New Names of God<br>
+<font color="DarkGreen"></font><br>
+<font color="DarkBlue"></font>
+</p>
 
 <p>
 2:1 Translations<br>
@@ -85,7 +96,7 @@ And they said, "Thes ... there is a Sūrah called Saishta [Śhasta] Yoga, Saisht
 <p style="text-align:center;">
 <b>Sūrah </b><br>
 <font color="DarkGreen"></b></font><br>
-<font color="DarkBlue"><b></b></font><br>
+<font color="DarkBlue"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
