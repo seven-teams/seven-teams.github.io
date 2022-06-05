@@ -12,7 +12,7 @@ tags:
 
 <font color="DarkGreen"><b>N. J. Dawood translation of The Koran published by Penguin Classics in 1956, fifth revised edition dated 1990</b></font><br>
 
-<font color="DarkBlue"><b>M. H. Shakir's translation of The Qyr'an published by Tahrike Tarsile Qur'an, Inc., sixth U.S. edition 1990</b></font><br>
+<font color="DarkBlue"><b>M. H. Shakir's translation of The Qur'an published by Tahrike Tarsile Qur'an, Inc., sixth U.S. edition 1990</b></font><br>
 
 <div class="para-divider"></div>
 
@@ -22,6 +22,7 @@ tags:
 <font color="DarkBlue"><b>The Opening</b></font>
 </p>
 
+<br>
 <p>
 Names of God<br>
 <font color="DarkGreen">Compassionate, Merciful, Lord of the Universe, Sovereign of the Day of Judgment, You alone</font><br>
@@ -64,14 +65,14 @@ New Names of God<br>
 <p style="text-align:center;">
 <b>Sūrah 36</b><br>
 <font color="DarkGreen"><b>YĀ'SĪN</b></font><br>
-<font color="DarkBlue"><b>Ya Seen</b></font><br>
+<font color="DarkBlue"><b>Ya Seen</b></font>
 </p>
 
-
+<br>
 <p>
 36:65 Translations<br>
 <font color="DarkGreen">On that day We shall seal their mouths. Their hands will speak to Us, and their very feet will testify to their misdeeds.</font><br>
-<font color="DarkBlue">On that day We will set a seal upon their mouths, and their hands shall speak to Us, and their feet shall bear witness of what they earned.</font><br>
+<font color="DarkBlue">On that day We will set a seal upon their mouths, and their hands shall speak to Us, and their feet shall bear witness of what they earned.</font>
 </p>
 
 <p>
