@@ -6,6 +6,8 @@ tags:
   - Scriptures
 ---
 
+Dear All,
+
 After quite a long interruption, we would like to restart the posts of the Scriptures Team.
 
 If you would like to be part of the Scriptures Team please let us know. 
