@@ -99,5 +99,3 @@ And they said, "Thes ... there is a Sūrah called Saishta [Śhasta] Yoga, Saisht
 <div class="para-divider"></div>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
-
-Quotes on Incarnations Team

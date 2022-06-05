@@ -31,4 +31,4 @@ Looking forward to your support, feedback, cooperation, and help.
 
 <br>
 
-The Scriptures Team
+Scriptures Team
