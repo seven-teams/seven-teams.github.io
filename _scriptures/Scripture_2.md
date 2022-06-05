@@ -5,7 +5,7 @@ permalink: /scriptures/2015/01/31
 tags:
   - Scriptures
   - Shri Mary Mahalakshmi
-  - New Testatment
+  - New Testament
 ---
 
 Jai Shri Mataji  
