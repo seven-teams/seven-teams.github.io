@@ -28,7 +28,7 @@ layout: default
         }
       </style>
       {% capture tagpage %}/tag-{{page.url | split: "/" | last}}{% endcapture %}
-      <h1 class="page__title">{{ page.title }} <span class="CUSTOM_CSS__tag-link"><a href="{{tagpage}}">(Tags)</a></span></h1>
+      <h1 class="page__title">{{ page.title }} <span class="CUSTOM_CSS__tag-link">(<a href="{{tagpage}}">Tags</a>)</span></h1>
     {% endunless %}
     {{ content }}
     
