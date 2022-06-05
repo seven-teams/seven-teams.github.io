@@ -26,7 +26,7 @@ tags:
 <p>
 Names of God<br>
 <font color="DarkGreen">Compassionate, Merciful, Lord of the Universe, Sovereign of the Day of Judgment, You alone</font><br>
-<font color="DarkBlue">Allah, Beneficent, Merciful, Lord of the Worlds, Master of the Day of Judgment, Thee</font>
+<font color="DarkBlue">Allah, Beneficent, Merciful, Lord of the Worlds, Master of the Day of Judgment, Thou</font>
 </p>
 
 <p>
