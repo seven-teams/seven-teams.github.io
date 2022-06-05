@@ -22,7 +22,7 @@ Posts could be individual or collective (worked out by subteams), the overall te
 The formats of the posts are flexible, and it includes all old formats and many new ones.
 
 As a first such new format, we would like to start with the Al Qur'ān (Holy Qur'ān). Please have a look at the the link
-<a href="https://seven-teams.github.io/scriptures/2022/06/05">Post 5: Al Qur'ān</a>
+<a href="https://seven-teams.github.io/scriptures/2022/06/04">Post 5: Al Qur'ān</a>
 
 Looking forward to your support, feedback, cooperation, and help.
 
