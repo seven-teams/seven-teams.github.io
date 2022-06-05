@@ -6,9 +6,10 @@ tags:
   - Quran
 ---
 
+<br>
 <font color="DarkRed"><b>Śhrī Mātājī's sayings on Al Qur'ān</b></font><br>
 
-<font color="DarkGreen">N. J. Dawood translation of The Koran published by Penguin Classics in 1956, fifth revised edition dated 1990</b></font><br>
+<font color="DarkGreen"><b>N. J. Dawood translation of The Koran published by Penguin Classics in 1956, fifth revised edition dated 1990</b></font><br>
 
 <font color="DarkBlue"><b>M. H. Shakir's translation of The Qyr'an published by Tahrike Tarsile Qur'an, Inc., sixth U.S. edition 1990</b></font><br>
 
@@ -16,8 +17,8 @@ tags:
 
 <p style="text-align:center;">
 <b>Sūrah 1</b><br>
-<font color="DarkGreen"></b></font><br>
-<font color="DarkBlue"><b></b></font><br>
+<font color="DarkGreen"><b>The Exordium (Al-Fātiḥah)</b></font><br>
+<font color="DarkBlue"><b>The Opening</b></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -32,17 +33,19 @@ tags:
 
 <p>
 1:7 Translations<br>
-<font color="DarkGreen">The path of those whom You have favored, Not of those who have incurred Your wrath, Nor of those who have gone astray..</font><br>
-<font color="DarkBlue">The path of those upon whom Thou hast bestowed fvors. Not (the path) of those upon whom Thy wrath is brought dpwn, not of those who go astray.</font>
+<font color="DarkGreen">The path of those whom You have favored, Not of those who have incurred Your wrath, Nor of those who have gone astray.</font><br>
+<font color="DarkBlue">The path of those upon whom Thou hast bestowed favors. Not (the path) of those upon whom Thy wrath is brought down, not of those who go astray.</font>
 </p>
+
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Sūrah 2</b><br>
-<font color="DarkGreen"></b></font><br>
+<font color="DarkGreen"><b></b></font><br>
 <font color="DarkBlue"><b></b></font><br>
 </p>
 
-<p style="text-align:center;">
+<div class="para-divider"></div>
 
 <p>
 2:1 Translations<br>
@@ -50,12 +53,14 @@ tags:
 <font color="DarkBlue"></font>
 </p>
 
-<p style="text-align:center;">
+<div class="para-divider"></div>
 
 <b>Sūrah 36</b><br>
-<font color="DarkGreen"></b>YĀ'SĪN</font><br>
+<font color="DarkGreen"><b>YĀ'SĪN</b></font><br>
 <font color="DarkBlue"><b>Ya seen</b></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 36:65 Translations<br>
@@ -63,16 +68,17 @@ tags:
 <font color="DarkBlue">On that day We will set a seal upon their mouths, and their hands shall speak to Us, and their feet shall bear witness of what they earned.</font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 36 Quotes<br>
-<font color="DarkRed">Like there's one boy who has fished out lots of things from Qur'ān, in German, from Qur'ān, what it has to say for Sahaj. And they said there is a Sūrah called Shasta Yoga, Shasta Yoga [Sūrah 36: Yāʾ-Sīn] and that Sūrah is dealing with Me. Because we will be ... it is said that: ``We are going to send and the sent, the One who is sent will not be acceptable to you. You will deny, you will defy." Everything is described, even that, ``Your hands will speak at the Time of Resurrection," all that in that Sūrah is given. It's very interesting that Sūrah is.</font><br>
+<font color="DarkRed">Like there's one boy who has fished out lots of things from Qur'ān, in German, from Qur'ān, what it has to say for Sahaj. And they said there is a Sūrah called Shasta Yoga, Shasta Yoga [Sūrah 36: Yāʾ-Sīn] and that Sūrah is dealing with Me. Because we will be ... it is said that: "We are going to send and the sent, the One who is sent will not be acceptable to you. You will deny, you will defy." Everything is described, even that, "Your hands will speak at the Time of Resurrection," all that in that Sūrah is given. It's very interesting that Sūrah is.</font><br>
 1990-0314 Śhrī Mahālakṣhmī Pūjā, Auckland, New Zealand<br>
 <br>
 <font color="DarkRed">Like there's one boy who has fished out lots of things from Qur'ān, [he] is German, from Qur'ān, what it has to say for Sahaj.<br>
-And they said, `Thes ... there is a Sūrah called Saishta [Śhasta] Yoga, Saishta [Śhasta] Yoga" [Sūrah 36: Yāʾ-Sīn], and that Sūrah is dealing with Me. Because eve... will be ... it is said that: ``We are going to send, and the Sent, the One who is sent, will not be acceptable to you. You will deny, you will defy." Everything is described. Even, that's, ``Your hands will speak," at the Time  of your Resurrection," all that in that Sūrah is given. It's very interesting, that Sūrah is. </font><br>
+And they said, "Thes ... there is a Sūrah called Saishta [Śhasta] Yoga, Saishta [Śhasta] Yoga" [Sūrah 36: Yāʾ-Sīn], and that Sūrah is dealing with Me. Because eve... will be ... it is said that: "We are going to send, and the Sent, the One who is sent, will not be acceptable to you. You will deny, you will defy." Everything is described. Even, that's, "Your hands will speak," at the Time  of your Resurrection," all that in that Sūrah is given. It's very interesting, that Sūrah is. </font><br>
 1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia
 </p>
-
 
 <div class="para-divider"></div>
 
@@ -83,10 +89,6 @@ And they said, `Thes ... there is a Sūrah called Saishta [Śhasta] Yoga, Saisht
 </p>
 
 <div class="para-divider"></div>
-
-<div class="para-divider"></div>
-
-[Download pdf here](http://seven-teams.github.io/files/Shri_Anasuya_V2.pdf)
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
