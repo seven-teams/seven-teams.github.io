@@ -6,8 +6,9 @@ tags:
   - Scriptures
 ---
 
-Dear All,<br>
+Dear All,
 
+<br>
 After quite a long interruption, we would like to restart the posts of the Scriptures Team.
 
 If you would like to be part of the Scriptures Team please write to us at shuddhvidya@gmail.com
