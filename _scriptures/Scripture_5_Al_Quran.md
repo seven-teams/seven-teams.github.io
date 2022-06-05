@@ -47,7 +47,7 @@ Nor of those who have gone astray.</font><br>
 
 <p style="text-align:center;">
 <b>Sūrah 2</b><br>
-<font color="DarkGreen">The Cow (Al-Baqarah)<b></b></font>
+<font color="DarkGreen"><b>The Cow (Al-Baqarah)</b></font>
 </p>
 
 <br>
