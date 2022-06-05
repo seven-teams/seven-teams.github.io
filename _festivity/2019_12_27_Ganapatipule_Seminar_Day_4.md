@@ -3,7 +3,6 @@ title: '2019 " ‘Peace on Earth’. He came to create peace on Earth." '
 date: 2019-12-27
 permalink: /festivity/2019/12/27
 tags:
-  - Christmas
   - Ganapatipule Seminar
   
 ---

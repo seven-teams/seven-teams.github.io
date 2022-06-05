@@ -3,7 +3,6 @@ title: '2019 "I started this kind of a beautiful congregation to meet you all." 
 date: 2019-12-28
 permalink: /festivity/2019/12/28
 tags:
-  - Christmas
   - Ganapatipule Seminar
 ---
 
