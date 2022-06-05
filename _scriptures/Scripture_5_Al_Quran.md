@@ -4,6 +4,7 @@ date: 2022-06-04
 permalink: /quotes/2022/0604
 tags:
   - Quran
+  - Islam
 ---
 
 <br>
