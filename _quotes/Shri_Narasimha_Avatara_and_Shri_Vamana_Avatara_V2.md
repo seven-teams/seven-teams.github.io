@@ -4,6 +4,9 @@ date: 2015-06-10
 permalink: /quotes/2015/0610
 tags:
   - Incarnations
+  - Shri Narasimha
+  - Shri Vamana
+  - Shri Vishnu
 ---
 
 Please find attached the pdf file <font color="blue">Shri_Narasimha_Avatara.pdf</font> obtained by searching for Śhrī <font color="red">Narasiṃh</font>.   

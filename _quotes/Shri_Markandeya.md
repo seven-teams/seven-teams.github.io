@@ -4,6 +4,8 @@ date: 2015-02-28
 permalink: /quotes/2015/0228
 tags:
   - Incarnations
+  - Shri Markandeya
+  - Shri Buddha
 ---
 
 Please find attached the pdf file <font color="blue">Shri_Markandeya.pdf</font> obtained by searching for Śhrī <font color="red">Mārkaṇḍey</font>, Śhrī <font color="red">Mārkeṇḍay</font>, Śhrī <font color="red">Mārkeṇḍey</font> and Śhrī <font color="red">Mārkaṇḍay</font>.   

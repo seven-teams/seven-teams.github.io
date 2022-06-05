@@ -4,6 +4,8 @@ date: 2015-05-22
 permalink: /quotes/2015/0522
 tags:
   - Incarnations
+  - Shri Dattatreya
+  - Shri Adi Guru 
 ---
 
 Please find attached the pdf file <font color="blue">Shri_Dattatreya.pdf</font> obtained by searching for Śhrī <font color="red">Dattātreya</font>.   
