@@ -10,7 +10,7 @@ Dear All,
 
 After quite a long interruption, we would like to restart the posts of the Scriptures Team.
 
-If you would like to be part of the Scriptures Team please let us know. 
+If you would like to be part of the Scriptures Team please write to us at shuddhvidya@gmail.com
 
 At its peak, the team had 6 members but now we would like to restart from scratch using the Divine Treasures website which has just refined its system of tags. 
 
