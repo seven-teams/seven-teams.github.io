@@ -59,7 +59,7 @@ New Names of God<br>
 
 <p>
 2:136 Translations<br>
-<font color="DarkGreen">Say: 'We believe in God and that which is revealed to us; in what was revealed to Abraham, Ishmael, Isaac, Jacob, and the tribes; to Moses and Jesus and the other prophets by their Lord. We make no distinction among any of them, and to Gd we have surrendered ourselves'</font><br>
+<font color="DarkGreen">Say: 'We believe in God and that which is revealed to us; in what was revealed to Abraham, Ishmael, Isaac, Jacob, and the tribes; to Moses and Jesus and the other prophets by their Lord. We make no distinction among any of them, and to Gd we have surrendered ourselves.'</font><br>
 <font color="DarkBlue">Say: We believe in Allah and (in) that which had been revealed to us, an (in) that which was revealed to Ibrahim and Ismail and Ishaq and Yaqoub and the tribes, and (in) that which was given to Musa and Isa, and (in) that which was given to the prophets from their Lord, we do not make any distinction between any of them, and to Him do we submit.</font><br>
 </p>
 
@@ -78,6 +78,7 @@ New Names of God<br>
 <font color="DarkBlue">On that day We will set a seal upon their mouths, and their hands shall speak to Us, and their feet shall bear witness of what they earned.</font>
 </p>
 
+<br>
 <p>
 36 Quotes<br>
 <font color="DarkRed">Like there's one boy who has fished out lots of things from Qur'ān, [he] is German, from Qur'ān, what it has to say for Sahaj.<br>
