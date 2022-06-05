@@ -82,11 +82,11 @@ New Names of God<br>
 <p>
 36 Quotes<br>
 <font color="DarkRed">Like there's one boy who has fished out lots of things from Qur'ān, [he] is German, from Qur'ān, what it has to say for Sahaj.<br>
-And they said, ``Thes ... there is a Sūrah called Saishta [Śhāsti] Yoga, Saishta [Śhāsti] Yoga" [Sūrah 36: Yāʾ-Sīn], and that Sūrah is dealing with Me. Because eve... will be ... it is said that: ``We are going to send, and the Sent, the One who is sent, will not be acceptable to you. You will deny, you will defy." Everything is described. Even, that's, ``Your hands will speak," at the Time  of your Resurrection, all that in that Sūrah is given. It's very interesting, that Sūrah is.</font><br>
+And they said, "Thes ... there is a Sūrah called Saishta [Śhāsti] Yoga, Saishta [Śhāsti] Yoga" [Sūrah 36: Yāʾ-Sīn], and that Sūrah is dealing with Me. Because eve... will be ... it is said that: "We are going to send, and the Sent, the One who is sent, will not be acceptable to you. You will deny, you will defy." Everything is described. Even, that's, "Your hands will speak," at the Time  of your Resurrection, all that in that Sūrah is given. It's very interesting, that Sūrah is.</font><br>
 <b>1990-0314 Śhrī Mahālakṣhmī Pūjā, Auckland, New Zealand</b><br>
 <br>
 <font color="DarkRed">Whatever is said about the Last Judgment, this is the time for that Last Judgment.<br>
-Also in Qur'ān it is said: that, ``At the Time of your Resurrection, your hands will speak, and they will give witness against you." Exactly this happens in Sahaja Yoga. The Sūrah that is in Qur'ān called as Sashtī [Śhāsti] Yoga [Sūrah 36: Yāʾ-Sīn], is surprising how Muhammad Sāhab clearly said about it.</font><br>
+Also in Qur'ān it is said: that, "At the Time of your Resurrection, your hands will speak, and they will give witness against you." Exactly this happens in Sahaja Yoga. The Sūrah that is in Qur'ān called as Sashtī [Śhāsti] Yoga [Sūrah 36: Yāʾ-Sīn], is surprising how Muhammad Sāhab clearly said about it.</font><br>
 <b>1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia</b><br>
 </p>
 
