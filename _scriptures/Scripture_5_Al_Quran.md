@@ -38,7 +38,7 @@ Names of God<br>
 <p>
 1:7 Translations<br>
 <font color="DarkGreen">The path of those whom You have favored, Not of those who have incurred Your wrath, Nor of those who have gone astray.</font><br>
-<font color="DarkBlue">The path of those upon whom Thou hast bestowed favors. Not (the path) of those upon whom Thy wrath is brought down, not of those who go astray.</font>>br>
+<font color="DarkBlue">The path of those upon whom Thou hast bestowed favors. Not (the path) of those upon whom Thy wrath is brought down, not of those who go astray.</font>
 </p>
 
 <div class="para-divider"></div>
