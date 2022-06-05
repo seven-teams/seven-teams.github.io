@@ -26,13 +26,13 @@ tags:
 <p>
 Names of God<br>
 <font color="DarkGreen">Compassionate, Merciful, Lord of the Universe, Sovereign of the Day of Judgment, You alone</font><br>
-<font color="DarkBlue">Allah, Beneficent, Merciful, Lord of the Worlds, Master of the Day of Judgment, Thee</font><br>
+<font color="DarkBlue">Allah, Beneficent, Merciful, Lord of the Worlds, Master of the Day of Judgment, Thee</font>
 </p>
 
 <p>
 1:6 Translations<br>
 <font color="DarkGreen">Guide us to the straight path,</font><br>
-<font color="DarkBlue">Keep us on the right path.</font><br>
+<font color="DarkBlue">Keep us on the right path.</font>
 </p>
 
 <p>
@@ -48,10 +48,11 @@ Names of God<br>
 <font color="DarkGreen">The Cow (Al-Baqarah)<b></b></font>
 </p>
 
+<br>
 <p>
 New Names of God<br>
 <font color="DarkGreen"></font><br>
-<font color="DarkBlue"></font><br>
+<font color="DarkBlue"></font>
 </p>
 
 <p>
