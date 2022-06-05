@@ -25,20 +25,19 @@ tags:
 <p>
 Names of God<br>
 <font color="DarkGreen">Compassionate, Merciful, Lord of the Universe, Sovereign of the Day of Judgment, You alone</font><br>
-<font color="DarkBlue">Allah, Beneficent, Merciful, Lord of the Worlds, Master of the Day of Judgment, Thee</font>
+<font color="DarkBlue">Allah, Beneficent, Merciful, Lord of the Worlds, Master of the Day of Judgment, Thee</font><br>
 </p>
 
 <p>
 1:6 Translations<br>
 <font color="DarkGreen">Guide us to the straight path,</font><br>
-<font color="DarkBlue">Keep us on the right path.</font>
+<font color="DarkBlue">Keep us on the right path.</font><br>
 </p>
-
 
 <p>
 1:7 Translations<br>
 <font color="DarkGreen">The path of those whom You have favored, Not of those who have incurred Your wrath, Nor of those who have gone astray.</font><br>
-<font color="DarkBlue">The path of those upon whom Thou hast bestowed favors. Not (the path) of those upon whom Thy wrath is brought down, not of those who go astray.</font>
+<font color="DarkBlue">The path of those upon whom Thou hast bestowed favors. Not (the path) of those upon whom Thy wrath is brought down, not of those who go astray.</font>>br>
 </p>
 
 <div class="para-divider"></div>
@@ -51,13 +50,13 @@ Names of God<br>
 <p>
 New Names of God<br>
 <font color="DarkGreen"></font><br>
-<font color="DarkBlue"></font>
+<font color="DarkBlue"></font><br>
 </p>
 
 <p>
 2:1 Translations<br>
 <font color="DarkGreen"></font><br>
-<font color="DarkBlue"></font>
+<font color="DarkBlue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -72,10 +71,8 @@ New Names of God<br>
 <p>
 36:65 Translations<br>
 <font color="DarkGreen">On that day We shall seal their mouths. Their hands will speak to Us, and their very feet will testify to their misdeeds.</font><br>
-<font color="DarkBlue">On that day We will set a seal upon their mouths, and their hands shall speak to Us, and their feet shall bear witness of what they earned.</font>
+<font color="DarkBlue">On that day We will set a seal upon their mouths, and their hands shall speak to Us, and their feet shall bear witness of what they earned.</font><br>
 </p>
-
-<div class="para-divider"></div>
 
 <p>
 36 Quotes<br>
@@ -84,7 +81,7 @@ New Names of God<br>
 <br>
 <font color="DarkRed">Like there's one boy who has fished out lots of things from Qur'ān, [he] is German, from Qur'ān, what it has to say for Sahaj.<br>
 And they said, "Thes ... there is a Sūrah called Saishta [Śhasta] Yoga, Saishta [Śhasta] Yoga" [Sūrah 36: Yāʾ-Sīn], and that Sūrah is dealing with Me. Because eve... will be ... it is said that: "We are going to send, and the Sent, the One who is sent, will not be acceptable to you. You will deny, you will defy." Everything is described. Even, that's, "Your hands will speak," at the Time  of your Resurrection," all that in that Sūrah is given. It's very interesting, that Sūrah is. </font><br>
-<font color="blue"><b>1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia</b></font>
+<font color="blue"><b>1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia</b></font><br>
 </p>
 
 <div class="para-divider"></div>
