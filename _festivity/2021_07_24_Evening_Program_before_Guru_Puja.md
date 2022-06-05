@@ -1,10 +1,10 @@
 ---
-title: '2021 Musical Evening Celebration before Guru Pūjā'
+title: '2021 Evening Program Celebration before Guru Pūjā'
 date: 2021-07-24
 permalink: /festivity/2021/07/24
 tags:
   - Guru Puja
-  - Music Program
+  - Evening Program
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
