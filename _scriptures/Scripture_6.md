@@ -8,8 +8,8 @@ tags:
 
 <p>
 Dear All,<br>
-After quite a long interruption, we would like to restart the posts of the Scriptures Team.<br>
 <br>
+After quite a long interruption, we would like to restart the posts of the Scriptures Team.<br>
 If you would like to be part of the Scriptures Team please write to us at<br> 
 <b>shuddhvidya@gmail.com</b><br>
 At its peak, the team had 6 members but now we would like to restart from scratch using the Divine Treasures website which has just refined its system of tags.<br>
