@@ -21,8 +21,6 @@ tags:
 <font color="DarkBlue"><b>The Opening</b></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 Names of God<br>
 <font color="DarkGreen">Compassionate, Merciful, Lord of the Universe, Sovereign of the Day of Judgment, You alone</font><br>
@@ -35,7 +33,6 @@ Names of God<br>
 <font color="DarkBlue">Keep us on the right path.</font>
 </p>
 
-<div class="para-divider"></div>
 
 <p>
 1:7 Translations<br>
@@ -49,8 +46,6 @@ Names of God<br>
 <b>Sūrah 2</b><br>
 <font color="DarkGreen">The Cow (Al-Baqarah)<b></b></font>
 </p>
-
-<div class="para-divider"></div>
 
 <p>
 New Names of God<br>
@@ -66,12 +61,12 @@ New Names of God<br>
 
 <div class="para-divider"></div>
 
+<p style="text-align:center;">
 <b>Sūrah 36</b><br>
 <font color="DarkGreen"><b>YĀ'SĪN</b></font><br>
-<font color="DarkBlue"><b>Ya seen</b></font><br>
+<font color="DarkBlue"><b>Ya Seen</b></font><br>
 </p>
 
-<div class="para-divider"></div>
 
 <p>
 36:65 Translations<br>
@@ -95,7 +90,7 @@ And they said, "Thes ... there is a Sūrah called Saishta [Śhasta] Yoga, Saisht
 
 <p style="text-align:center;">
 <b>Sūrah </b><br>
-<font color="DarkGreen"></b></font><br>
+<font color="DarkGreen"><b></b></font><br>
 <font color="DarkBlue"><b></b></font>
 </p>
 
