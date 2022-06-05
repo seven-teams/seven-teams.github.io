@@ -4,6 +4,8 @@ date: 2015-01-31
 permalink: /scriptures/2015/01/31
 tags:
   - Scriptures
+  - Shri Mary Mahalakshmi
+  - New Testatment
 ---
 
 Jai Shri Mataji  

@@ -10,7 +10,7 @@ After quite a long interruption, we would like to restart the posts of the Scrip
 
 The team will aim at high quality posts that combine quotations with commentaries, everything related to and in the light of the Divine Teachings of our Holy Mother. 
 
-Posts could be individual or collective (worked out by subteams), the overall team overlooking to improve the quality as much as possible.
+Posts could be individual or collective (worked out by subteams), the overall team overlooking to improve the quality as much as possible. Teams (topics from Scriptures) could be individual choices or assignments.
 
 The formats of the posts are flexible, and it includes all old formats and many new ones.
 
@@ -18,8 +18,6 @@ As a first such new format, we would like to start with the Al Qur'ān (Holy 
 <a href="">Post 5: Al Qur'ān</a>
 
 Looking forward to your support, feedback, cooperation, and help.
-
-
 
 <br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
