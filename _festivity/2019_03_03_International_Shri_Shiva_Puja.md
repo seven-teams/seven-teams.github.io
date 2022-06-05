@@ -4,7 +4,6 @@ date: 2019-03-03
 permalink: /festivity/2019/0303
 tags:
   - International Shri Shiva Puja
-  - Shivaratri
 ---
 
 ![PICTURE 1](/images/image1.png)
