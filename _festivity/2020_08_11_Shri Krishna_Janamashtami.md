@@ -1,5 +1,5 @@
 ---
-title: '2020 Celebrating Śhrī Kṛiṣhṇa Janmāṣhṭamī: "central part of the Viśhuddhi chakra is United States. The central part of the Viśhuddhi chakra is governed by Śhrī Kṛiṣhṇa. And His Power is Rādhā. "'
+title: '2020 Celebrating Śhrī Kṛiṣhṇa Janamāṣhṭamī: "central part of the Viśhuddhi chakra is United States. The central part of the Viśhuddhi chakra is governed by Śhrī Kṛiṣhṇa. And His Power is Rādhā. "'
 date: 2020-08-11
 permalink: /festivity/2020/08/11
 tags:
