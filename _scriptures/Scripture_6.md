@@ -6,7 +6,11 @@ tags:
   - Scriptures
 ---
 
-After quite a long interruption, we would like to restart the posts of the Scriptures Team.If you would like to be part of the Scriptures Team please let us know. At its peak, the team had 6 members and we would like to restart from scratch. 
+After quite a long interruption, we would like to restart the posts of the Scriptures Team.
+
+If you would like to be part of the Scriptures Team please let us know. 
+
+At its peak, the team had 6 members but now we would like to restart from scratch using the Divine Treasures website which has just refined its system of tags. 
 
 The team will aim at high quality posts that combine quotations with commentaries, everything related to and in the light of the Divine Teachings of our Holy Mother. 
 
