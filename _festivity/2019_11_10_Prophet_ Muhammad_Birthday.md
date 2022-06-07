@@ -3,7 +3,6 @@ title: '2019 Celebrating Prophet Muhammad&#8217;s Birthday: Eid-Ul-Milad'
 date: 2019-11-10
 permalink: /festivity/2019/11/10
 tags:
-  - Prophet Muhammad
   - Eid-Ul-Milad
 ---
 

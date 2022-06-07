@@ -4,7 +4,7 @@ date: 2020-12-29
 permalink: /festivity/2020/12/29
 tags:
   - Ganapatipule Seminar
-  - Shri Adi Guru Dattātreya Jayanti
+  - Shri Adi Guru Dattātreya
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

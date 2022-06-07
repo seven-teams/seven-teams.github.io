@@ -4,6 +4,7 @@ date: 2015-03-31
 permalink: /scriptures/2015/03/31
 tags:
   - Scriptures
+  - New Testament
 ---
 
 Jai Shri Mataji  

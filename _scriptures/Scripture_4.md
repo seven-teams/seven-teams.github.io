@@ -4,6 +4,9 @@ date: 2015-07-22
 permalink: /scriptures/2015/07/22
 tags:
   - Scriptures
+  - Shri Abraham
+  - Shri Adi Guru
+  - Old Testament
 ---
 
 Jai Shri Mataji  

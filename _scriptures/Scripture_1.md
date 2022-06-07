@@ -4,6 +4,10 @@ date: 2014-12-16
 permalink: /scriptures/2014/12/16
 tags:
   - Scriptures
+  - Shri Lao Tze
+  - Shri Confucius
+  - Shri Adi Guru
+  - Chinese
 ---
 
 Dear Brothers and Sisters,  

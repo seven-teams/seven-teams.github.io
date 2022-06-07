@@ -59,7 +59,7 @@ For other websites of Photographs please see:
 3. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.<br> 
 E-mail: <b>sakshat.avatar@gmail.com</b>
 
-4. **<font color="blue">Scriptures Team.</font>** Quotes from all Scriptures of the World. 
+4. **<font color="blue">Scriptures Team.</font>** Quotes from all Scriptures of the World and commentaries on them. 
 <br>E-mail: <b>shuddhvidya@gmail.com</b>
 
 5. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. 

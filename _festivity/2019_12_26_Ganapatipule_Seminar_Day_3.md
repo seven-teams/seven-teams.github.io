@@ -3,7 +3,6 @@ title: '2019 "Christ life is a symbolically, can be called as the Symbol of Puri
 date: 2019-12-26
 permalink: /festivity/2019/12/26
 tags:
-  - Christmas 
   - Ganapatipule Seminar
   
 ---

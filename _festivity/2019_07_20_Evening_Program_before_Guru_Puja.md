@@ -4,7 +4,7 @@ date: 2019-07-20
 permalink: /festivity/2019/0720
 tags:
   - Guru Puja
-  - Music Program
+  - Evening Program
 ---
 
 ![PICTURE 1](/images/image1.png)
@@ -38,7 +38,7 @@ And fill me wholly with Thyself.<br></font>
 </p>  
 
 <font size="+2"><b>Suggested Video:</b></font> 
-<font size="+0">1998-0711 Music Program before Guru Puja</font>
+<font size="+0">1998-0711 Evening Program before Guru Puja</font>
 <a href="https://youtu.be/aHW-KTHeocU"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
