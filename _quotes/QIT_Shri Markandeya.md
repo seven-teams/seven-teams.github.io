@@ -1,7 +1,7 @@
 ---
-title: 'Śhrī Mārkaṇḍeya'
-date: 2022-06-03
-permalink: /quotes/2022/0603
+title: 'ŚHRĪ MĀRKAṆḌEYA  in the Words of ŚHRĪ MĀTĀJĪ'
+date: 2022-06-10
+permalink: /quotes/2022/0610
 tags:
   - Shri Markandeya
   - Disciple Principle
