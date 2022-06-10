@@ -249,8 +249,6 @@ He's clearly said it. He never believed in any such secular uh-uh-uh sort of ide
 
 <div class="para-divider"></div>
 
-[Download pdf here](http://seven-teams.github.io/files/Shri_Anasuya_V2.pdf)
-
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
 Quotes on Incarnations Team
