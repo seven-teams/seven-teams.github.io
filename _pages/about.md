@@ -54,7 +54,7 @@ For other websites of Photographs please see:
 
     v. <a href="https://library.sahajaworld.org/photos"> Photos</a> (of Sahaja Digital Library) (created in 2017)
     
-    vi. <a href="https://www.instagram.com/fotosofma/"> Photos of Mā</a> (taken by Chris Patmore) (created in 2021)
+    vi. <a href="https://www.instagram.com/fotosofma/"> Fotos of Ma</a> (taken by Chris Patmore) (created in 2021)
 
 3. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.<br> 
 E-mail: <b>sakshat.avatar@gmail.com</b>
