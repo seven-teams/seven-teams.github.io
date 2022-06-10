@@ -96,8 +96,8 @@ These 'wise' have come from somewhere to teach us about all these satanic method
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"Thirdly we have Swāmī Mārkaṇḍeya and Ādi Śhaṅkarāchārya. We call ourselves Hindu, this and that but no one reads Ādi Śhaṅkarāchārya's work. Even after reading it no one could understand Him well.<br>
-He was such a big devotee of Mother that He won't do anything other than offering prayers to Mother. All the time He kept praying to Mother Bhagavatī and He knew nothing else. He would suggest only to pray to the Mother and anything shall be done. And this is absolutely correct. He said, "Whatever Yoga, etc. you do, will not help you find Divine. You can find [the Divine] only when Mother endows Her blessings, otherwise you just can't find Him. He mentioned this very clearly."</font><br>
+<font color="DarkRed">"Thirdly we have Swāmī Mārkaṇḍeya and Ādi Śhaṅkarāchārya.</font> We call ourselves Hindu, this and that but no one reads Ādi Śhaṅkarāchārya's work. Even after reading it no one could understand Him well.<br>
+He was such a big devotee of Mother that He won't do anything other than offering prayers to Mother. All the time He kept praying to Mother Bhagavatī and He knew nothing else. He would suggest only to pray to the Mother and anything shall be done. And this is absolutely correct. He said, "Whatever Yoga, etc. you do, will not help you find Divine. You can find [the Divine] only when Mother endows Her blessings, otherwise you just can't find Him. He mentioned this very clearly."<br>
 <font size="+0"><b>1977-0215 Public Program (Hindi+English), Day 2, Sat-chit-ānanda, New Delhi, India</b></font>
 </p>
 
