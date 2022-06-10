@@ -151,7 +151,7 @@ Nāṇak has talked about it, Gyāneśhwara has talked about it.<br>
 Christ has talked about it that, "I will appear before you like tongues of flames." What is the meaning? Christians do not know about it.<br>
 So it is being promised.<br>
 Ādi Śhaṅkarāchārya, of course, the greatest son of our country has described it so elaborately, but those who call themselves also Hindus, do they know the word Kuṇḍalinī? <font color="DarkRed">While throughout in the Mārkaṇḍeya Purāṇ, such a Great Sage, the one who has not read the Mārkaṇḍeya, I would not call him an Indian at all.<br>
-One of the greatest Sages of this country is Mārkaṇḍeya who has written a complete knowledge about the Devī to such a little extent, to such a small detail that you will be so surprised, 'How He could see all these things? Did He enter into the body of Devī to find out these small small minute things?'</font<br>
+One of the greatest Sages of this country is Mārkaṇḍeya who has written a complete knowledge about the Devī to such a little extent, to such a small detail that you will be so surprised, 'How He could see all these things? Did He enter into the body of Devī to find out these small small minute things?'</font><br>
 But all this we have done in this country much more than any other country."><br>
 <font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5--12</b></font>
 </p>
