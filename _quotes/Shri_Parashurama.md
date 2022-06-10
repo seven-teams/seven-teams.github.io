@@ -3,7 +3,6 @@ title: 'Quotes on Śhrī Paraśhurāma'
 date: 2015-06-29
 permalink: /quotes/2015/0629
 tags:
-  - Incarnations
   - Shri Parashuram
   - Shri Vishnu
 ---

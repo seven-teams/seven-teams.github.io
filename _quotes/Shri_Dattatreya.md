@@ -3,7 +3,6 @@ title: 'Quotes on Śhrī Dattātreya'
 date: 2015-05-22
 permalink: /quotes/2015/0522
 tags:
-  - Incarnations
   - Shri Dattatreya
   - Shri Adi Guru 
 ---

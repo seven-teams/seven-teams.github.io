@@ -3,7 +3,6 @@ title: 'Quotes on Śhrī Vāmana Avatāra, Version 1'
 date: 2014-12-20
 permalink: /quotes/2014/1220
 tags:
-  - Incarnations
   - Shri Vamana
   - Shri Vishnu
 ---

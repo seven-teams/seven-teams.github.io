@@ -3,7 +3,6 @@ title: 'Quotes on Śhrī Narasiṃha Avatāra, Version 2'
 date: 2022-05-15
 permalink: /quotes/2022/0515
 tags:
-  - Incarnations
   - Shri Narasimha
   - Shri Vishnu
 ---

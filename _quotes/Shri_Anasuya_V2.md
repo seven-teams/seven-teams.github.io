@@ -3,7 +3,6 @@ title: 'Quotes on Śhrī Anasūyā, Version 2'
 date: 2022-05-21
 permalink: /quotes/2022/0521
 tags:
-  - Incarnations
   - Shri Anasuya
   - Shri Mahasaraswati
 ---

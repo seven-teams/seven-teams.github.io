@@ -3,7 +3,6 @@ title: 'Quotes on Śhrī Reṇukā, Version 3'
 date: 2022-05-04
 permalink: /quotes/2022/0504
 tags:
-  - Incarnations
   - Shri Renuka
   - Shri Mahasaraswati
 ---

@@ -3,7 +3,6 @@ title: 'Quotes on Śhrī Narasiṃha Avatāra and a new version (2) of quotes on
 date: 2015-06-10
 permalink: /quotes/2015/0610
 tags:
-  - Incarnations
   - Shri Narasimha
   - Shri Vamana
   - Shri Vishnu

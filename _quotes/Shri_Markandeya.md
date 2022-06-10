@@ -3,7 +3,6 @@ title: 'Quotes on Śhrī Mārkaṇḍeya'
 date: 2015-02-28
 permalink: /quotes/2015/0228
 tags:
-  - Incarnations
   - Shri Markandeya
   - Shri Buddha
 ---

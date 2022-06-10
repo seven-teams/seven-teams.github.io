@@ -3,7 +3,6 @@ title: 'Quotes on Śhrī Draupadī'
 date: 2022-03-26
 permalink: /quotes/2022/0326
 tags:
-  - Incarnations
   - Shri Draupadi
   - Shri Vishnumaya
 ---

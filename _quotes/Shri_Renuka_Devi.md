@@ -3,7 +3,6 @@ title: 'Quotes on Śhrī Reṇukā Devī'
 date: 2015-04-17
 permalink: /quotes/2015/0417
 tags:
-  - Incarnations
   - Shri Renuka
   - Shri Mahasaraswati
 ---

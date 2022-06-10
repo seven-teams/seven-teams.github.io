@@ -3,7 +3,6 @@ title: 'Quotes on Śhrī Mandodarī, Version 2'
 date: 2022-04-27
 permalink: /quotes/2022/0427
 tags:
-  - Incarnations
   - Shri Mandodari
   - Shri Mahakali  
 ---

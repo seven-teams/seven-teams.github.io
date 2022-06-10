@@ -3,6 +3,7 @@ title: 'Post 5: Al Qur&#8217;ān'
 date: 2022-06-04
 permalink: /scriptures/2022/0604
 tags:
+  - Prophet Muhammad
   - Quran
   - Islam
 ---
@@ -60,7 +61,7 @@ New Names of God<br>
 <p>
 2:136 Translations<br>
 <font color="DarkGreen">Say: 'We believe in God and that which is revealed to us; in what was revealed to Abraham, Ishmael, Isaac, Jacob, and the tribes; to Moses and Jesus and the other prophets by their Lord. We make no distinction among any of them, and to Gd we have surrendered ourselves.'</font><br>
-<font color="DarkBlue">Say: We believe in Allah and (in) that which had been revealed to us, an (in) that which was revealed to Ibrahim and Ismail and Ishaq and Yaqoub and the tribes, and (in) that which was given to Musa and Isa, and (in) that which was given to the prophets from their Lord, we do not make any distinction between any of them, and to Him do we submit.</font><br>
+<font color="DarkBlue">Say: We believe in Allah and (in) that which had been revealed to us, an (in) that which was revealed to Ibrahim and Ismail and Ishaq and Yaqoub and the tribes, and (in) that which was given to Musa and Isa, and (in) that which was given to the prophets from their Lord, we do not make any distinction between any of them, and to Him do we submit.</font>
 </p>
 
 <div class="para-divider"></div>
@@ -87,7 +88,7 @@ And they said, "Thes ... there is a Sūrah called Saishta [Śhāsti] Yoga, Saish
 <br>
 <font color="DarkRed">Whatever is said about the Last Judgment, this is the time for that Last Judgment.<br>
 Also in Qur'ān it is said: that, "At the Time of your Resurrection, your hands will speak, and they will give witness against you." Exactly this happens in Sahaja Yoga. The Sūrah that is in Qur'ān called as Sashtī [Śhāsti] Yoga [Sūrah 36: Yāʾ-Sīn], is surprising how Muhammad Sāhab clearly said about it.</font><br>
-<b>1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia</b><br>
+<b>1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia</b>
 </p>
 
 <div class="para-divider"></div>
