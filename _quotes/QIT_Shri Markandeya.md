@@ -121,11 +121,11 @@ Now Mahāviṣhṇu is a creation of Rādhājī, is the Son of Rādhā. He [She]
 <div class="para-divider"></div>
 
 <p>
-[<b> Version 1:</b>]<br>
-Now this Kuṇḍalinī, Dñyāneśhwar has also talked a lot about It. <font color="DarkRed">Mārkaṇḍeya has done the most amount of work on it, so has Ādi Śhaṅkarāchārya. They have described and explained it so beautifully.<br>
+[<b>Version 1:</b>]<br>
+Now this Kuṇḍalinī, Dñyāneśhwar has also talked a lot about It. <font color="DarkRed">Mārkaṇḍeya has done the most amount of work on it, so has Ādi Śhaṅkarāchārya. They have described and explained it so beautifully.</font><br>
 But I am surprised that no one reads the work of Śhaṅkarāchārya. He was a resident of Kerala and He had spent His entire lifetime over there. So it was even more surprising when I came to know that the people from His place didn't even know who He was.<br>
 So much ignorance has come into people over there. They think, just because they have been educated in English they are someone special."<br>
-[<b> Version 2:</b>]<br>
+[<b>Version 2:</b>]<br>
 Now this Kuṇḍalinī is right here, Dñyāneśhwara has also talked a lot about It. <font color="DarkRed">Similarly, Mārkaṇḍeya Swāmī and Ādi Śhaṅkarāchārya have done the maximum amount of work on It. They have made It lucid and explained It all so beautifully.</font><br>
 But I am surprised that no one reads the work of Śhaṅkarāchārya. Not only this but I had been to Kovalam and He belongs to Kerala, He spent his life in Kālaṭi village there, and I was surprised when people over there told Me, "We do not know who this Śhaṅkarāchārya, Ādi Śhaṅkarāchārya was, whom are you speaking about."<br>
 So much ignorance has come into people due to English education.<br>
