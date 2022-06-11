@@ -10,6 +10,8 @@ redirect_from:
 
 ![PICTURE 1](/images/HHShriMatajiNirmalDevi.jpg)
 
+<br>
+
 **<font color="blue">Divine Treasures: an eternal token of gratitude and love</font>**
 ======
 
