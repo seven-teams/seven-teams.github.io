@@ -36,6 +36,7 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 **<font color="blue">On the Posts of the Seven Teams</font>**
 ======
 
+<br>
 1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Śhrī Mātājī) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.<br>
 E-mail: <b>festivityteam@gmail.com</b>
 
@@ -59,11 +60,30 @@ For other websites of Photographs please see:
 3. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.<br> 
 E-mail: <b>sakshat.avatar@gmail.com</b>
 
-4. **<font color="blue">Scriptures Team.</font>** Quotes from all Scriptures of the World and commentaries on them. 
-<br>E-mail: <b>shuddhvidya@gmail.com</b>
+4. **<font color="blue">Scriptures Team.</font>** The team aims to put together quotes from all Scriptures and spiritual writings of the world, commentaries on such quotes, historical data and explanations, and the words of Śhrī Mātājī.<br>
+Its research activities are centered on:
 
-5. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. 
-<br>E-mail: <b>sahajagyaan@gmail.com</b>
+    1. the unity and the integration of all true religions and spiritual paths and cultures;
+
+    2. the connections between the teachings of Śhrī Mātājī and all Scriptures and spiritual writings;
+
+    3. the emphasis of the poetic and divine languages used and the aspects of God and sublime qualities emanated by the Incarnations of the Primordial Principles;
+
+    4. the understanding, realization and manifestation of the Primordial Principles that govern the universe and the life described in the Scriptures and spiritual writings.
+
+The main tools used are:
+
+    a. positive and indirect criticism that expose the blindness of religious fanaticism, the futility of mundane searches, the perils of materialism and materialistic attitudes, etc.;
+
+    b. extensive reviewing by bringing up the complementarity of different translations from various cultures that;
+
+    c. reporting via regular posts. 
+
+The team hopes that the posts will delight the readers and Seekers of Truth, will bring more light and visions to their lives, and will inspire them to ponder, share, communicate and write articles and books that would benefit mankind.<br>
+E-mail: <b>shuddhvidya@gmail.com</b>
+
+5. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. <br>
+E-mail: <b>sahajagyaan@gmail.com</b>
 
 6. **<font color="blue">Yearly Topics Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.<br>
 E-mail: <b>yearlycelebrations@gmail.com</b>
