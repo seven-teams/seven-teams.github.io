@@ -1,5 +1,5 @@
 ---
-title: 'Celebrating 50 Years of Life Eternal Trust and its Objects, Post 19'
+title: 'Celebrating 50 Years of Life Eternal Trust and its Objects, Post 18'
 date: 2022-06-11
 permalink: /yearly/2022/0611
 tags:
