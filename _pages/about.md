@@ -64,19 +64,19 @@ For other websites of Photographs please see:
     
     vi. <a href="https://www.instagram.com/fotosofma/"> Fotos of Ma</a> (taken by Chris Patmore) (created in 2021)
 
-3. **<font color="blue">Quotes on Incarnations Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation, grouped in chronological order.<br> 
+3. **<font color="blue">Quotes on Incarnations Team.</font>** All quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation in human form, grouped in chronological order.<br> 
 E-mail: <b>sakshat.avatar@gmail.com</b>
 
 4. **<font color="blue">Scriptures Team.</font>** The team aims to put together quotes from all Scriptures and spiritual writings of the world, commentaries on such quotes, historical data and explanations, and the words of Śhrī Mātājī.<br>
 Its research activities are centered on:
 
-    1. the unity and the integration of all true religions and spiritual paths and cultures;
+    i. the unity and the integration of all true religions and spiritual paths and cultures;
 
-    2. the connections between the teachings of Śhrī Mātājī and all Scriptures and spiritual writings;
+    ii. the connections between the teachings of Śhrī Mātājī and all Scriptures and spiritual writings;
 
-    3. the emphasis of the poetic and divine languages used and the aspects of God and sublime qualities emanated by the Incarnations of the Primordial Principles;
+    iii. the emphasis of the poetic and divine languages used and the aspects of God and sublime qualities emanated by the Incarnations of the Primordial Principles;
 
-    4. the understanding, realization and manifestation of the Primordial Principles that govern the universe and the life described in the Scriptures and spiritual writings.
+    iv. the understanding, realization and manifestation of the Primordial Principles that govern the universe and the life described in the Scriptures and spiritual writings.
 
 The main tools used are:
 
