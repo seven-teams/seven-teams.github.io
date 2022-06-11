@@ -48,7 +48,7 @@ E-mail: <b>festivityteam@gmail.com</b>
 2. **<font color="blue">Comprehensive Compilations Team.</font>** Database for all general purposes.<br>
 All quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
-Originally though as a four-members team, it operates via subteams and it receives help from volunteers.<br>
+Originally thought of as a four-members team, it operates via subteams and it receives help from volunteers.<br>
 The Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
 For other websites of Photographs please see:
 
@@ -108,7 +108,7 @@ E-mail: <b>yearlycelebrations@gmail.com</b>
     ix. **<font color="DarkGreen">2022 Celebrating 50 Years of Life Eternal Trust and its Objects</font>**
 
 
-7. **<font color="blue">Divine Message Team.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017.<br>
+7. **<font color="blue">Divine Message Subteam.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 For other databases of transcripts please see:
 
