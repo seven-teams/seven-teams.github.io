@@ -78,9 +78,9 @@ Its research activities are centered on:
 
     iv. the understanding, realization and manifestation of the Primordial Principles that govern the universe and the life described in the Scriptures and spiritual writings.
 
-The main tools used are: a. positive and indirect criticism that expose the blindness of religious fanaticism, the futility of mundane searches, the perils of materialism and materialistic attitudes, etc.; b. extensive reviewing by bringing up the complementarity of different translations from various cultures that; c. reporting via regular posts. 
+    The main tools used are: a. positive and indirect criticism that expose the blindness of religious fanaticism, the futility of mundane searches, the perils of materialism and materialistic attitudes, etc.; b. extensive reviewing by bringing up the complementarity of different translations from various cultures that; c. reporting via regular posts. 
 
-The team hopes that the posts will delight the readers and Seekers of Truth, will bring more light and visions to their lives, and will inspire them to ponder, share, communicate and write articles and books that would benefit mankind.<br>
+    The team hopes that the posts will delight the readers and Seekers of Truth, will bring more light and visions to their lives, and will inspire them to ponder, share, communicate and write articles and books that would benefit mankind.<br>
 E-mail: <b>shuddhvidya@gmail.com</b>
 
 5. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. <br>
