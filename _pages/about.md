@@ -15,7 +15,7 @@ redirect_from:
 
 The chance to meet Śhrī Mātājī and to hear Her teachings represented a dramatic turnaround in our lives. Sometimes fast, sometimes slow, visible transformation took place, producing a lasting change infused by beauty, serenity, joy, purity, simplicity, collectivity, etc. As an eternal expression of our gratitude towards Śhrī Mātājī, we would like to share some of the Divine Treasures we have delighted our Souls and Spirits with while following Śhrī Mātājī and practicing Sahaja Yoga. In particular, the site includes the complete and unedited Divine Message of Śhrī Mātājī and all its connections with the Spiritual Festivals and Scriptures of the World.
 
-
+<br>
 **<font color="red">Śhrī Mātājī Nirmalā Devī</font>**
 ======
 
