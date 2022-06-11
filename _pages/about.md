@@ -42,7 +42,6 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 **<font color="blue">On the Posts of the Seven Teams</font>**
 ======
 
-<br>
 1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Śhrī Mātājī) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.<br>
 E-mail: <b>festivityteam@gmail.com</b>
 
@@ -50,7 +49,7 @@ E-mail: <b>festivityteam@gmail.com</b>
 All quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 Originally though as a four-members team, it operates via subteams and it receives help from volunteers.<br>
-Its Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
+The Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
 For other websites of Photographs please see:
 
     i. <a href="https://imageevent.com/sahaja"> Sahaja Image Events</a> (albums by Pavan Burd) (created in 2004)
@@ -79,13 +78,7 @@ Its research activities are centered on:
 
     iv. the understanding, realization and manifestation of the Primordial Principles that govern the universe and the life described in the Scriptures and spiritual writings.
 
-The main tools used are:
-
-    a. positive and indirect criticism that expose the blindness of religious fanaticism, the futility of mundane searches, the perils of materialism and materialistic attitudes, etc.;
-
-    b. extensive reviewing by bringing up the complementarity of different translations from various cultures that;
-
-    c. reporting via regular posts. 
+The main tools used are: a. positive and indirect criticism that expose the blindness of religious fanaticism, the futility of mundane searches, the perils of materialism and materialistic attitudes, etc.; b. extensive reviewing by bringing up the complementarity of different translations from various cultures that; c. reporting via regular posts. 
 
 The team hopes that the posts will delight the readers and Seekers of Truth, will bring more light and visions to their lives, and will inspire them to ponder, share, communicate and write articles and books that would benefit mankind.<br>
 E-mail: <b>shuddhvidya@gmail.com</b>
