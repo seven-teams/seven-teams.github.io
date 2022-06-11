@@ -49,7 +49,8 @@ E-mail: <b>festivityteam@gmail.com</b>
 2. **<font color="blue">Comprehensive Compilations Teams.</font>** Database for all general purposes.<br>
 All quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
-It's Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
+Originally though as a 4 members team, it operates via subteams and it receives help from volunteers.<br>
+Its Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
 For other websites of Photographs please see:
 
     i. <a href="https://imageevent.com/sahaja"> Sahaja Image Events</a> (albums by Pavan Burd) (created in 2004)
