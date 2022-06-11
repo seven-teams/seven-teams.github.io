@@ -46,10 +46,10 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Śhrī Mātājī) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.<br>
 E-mail: <b>festivityteam@gmail.com</b>
 
-2. **<font color="blue">Comprehensive Compilations Teams.</font>** Database for all general purposes.<br>
+2. **<font color="blue">Comprehensive Compilations Team.</font>** Database for all general purposes.<br>
 All quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
-Originally though as a 4 members team, it operates via subteams and it receives help from volunteers.<br>
+Originally though as a four-members team, it operates via subteams and it receives help from volunteers.<br>
 Its Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
 For other websites of Photographs please see:
 
