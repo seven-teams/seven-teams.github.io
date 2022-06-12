@@ -1,5 +1,5 @@
 ---
-title: 'BHAGAVAD GĪTĀ'
+title: 'Post 7: BHAGAVAD GĪTĀ'
 date: 2022-06-12
 permalink: /scriptures/2022/0612
 tags:
