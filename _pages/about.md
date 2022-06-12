@@ -78,15 +78,7 @@ Its research activities are centered on demonstrating and documenting:
 
     iv. The descriptions of the Primordial Principles that govern the universe and life on this planet found in the scriptures and spiritual writings.
 
-    The main tools used are: 
-     
-       1. Extensive reviewing by bringing up the correspondence of scriptures and their translations from various cultures.
-
-       2. Reporting between team members and to the readers via regular posts.
-
-       3. Exposing the potential misuse and distortion of scriptures by religious fanatics.
-
-       4. Quotes which express the futility of mundane seeking, the perils of materialism and materialistic attitudes, etc.
+    The main tools used are: a. Extensive reviewing by bringing up the correspondence of scriptures and their translations from various cultures. b. Reporting between team members and to the readers via regular posts. c. Exposing the potential misuse and distortion of scriptures by religious fanatics. d. Quotes which express the futility of mundane seeking, the perils of materialism and materialistic attitudes, etc.
 
     The team hopes that the posts will delight readers who are Seekers of Truth, will bring more light, vision and meaning to their lives and will inspire them to meditate and communicate more deeply and to write articles and books that will benefit and uplift mankind.<br>
 E-mail: <b>shuddhvidya@gmail.com</b>
