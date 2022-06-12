@@ -50,7 +50,7 @@ Same thing is Sahaja Yoga. If you put mathematically, Sahaja Yoga can never be e
 ......<br>
 So when we believe that we are Sahaja Yogis, we have to know that in a subtle way we are still caught up into the webs of our own understanding about life.<br>
 So that we have to change. Life for us is nothing but Sahaja Yoga, and Sahaja Yoga is nothing but enlightening ourselves and others."<br>
-<font color="blue"><b>1989-0611 Śhrī Virāṭa Pūjā, We Must Talk of Sahaja Yoga, Camp Wonposet, Lennox Hill Road, Litchfield, CT, U.S.A.</b></font><br>
+<font color="blue"><b>1989-0611 Śhrī Virāṭa Pūjā, Camp Wonposet, Lennox Hill Road, Litchfield, CT, U.S.A.</b></font><br>
 </p>
 
 <br>
