@@ -35,7 +35,7 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 
 Śhrī Mātājī visited U.S.A. in 1970, 1972, and each year from 1981 until 2006 except 1998. 
 
-Śhrī Mātājī withdrew from this world on February 23, 2011.
+H. H. Śhrī Mātājī withdrew from this world on February 23, 2011.
 
 <br>
 
