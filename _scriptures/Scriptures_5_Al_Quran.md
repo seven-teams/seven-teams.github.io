@@ -93,7 +93,7 @@ New Mantras or Names of God<br>
 <p>
 New Mantras or Names of God<br>
 <font color="DarkGreen">There is no God but Him, Living, Ever-existent One</font>
-<font color="DarkBlue">no God but He, Everliving, Self-subsisting</font>
+<font color="DarkBlue">no god but He, Everliving, Self-subsisting</font>
 </p>
 
 <div class="para-divider"></div>
