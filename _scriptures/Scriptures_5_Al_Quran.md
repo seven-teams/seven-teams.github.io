@@ -96,6 +96,29 @@ Nor of those who have gone astray.</font><br>
 <font color="DarkBlue">no god but He, Everliving, Self-subsisting</font>
 </p>
 
+<br>
+<p>
+<b>3:19 Translations</b><br>
+<font color="DarkGreen">The only true faith in God's sight is Islām. Those to whom the Scriptures were given disagreed among themselves through jealousy only after knowledge had been given them. He that denies God's revelations should know that swift is God's reckoning.</font><br>
+<font color="DarkBlue">Surely the (true) religion with Allah is Islam, and those to whom the Book had been given did not show opposition but after knowledge had come to them, out of envy among themselves; and whoever disbelieves in the communications of Allah then surely is quick in reckoning.</font>
+</p>
+
+<br>
+<p>
+<b>3:85 Translations</b><br>
+<font color="DarkGreen">He that chooses a religion other than Islām, it will not be accepted from him and in the world to come he will be one of the lost.</font><br>
+<font color="DarkBlue">And whoever desires a religion other than Islam, it shall not be accepted from him, and in the hereafter he shall be one of the losers.</font>
+</p>
+
+<br>
+<p>
+<b>3 Quotes</b><br>
+<font color="DarkRed">In one of the Sūrahs of Holy Qur'ān it is written, ``The only religion with Allah is Islam" [3:19], and, ``There is no other religion to be accepted" [3:85].<br>
+Allah is one of the names of Lord Almighty, and it means that for Him Islam is necessary.<br>
+What is islam? It is surrender and from the same root comes the word salam or peace [in Arabic].</font><br>
+<b>1900-0000 Two Quotes from the book Divine Knowledge through Vibrations (1992) by P.T. Rajasekharan and R. Venkatesan, Page 72</b><br>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
