@@ -53,9 +53,8 @@ Nor of those who have gone astray.</font><br>
 
 <br>
 <p>
-Mantra or New Names of God<br>
-<font color="DarkGreen">Alif lām mīm</font><br>
-<font color="DarkBlue">Alif Lam Mim</font>
+New Mantras or Names of God<br>
+<font color="DarkGreen">Alif lām mīm</font>
 </p>
 
 <p>
@@ -85,8 +84,23 @@ Mantra or New Names of God<br>
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
+<b>Sūrah 3</b><br>
+<font color="DarkGreen"><b>The Imrans (Āl-ʿImrān)</b></font><br>
+<font color="DarkBlue"><b>The Family of Imran</b></font>
+</p>
+
+<br>
+<p>
+New Mantras or Names of God<br>
+<font color="DarkGreen">There is no God but Him, Living, Ever-existent One</font>
+<font color="DarkBlue">no God but He, Everliving, Self-subsisting</font>
+</p>
+
+<div class="para-divider"></div>
+
+<p style="text-align:center;">
 <b>Sūrah 36</b><br>
-<font color="DarkGreen"><b>YĀ'SĪN</b></font><br>
+<font color="DarkGreen"><b>YāʾSīn</b></font><br>
 <font color="DarkBlue"><b>Ya Seen</b></font>
 </p>
 
