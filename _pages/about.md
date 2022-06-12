@@ -67,20 +67,28 @@ For other websites of Photographs please see:
 3. **<font color="blue">Quotes on Incarnations Team.</font>** All quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation in human form, grouped in chronological order.<br> 
 E-mail: <b>sakshat.avatar@gmail.com</b>
 
-4. **<font color="blue">Scriptures Team.</font>** The team aims to put together quotes from all Scriptures and spiritual writings of the world, commentaries on such quotes, historical data and explanations, and the words of Śhrī Mātājī.<br>
-Its research activities are centered on:
+4. **<font color="blue">Scriptures Team.</font>** The team aims to select quotes from scriptures and spiritual writings of all the cultures of the world, to bring forth or make commentaries on such quotes, to provide historical and biographical data on the scriptures and their authors, and to collate all of them with the words of H. H. Śhrī Mātājī Nirmalā Devī.<br>
+Its research activities are centered on demonstrating and documenting:
 
-    i. the unity and the integration of all true religions and spiritual paths and cultures;
+    i. The unity and integration of all true religions, spiritual paths and forms of seeking.
 
-    ii. the connections between the teachings of Śhrī Mātājī and all Scriptures and spiritual writings;
+    ii. The connections between the teachings of Śhrī Mātājī and the scriptures and spiritual writings of all cultures in the world.
 
-    iii. the emphasis of the poetic and divine languages used and the aspects of God and sublime qualities emanated by the Incarnations of the Primordial Principles;
+    iii. The way the poetic and divine languages used express the aspects of God and sublime qualities embodied by the Incarnations of the Primordial Principles.
 
-    iv. the understanding, realization and manifestation of the Primordial Principles that govern the universe and the life described in the Scriptures and spiritual writings.
+    iv. The descriptions of the Primordial Principles that govern the universe and life on this planet found in the scriptures and spiritual writings.
 
-    The main tools used are: a. positive and indirect criticism that expose the blindness of religious fanaticism, the futility of mundane searches, the perils of materialism and materialistic attitudes, etc.; b. extensive reviewing by bringing up the complementarity of different translations from various cultures that; c. reporting via regular posts. 
+    The main tools used are: 
+     
+       1. Extensive reviewing by bringing up the correspondence of scriptures and their translations from various cultures.
 
-    The team hopes that the posts will delight the readers and Seekers of Truth, will bring more light and visions to their lives, and will inspire them to ponder, share, communicate and write articles and books that would benefit mankind.<br>
+       2. Reporting between team members and to the readers via regular posts.
+
+       3. Exposing the potential misuse and distortion of scriptures by religious fanatics.
+
+       4. Quotes which express the futility of mundane seeking, the perils of materialism and materialistic attitudes, etc.
+
+    The team hopes that the posts will delight readers who are Seekers of Truth, will bring more light, vision and meaning to their lives and will inspire them to meditate and communicate more deeply and to write articles and books that will benefit and uplift mankind.<br>
 E-mail: <b>shuddhvidya@gmail.com</b>
 
 5. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. <br>
