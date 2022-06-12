@@ -85,13 +85,11 @@ So, Christ came on this Earth because He is the essence.<br>
 And He showed by His Resurrection that Spirit does not die. And He showed it very clearly what Kṛiṣhṇa had said, because He was, you know, He was Kṛiṣhṇa's Son, and that's how He did it.<br>
 But before He could deliver the complete thing to human beings they crucified Him. And that is ... mhh ... that is [laughing:] the way they respected Him and that is the way they came to Him. </font><br>
 <b>1978-1224 Talk to Sahaja Yogis, Thankfulness Is the Way to Joy, There Is No Other Way and Christmas Is a Day of Thankfulness (Thank Every Moment, Every Minute), Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b><br>
-<br>
 ......<br>
 <br>
 <font color="DarkRed">Uh [laughing:] only trouble with Sahaja Yogis is that they take things [a] little lightly. Of course, that is their character. But not Sahaja Yoga. Other things you can take lightly: if somebody shouts at you, somebody gets angry with you, somebody even slaps you, take it lightly. Doesn't matter. Makes no difference to you. Because you are the Spirit: nothing can destroy the Spirit. "Nainaṃ chindanti śhastrāṇi" ["Weapons do not cut It": first part of the first verse of Bhagavad Gītā 2.23].<br>
 But when it comes to Sahaja Yoga, your attitude should be different. If you are relaxing on one side, another side you have to be dynamic. And that side is: where you have to put forward the theories of Sahaja Yoga, and you have to talk to people, you have to organize a press conference, or whatever sort of things you want to do.</font><br>
 <b>1993-0321 Birthday Pūjā, Satya Yuga, New Delhi, India</b><br>
-<br>
 ......
 </p>
 
@@ -122,14 +120,12 @@ So how can you surrender to God unless you have a connection with God?<br>
 He in fact said: "Karmaṇy-evādhikāras te mā phaleṣhu kadāchana." Kṛiṣhṇa said this and that too by putting this absurd condition because it's not easy to get human beings to the right understanding.<br>
 I am watching that even after six thousand years the situation is still the same.</font><br>
 <b>1978-0131 Public Program (Hindi), Day 2, Void, Heart, Viśhuddhi, Channels, New Delhi, India</b><br>
-<br>
 ......<br>
 <font color="DarkRed">For karma, He said: that, "Do all the work and put it at the Lotus Feet of God Almighty." 
 That's not possible. Many people say: that, "Mother, all my work, I put at the Lotus Feet of God." Even the murders, I think! [Smiles.] It['s] just a mental idea: that, 'I am putting it at the Lotus Feet of God.' You cannot! Because you are not at that state.<br>
 But say, a Sahaja Yogi, he will not tell Me, that 'I am raising the Kuṇḍalinī,' he'll say, 'Mother, it doesn't come up. Is not coming, it ...', in the third person he talks. He will say: 'This won't go that side,' in the third person. Because he is no more there.<br>
 So, this is what is the karma: automatically is at the Lotus Feet of God Almighty, if He is doing everything! We are just instruments!</font><br>
 <b>1991-1206 Public Program, Day 1, Narada Gana Sabha, 254 Mowbrays Road, Alwarpet, Chennai, Tamil Nadu, India</b><br>
-<br>
 ......<br>
 <font color="DarkRed">The second one was the karma, that you do your work. You go on doing your work, with a 'detached mind'. I mean it's not possible, but that's what they say. And we are doing our karmas, good karmas, we do all kinds of good things, go to various places for our cleansing, meet many great people of spirituality, go to all various places, and pray. Visit all auspicious places which are being described, all kinds of rituals, we do for that.<br>
 That is the ... Karma Yoga.<br>
@@ -275,7 +271,6 @@ There is only one reason which I have told you before and I am telling you again
 If it is some Sādhu then it's all right. "Paritrāṇāya sādhūnāṃ vināśhāya cha duṣhkṛutām."<br> 
 But if with the Sādhu there is the devil sitting inside then he will have to be removed with a lot of love, isn't it? What a difficult work this is. You are standing in the saintly position and there is also the devil within. But if you are standing as a Saint and there is a devil within, you can remove it.</font><br>
 <b>1975-0120 Talk to Sahaja Yogis (Hindi), Day 1, Session 2 (evening), Kṣham Ki Śhakti Ka Mahatav (Power of Forgiveness) or Dharm va Adharm (Dharma and Adharma), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b><br>
-<br>
 ......<br>
 <br>
 <font color="DarkRed">"Paritrāṇāya sādhūnāṃ vināśhāya cha duṣhkṛutām." Evil is in Yogis, so evil is to be separated from their minds. Then only they can get complete Realization. I can see it they are there in your mind. They should be thrown out, clear your mind. I have to take them away from you and give you your authority, position and your attributes to settle in you.</font><br>
@@ -366,7 +361,6 @@ m
 <font color="DarkRed">We sometimes ask for worldly things, power, money: you are still entangled in little things.<br>
 The Supreme Self that I am talking of is all seeing. "Yogakṣhemaṁ vahāmyaham": Yoga and kṣhema are looked after by Him.<br> See now, there is nothing superior to Him in this world. What in this world can stand in comparison to the Lord‽ The entire world is functioning because of this Superior Entity.</font><br>
 <b>1976-0205 Śhrī Viṣhnu Havan (Hindi) (Vasant Pañchamī), Upakār Buddhi (Sense of Gratitude), New Delhi, India</b><br>
-<br>
 ......<br>
 <br>
 <font color="DarkRed">But the second thing He said, that, you should do [laughing:] bhakti: "Whatever fruit or flower or water you give Me, I'll take it. But you must do bhakti which is ananya."<br>
@@ -377,7 +371,6 @@ So, bhakti without the connection is wrong. That's why Kṛiṣhṇa has said it
 Very subtly He has put Yoga first. Why didn't He say, 'Kṣhema-yoga'?<br>
 So, for bhakti He said like this.</font><br>
 <b>1991-1206 Public Program, Day 1, Narada Gana Sabha, 254 Mowbrays Road, Alwarpet, Chennai, Tamil Nadu, India</b><br>
-<br>
 ......
 </p>
 
@@ -490,7 +483,6 @@ Like Śhrī Kṛiṣhṇa said, "Sarva dharmān paritajya Mām ekam śharaṇam 
 As Christ had said, "I am the Light, I am the Path," same is My statement, "I am the Destination, not only the Path."<br>
 I did not say this to you because I had very bad experiences. This is the only reason. You people have to come to My refuge (śharaṇāgat). You have to accept Me as Mother and live like My sons. Without that your work will not be done.</font><br>
 <b>1975-0329 Public Program (Hindi), Day 1, Vigyān Manuṣhya kī Rachanā Nahīṃ Khoja Hai (Science Is Human's Discovery, Not Creation), Sweet Home, Dadar, Mumbai, Maharashtra, India</b><br>
-<br>
 ......<br>
 <font color="DarkRed">Kṛiṣhṇa has said in His Gītā, kī [that], "Sarva-dharmān parityajya Mām ekaṃ śharaṇaṃ vraja." "Forget about all your dharmas." Dharma means in His meaning that we have a dharma of a wife, of a husband, of a uh-uh-uh-uh member of the society, all of them have their own dharma. But He says, "Leave them! And leave it them to Me, and I'll manage."<br>
 This is it, we have to learn: is to say that, 'Is this Divine Power which will solve our problems.'<br>
@@ -499,6 +491,8 @@ And this state only can be achieved through meditation. But I am say... not sayi
 <b>1998-0510 Sahasrāra Pūjā, Blessing of the Divine Pours Only if the Sahasrāra is Open (Meditation Is the Only Way You Can Enrich Yourself with the Beauty of Reality), Hangar, Cabella Ligure, Alessandria, Italy</b>
 </p>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
+<br>
 Scriptures Teams

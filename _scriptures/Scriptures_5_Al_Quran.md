@@ -117,6 +117,8 @@ Also in Qur'ān it is said: that, "At the Time of your Resurrection, your hands 
 <font color="DarkBlue"><b></b></font>
 </p>
 
+<br>
 <div class="para-divider"></div>
 
+<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
