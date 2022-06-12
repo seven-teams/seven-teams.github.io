@@ -115,7 +115,7 @@ mā karma-phala-hetur bhūr mā te saṅgo 'stvakarmaṇi
 It is not possible. This is diplomacy.<br>
 What is the essence of diplomacy? Let Me tell you the essence of diplomacy which is that, 'Put the absurd condition in front.' A person will fall trap into his own web.<br>
 Now, see the play of the words here where He said that, "You do your karma and leave the fruit at the feet of God." It's an impossible situation where this is an absurd condition.<br>
-Now human being is trying to do it like stupid. All right, keep on doing. Unless and until you are [{\bf{\textcolor{amber+}{unclear}}} detached/broken], until your karma becomes akarma, until you become empty from within, this can't be achieved because ego and superego are sitting on your head. Whatever you will do it will be either by the force of ego or by superego.<br>
+Now human being is trying to do it like stupid. All right, keep on doing. Unless and until you are [<font color="orange">unclear</font> detached/broken], until your karma becomes akarma, until you become empty from within, this can't be achieved because ego and superego are sitting on your head. Whatever you will do it will be either by the force of ego or by superego.<br>
 So how can you surrender to God unless you have a connection with God?<br>
 He in fact said: "Karmaṇy-evādhikāras te mā phaleṣhu kadāchana." Kṛiṣhṇa said this and that too by putting this absurd condition because it's not easy to get human beings to the right understanding.<br>
 I am watching that even after six thousand years the situation is still the same.</font><br>
