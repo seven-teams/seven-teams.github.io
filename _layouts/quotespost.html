@@ -32,23 +32,27 @@ layout: default
             <p class="page__meta"><i class="fa fa-clock-o" aria-hidden="true"></i> {% include read-time.html %}</p>
           {% endif %}
         {% if page.modified %}
-          <p class="page__date"><strong><i class="fa fa-fw fa-calendar" aria-hidden="true"></i> {{ site.data.ui-text[site.locale].date_label | default: "Published:" }}</strong> <time datetime="{{ page.modified | date: "%Y-%m-%d" }}">{{ page.modified | date: "%B %d, %Y" }}</time></p>
+          <p class="page__date">
+            <strong><i class="fa fa-fw fa-calendar" aria-hidden="true"></i> {{ site.data.ui-text[site.locale].date_label | default: "Published:" }}</strong>
+            <time datetime="{{ page.modified | date: "%Y-%m-%d" }}">{{ page.modified | date: "%B %d, %Y" }}</time>
+          </p>
         {% endif %}
         
     
         </header>
       {% endunless %}
       
-      {% if page.tags %} Tag:  
-      {% for tag in page.tags %}
-        <a href="{{ site.baseurl }}{{ site.tag_quotes }}#{{ tag | slugify }}" class="post-tag">{{ tag }}</a>
-      {% endfor %}
+      {% if page.tags %}
+        Tags:
+        {% assign sortedtags = page.tags | sort %}
+      	{% for tag in sortedtags %}
+        	<a href="{{ site.baseurl }}{{ site.tag_quotes }}#{{ tag | slugify }}" class="post-tag">{% colorize tag %}</a>
+      	{% endfor %}
       {% endif %}
      
 
       <section class="page__content" itemprop="text">
-        {{ content }}
-        {% if page.link %}<div><a href="{{ page.link }}" class="btn">{{ site.data.ui-text[site.locale].ext_link_label | default: "Direct Link" }}</a></div>{% endif %}
+        {{ content }}{% if page.link %}<div><a href="{{ page.link }}" class="btn">{{ site.data.ui-text[site.locale].ext_link_label | default: "Direct Link" }}</a></div>{% endif %}
       </section>
 
       <footer class="page__meta">
@@ -82,4 +86,3 @@ layout: default
     </div>
   {% endif %}
 </div>
-
