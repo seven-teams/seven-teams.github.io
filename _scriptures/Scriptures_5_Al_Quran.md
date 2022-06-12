@@ -100,7 +100,7 @@ Nor of those who have gone astray.</font><br>
 <p>
 <b>3:19 Translations</b><br>
 <font color="DarkGreen">The only true faith in God's sight is Islām. Those to whom the Scriptures were given disagreed among themselves through jealousy only after knowledge had been given them. He that denies God's revelations should know that swift is God's reckoning.</font><br>
-<font color="DarkBlue">Surely the (true) religion with Allah is Islam, and those to whom the Book had been given did not show opposition but after knowledge had come to them, out of envy among themselves; and whoever disbelieves in the communications of Allah then surely is quick in reckoning.</font>
+<font color="DarkBlue">Surely the (true) religion with Allah is Islam, and those to whom the Book had been given did not show opposition but after knowledge had come to them, out of envy among themselves; and whoever disbelieves in the communications of Allah then surely Allah is quick in reckoning.</font>
 </p>
 
 <br>
