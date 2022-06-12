@@ -92,7 +92,7 @@ Nor of those who have gone astray.</font><br>
 <br>
 <p>
 <b>New Mantras or Names of God</b><br>
-<font color="DarkGreen">There is no God but Him, Living, Ever-existent One</font>
+<font color="DarkGreen">There is no God but Him, Living, Ever-existent One</font><br>
 <font color="DarkBlue">no god but He, Everliving, Self-subsisting</font>
 </p>
 
