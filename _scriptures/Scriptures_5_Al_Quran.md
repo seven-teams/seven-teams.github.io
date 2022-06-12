@@ -1,5 +1,5 @@
 ---
-title: 'Post 5: Al Qur&#8217;ān'
+title: 'Post 5: Al Qurʾān'
 date: 2022-06-04
 permalink: /scriptures/2022/0604
 tags:
@@ -9,7 +9,7 @@ tags:
 ---
 
 <br>
-<font color="DarkRed"><b>Śhrī Mātājī's words on Al Qur'ān</b></font><br>
+<font color="DarkRed"><b>Śhrī Mātājī's words on Al Qurʾān</b></font><br>
 
 <font color="DarkGreen"><b>N. J. Dawood translation of The Koran published by Penguin Classics in 1956, fifth revised edition dated 1990</b></font><br>
 
