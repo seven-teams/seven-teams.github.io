@@ -53,9 +53,27 @@ Nor of those who have gone astray.</font><br>
 
 <br>
 <p>
-New Names of God<br>
-<font color="DarkGreen"></font><br>
-<font color="DarkBlue"></font>
+Mantra or New Names of God<br>
+<font color="DarkGreen">Alif lām mīm</font><br>
+<font color="DarkBlue">Alif Lam Mim</font>
+</p>
+
+<p>
+2:2 Translations<br>
+<font color="DarkGreen">This Book is not to be doubted. It is a guide for the righteous,</font><br>
+<font color="DarkBlue">This Book, there is no doubt in it, is a guide to those who guard (against evil).</font>
+</p>
+
+<p>
+2:3 Translations<br>
+<font color="DarkGreen">who have faith in the unseen are steadfast in prayer; who bestow in charity a part of what We have given them;</font><br>
+<font color="DarkBlue">Those who believe in the unseen and keep up prayer and spend out what We have given them.</font>
+</p>
+
+<p>
+2:4 Translations<br>
+<font color="DarkGreen">who trust what has been revealed to you [Muḥammad] and to others before you, and firmly belief in the life to come.</font><br>
+<font color="DarkBlue">And who believe in that which has been revealed to you and that which was revealed before you and they are sure of the hereafter.</font>
 </p>
 
 <p>
