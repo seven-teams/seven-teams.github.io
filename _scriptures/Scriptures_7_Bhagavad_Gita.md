@@ -493,6 +493,3 @@ And this state only can be achieved through meditation. But I am say... not sayi
 
 <br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
-
-<br>
-Scriptures Teams

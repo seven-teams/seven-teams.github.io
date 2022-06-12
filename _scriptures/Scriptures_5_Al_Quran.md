@@ -25,19 +25,19 @@ tags:
 
 <br>
 <p>
-Names of God<br>
+<b>Names of God</b><br>
 <font color="DarkGreen">Compassionate, Merciful, Lord of the Universe, Sovereign of the Day of Judgment, You alone</font><br>
 <font color="DarkBlue">Allah, Beneficent, Merciful, Lord of the Worlds, Master of the Day of Judgment, Thou</font>
 </p>
 
 <p>
-1:6 Translations<br>
+<b>1:6 Translations</b><br>
 <font color="DarkGreen">Guide us to the straight path,</font><br>
 <font color="DarkBlue">Keep us on the right path.</font>
 </p>
 
 <p>
-1:7 Translations<br>
+<b>1:7 Translations</b><br>
 <font color="DarkGreen">The path of those whom You have favored,<br>
 Not of those who have incurred Your wrath,<br>
 Nor of those who have gone astray.</font><br>
@@ -53,30 +53,30 @@ Nor of those who have gone astray.</font><br>
 
 <br>
 <p>
-New Mantras or Names of God<br>
+<b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Alif lām mīm</font>
 </p>
 
 <p>
-2:2 Translations<br>
+<b>2:2 Translations</b><br>
 <font color="DarkGreen">This Book is not to be doubted. It is a guide for the righteous,</font><br>
 <font color="DarkBlue">This Book, there is no doubt in it, is a guide to those who guard (against evil).</font>
 </p>
 
 <p>
-2:3 Translations<br>
+<b>2:3 Translations</b><br>
 <font color="DarkGreen">who have faith in the unseen are steadfast in prayer; who bestow in charity a part of what We have given them;</font><br>
 <font color="DarkBlue">Those who believe in the unseen and keep up prayer and spend out what We have given them.</font>
 </p>
 
 <p>
-2:4 Translations<br>
+<b>2:4 Translations</b><br>
 <font color="DarkGreen">who trust what has been revealed to you [Muḥammad] and to others before you, and firmly belief in the life to come.</font><br>
 <font color="DarkBlue">And who believe in that which has been revealed to you and that which was revealed before you and they are sure of the hereafter.</font>
 </p>
 
 <p>
-2:136 Translations<br>
+<b>2:136 Translations</b><br>
 <font color="DarkGreen">Say: 'We believe in God and that which is revealed to us; in what was revealed to Abraham, Ishmael, Isaac, Jacob, and the tribes; to Moses and Jesus and the other prophets by their Lord. We make no distinction among any of them, and to Gd we have surrendered ourselves.'</font><br>
 <font color="DarkBlue">Say: We believe in Allah and (in) that which had been revealed to us, an (in) that which was revealed to Ibrahim and Ismail and Ishaq and Yaqoub and the tribes, and (in) that which was given to Musa and Isa, and (in) that which was given to the prophets from their Lord, we do not make any distinction between any of them, and to Him do we submit.</font>
 </p>
@@ -91,7 +91,7 @@ New Mantras or Names of God<br>
 
 <br>
 <p>
-New Mantras or Names of God<br>
+<b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">There is no God but Him, Living, Ever-existent One</font>
 <font color="DarkBlue">no god but He, Everliving, Self-subsisting</font>
 </p>
@@ -106,14 +106,14 @@ New Mantras or Names of God<br>
 
 <br>
 <p>
-36:65 Translations<br>
+<b>36:65 Translations</b><br>
 <font color="DarkGreen">On that day We shall seal their mouths. Their hands will speak to Us, and their very feet will testify to their misdeeds.</font><br>
 <font color="DarkBlue">On that day We will set a seal upon their mouths, and their hands shall speak to Us, and their feet shall bear witness of what they earned.</font>
 </p>
 
 <br>
 <p>
-36 Quotes<br>
+<b>36 Quotes</b><br>
 <font color="DarkRed">Like there's one boy who has fished out lots of things from Qur'ān, [he] is German, from Qur'ān, what it has to say for Sahaj.<br>
 And they said, "Thes ... there is a Sūrah called Saishta [Śhāsti] Yoga, Saishta [Śhāsti] Yoga" [Sūrah 36: Yāʾ-Sīn], and that Sūrah is dealing with Me. Because eve... will be ... it is said that: "We are going to send, and the Sent, the One who is sent, will not be acceptable to you. You will deny, you will defy." Everything is described. Even, that's, "Your hands will speak," at the Time  of your Resurrection, all that in that Sūrah is given. It's very interesting, that Sūrah is.</font><br>
 <b>1990-0314 Śhrī Mahālakṣhmī Pūjā, Auckland, New Zealand</b><br>
