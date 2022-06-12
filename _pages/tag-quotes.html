@@ -15,7 +15,7 @@ title: Quotes Tag
 {% for tag in rawtags %}
   {% unless tag == "" or tags contains tag %}
     {% unless tags contains tag %}
-      {% assign tags = tags | append: tag | append: '|' %}[<64;121;53M]
+      {% assign tags = tags | append: tag | append: '|' %}
     {% endunless %}
   {% endunless %}
 {% endfor %}
