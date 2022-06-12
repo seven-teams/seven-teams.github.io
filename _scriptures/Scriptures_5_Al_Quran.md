@@ -9,7 +9,7 @@ tags:
 ---
 
 <br>
-<font color="DarkRed"><b>Śhrī Mātājī's sayings on Al Qur'ān</b></font><br>
+<font color="DarkRed"><b>Śhrī Mātājī's words on Al Qur'ān</b></font><br>
 
 <font color="DarkGreen"><b>N. J. Dawood translation of The Koran published by Penguin Classics in 1956, fifth revised edition dated 1990</b></font><br>
 
