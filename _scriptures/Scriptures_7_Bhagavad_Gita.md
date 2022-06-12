@@ -25,7 +25,7 @@ tags:
 
 <br>
 <p>
-1.1 Translations<br>
+<b>1.1 Translations</b><br>
 <font color="Peru"></font><br>
 <font color="blue"></font><br>
 <font color="DarkGreen"></font>
@@ -33,12 +33,12 @@ tags:
 
 <br>
 <p>
-1.1 Quotes<br>
+<b>1.1 Quotes</b><br>
 </p>
 
 <br>
 <p>
-1.1 Comments<br>
+<b>1.1 Comments</b><br>
 </p>
 
 ......<br>
@@ -52,14 +52,14 @@ tags:
 
 <br>
 <p>
-2.23 IAST<br>
+<b>2.23 IAST</b><br>
 nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ<br>
 na chainaṃ kledayanty āpo, na śhoṣhayati mārutaḥ
 </p>
 
 <br>
 <p>
-2.23 Translations<br>
+<b>2.23 Translations</b><br>
 <font color="Peru">Him weapons cut not, Him fire burns not, and Him water wets not; Him wind dries not.</font><br>
 <font color="blue">Him cleave not weapons; him burns not fire; neither do the waters drench him, nor does the wind desiccate him.</font><br>
 <font color="DarkGreen">Weapons cannot hurt the Spirit and fire can never burn him. Untouched is he by drenching waters, untouched is be by parching winds.</font>
@@ -67,7 +67,7 @@ na chainaṃ kledayanty āpo, na śhoṣhayati mārutaḥ
 
 <br>
 <p>
-2.23 Quotes<br>
+<b>2.23 Quotes</b><br>
 <font color="DarkRed">The Complete Form of Viṣhṇu came to human beings six thousand year[s] back as Śhrī Kṛiṣhṇa. That is at this chakra known as Viśhuddhi chakra.<br>
 Śhrī Kṛiṣhṇa is the Complete Form. Where ... why do we say the Complete? Because for Him the whole Play, the whole Līlā, was to be just seen. This whole creation was nothing but just a play created.<br>
 He had reached that stage, and He talked of it. He said, "Nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ": "You cannot be killed by any instrument, or by anything."<br>
@@ -95,14 +95,14 @@ But when it comes to Sahaja Yoga, your attitude should be different. If you are 
 
 <br>
 <p>
-2.47 IAST<br>
+<b>2.47 IAST</b><br>
 karmaṇy-evādhikāras te mā phaleṣhu kadāchana<br>
 mā karma-phala-hetur bhūr mā te saṅgo 'stvakarmaṇi
 </p>
 
 <br>
 <p>
-2.47 Translations<br>
+<b>2.47 Translations</b><br>
 <font color="Peru">Thy concern is with action alone, never with results. Let not the fruit of action be thy motive, nor let thy attachment be for inaction.</font><br>
 <font color="blue">Thou hast a (rightful) title to action, but only to action: never at all to its fruitions. Let not the fruits of actions be thy (inspiring-) motive. Nor let thy attachment be to inaction.</font><br>
 <font color="DarkGreen">Set thy heart upon thy work, but never on its reward. Work not for a reward; but never cease to do thy work.</font>
@@ -110,7 +110,7 @@ mā karma-phala-hetur bhūr mā te saṅgo 'stvakarmaṇi
 
 <br>
 <p>
-2.47 Quotes<br>
+<b>2.47 Quotes</b><br>
 <font color="DarkRed">So many people I have met who tell Me that, "Mātājī, I only perform my karmas and the fruit I leave at the Lotus Feet of God." You will find these kind of self-satisfied people a lot.<br>
 It is not possible. This is diplomacy.<br>
 What is the essence of diplomacy? Let Me tell you the essence of diplomacy which is that, 'Put the absurd condition in front.' A person will fall trap into his own web.<br>
@@ -140,7 +140,7 @@ This is the style of Śhrī Kṛiṣhṇa: is to put people in two minds, so the
 
 <br>
 <p>
-2.55 IAST<br>
+<b>2.55 IAST</b><br>
 Śhrī Bhagavān uvācha<br>
 prajahāti yadā kāmān sarvān pārtha mano-gatān<br>
 ātmany evātmanā tuṣhṭaḥ sthita-prajñas tadochyate
@@ -148,7 +148,7 @@ prajahāti yadā kāmān sarvān pārtha mano-gatān<br>
 
 <br>
 <p>
-2.55 Translations<br>
+<b>2.55 Translations</b><br>
 <font color="Peru">When a man, satisfied in the Self alone by himself, completely casts off all the desires of the mind, then is he said to be one of steady knowledge.</font><br>
 <font color="blue">The Exalted one Spake "When he, O Son of Pṛthā, renounces all desires lodged in the heart, and is by himself, content within himself, then is he called a man perfectly-poised Discernment.</font><br>
 <font color="DarkGreen">When a man surrenders all desires that come to the heart and by the grace of God finds the joy of God, then his soul has indeed found peace.</font>
@@ -156,7 +156,7 @@ prajahāti yadā kāmān sarvān pārtha mano-gatān<br>
 
 <br>
 <p>
-2.55 Quotes<br>
+<b>2.55 Quotes</b><br>
 <font color="DarkRed">So at this time, what is your first job is to try to be more exposed to Me, so that automatically you'll go into your sattvaguṇa. This is the best!<br>
 But if I am not there, and when you are alone, or when you are with other Sahaja Yogis, you must now compete in rising higher and higher: from tamoguṇa to rajoguṇa, and from rajoguṇa to sattvaguṇa.<br>
 But, actually, by Realization you have gone beyond these three guṇas. You have gone beyond it. Actually that is what has happened to you.<br>
@@ -172,14 +172,14 @@ There's nobody, Mātājī is not concerned, nobody is concerned. It is you [that
 
 <br>
 <p>
-2.62 IAST<br>
+<b>2.62 IAST</b><br>
 dhyāyato viṣhayān puṃsaḥ saṅgas teṣhūpajāyate<br>
 saṅgāt sañjāyate kāmaḥ kāmāt krodho 'bhijāyate
 </p>
 
 <br>
 <p>
-2.62 Translations<br>
+<b>2.62 Translations</b><br>
 <font color="Peru">When a man thinks of objects, attachment for them arises. From attachment arises desire; from desire arises wrath.</font><br>
 <font color="blue">In a person constantly thinking about objects of sense there is born a attachment for them: from attachment springs passion; from (thwarted) passion arises wrath;</font><br>
 <font color="DarkGreen">When a man dwells on the pleasures of sense, attraction for them arises in him. From attraction arises desires, the lust of possession, and this leads to passion, to anger.</font>
@@ -187,7 +187,7 @@ saṅgāt sañjāyate kāmaḥ kāmāt krodho 'bhijāyate
 
 <br>
 <p>
-2.62 Quotes<br>
+<b>2.62 Quotes</b><br>
 <font color="DarkRed">Second thing, I think in the whole of Gītā, if you read it, there's one very important thing, it says: "Krodahād 'bhijāyate saṃmohah." You see, among all the worst things that we have -- according to Him we have six uh-uh enemies. But in Gītā He started with krodha. He said, "Starts with krodh[a]," with anger.</font><br>
 <b>1991-0901 Śhrī Kṛiṣhṇa Pūjā, Īśhwara of Yoga (Master of the Play, Master of All the Arts of This Yoga, Master of Yoga, Master of Masters) and Subtler and Subtler Yuktis of Sahaja Yoga (In Yoga Everything that You Do Should Be just a Play, Mādhurya, Complete Humility When You Talk to Another Person, Equanimity, No Temper, Master the Temper of Others, Transfer Your Jobs to a More Capable Person, One Should Not Try to Do Impossible Tasks in Sahaja Yoga, Expert of Drama), Tent, Cabella Ligure, Alessandria, Italy</b><br>
 ......
@@ -195,14 +195,14 @@ saṅgāt sañjāyate kāmaḥ kāmāt krodho 'bhijāyate
 
 <br>
 <p>
-2.63 IAST<br>
+<b>2.63 IAST</b><br>
 krodhād bhavati sammohaḥ sammohāt smṛiti-vibhramaḥ<br>
 smṛiti-bhranśhād buddhi-nāśho buddhi-nāśhāt praṇaśhyati
 </p>
 
 <br>
 <p>
-2.63 Translations<br>
+<b>2.63 Translations</b><br>
 <font color="Peru">From wrath arises delusion; from delusion, failure of memory; from failure of memory, loss of conscience; from loss of conscience he is utterly ruined.</font><br>
 <font color="blue">From wrath issues bewilderment; from bewilderment, confusion in accumulated knowledge (smṛti); from failure of accumulated knowledge, crash of discernment: with discernment crashed, he perishes outright.</font><br>
 <font color="DarkGreen">From passion comes confusion of mind, then loss of remembrance, the forgetting of duty. From this loss comes the ruin of reason, and the ruin of reason leads man to destruction.</font>
@@ -224,14 +224,14 @@ smṛiti-bhranśhād buddhi-nāśho buddhi-nāśhāt praṇaśhyati
 
 <br>
 <p>
-4.7 IAST<br>
+<b>4.7 IAST</b><br>
 yadā yadā hi dharmasya glānirbhavati Bhārata<br>
 abhyutthānam adharmasya tadātmānam sṛjāmyaham
 </p>
 
 <br>
 <p>
-4.7 Translations<br>
+<b>4.7 Translations</b><br>
 <font color="Peru">Whenever there is a decay of religion, O Bharata, and an ascendency of irreligion, then I manifest Myself.</font><br>
 <font color="blue">For, whomsoever there ensues a languishing of Dharma (righteousness), O Descendent of Bharata, and upheaval of Adharma (unrighteousness), then do I create myself.</font><br>
 <font color="DarkGreen">When righteousness is weak and faints and unrighteousness exults in pride, then my Spirit arises on earth.</font>
@@ -239,7 +239,7 @@ abhyutthānam adharmasya tadātmānam sṛjāmyaham
 
 <br>
 <p>
-4.7 Quotess<br>
+<b>4.7 Quotes</b><br>
 <font color="DarkRed">This is true that how much powerful you are but still they are so negative that you cannot fight with them.<br>
 So I would say again if you have gone to these gurus, leave them easily. If you do it you are going to be benefited.<br>
 Sometimes when I see the varieties of these false gurus I am sad, I am shocked and so angry that if destructive powers are used they would be easily finished, but what to do after destruction?<br>
@@ -250,14 +250,14 @@ All the condition is because of Kali Yuga: "Yadā yadā hi dharmasya glānirbhav
 
 <br>
 <p>
-4.8 IAST<br>
+<b>4.8 IAST</b><br>
 paritrāṇāya sādhūnāṃ vināśhāya cha duṣhkṛutām<br>
 dharma-saṃsthāpanārthāya saṃbhavāmi yuge yuge
 </p>
 
 <br>
 <p>
-4.8 Translations<br>
+<b>4.8 Translations</b><br>
 <font color="Peru">For the protection of the good, for the destruction of evil-doers, for the firm establishment of religion, I am born in every age.</font><br>
 <font color="blue">For shielding the good and destroying the evil-doers, as well as for setting the Dharma firmly afoot, I incarnate myself age after age.</font><br>
 <font color="DarkGreen">For the salvation of those who are good, for the destruction of evil in men, for the fulfilment of the kingdom of righteousness, I come to this world in the ages that pass.</font>
@@ -265,7 +265,7 @@ dharma-saṃsthāpanārthāya saṃbhavāmi yuge yuge
 
 <br>
 <p>
-4.8 Quotes<br>
+<b>4.8 Quotes</b><br>
 <font color="DarkRed">This is the only way in Kali Yuga that works out. I can't understand any other way. If you think that, There should be some old methods to use,' then it is not possible.<br>
 There is only one reason which I have told you before and I am telling you again, that there are no complete Saints or Sādhus in this world. In each Sādhu they have sent one, one rākṣhasa. They must [have] gone into your attention. Have you understood?<br>
 If it is some Sādhu then it's all right. "Paritrāṇāya sādhūnāṃ vināśhāya cha duṣhkṛutām."<br> 
@@ -287,14 +287,14 @@ But if with the Sādhu there is the devil sitting inside then he will have to be
 
 <br>
 <p>
-5.5 IAST<br>
+<b>5.5 IAST</b><br>
 yat sāńkhyaiḥ prāpyate sthānaṃ tad yogair api gamyate<br>
 ekaṃ sāńkhyaṃ ca yogaḿ ca yaḥ paśhyati sa paśhyati
 </p>
 
 <br>
 <p>
-5.5 Translations<br>
+<b>5.5 Translations</b><br>
 <font color="Peru">That state which is reached by Sankhyas is rached by Yogins also. He sees, who sees Sankhya and Yoga as one.</font><br>
 <font color="blue">Whatever goal by the Sāṁkhya (adepts) is attained, that is reached even by the Yoga (adepts). Who so sees the Sāṁkhya and the Yoga as one, he (truly) sees.</font><br>
 <font color="DarkGreen">Because the victory won by the man of wisdom is also won by the man of good work. That man sees indeed the truth who sees that vision and creation are one.</font>
@@ -302,7 +302,7 @@ ekaṃ sāńkhyaṃ ca yogaḿ ca yaḥ paśhyati sa paśhyati
 
 <br>
 <p>
-5.5 Quotes<br>
+<b>5.5 Quotes</b><br>
 <font color="DarkRed">It is being said in the Scriptures, in all the Scriptures, whether Indian, Islamic or Biblical, that, 'To be there, you have to be born-again.'<br>
 In Gītā, Śhrī Kṛiṣhṇa says: "Those he .. who ... who see, can see. Those who cannot see, cannot see." "Yata [yaḥ] paśhyati, sa paśhyati." "The one who cannot see, cannot see." Is a simple thing.<br>
 But to a normal human being, he can't understand, that, 'I can see everything. Why can't I see? I see the colors, I see the room, I see everything.'<br>
@@ -341,7 +341,7 @@ Now how ... why [it] is said, "That those who can see, can see, and those who ca
 
 <br>
 <p>
-9.22 IAST<br>
+<b>9.22 IAST</b><br>
 ananyāśh chintayanto māṁ ye janāḥ paryupāsate<br>
 teṣhāṁ nityābhiyuktānāṁ yogakṣhemaṁ vahāmyaham
 m
@@ -349,7 +349,7 @@ m
 
 <br>
 <p>
-9.22 Translations<br>
+<b>9.22 Translations</b><br>
 <font color="Peru">Those men who, meditating on Me as non-separate, worship Me all around, -- to them who are ever devout, I secure gain and safety.</font><br>
 <font color="blue">Those people who, thinking on Me with singleness of purpose, offer service unto Me, and who are constantly putting forth effort (in that service); for their sake I take upon myself (the burthen of all) earning, and saving.</font><br>
 <font color="DarkGreen">But to those who adore me with pure oneness of soul, to those who are ever in harmony, I increase what they have and I give them what they have not.</font>
@@ -357,7 +357,7 @@ m
 
 <br>
 <p>
-9.22 Quotes<br>
+<b>9.22 Quotes</b><br>
 <font color="DarkRed">We sometimes ask for worldly things, power, money: you are still entangled in little things.<br>
 The Supreme Self that I am talking of is all seeing. "Yogakṣhemaṁ vahāmyaham": Yoga and kṣhema are looked after by Him.<br> See now, there is nothing superior to Him in this world. What in this world can stand in comparison to the Lord‽ The entire world is functioning because of this Superior Entity.</font><br>
 <b>1976-0205 Śhrī Viṣhnu Havan (Hindi) (Vasant Pañchamī), Upakār Buddhi (Sense of Gratitude), New Delhi, India</b><br>
@@ -376,14 +376,14 @@ So, for bhakti He said like this.</font><br>
 
 <br>
 <p>
-9.26 IAST<br>
+<b>9.26 IAST</b><br>
 patraṃ puṣhpaṃ phalaṃ toyaṃ yo me bhaktyā prayacchati<br>
 tad ahaṃ bhakty-upahṛtam aśhnāmi prayatātmanaḥ
 </p>
 
 <br>
 <p>
-9.26 Translations<br>
+<b>9.26 Translations</b><br>
 <font color="Peru">When one offers to Me with devotion a leaf, a flower, a fruit, water, -- that I eat, offered with devotion by the pure-minded.</font><br>
 <font color="blue">A leaf, a flower, a fruit, (even) water, whoso offers unto Me in devotion: that same, proffered in devotion by one whose soul is pure, I accept.</font><br>
 <font color="DarkGreen">He who offers to me with devotion only a leaf, or a flower, or a fruit, or even a little water, this I accept from that yearning soul, because with a pure heart it was offered with love.</font>
@@ -391,7 +391,7 @@ tad ahaṃ bhakty-upahṛtam aśhnāmi prayatātmanaḥ
 
 <br>
 <p>
-9.26 Quotes<br>
+<b>9.26 Quotes</b><br>
 <font color="blue"></font><br>
 <b></b>
 </p>
@@ -462,14 +462,14 @@ Chapter 15<br>
 
 <br>
 <p>
-18.66 IAST<br>
+<b>18.66 IAST</b><br>
 sarva-dharmān parityajya Mām ekaṃ śharaṇaṃ vraja<br>
 ahaṃ tvāṃ sarva-pāpebhyo mokṣhayiṣhyāmi mā śhuchaḥ
 </p>
 
 <br>
 <p>
-18.66 Translations<br>
+<b>18.66 Translations</b><br>
 <font color="Peru">Abandoning all righteous deeds, seek me as thy sole Refuge; I will liberate thee from all sins; do thou not grieve.</font><br>
 <font color="blue">Relinquish all (so-called) 'duties', and unto Me alone as shelter, betake thyself: I shall release thee from all 'sins' whatsoever.</font><br>
 <font color="DarkGreen">Leave all things behind, and come to me for thy salvation. I will make thee free from the bondage of sins. Fear no more.</font>
@@ -477,7 +477,7 @@ ahaṃ tvāṃ sarva-pāpebhyo mokṣhayiṣhyāmi mā śhuchaḥ
 
 <br>
 <p>
-18.66 Quotes<br>
+<b>18.66 Quotes</b><br>
 <font color="DarkRed">Today I am openly telling you. As long as you do not accept Me, this work will not be done. This thing I did not say earlier.<br>
 Like Śhrī Kṛiṣhṇa said, "Sarva dharmān paritajya Mām ekam śharaṇam vraja," the same is My saying.<br>
 As Christ had said, "I am the Light, I am the Path," same is My statement, "I am the Destination, not only the Path."<br>
