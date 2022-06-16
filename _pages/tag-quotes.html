@@ -4,34 +4,39 @@ permalink: /tag-quotes/
 title: Quotes Tag
 ---
 
-{% assign rawtags = "" %}
+{% assign rawTags = "" %}
 {% for post in site.quotes %}
   {% assign posttags = post.tags | join: '|' %}
-  {% assign rawtags = rawtags | append: posttags | append: '|' %}
+  {% assign rawTags = rawTags | append: posttags | append: '|' %}
 {% endfor %}
-{% assign rawtags = rawtags | split: '|' | sort %}
+{% assign rawTags = rawTags | split: '|' %}
 
 {% assign tags = "" %}
-{% for tag in rawtags %}
+{% for tag in rawTags %}
   {% unless tag == "" or tags contains tag %}
-    {% unless tags contains tag %}
-      {% assign tags = tags | append: tag | append: '|' %}
-    {% endunless %}
+    {% assign tags = tags | append: tag | append: '|' %}
   {% endunless %}
 {% endfor %}
-{% assign tags = tags | split: '|' %}
+{% assign tags = tags | split: '|' | sort %}
 
-{% assign rawtags = nil %}
+{% assign rawTags = nil %}
 
 <div class="posts">
   <p>
+    {% assign curColor = "" %}
     {% for tag in tags %}
+      {% assign color = tag | getColor}
+      {% unless curColor == color and curColor == "" %}
+        <br />
+      {% endunless %}
+      {% assign curColor = color %}
+
       <a href="#{{ tag | slugify }}" class="codinfox-tag-mark">{% colorize tag %}</a> &nbsp;&nbsp;
     {% endfor %}
   </p>
 
   {% for tag in tags %}
-    <h2 id="{{ tag | slugify }}">{% colorize tag %}</h2>
+    <h2 id="{{ tag | slugify }}">{{ tag | colorize }}</h2>
     <ul class="codinfox-category-list">
       {% for post in site.quotes %}
         {% if post.tags contains tag %}
