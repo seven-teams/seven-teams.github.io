@@ -29,9 +29,9 @@ title: Quotes Tag
       {% unless prevColor == color and prevColor == "" %}
         <br />
       {% endunless %}
-      {% assign prevColor = color %}
       <p>{{color}} | {{prevColor}} | {{tag}}</p>
 
+      {% assign prevColor = color %}
       <a href="#{{ tag | slugify }}" class="codinfox-tag-mark">{{tag | colorize}}</a> &nbsp;&nbsp;
     {% endfor %}
   </p>
