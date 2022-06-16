@@ -1,11 +1,9 @@
-name: Build and Deploy to Github Pages
+name: Build and Deploy
 
 on:
   push:
     branches:
       - master
-permissions: 
-  contents: write
 
 jobs:
   build_and_deploy:
@@ -25,5 +23,6 @@ jobs:
       - name: Deploy to Github Pages
         uses: JamesIves/github-pages-deploy-action@v4
         with:
+          token: ${{ secrets.GITHUB_TOKEN }}
           branch: pages
           folder: _site
