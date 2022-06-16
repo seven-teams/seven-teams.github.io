@@ -4,7 +4,7 @@ date: 2022-06-12
 permalink: /quotes/2022/0612
 tags:
   - red @ Vasiu
-  - red @ SUNY
+  - red @ abcdefg
   - blue @ Sean
   - blue @ Matthias
   - green @ Xiao
