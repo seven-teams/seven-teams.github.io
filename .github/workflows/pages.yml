@@ -18,5 +18,5 @@ jobs:
             ${{ runner.os }}-gems-
       - uses: helaili/jekyll-action@2.0.5 
         with:
-          build_only: true
+          token: ${{ secrets.GITHUB_TOKEN }}
           target_branch: pages
