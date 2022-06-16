@@ -31,7 +31,7 @@ title: Quotes Tag
       {% endunless %}
       {% assign curColor = color %}
 
-      <a href="#{{ tag | slugify }}" class="codinfox-tag-mark">{tag | colorize}</a> &nbsp;&nbsp;
+      <a href="#{{ tag | slugify }}" class="codinfox-tag-mark">{{tag | colorize}}</a> &nbsp;&nbsp;
     {% endfor %}
   </p>
 
