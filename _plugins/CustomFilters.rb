@@ -11,13 +11,12 @@ end
   
 
 module CustomFilters
-    def colorize(input)
-      return colorizeCore(input)[1]
-    end
+  def colorize(input)
+    return colorizeCore(input)[1]
+  end
 
-    def getColor(input)
-      return colorizeCore(input)[0]
-    end
+  def getColor(input)
+    return colorizeCore(input)[0]
   end
 end
 
