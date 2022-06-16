@@ -25,7 +25,7 @@ title: Quotes Tag
   <p>
     {% assign curColor = "" %}
     {% for tag in tags %}
-      {% assign color = tag | getColor}
+      {% assign color = tag | getColor %}
       {% unless curColor == color and curColor == "" %}
         <br />
       {% endunless %}
