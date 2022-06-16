@@ -26,12 +26,12 @@ title: Quotes Tag
 <div class="posts">
   <p>
     {% for tag in tags %}
-      <a href="#{{ tag | slugify }}" class="codinfox-tag-mark">{{ tag }}</a> &nbsp;&nbsp;
+      <a href="#{{ tag | slugify }}" class="codinfox-tag-mark">{% colorize tag %}</a> &nbsp;&nbsp;
     {% endfor %}
   </p>
 
   {% for tag in tags %}
-    <h2 id="{{ tag | slugify }}">{{ tag }}</h2>
+    <h2 id="{{ tag | slugify }}">{% colorize tag %}</h2>
     <ul class="codinfox-category-list">
       {% for post in site.quotes %}
         {% if post.tags contains tag %}
