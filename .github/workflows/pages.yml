@@ -9,15 +9,19 @@ jobs:
   build_and_deploy:
     runs-on: ubuntu-latest
     steps:
-      - uses: actions/checkout@v3
-      - uses: actions/cache@v2
+      - name: Checkout Repository
+        uses: actions/checkout@v3
+      - name: Fetch Cache
+        uses: actions/cache@v2
         with:
           path: vendor/bundle
           key: ${{ runner.os }}-gems-${{ hashFiles('**/Gemfile.lock') }}
           restore-keys: |
             ${{ runner.os }}-gems-
-      - uses: jeffreytse/jekyll-deploy-action@v0.3.1
+      - name: Build Jekyll
+        uses: jerryjvl/jekyll-build-action@v1
+      - name: Deploy to Github Pages
+        uses: JamesIves/github-pages-deploy-action@v4
         with:
-          provider: 'github'
-          token: ${{ secrets.GITHUB_TOKEN }}
-          branch: 'pages'
+          branch: pages
+          folder: _site
