@@ -26,7 +26,7 @@ title: Quotes Tag
     {% assign prevColor = "" %}
     {% for tag in tags %}
       {% assign color = tag | getColor %}
-      {% unless prevColor == color and prevColor == "" %}
+      {% unless prevColor == color or prevColor == "" %}
         <br />
       {% endunless %}
       <p>{{color}} | {{prevColor}} | {{tag}}</p>
