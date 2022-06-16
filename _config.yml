@@ -211,40 +211,6 @@ collections:
   divine:
     output: true
     permalink: /:collection/:path/
-ollections:
-  teaching:
-    output: false
-    permalink: /:collection/:path/
-  publications:
-    output: false
-    permalink: /:collection/:path/
-  portfolio:
-    output: false
-    permalink: /:collection/:path/
-  talks:
-    output: false
-    permalink: /:collection/:path/
-  festivity:
-    output: false
-    permalink: /:collection/:path/
-  compilation:
-    output: false
-    permalink: /:collection/:path/
-  quotes:
-    output: true
-    permalink: /:collection/:path/
-  scriptures:
-    output: false
-    permalink: /:collection/:path/
-  chronology:
-    output: false
-    permalink: /:collection/:path/
-  yearly:
-    output: false
-    permalink: /:collection/:path/
-  divine:
-    output: false
-    permalink: /:collection/:path/
     
 # Defaults
 defaults:

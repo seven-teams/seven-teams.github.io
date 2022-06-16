@@ -23,13 +23,14 @@ title: Quotes Tag
 
 <div class="posts">
   <p>
-    {% assign curColor = "" %}
+    {% assign prevColor = "" %}
     {% for tag in tags %}
       {% assign color = tag | getColor %}
-      {% unless curColor == color and curColor == "" %}
+      {% unless prevColor == color and prevColor == "" %}
         <br />
       {% endunless %}
-      {% assign curColor = color %}
+      {% assign prevColor = color %}
+      <p>{{color}} | {{prevColor}} | {{tag}}</p>
 
       <a href="#{{ tag | slugify }}" class="codinfox-tag-mark">{{tag | colorize}}</a> &nbsp;&nbsp;
     {% endfor %}
