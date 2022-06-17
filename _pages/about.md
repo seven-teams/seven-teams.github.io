@@ -45,7 +45,7 @@ H. H. Śhrī Mātājī withdrew from this world on February 23, 2011.
 1. **<font color="blue">Sahaja Yoga Festivity Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one Festival (among all those we celebrated in the divine presence of Śhrī Mātājī) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.<br>
 E-mail: <b>festivityteam@gmail.com</b>
 
-2. **<font color="blue">Comprehensive Compilations Team.</font>** Scholarly researched database for all general purposes that is protocol-oriented, that emphasizes quality, accuracy, completeness, uniformity, comparisons, and that Scholarly researched database for all general purposes that is protocol-oriented, that emphasizes quality, accuracy, completeness, uniformity, comparisons, and that appreciates, credits, and complements all prior or ongoing works.<br>
+2. **<font color="blue">Comprehensive Compilations Team.</font>** Scholarly researched database for all general purposes that is protocol-oriented, that emphasizes quality, accuracy, completeness, uniformity, comparisons, and that appreciates, credits, and complements all prior or ongoing works.<br>
 All quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 Originally thought of as a four-members team, it operates via subteams and it receives help from volunteers.<br>
