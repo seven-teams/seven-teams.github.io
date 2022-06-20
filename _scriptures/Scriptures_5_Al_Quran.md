@@ -132,10 +132,105 @@ Nor of those who have gone astray.</font><br>
 <br>
 <p>
 <b>3 Quotes</b><br>
-<font color="DarkRed">In one of the Sūrahs of Holy Qur'ān it is written, ``The only religion with Allah is Islam" [3:19], and, ``There is no other religion to be accepted" [3:85].<br>
+<font color="DarkRed">In one of the Sūrahs of Holy Qur'ān it is written, "The only religion with Allah is Islam" [3:19], and, "There is no other religion to be accepted" [3:85].<br>
 Allah is one of the names of Lord Almighty, and it means that for Him Islam is necessary.<br>
 What is islam? It is surrender and from the same root comes the word salam or peace [in Arabic].</font><br>
 <b>1900-0000 Two Quotes from the book Divine Knowledge through Vibrations (1992) by P.T. Rajasekharan and R. Venkatesan, Page 72</b><br>
+</p>
+
+<div class="para-divider"></div>
+
+<p style="text-align:center;">
+<b>Sūrah 7</b><br>
+<font color="DarkGreen"><b>The Heighlights (Al-Aʿrāf)</b></font><br>
+<font color="DarkBlue"><b>The Elevated Places</b></font>
+</p>
+
+<br>
+<p>
+<b>New Mantras or Names of God</b><br>
+<font color="DarkGreen">Alif lām mīm ṣād</font>
+</p>
+
+<div class="para-divider"></div>
+
+<p style="text-align:center;">
+<b>Sūrah 10</b><br>
+<font color="DarkGreen"><b>Jonah (Yūnis)</b></font><br>
+<font color="DarkBlue"><b>Yunus</b></font>
+</p>
+
+<br>
+<p>
+<b>New Mantras or Names of God</b><br>
+<font color="DarkGreen">Alif lām rāʾ</font>
+</p>
+
+<div class="para-divider"></div>
+
+<p style="text-align:center;">
+<b>Sūrah 13</b><br>
+<font color="DarkGreen"><b>Thunder (Al-raʿd)</b></font><br>
+<font color="DarkBlue"><b>The thunder</b></font>
+</p>
+
+<br>
+<p>
+<b>New Mantras or Names of God</b><br>
+<font color="DarkGreen">Alif lām mīm rāʾ</font>
+</p>
+
+<div class="para-divider"></div>
+
+<p style="text-align:center;">
+<b>Sūrah 19</b><br>
+<font color="DarkGreen"><b>Mary (Maryam)</b></font><br>
+<font color="DarkBlue"><b>Marium</b></font>
+</p>
+
+<br>
+<p>
+<b>New Mantras or Names of God</b><br>
+<font color="DarkGreen">Kaf hāʾ yāʾ ain ṣād</font>
+</p>
+
+<div class="para-divider"></div>
+
+<p style="text-align:center;">
+<b>Sūrah 20</b><br>
+<font color="DarkGreen"><b>Ṭāʾ Hāʾ</b></font>
+</p>
+
+<br>
+<p>
+<b>New Mantras or Names of God</b><br>
+<font color="DarkGreen">Ṭāʾ hāʾ</font>
+</p>
+
+<div class="para-divider"></div>
+
+<p style="text-align:center;">
+<b>Sūrah 26</b><br>
+<font color="DarkGreen"><b>The Poets (Al-Shuʿarāʾ)</b></font>
+</p>
+
+<br>
+<p>
+<b>New Mantras or Names of God</b><br>
+<font color="DarkGreen">Ṭāʾ sīn mīm</font>
+</p>
+
+<div class="para-divider"></div>
+
+<p style="text-align:center;">
+<b>Sūrah 27</b><br>
+<font color="DarkGreen"><b>The Ant (Al-Naml)</b></font>
+</p>
+
+<br>
+<p>
+<b>New Mantras or Names of God</b><br>
+<font color="DarkGreen">Ṭāʾ sīn</font>
 </p>
 
 <div class="para-divider"></div>
@@ -185,6 +280,61 @@ Also in Qur'ān it is said: that, "At the Time of your Resurrection, your hands 
 <font color="DarkRed">In Qur'ān, there's a Sūrah [36] called Ee uh-uh-uh ... Yāʾsīn, meaning ... they say that Yoga Sajadā [Prayer] is the name of that one, in which Muhammad Sāhab has clearly described: "At the Time of Resurrection, your hands will speak."<br>
 Now, if Muhammad Sāhab was the last Man [see 33:40], why did He talk of Resurrection? Why did He talk of the future? Why did He say, "Your hands will speak"?</font><br>
 <b>1990-0603 Public Program, Day 1, Miami, FL, U.S.A.</b><br>
+</p>
+
+<div class="para-divider"></div>
+
+<p style="text-align:center;">
+<b>Sūrah 38</b><br>
+<font color="DarkGreen"><b>Ṣād</b></font><br>
+<font color="DarkBlue"><b>Suad</b></font>
+</p>
+
+<br>
+<p>
+<b>New Mantras or Names of God</b><br>
+<font color="DarkGreen">Ṣād</font>
+</p>
+
+<div class="para-divider"></div>
+
+<p style="text-align:center;">
+<b>Sūrah 40</b><br>
+<font color="DarkGreen"><b>The Forgiving One (Ghāfir) or The Believer (Al-Muʾmin)</b></font>
+</p>
+
+<br>
+<p>
+<b>New Mantras or Names of God</b><br>
+<font color="DarkGreen">Ḥāʾ mīm</font>
+</p>
+
+<div class="para-divider"></div>
+
+<p style="text-align:center;">
+<b>Sūrah 42</b><br>
+<font color="DarkGreen"><b>Counsel (Al-Shūra)</b></font><br>
+<font color="DarkBlue"><b>The Counsel</b></font>
+</p>
+
+<br>
+<p>
+<b>New Mantras or Names of God</b><br>
+<font color="DarkGreen">Ḥāʾ mīm: ʿain sīn qāf</font>
+</p>
+
+div class="para-divider"></div>
+
+<p style="text-align:center;">
+<b>Sūrah 50</b><br>
+<font color="DarkGreen"><b>Qāf</b></font><br>
+<font color="DarkBlue"><b>Qaf</b></font>
+</p>
+
+<br>
+<p>
+<b>New Mantras or Names of God</b><br>
+<font color="DarkGreen">Qāf</font>
 </p>
 
 <div class="para-divider"></div>
