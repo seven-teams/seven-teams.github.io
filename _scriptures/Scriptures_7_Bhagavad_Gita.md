@@ -21,9 +21,9 @@ tags:
 <p>
 <b>Quotes</b><br>
 <font color="DarkRed">The-ee ... great writer who is living now in England, his name is Doctor Mascaró, you might have heard his name, he has written lots of treatises about uh-uh Gītā, and Upaniṣhada[s], also Dhammapad, and also Bible. He is a master. And he is a master of Sanskrit language.<br>
-I went to see him, and he gave Me a flower, such a beautiful couplet from Gītā, and he said that, ``Mother, give us light. Give them all light so that they can see. Please give them." I said, ``I'm doing that!"<br> 
+I went to see him, and he gave Me a flower, such a beautiful couplet from Gītā, and he said that, "Mother, give us light. Give them all light so that they can see. Please give them." I said, "I'm doing that!"<br> 
 I'm doing that, but, somehow, people do not know what to expect within themselves.<br> 
-I'm doing that, but somehow people do not know what to expect within themselves. </font><br>
+I'm doing that, but somehow people do not know what to expect within themselves.</font><br>
 <b>1980-1010 Public Program (2nd Day of Navarātri), Zürich, Switzerland</b>
 </p>
 
