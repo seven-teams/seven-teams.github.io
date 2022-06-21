@@ -23,10 +23,10 @@ title: Quotes Tag
 
 <div class="posts">
   <p>
-    {% assign lineColor = "" %}
+    {% assign lineColor = tags | first | getColor %}
     {% for tag in tags %}
       {% assign curColor = tag | getColor %}
-      {% unless lineColor == curColor or lineColor == "" %}
+      {% unless lineColor == curColor %}
         <br />
         <br />
         {% assign lineColor = curColor %}

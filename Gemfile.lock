@@ -86,9 +86,9 @@ DEPENDENCIES
   hawkins
   jekyll
   jekyll-feed
-  jekyll-gist
-  jekyll-paginate
-  jekyll-redirect-from
+  jekyll-gist (~> 1.5)
+  jekyll-paginate (~> 1.1)
+  jekyll-redirect-from (~> 0.16.0)
   jekyll-sitemap
   kramdown-parser-gfm (~> 1.1)
   webrick (~> 1.7)
