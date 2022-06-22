@@ -95,7 +95,7 @@ So you have to worship and it’s the best way to please your own Kuṇḍalinī
 <b>As these Three Powers meet, they form One Power, that is Śhrī Ādi Śhakti.<br>  
 That is why in Sahasrāra Śhrī Ādi Śhakti resides, but it is said so, that in Sahasrāra Ādi Śhakti exists in a form of Mahāmāyā -- Śhrī Ādi Śhakti exists, but She is in the form of Mahāmāyā.</b><br>
 That is why the result of all these Three Powers was like this, that Śhrī Ādi Śhakti comes into this world in the form of Mahāmāyā (Mahāmāyā Swarūp), and She can penetrate the Sahasrāra of everyone.<br>
-As you know, She is in front of you and you know all about it, so I need not tell anything more. "</font><br>
+As you know, She is in front of you and you know all about it, so I need not tell anything more."</font><br>
 <font size="+0"><b>1986-0106 Śhrī Mahālakṣhmī Pūjā (English+Marathi+English), Ascent Is the Main Attention, Sangli, Maharashtra, India</b></font>
 </p>
 
@@ -108,7 +108,7 @@ Hay Nirguna Mā, Nishpapa Mā<br>
 Sara Brahmand. Hai Jisme Racha Nirmal kī Jay<br>
 Mahālakṣhmī, Mahāsaraswatī, Mahākālī kī Jay</b><br>
 <font size="+0"><b>Bolo Ādi Śhakti</b></font><br>
-<a href="https://youtu.be/2EDVlAAUdBg">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <div style="text-align: center"><img src="/images/image986.png" /></div>
@@ -123,7 +123,7 @@ but for granting them, the Kingdom of Heaven, the Joy, the Bliss, that your Fath
 <font size="+0"><b>1979-1202 Guru Pūjā, The Declaration, Living Room, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font><br>
 <br>
 <font color="DarkGreen"><b>Ādi Śhakti Mātājī tere Charano meaya hu mein</b></font><br>
-Ādi Śhakti Mātājī I have come to Your Lotus Feet<br>
+<i>Ādi Śhakti Mātājī I have come to Your Lotus Feet</i><br>
 <a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&list=PLC8554007A2C98EA0&index=16&ab_channel=VIOLONISTUL">video</a>
 </p>
 
