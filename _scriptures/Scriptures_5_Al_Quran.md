@@ -3,9 +3,10 @@ title: 'Post 5: Al Qurʾān'
 date: 2022-06-04
 permalink: /scriptures/2022/0604
 tags:
-  - Prophet Muhammad
-  - Quran
-  - Islam
+  - crimson @ Shri Muhammad
+  - green @ Shri Adi Guru
+  - orange @ Quran
+  - peru @ Islam
 ---
 
 <br>

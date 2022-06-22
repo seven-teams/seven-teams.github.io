@@ -3,9 +3,10 @@ title: 'Post 7: BHAGAVAD GĪTĀ'
 date: 2022-06-12
 permalink: /scriptures/2022/0612
 tags:
-  - Shri Krishna
-  - Bhagavad Gita
-  - Hinduism
+  - crimson @ Shri Krishna
+  - green @ Shri Vishnu
+  - orange @ Bhagavad Gita
+  - peru @ Hinduism
 ---
 
 <br>

@@ -3,11 +3,10 @@ title: 'Post 1: Quotes from Shri Lao Tze and Shri Confucius'
 date: 2014-12-16
 permalink: /scriptures/2014/12/16
 tags:
-  - Scriptures
-  - Shri Lao Tze
-  - Shri Confucius
-  - Shri Adi Guru
-  - Chinese
+  - crimson @ Shri Lao Tze
+  - crimson @ Shri Confucius
+  - green @ Shri Adi Guru
+  - peru @ Chinese
 ---
 
 Dear Brothers and Sisters,  

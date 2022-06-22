@@ -3,8 +3,9 @@ title: 'Post 3: Simon Peter in the Four Gospels of the New Testament'
 date: 2015-03-31
 permalink: /scriptures/2015/03/31
 tags:
-  - Scriptures
-  - New Testament
+  - orange @ Bible (New Testament)
+  - peru @ Christianity
+  - purple @ Simon Peter
 ---
 
 Jai Shri Mataji  
