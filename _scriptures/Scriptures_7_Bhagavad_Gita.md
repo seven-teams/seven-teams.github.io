@@ -18,6 +18,8 @@ tags:
 
 <font color="DarkGreen"><b>Juan Mascaró's translation of Bhagavad Gītā published by Penguin Classics in 1962</b></font><br>
 
+<div class="para-divider"></div>
+
 <br>
 <p>
 <b>Quotes</b><br>
@@ -27,6 +29,8 @@ I'm doing that, but, somehow, people do not know what to expect within themselve
 I'm doing that, but somehow people do not know what to expect within themselves.</font><br>
 <b>1980-1010 Public Program (2nd Day of Navarātri), Zürich, Switzerland</b>
 </p>
+
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 1</b><br>
