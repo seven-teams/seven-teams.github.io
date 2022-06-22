@@ -56,7 +56,7 @@ If you see your own desires, come out of what? Not out of the Divine Love but ou
 
 <div style="text-align: center"><img src="/images/image724.png" /></div>
 
-<p style=" text-align:center;">
+<p style="text-align:center;">
 <font color="DarkRed"><b>Somebody asked Me, “Is it necessary to have this Pūjā.” I think if there is any Pūjā you should do, it is this one -- is Ādi Śhakti.<br>
 It is very important that this Pūjā must be performed,</b><br>
 because that is how you grow, this reflection improves and you grow more and more within yourself,<br>
@@ -82,7 +82,7 @@ So you have to worship and it’s the best way to please your own Kuṇḍalinī
 
 <div style="text-align: center"><img src="/images/image725.png" /></div>
 
-<p style=" text-align:center;">
+<p style="text-align:center;">
 <font color="DarkRed">"And at this place meet the three chakras, and that is why Śhrī Mahākālī, Śhrī Mahālakṣhmī and Śhrī Mahāsaraswatī, all these three Powers meet.<br>
 <b>As these three Powers meet, they form one Power, that is Śhrī Ādi Śhakti.<br>
 That is why in Sahasrāra Śhrī Ādi Śhakti resides, but it is said so, that in Sahasrāra Ādi Śhakti exists in a form of Mahāmāyā – Śhrī Ādi Śhakti exists, but She is in the form of Mahāmāyā.</b><br>
@@ -96,8 +96,8 @@ Mahālakṣhmī, Mahāsaraswatī, Mahākālī kī Jay<br>
 Mā Bhakti Priya, Mā Nishkama<br>
 Hay Nirguna Ma, Nishpapa Mā<br>
 Sara Brahmand. Hai Jisme Racha Nirmal kī Jay<br>
-Mahālakṣhmī, Mahāsaraswatī, Mahākālī kī Jay<br>
-<font size="+0"><b>Bolo Ādi Śhakti</b></font></font><br>
+Mahālakṣhmī, Mahāsaraswatī, Mahākālī kī Jay</font><br>
+<font color="DarkGreen"><font size="+0"><b>Bolo Ādi Śhakti</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
