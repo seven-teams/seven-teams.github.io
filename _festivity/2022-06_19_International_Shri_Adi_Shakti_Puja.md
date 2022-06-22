@@ -3,7 +3,7 @@ title: '2022 Celebrating the Worship of Śhrī Ādi Śhakti: "I declare that I a
 date: 2022-06-19
 permalink: /festivity/2022/06/19
 tags:
-  - New Year
+  - Shri Adi Shakti Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
@@ -111,6 +111,7 @@ Mahālakṣhmī, Mahāsaraswatī, Mahākālī kī Jay</b><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
+<br>
 <div style="text-align: center"><img src="/images/image986.png" /></div>
 
 <p style="text-align:center;">
@@ -143,7 +144,7 @@ but for granting them, the Kingdom of Heaven, the Joy, the Bliss, that your Fath
 <br>
 <p>
 <font color="green"><b>Tujhya Pūjāni </b></font><br>
-<a href="">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <br>
@@ -204,6 +205,7 @@ Your power of Kuṇḍalinī brings freedom that is divine. It is the only true 
 <font color="red"><b>Bolo Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī kī Jay!</b></font>
 </p>
 
+<br>
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>
 On behalf of the festivity team!</font>
