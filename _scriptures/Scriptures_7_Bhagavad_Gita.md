@@ -20,7 +20,6 @@ tags:
 
 <div class="para-divider"></div>
 
-<br>
 <p>
 <b>Quotes</b><br>
 <font color="DarkRed">The-ee ... great writer who is living now in England, his name is Doctor Mascaró, you might have heard his name, he has written lots of treatises about uh-uh Gītā, and Upaniṣhada[s], also Dhammapad, and also Bible. He is a master. And he is a master of Sanskrit language.<br>
