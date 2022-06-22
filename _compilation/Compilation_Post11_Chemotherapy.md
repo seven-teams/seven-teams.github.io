@@ -4,7 +4,7 @@ date: 2016-08-01
 permalink: /compilation/2016/0801
 tags:
   - treatment
-  - chemoterapy
+  - chemotherapy
   - medical
 ---
 Jai Shri Mataji
