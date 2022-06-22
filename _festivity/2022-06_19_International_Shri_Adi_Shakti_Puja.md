@@ -45,21 +45,25 @@ If you do not love something you will not desire it. So, these mundane types of 
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Dene Zeri Amuchya Shiri,</b></font><br>
-You have given us so much<br>
+<i>You have given us so much</i><br>
 <font color="DarkGreen"><b>Pari Agnya Jana Tu Par Kari,</b></font><br>
-even to those who don't have any knowledge,<br>
+<i>even to those who don't have any knowledge,</i><br>
 <font color="DarkGreen"><b>Deshi Jag. Tu Sahaj. Yoga,</b></font><br>
-You give Sahaja Yoga to the whole universe<br>
+<i>You give Sahaja Yoga to the whole universe</i><br>
 <font color="DarkGreen"><b>Jan Kotama,</b></font><br>
-Verily You are the highest Father of Mankind<br>
+<i>Verily You are the highest Father of Mankind</i><br>
 <font color="DarkGreen"><b>He Ādi Mā, He Anti Mā</b></font><br>
-O Primordial Mother, O Eternal Mother<br>
+<i>O Primordial Mother, O Eternal Mother</i><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <br>
 <p>
-<font color="DarkRed">"<b>Love is the Message of Ādi Śhakti.</b> Now you think about it. One Ādi Śhakti created the whole world. How she must have done it. What she must have planned. How she must have organized. It is not a[n] easy thing. Only because she loved. Love is the expression that you are all there. That is why to be one with Her one should learn to love. Of course in that you have to know that you should forgive. If you don’t know how to forgive and find mistakes of other people you won’t help. What is your now job is, is to see that you are loving, no hatred for anyone, you don’t think of hating anyone and hitting somebody. This has to work out."</font><br>
+<font color="DarkRed">"<b>Love is the Message of Ādi Śhakti.<br>
+Now you think about it. One Ādi Śhakti created the whole world.</b> How she must have done it. What she must have planned. How she must have organized. It is not a[n] easy thing. Only because she loved.<br>
+Love is the expression that you are all there. That is why to be one with Her one should learn to love.<br> 
+Of course in that you have to know that you should forgive. If you don’t know how to forgive and find mistakes of other people you won’t help. What is your now job is, is to see that you are loving, no hatred for anyone, you don’t think of hating anyone and hitting somebody.<br>
+This has to work out."</font><br>
 <font size="+0"><b>2007-0624 Śhrī Ādi Śhakti Pūjā, You Have to Become Fragrant, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -77,11 +81,11 @@ So you have to worship and it’s the best way to please your own Kuṇḍalinī
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Vin.ti Suniye Ādi Śhakti Meri</b></font><br>
-<b>O Ādi Śhakti, please listen to my request</b></font><br>
+<b>O Ādi Śhakti, please listen to my request</b><br>
 <font color="DarkGreen"><b>Pujan. ka adhikar. dijiye</b></font><br>
-<b>Please give me the authority to do Your Pūjā</b></font><br>
+<b>Please give me the authority to do Your Pūjā</b><br>
 <font color="DarkGreen"><b>Sharanagat. hai hṛiday. pujari</b></font><br>
-<b>Your worshipper is surrendered to You from the heart.</b></font><br>
+<b>Your worshipper is surrendered to You from the heart.</b><br>
 <a href="https://youtu.be/hMK6gaaQ1hU">video</a>
 </p>
 
