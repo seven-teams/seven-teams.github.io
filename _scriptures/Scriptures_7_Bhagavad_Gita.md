@@ -34,7 +34,7 @@ I'm doing that, but somehow people do not know what to expect within themselves.
 <p style="text-align:center;">
 <b>Chapter 1</b><br>
 <font color="blue"><b>Arjuna Viśhāda Yoga</b></font><br>
-<font color="Peru"><b>Chapter 1: The Despondency of Arjuna</b></font>
+<font color="Peru"><b>The Despondency of Arjuna</b></font>
 </p>
 
 <br>
