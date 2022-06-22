@@ -23,3 +23,5 @@ The Comprehensive Compilations Team
 <iframe src="/pdf/#/https://drive.google.com/uc?id=1TpN7ahmgC9152hybdo5TcJasgE_1PGZk&export=download&confirm=t" width="1000px" height="1000px"></iframe>
 
 [Instantly download the pdf here](https://drive.google.com/uc?id=1TpN7ahmgC9152hybdo5TcJasgE_1PGZk&export=download&confirm=t)
+
+[Instantly download the pdf here](bit.ly/3bf9Tbr)
