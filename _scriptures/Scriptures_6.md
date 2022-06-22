@@ -3,7 +3,7 @@ title: 'Post 6: Up-date'
 date: 2022-06-05
 permalink: /scriptures/2022/0605
 tags:
-  - Scriptures
+  - blue @ Scriptures News
 ---
 
 <p>
