@@ -7,6 +7,7 @@ tags:
 ---
 
 <p>
+<br>
 Dear All,<br>
 <br>
 After quite a long interruption, we would like to restart the posts of the Scriptures Team.<br>
@@ -18,9 +19,7 @@ Posts could be individual or collective (worked out by subteams), the overall te
 The formats of the posts are flexible, and it includes all old formats and many new ones.<br>
 As a first such new format, we would like to start with the Al Qur'ān (Holy Qur'ān). Please have a look at the link
 <a href="https://seven-teams.github.io/scriptures/2022/0604">Post 5: Al Qur'ān</a> which currently is a '3 minutes read' and which in due time will be a 'several hours read'.<br>
-Looking forward to receiving your support, feedback, cooperation, and help.
+Looking forward to receiving your support, feedback, cooperation, and help.<br>
+<font color="red">Jay Śhrī Mātājī!</font><br>
+Scriptures Team<br>
 </p>
-
-<p style="color:red;">Jay Śhrī Mātājī!<br></p>
-
-Scriptures Team
