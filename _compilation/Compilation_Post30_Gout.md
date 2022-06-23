@@ -18,6 +18,6 @@ We would like to thank the Sahaja Yoginī who suggested this topic.<br>
 The Comprehensive Compilations Team<br>
 </p>
 
-[Instantly download the pdf here](https://bit.ly/3bf9Tbr)<br>
+[Instantly download the pdf here](https://bit.ly/3bf9Tbr)
 
 <iframe src="/pdf/#/files/Gout.pdf" width="1000px" height="1000px"></iframe>
