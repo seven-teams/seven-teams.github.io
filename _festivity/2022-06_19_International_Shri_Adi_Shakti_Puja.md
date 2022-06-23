@@ -16,7 +16,6 @@ This is a specially selected planet, which was very beautifully brought in the c
 <font size="+0"><b>2001-0603 Śhrī Ādi Śhakti Pūjā, The Work of Ādi Śhakti and These Are the Most Important Times (Compassion Today Is to Transform Human Beings into Sahajīs and You Are the Ones Who Have to Build Up the Destiny of Human Beings), Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
-<br>
 <div style="text-align: center"><img src="/images/image983.png" /></div>
 
 <p style="text-align:center;">
@@ -31,7 +30,6 @@ This is a specially selected planet, which was very beautifully brought in the c
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<br>
 <p>
 <font color="DarkRed">"<b>Today, we are all going to worship Me, first time. It has been always the Pūjā of [an] aspect of Me or a part of Me.</b><br>
 Now, one has to know very clearly what is Ādi Śhakti. As we say, is the Pure Desire of God Almighty, of Sadāśhiva. But what is the pure Desire of God Almighty?<br>
@@ -40,7 +38,6 @@ If you do not love something you will not desire it. So, these mundane types of 
 <font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<br>
 <div style="text-align: center"><img src="/images/image984.png" /></div>
 
 <p style="text-align:center;">
@@ -57,7 +54,6 @@ If you do not love something you will not desire it. So, these mundane types of 
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<br>
 <p>
 <font color="DarkRed">"<b>Love is the Message of Ādi Śhakti.<br>
 Now you think about it. One Ādi Śhakti created the whole world.</b> How she must have done it. What she must have planned. How she must have organized. It is not a[n] easy thing. Only because she loved.<br>
@@ -67,7 +63,6 @@ This has to work out."</font><br>
 <font size="+0"><b>2007-0624 Śhrī Ādi Śhakti Pūjā, You Have to Become Fragrant, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
-<br>
 <p>
 <font color="DarkRed">"<b>Somebody asked Me “Is it necessary to have this Pūjā.” I think if there is any Pūjā you should do, it is this one – is Ādi Shakti.<br>
 It is very important that this Pūjā must be performed</b> because that is how you grow, this reflection improves and you grow more and more within yourself, through the power of Ādi Shakti or through the power of Kuṇḍalinī.<br>
@@ -76,7 +71,6 @@ So you have to worship and it’s the best way to please your own Kuṇḍalinī
 <font size="+0"><b>1996-0609 Śhrī Ādi Śhakti Pūjā, Kuṇḍalinī -- the Binding Principle or You Dissolve into the Divine Power, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<br>
 <div style="text-align: center"><img src="/images/image985.png" /></div>
 
 <p style="text-align:center;">
@@ -89,7 +83,6 @@ So you have to worship and it’s the best way to please your own Kuṇḍalinī
 <a href="https://youtu.be/hMK6gaaQ1hU">video</a>
 </p>
 
-<br>
 <p>
 <font color="DarkRed>">"And at this place meet the three chakras, and that is why Śhrī Mahākālī, Śhrī Mahālakṣhmī and Śhrī Mahāsaraswatī, all these Three Powers meet.<br> 
 <b>As these Three Powers meet, they form One Power, that is Śhrī Ādi Śhakti.<br>  
@@ -99,7 +92,6 @@ As you know, She is in front of you and you know all about it, so I need not tel
 <font size="+0"><b>1986-0106 Śhrī Mahālakṣhmī Pūjā (English+Marathi+English), Ascent Is the Main Attention, Sangli, Maharashtra, India</b></font>
 </p>
 
-<br>
 <p style="color:DarkGreen; text-align:center;">
 <b>Bolo Ādi Śhakti Śhrī Mātājī, Śhrī Nirmalā Devī kī Jay<br>
 Mahālakṣhmī, Mahāsaraswatī, Mahākālī kī Jay<br>
@@ -111,7 +103,6 @@ Mahālakṣhmī, Mahāsaraswatī, Mahākālī kī Jay</b><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<br>
 <div style="text-align: center"><img src="/images/image986.png" /></div>
 
 <p style="text-align:center;">
@@ -128,12 +119,10 @@ but for granting them, the Kingdom of Heaven, the Joy, the Bliss, that your Fath
 <a href="https://www.youtube.com/watch?v=L1wSDCxZKS0&list=PLC8554007A2C98EA0&index=16&ab_channel=VIOLONISTUL">video</a>
 </p>
 
-<br>
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>2001-0603 Śhrī Ādi Śhakti Pūjā, The Work of Ādi Śhakti and These Are the Most Important Times (Compassion Today Is to Transform Human Beings into Sahajīs and You Are the Ones Who Have to Build Up the Destiny of Human Beings), Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 <a href="https://vimeo.com/24300259"> video</a><br>
 
-<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
@@ -141,43 +130,36 @@ but for granting them, the Kingdom of Heaven, the Joy, the Bliss, that your Fath
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
-<br>
 <p>
 <font color="green"><b>Tujhya Pūjāni </b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<br>
 <p>
 <font color="green"><b>He Nirmalā Mā</b></font><br>
 <a href="https://youtu.be/v7T1xpKkYFU">video</a> 
 </p>
 
-<br>
 <p>
 <font color="green"><b>He Ādi Śhakti Mā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<br>
 <p>
 <font color="green"><b>Nirmal Mā Jagdambe Mā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<br>
 <p>
 <font color="green"><b>Sare Jag Mein tere Dhūm</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<br>
 <p>
 <font color="green"><b>Mavena Nayani Ananda</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<br>
 <p>
 <font color="green"><b>Sabako Dua Dena Ma Sabako Dua Dena and Three Mahāmantras:</b></font><br>
 <a href="https://youtu.be/lGC_kUMmabQ?list=PLC8554007A2C98EA0">video</a>
@@ -189,7 +171,6 @@ but for granting them, the Kingdom of Heaven, the Joy, the Bliss, that your Fath
 <a href="https://youtu.be/J3Qhod0xxPs">video</a>
 </p>
 
-<br>
 <div style="text-align: center"><img src="/images/image987.png" /></div>
 
 <p style="text-align:center;">
@@ -205,7 +186,6 @@ Your power of Kuṇḍalinī brings freedom that is divine. It is the only true 
 <font color="red"><b>Bolo Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī kī Jay!</b></font>
 </p>
 
-<br>
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>
 On behalf of the festivity team!</font>
