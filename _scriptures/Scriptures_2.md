@@ -3,9 +3,10 @@ title: 'Post 2: Shri Mary Mahalakshmi in the New Testament'
 date: 2015-01-31
 permalink: /scriptures/2015/01/31
 tags:
-  - Scriptures
-  - Shri Mary Mahalakshmi
-  - New Testament
+  - crimson @ Shri Mary 
+  - green @ Shri Mahalakshmi
+  - orange @ Bible (New Testament)
+  - peru @ Christianity
 ---
 
 Jai Shri Mataji  

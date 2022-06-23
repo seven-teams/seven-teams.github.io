@@ -3,9 +3,10 @@ title: 'Post 7: BHAGAVAD GĪTĀ'
 date: 2022-06-12
 permalink: /scriptures/2022/0612
 tags:
-  - Shri Krishna
-  - Bhagavad Gita
-  - Hinduism
+  - crimson @ Shri Krishna
+  - green @ Shri Vishnu
+  - orange @ Bhagavad Gita
+  - peru @ Hinduism
 ---
 
 <br>
@@ -17,20 +18,22 @@ tags:
 
 <font color="DarkGreen"><b>Juan Mascaró's translation of Bhagavad Gītā published by Penguin Classics in 1962</b></font><br>
 
-<br>
+<div class="para-divider"></div>
+
 <p>
 <b>Quotes</b><br>
 <font color="DarkRed">The-ee ... great writer who is living now in England, his name is Doctor Mascaró, you might have heard his name, he has written lots of treatises about uh-uh Gītā, and Upaniṣhada[s], also Dhammapad, and also Bible. He is a master. And he is a master of Sanskrit language.<br>
-I went to see him, and he gave Me a flower, such a beautiful couplet from Gītā, and he said that, "Mother, give us light. Give them all light so that they can see. Please give them." I said, "I'm doing that!"<br> 
-I'm doing that, but, somehow, people do not know what to expect within themselves.<br> 
+I went to see him, and he gave Me a flower, such a beautiful couplet from Gītā, and he said that, "Mother, give us light. Give them all light so that they can see. Please give them." I said, "I'm doing that!"<br>
 I'm doing that, but somehow people do not know what to expect within themselves.</font><br>
 <b>1980-1010 Public Program (2nd Day of Navarātri), Zürich, Switzerland</b>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Chapter 1</b><br>
 <font color="blue"><b>Arjuna Viśhāda Yoga</b></font><br>
-<font color="Peru"><b>Chapter 1: The Despondency of Arjuna</b></font>
+<font color="Peru"><b>The Despondency of Arjuna</b></font>
 </p>
 
 <br>

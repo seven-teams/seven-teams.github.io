@@ -3,10 +3,10 @@ title: 'Post 4: Shri Abraham in the Old Testament'
 date: 2015-07-22
 permalink: /scriptures/2015/07/22
 tags:
-  - Scriptures
-  - Shri Abraham
-  - Shri Adi Guru
-  - Old Testament
+  - crimson @ Shri Abraham
+  - green @ Shri Adi Guru
+  - orange @ Bible (New Testament)
+  - peru @ Christianity
 ---
 
 Jai Shri Mataji  
