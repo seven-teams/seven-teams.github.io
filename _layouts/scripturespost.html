@@ -39,12 +39,13 @@ layout: default
         </header>
       {% endunless %}
       
-      {% if page.tags %} Tag:  
-      {% for tag in page.tags %}
-        <a href="{{ site.baseurl }}{{ site.tag_scriptures }}#{{ tag | slugify }}" class="post-tag">{{ tag }}</a>
-      {% endfor %}
+      {% if page.tags %}
+        Tags:
+        {% assign sortedtags = page.tags | sort %}
+        {% for tag in sortedtags %}
+          <a href="{{ site.baseurl }}{{ site.tag_quotes }}#{{ tag | slugify }}" class="post-tag">{{ tag | colorize }}</a>
+        {% endfor %}
       {% endif %}
-     
 
       <section class="page__content" itemprop="text">
         {{ content }}
