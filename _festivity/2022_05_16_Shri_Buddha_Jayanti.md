@@ -87,36 +87,25 @@ I surrender myself to Śhrī Ādi Śhakti Nirmalā Matajī<br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1989-0520 Śhrī Buddha Pūjā, Gautama, The Lord of the Ego, Open Air near El Farell Hotel, Barcelona, Spain</b></font>
-<a href="https://youtu.be/vM-qYgVY5Hg"> video</a><br>
+<a href="https://youtu.be/vM-qYgVY5Hg"> video</a>
 
 <font size="+2"><b>Bhajans:</b></font>
 
-<p>
 <font color="green"><b>Tum Asha Vishwas Hamare</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-</p>
 
-<p>
 <font color="green"><b>Sandhanya ya Janmi Nirvan</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-</p>
- 
-<p>
+
 <font color="green"><b>Buddha Deva Tujhi Dnyan Ganga</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-</p>
 
-<p>
 <font color="green"><b>Mā Hai Ek. Rup Anek</b> (1991-0804 Śhrī Buddha Pūjā, Belgium)</font><br>
 <a href="https://soundcloud.com/sahaja-yoga-music/maa-hai-ek-rup-anek-1991-0804">video</a> 
-</p>
 
-<p>
 <font color="green"><b>Nirgunache Bheti</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-</p>
 
-<p>
+
 <font size="+0">Jai Śhrī Mātājī!<br>
 On behalf of the festivity team!</font>
-</p>
