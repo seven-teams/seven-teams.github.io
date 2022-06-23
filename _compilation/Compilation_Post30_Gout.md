@@ -10,9 +10,11 @@ tags:
 
 <br>
 Jay Śhrī Mātājī!
+
 Please find below the pdf file of quotes on <font color="blue">gout</font> obtained by searching for all possible root combinations such as "<font color="red">gout</font>". If by chance extra such quotes, please kindly share them with all of us.
 Please kindly share the file with all our brothers and sisters. 
 We would like to thank the Sahaja Yoginī who suggested this topic.
+
 The Comprehensive Compilations Team
 
 <iframe src="/pdf/#/files/Gout.pdf" width="1000px" height="1000px"></iframe>
