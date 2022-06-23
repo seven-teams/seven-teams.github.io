@@ -4,58 +4,53 @@ permalink: /tag-festivity/
 title: Festivity Tag
 ---
 
-{% comment %}
-=======================
-The following part extracts all the tags from your posts and sort tags, so that you do not need to manually collect your tags to a place.
-=======================
-{% endcomment %}
-
-{% assign rawtags = "" %}
+{% assign rawTags = "" %}
 {% for post in site.festivity %}
-	{% assign ttags = post.tags | join:'|' | append:'|' %}
-	{% assign rawtags = rawtags | append:ttags %}
+  {% assign posttags = post.tags | join: '|' %}
+  {% assign rawTags = rawTags | append: posttags | append: '|' %}
 {% endfor %}
-{% assign rawtags = rawtags | split:'|' | sort %}
+{% assign rawTags = rawTags | split: '|' %}
 
-{% comment %}
-=======================
-The following part removes dulpicated tags and invalid tags like blank tag.
-=======================
-{% endcomment %}
 {% assign tags = "" %}
-{% for tag in rawtags %}
-	{% if tag != "" %}
-		{% if tags == "" %}
-			{% assign tags = tag | split:'|' %}
-		{% endif %}
-		{% unless tags contains tag %}
-			{% assign tags = tags | join:'|' | append:'|' | append:tag | split:'|' %}
-		{% endunless %}
-	{% endif %}
+{% for tag in rawTags %}
+  {% unless tag == "" or tags contains tag %}
+    {% assign tags = tags | append: tag | append: '|' %}
+  {% endunless %}
 {% endfor %}
+{% assign tags = tags | split: '|' | sort %}
+
+{% assign rawTags = nil %}
 
 <div class="posts">
-<p>
-{% for tag in tags %}
-<a href="#{{ tag | slugify }}" class="codinfox-tag-mark"> {{ tag }} </a> &nbsp;&nbsp;
-{% endfor %}
+  <p>
+    {% assign lineColor = tags | first | getColor %}
+    {% for tag in tags %}
+      {% assign curColor = tag | getColor %}
+      {% unless lineColor == curColor %}
+        <br />
+        <br />
+        {% assign lineColor = curColor %}
+      {% endunless %}
+    
+      <a href="#{{ tag | slugify }}" class="codinfox-tag-mark">{{tag | colorize}}</a> &nbsp;&nbsp;
+    {% endfor %}
+  </p>
 
-{% for tag in tags %}
-<h2 id="{{ tag | slugify }}">{{ tag }}</h2>
-<ul class="codinfox-category-list">
-  {% for post in site.festivity %}
-  {% if post.tags contains tag %}
-  <li>
-    <h3>
-      <a href="{{ post.url }}">
-        <small>{{ post.date | date_to_string }}</small>
-        {{ post.title }}
-      </a>
-    </h3>
-  </li>
-  {% endif %}
+  {% for tag in tags %}
+    <h2 id="{{ tag | slugify }}">{{ tag | colorize }}</h2>
+    <ul class="codinfox-category-list">
+      {% for post in site.festivity %}
+        {% if post.tags contains tag %}
+          <li>
+            <h3>
+              <a href="{{ post.url }}">
+                <small>{{ post.date | date_to_string }}</small>
+                {{ post.title }}
+              </a>
+            </h3>
+          </li>
+        {% endif %}
+      {% endfor %}
+    </ul>
   {% endfor %}
-</ul>
-{% endfor %}
-
 </div>
