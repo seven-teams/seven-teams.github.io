@@ -56,18 +56,15 @@ I'm doing that, but somehow people do not know what to expect within themselves.
 <font color="blue"><b>Sāṅkhya Yoga</b></font>
 </p>
 
-<p>
 <b>2.23 IAST</b><br>
 nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ<br>
 na chainaṃ kledayanty āpo, na śhoṣhayati mārutaḥ
-</p>
 
-<p>
+
 <b>2.23 Translations</b><br>
 <font color="Peru">Him weapons cut not, Him fire burns not, and Him water wets not; Him wind dries not.</font><br>
 <font color="blue">Him cleave not weapons; him burns not fire; neither do the waters drench him, nor does the wind desiccate him.</font><br>
 <font color="DarkGreen">Weapons cannot hurt the Spirit and fire can never burn him. Untouched is he by drenching waters, untouched is be by parching winds.</font>
-</p>
 
 <p>
 <b>2.23 Quotes</b><br>
