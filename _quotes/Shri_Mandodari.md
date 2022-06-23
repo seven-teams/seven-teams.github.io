@@ -3,8 +3,8 @@ title: 'Quotes on Śhrī Mandodarī'
 date: 2015-08-15
 permalink: /quotes/2015/0815
 tags:
-  - Shri Mandodari
-  - Shri Mahakali  
+  - crimson @ Shri Mandodari
+  - pink @ Shri Mahakali
 ---
 
 Please find attached the pdf file <font color="blue">Shri_Mandodari.pdf</font> obtained by searching for Śhrī <font color="red">Mandodarī</font> and for the demon <font color="red">Rāvaṇa</font>.   

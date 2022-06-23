@@ -3,8 +3,8 @@ title: 'Quotes on Śhrī Reṇukā Devī'
 date: 2015-04-17
 permalink: /quotes/2015/0417
 tags:
-  - Shri Renuka
-  - Shri Mahasaraswati
+  - crimson @ Shri Renuka
+  - pink @ Shri Mahasaraswati
 ---
 
 Please find attached the pdf file <font color="blue">Shri_Renuka_Devi.pdf</font> obtained by searching for Śhrī <font color="red">Reṇukā</font>.   

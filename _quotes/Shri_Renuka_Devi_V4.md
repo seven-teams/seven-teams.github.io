@@ -3,8 +3,8 @@ title: 'Quotes on Śhrī Reṇukā, Version 4'
 date: 2022-05-22
 permalink: /quotes/2022/0522
 tags:
-  - Shri Renuka
-  - Shri Mahasaraswati
+  - crimson @ Shri Renuka
+  - pink @ Shri Mahasaraswati
 ---
 
 Please find attached the pdf file <font color="blue">Shri_Renuka_Devi_V3.pdf</font> obtained by searching for Śhrī <font color="red">Reṇukā</font>. 

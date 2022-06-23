@@ -3,8 +3,8 @@ title: 'Quotes on Śhrī Vāmana Avatāra, Version 5'
 date: 2022-04-21
 permalink: /quotes/2022/0421
 tags:
-  - Shri Vamana
-  - Shri Vishnu
+  - crimson @ Shri Vamana
+  - pink @ Shri Vishnu
 ---
 
 Please find attached the pdf file <font color="blue">Shri_Vamana_Avatara_V5.pdf</font> obtained by searching for Shri <font color="red">Vāman, short man, small man</font>.   
