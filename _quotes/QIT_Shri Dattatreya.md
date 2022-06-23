@@ -1,5 +1,5 @@
 ---
-title: 'ŚHRĪ DATTĀTREYA'
+title: 'ŚHRĪ DATTĀTREYA in the Words of ŚHRĪ MĀTĀJĪ'
 date: 2022-06-23
 permalink: /quotes/2022/0623
 tags:
