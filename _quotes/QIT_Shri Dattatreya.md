@@ -1,7 +1,7 @@
 ---
 title: 'ŚHRĪ DATTĀTREYA'
-date: 2022-06-26
-permalink: /quotes/2022/0626
+date: 2022-06-23
+permalink: /quotes/2022/0623
 tags:
   - Shri Dattatreya
   - Shri Adi Guru
