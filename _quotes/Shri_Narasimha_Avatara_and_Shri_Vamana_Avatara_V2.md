@@ -5,7 +5,7 @@ permalink: /quotes/2015/0610
 tags:
   - crimson @ Shri Narasimha
   - crimson @ Shri Vamana
-  - pink @ Shri Vishnu
+  - hotpink @ Shri Vishnu
 ---
 
 Please find attached the pdf file <font color="blue">Shri_Narasimha_Avatara.pdf</font> obtained by searching for Śhrī <font color="red">Narasiṃh</font>.   

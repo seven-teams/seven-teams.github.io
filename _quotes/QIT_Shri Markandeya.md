@@ -4,7 +4,7 @@ date: 2022-06-10
 permalink: /quotes/2022/0610
 tags:
   - crimson @ Shri Markandeya
-  - pink @ Disciple Principle
+  - hotpink @ Disciple Principle
 ---
 
 <div class="para-divider"></div>

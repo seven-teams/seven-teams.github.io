@@ -4,7 +4,7 @@ date: 2022-06-03
 permalink: /quotes/2022/0603
 tags:
   - crimson @ Shri Parashurama
-  - pink @ Shri Vishnu
+  - hotpink @ Shri Vishnu
 ---
 
 <div class="para-divider"></div>

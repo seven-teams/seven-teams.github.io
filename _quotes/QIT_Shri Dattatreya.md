@@ -4,7 +4,7 @@ date: 2022-06-23
 permalink: /quotes/2022/0623
 tags:
   - crimson @ Shri Dattatreya
-  - pink @ Shri Adi Guru
+  - hotpink @ Shri Adi Guru
 ---
 
 <div class="para-divider"></div>
