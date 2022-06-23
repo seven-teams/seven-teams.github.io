@@ -8,10 +8,12 @@ tags:
   - orange @ Quran
   - peru @ Islam
 ---
-<br>
+
+<p>
 <font color="DarkRed"><b>Śhrī Mātājī's words on Al Qurʾān</b></font><br>
 <font color="DarkGreen"><b>N. J. Dawood's translation of The Koran published by Penguin Classics in 1956, fifth revised edition dated 1990</b></font><br>
 <font color="DarkBlue"><b>M. H. Shakir's translation of The Qur'an published by Tahrike Tarsile Qur'an, Inc., sixth U.S. edition 1990</b></font>
+</p>
 
 <div class="para-divider"></div>
 

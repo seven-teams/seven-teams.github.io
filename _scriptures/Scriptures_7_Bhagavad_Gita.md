@@ -8,11 +8,13 @@ tags:
   - orange @ Bhagavad Gita
   - peru @ Hinduism
 ---
-<br>
+
+<p>
 <font color="DarkRed"><b>Śhrī Mātājī's words on Bhagavad Gītā</b></font><br><br>
 <font color="Peru"><b>The Bhagavad Gītā with the commentary of Śhrī Ādi Śhaṅkarāchārya translated from the original Sanskrit by Alladi Mahadeva Sastry, 1992 Edition 1992 of Samata Books, Madras</b></font><br><br>
 <font color="blue"><b>Jnaneśhwarī of Śhrī Jñānadeva (Gyāneśhwara) translated from Marathi by Ramchandra Keshav Bhagwat, 1994 Edition 1992 of Samata Books, Madras</b></font><br><br>
 <font color="DarkGreen"><b>Juan Mascaró's translation of Bhagavad Gītā published by Penguin Classics in 1962</b></font>
+</p>
 
 <div class="para-divider"></div>
 
@@ -56,15 +58,18 @@ I'm doing that, but somehow people do not know what to expect within themselves.
 <font color="blue"><b>Sāṅkhya Yoga</b></font>
 </p>
 
+<p>
 <b>2.23 IAST</b><br>
 nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ<br>
 na chainaṃ kledayanty āpo, na śhoṣhayati mārutaḥ
+</p>
 
-
+<p>
 <b>2.23 Translations</b><br>
 <font color="Peru">Him weapons cut not, Him fire burns not, and Him water wets not; Him wind dries not.</font><br>
 <font color="blue">Him cleave not weapons; him burns not fire; neither do the waters drench him, nor does the wind desiccate him.</font><br>
 <font color="DarkGreen">Weapons cannot hurt the Spirit and fire can never burn him. Untouched is he by drenching waters, untouched is be by parching winds.</font>
+</p>
 
 <p>
 <b>2.23 Quotes</b><br>
