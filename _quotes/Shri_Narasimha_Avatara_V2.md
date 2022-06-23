@@ -3,8 +3,8 @@ title: 'Quotes on Śhrī Narasiṃha Avatāra, Version 2'
 date: 2022-05-15
 permalink: /quotes/2022/0515
 tags:
-  - Shri Narasimha
-  - Shri Vishnu
+  - crimson @ Shri Narasimha
+  - pink @ Shri Vishnu
 ---
 
 Please find attached the pdf file <font color="blue">Shri_Narasimha_Avatara_V2.pdf</font> obtained by searching for Śhrī <font color="red">Narasiṃh</font>.   

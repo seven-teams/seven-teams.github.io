@@ -3,8 +3,8 @@ title: 'ŚHRĪ MĀRKAṆḌEYA  in the Words of ŚHRĪ MĀTĀJĪ'
 date: 2022-06-10
 permalink: /quotes/2022/0610
 tags:
-  - Shri Markandeya
-  - Disciple Principle
+  - crimson @ Shri Markandeya
+  - pink @ Disciple Principle
 ---
 
 <div class="para-divider"></div>

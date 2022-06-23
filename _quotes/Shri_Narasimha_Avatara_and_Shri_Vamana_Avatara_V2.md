@@ -3,9 +3,9 @@ title: 'Quotes on Śhrī Narasiṃha Avatāra and a new version (2) of quotes on
 date: 2015-06-10
 permalink: /quotes/2015/0610
 tags:
-  - Shri Narasimha
-  - Shri Vamana
-  - Shri Vishnu
+  - crimson Shri Narasimha
+  - crimson @ Shri Vamana
+  - pink @ Shri Vishnu
 ---
 
 Please find attached the pdf file <font color="blue">Shri_Narasimha_Avatara.pdf</font> obtained by searching for Śhrī <font color="red">Narasiṃh</font>.   

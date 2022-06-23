@@ -3,8 +3,8 @@ title: 'Quotes on Śhrī Anasūyā, Version 2'
 date: 2022-05-21
 permalink: /quotes/2022/0521
 tags:
-  - Shri Anasuya
-  - Shri Mahasaraswati
+  - crimson @ Shri Anasuya
+  - pink @ Shri Mahasaraswati
 ---
 
 Please find attached the pdf file <font color="blue">Shri_Anasuya_V2.pdf</font> obtained by searching for Śhrī <font color="red">Anasūyā</font> or Śhrī <font color="red">Anusūyā</font>.   
