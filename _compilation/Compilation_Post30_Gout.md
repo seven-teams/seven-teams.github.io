@@ -17,6 +17,6 @@ We would like to thank the Sahaja Yoginī who suggested this topic.
 
 The Comprehensive Compilations Team
 
-<iframe src="/pdf/#/files/Gout.pdf" width="1000px" height="1000px"></iframe>
-
 [Instantly download the pdf here](https://bit.ly/3bf9Tbr)
+
+<iframe src="/pdf/#/files/Gout.pdf" width="1000px" height="1000px"></iframe>
