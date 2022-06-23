@@ -1,7 +1,7 @@
 ---
-title: 'Chronology of the Divine Message explicitly related to USA, Post 47: Period July 1982'
+title: 'Test'
 date: 2015-08-11
-permalink: /chronology/2015/0811
+permalink: /chronology/2015/0811-b
 tags:
   - USA
 ---
