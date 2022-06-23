@@ -20,6 +20,8 @@ The formats of the posts are flexible, and it includes all old formats and many 
 As a first such new format, we would like to start with the Al Qur'ān (Holy Qur'ān). Please have a look at the link
 <a href="https://seven-teams.github.io/scriptures/2022/0604">Post 5: Al Qur'ān</a> which currently is a '3 minutes read' and which in due time will be a 'several hours read'.<br>
 Looking forward to receiving your support, feedback, cooperation, and help.<br>
+<br>
 <font color="red">Jay Śhrī Mātājī!</font><br>
+<br>
 Scriptures Team<br>
 </p>
