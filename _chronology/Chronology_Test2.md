@@ -1,7 +1,7 @@
 ---
 title: 'Test 2'
 date: 2022-00-00-a
-permalink: /chronology/2022/0000a
+permalink: /chronology/2022/0000-a
 tags:
   - 
 ---
