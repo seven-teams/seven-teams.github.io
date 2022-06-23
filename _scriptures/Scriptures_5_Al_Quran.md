@@ -18,7 +18,6 @@ tags:
 
 <div class="para-divider"></div>
 
-<br>
 <p>
 <b>Quotes</b><br>
 <font color="DarkRed">So, it is all described iking uh-uhb uh Qur'ān. There's a complete Sūrah describing about the Sent One, means the Avatāra, means the Incarnation. And also said that, "You won't believe," "You won't accept," and all those things.  </font><br>
@@ -43,7 +42,6 @@ Also if you read, say, Buddha, Dhammapad, it says the same thing. Or, these Chri
 <font color="DarkBlue"><b>The Opening</b></font>
 </p>
 
-<br>
 <p>
 <b>Names of God</b><br>
 <font color="DarkGreen">Compassionate, Merciful, Lord of the Universe, Sovereign of the Day of Judgment, You alone</font><br>
@@ -71,7 +69,6 @@ Nor of those who have gone astray.</font><br>
 <font color="DarkGreen"><b>The Cow (Al-Baqarah)</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Alif lām mīm</font>
@@ -109,28 +106,24 @@ Nor of those who have gone astray.</font><br>
 <font color="DarkBlue"><b>The Family of Imran</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">There is no God but Him, Living, Ever-existent One</font><br>
 <font color="DarkBlue">no god but He, Everliving, Self-subsisting</font>
 </p>
 
-<br>
 <p>
 <b>3:19 Translations</b><br>
 <font color="DarkGreen">The only true faith in God's sight is Islām. Those to whom the Scriptures were given disagreed among themselves through jealousy only after knowledge had been given them. He that denies God's revelations should know that swift is God's reckoning.</font><br>
 <font color="DarkBlue">Surely the (true) religion with Allah is Islam, and those to whom the Book had been given did not show opposition but after knowledge had come to them, out of envy among themselves; and whoever disbelieves in the communications of Allah then surely Allah is quick in reckoning.</font>
 </p>
 
-<br>
 <p>
 <b>3:85 Translations</b><br>
 <font color="DarkGreen">He that chooses a religion other than Islām, it will not be accepted from him and in the world to come he will be one of the lost.</font><br>
 <font color="DarkBlue">And whoever desires a religion other than Islam, it shall not be accepted from him, and in the hereafter he shall be one of the losers.</font>
 </p>
 
-<br>
 <p>
 <b>3 Quotes</b><br>
 <font color="DarkRed">In one of the Sūrahs of Holy Qur'ān it is written, "The only religion with Allah is Islam" [3:19], and, "There is no other religion to be accepted" [3:85].<br>
@@ -147,7 +140,6 @@ What is islam? It is surrender and from the same root comes the word salam or pe
 <font color="DarkBlue"><b>The Elevated Places</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Alif lām mīm ṣād</font>
@@ -161,7 +153,6 @@ What is islam? It is surrender and from the same root comes the word salam or pe
 <font color="DarkBlue"><b>Yunus</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Alif lām rāʾ</font>
@@ -175,7 +166,6 @@ What is islam? It is surrender and from the same root comes the word salam or pe
 <font color="DarkBlue"><b>The thunder</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Alif lām mīm rāʾ</font>
@@ -189,7 +179,6 @@ What is islam? It is surrender and from the same root comes the word salam or pe
 <font color="DarkBlue"><b>Marium</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Kaf hāʾ yāʾ ain ṣād</font>
@@ -202,7 +191,6 @@ What is islam? It is surrender and from the same root comes the word salam or pe
 <font color="DarkGreen"><b>Ṭāʾ Hāʾ</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Ṭāʾ hāʾ</font>
@@ -215,7 +203,6 @@ What is islam? It is surrender and from the same root comes the word salam or pe
 <font color="DarkGreen"><b>The Poets (Al-Shuʿarāʾ)</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Ṭāʾ sīn mīm</font>
@@ -228,7 +215,6 @@ What is islam? It is surrender and from the same root comes the word salam or pe
 <font color="DarkGreen"><b>The Ant (Al-Naml)</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Ṭāʾ sīn</font>
@@ -242,7 +228,6 @@ What is islam? It is surrender and from the same root comes the word salam or pe
 <font color="DarkBlue"><b>The Allies</b></font>
 </p>
 
-<br>
 <p>
 <b>33:40 Translations</b><br>
 <font color="DarkGreen">Muhammad is the father of no man among you. [Footnote: Muhammad left no male heirs.] He is the Apostle of God and the Seal of the Prophets. God has knowledge of all things.</font><br>
@@ -257,14 +242,12 @@ What is islam? It is surrender and from the same root comes the word salam or pe
 <font color="DarkBlue"><b>Ya Seen</b></font>
 </p>
 
-<br>
 <p>
 <b>36:65 Translations</b><br>
 <font color="DarkGreen">On that day We shall seal their mouths. Their hands will speak to Us, and their very feet will testify to their misdeeds.</font><br>
 <font color="DarkBlue">On that day We will set a seal upon their mouths, and their hands shall speak to Us, and their feet shall bear witness of what they earned.</font>
 </p>
 
-<br>
 <p>
 <b>36 Quotes</b><br>
 <font color="DarkRed">Like there's one boy who has fished out lots of things from Qur'ān, [he] is German, from Qur'ān, what it has to say for Sahaj.<br>
@@ -291,7 +274,6 @@ Now, if Muhammad Sāhab was the last Man [see 33:40], why did He talk of Resurre
 <font color="DarkBlue"><b>Suad</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Ṣād</font>
@@ -304,7 +286,6 @@ Now, if Muhammad Sāhab was the last Man [see 33:40], why did He talk of Resurre
 <font color="DarkGreen"><b>The Forgiving One (Ghāfir) or The Believer (Al-Muʾmin)</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Ḥāʾ mīm</font>
@@ -318,7 +299,6 @@ Now, if Muhammad Sāhab was the last Man [see 33:40], why did He talk of Resurre
 <font color="DarkBlue"><b>The Counsel</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Ḥāʾ mīm: ʿain sīn qāf</font>
@@ -332,7 +312,6 @@ div class="para-divider"></div>
 <font color="DarkBlue"><b>Qaf</b></font>
 </p>
 
-<br>
 <p>
 <b>New Mantras or Names of God</b><br>
 <font color="DarkGreen">Qāf</font>
@@ -346,8 +325,6 @@ div class="para-divider"></div>
 <font color="DarkBlue"><b></b></font>
 </p>
 
-<br>
 <div class="para-divider"></div>
 
-<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>

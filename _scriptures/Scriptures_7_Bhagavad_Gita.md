@@ -9,14 +9,13 @@ tags:
   - peru @ Hinduism
 ---
 
-<br>
-<font color="DarkRed"><b>Śhrī Mātājī's words on Bhagavad Gītā</b></font><br>
+<font color="DarkRed"><b>Śhrī Mātājī's words on Bhagavad Gītā</b></font>
 
-<font color="Peru"><b>The Bhagavad Gītā with the commentary of Śhrī Ādi Śhaṅkarāchārya translated from the original Sanskrit by Alladi Mahadeva Sastry, 1992 Edition 1992 of Samata Books, Madras</b></font><br>
+<font color="Peru"><b>The Bhagavad Gītā with the commentary of Śhrī Ādi Śhaṅkarāchārya translated from the original Sanskrit by Alladi Mahadeva Sastry, 1992 Edition 1992 of Samata Books, Madras</b></font>
 
-<font color="blue"><b>Jnaneśhwarī of Śhrī Jñānadeva (Gyāneśhwara) translated from Marathi by Ramchandra Keshav Bhagwat, 1994 Edition 1992 of Samata Books, Madras</b></font><br>
+<font color="blue"><b>Jnaneśhwarī of Śhrī Jñānadeva (Gyāneśhwara) translated from Marathi by Ramchandra Keshav Bhagwat, 1994 Edition 1992 of Samata Books, Madras</b></font>
 
-<font color="DarkGreen"><b>Juan Mascaró's translation of Bhagavad Gītā published by Penguin Classics in 1962</b></font><br>
+<font color="DarkGreen"><b>Juan Mascaró's translation of Bhagavad Gītā published by Penguin Classics in 1962</b></font>
 
 <div class="para-divider"></div>
 
@@ -36,7 +35,6 @@ I'm doing that, but somehow people do not know what to expect within themselves.
 <font color="Peru"><b>The Despondency of Arjuna</b></font>
 </p>
 
-<br>
 <p>
 <b>1.1 Translations</b><br>
 <font color="Peru"></font><br>
@@ -44,33 +42,29 @@ I'm doing that, but somehow people do not know what to expect within themselves.
 <font color="DarkGreen"></font>
 </p>
 
-<br>
 <p>
 <b>1.1 Quotes</b><br>
 </p>
 
-<br>
 <p>
 <b>1.1 Comments</b><br>
 </p>
 
-......<br>
+......
 
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 2</b><br>
-<font color="blue"><b>Sāṅkhya Yoga</b></font><br>
+<font color="blue"><b>Sāṅkhya Yoga</b></font>
 </p>
 
-<br>
 <p>
 <b>2.23 IAST</b><br>
 nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ<br>
 na chainaṃ kledayanty āpo, na śhoṣhayati mārutaḥ
 </p>
 
-<br>
 <p>
 <b>2.23 Translations</b><br>
 <font color="Peru">Him weapons cut not, Him fire burns not, and Him water wets not; Him wind dries not.</font><br>
@@ -78,7 +72,6 @@ na chainaṃ kledayanty āpo, na śhoṣhayati mārutaḥ
 <font color="DarkGreen">Weapons cannot hurt the Spirit and fire can never burn him. Untouched is he by drenching waters, untouched is be by parching winds.</font>
 </p>
 
-<br>
 <p>
 <b>2.23 Quotes</b><br>
 <font color="DarkRed">The Complete Form of Viṣhṇu came to human beings six thousand year[s] back as Śhrī Kṛiṣhṇa. That is at this chakra known as Viśhuddhi chakra.<br>
@@ -106,14 +99,12 @@ But when it comes to Sahaja Yoga, your attitude should be different. If you are 
 ......
 </p>
 
-<br>
 <p>
 <b>2.47 IAST</b><br>
 karmaṇy-evādhikāras te mā phaleṣhu kadāchana<br>
 mā karma-phala-hetur bhūr mā te saṅgo 'stvakarmaṇi
 </p>
 
-<br>
 <p>
 <b>2.47 Translations</b><br>
 <font color="Peru">Thy concern is with action alone, never with results. Let not the fruit of action be thy motive, nor let thy attachment be for inaction.</font><br>
@@ -121,7 +112,6 @@ mā karma-phala-hetur bhūr mā te saṅgo 'stvakarmaṇi
 <font color="DarkGreen">Set thy heart upon thy work, but never on its reward. Work not for a reward; but never cease to do thy work.</font>
 </p>
 
-<br>
 <p>
 <b>2.47 Quotes</b><br>
 <font color="DarkRed">So many people I have met who tell Me that, "Mātājī, I only perform my karmas and the fruit I leave at the Lotus Feet of God." You will find these kind of self-satisfied people a lot.<br>
@@ -151,7 +141,6 @@ This is the style of Śhrī Kṛiṣhṇa: is to put people in two minds, so the
 <b>2001-0729 Śhrī Kṛiṣhṇa Pūjā, Ananya Bhakti, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</b>
 </p>
 
-<br>
 <p>
 <b>2.55 IAST</b><br>
 Śhrī Bhagavān uvācha<br>
@@ -159,7 +148,6 @@ prajahāti yadā kāmān sarvān pārtha mano-gatān<br>
 ātmany evātmanā tuṣhṭaḥ sthita-prajñas tadochyate
 </p>
 
-<br>
 <p>
 <b>2.55 Translations</b><br>
 <font color="Peru">When a man, satisfied in the Self alone by himself, completely casts off all the desires of the mind, then is he said to be one of steady knowledge.</font><br>
@@ -167,7 +155,6 @@ prajahāti yadā kāmān sarvān pārtha mano-gatān<br>
 <font color="DarkGreen">When a man surrenders all desires that come to the heart and by the grace of God finds the joy of God, then his soul has indeed found peace.</font>
 </p>
 
-<br>
 <p>
 <b>2.55 Quotes</b><br>
 <font color="DarkRed">So at this time, what is your first job is to try to be more exposed to Me, so that automatically you'll go into your sattvaguṇa. This is the best!<br>
@@ -183,14 +170,12 @@ There's nobody, Mātājī is not concerned, nobody is concerned. It is you [that
 ......
 </p>
 
-<br>
 <p>
 <b>2.62 IAST</b><br>
 dhyāyato viṣhayān puṃsaḥ saṅgas teṣhūpajāyate<br>
 saṅgāt sañjāyate kāmaḥ kāmāt krodho 'bhijāyate
 </p>
 
-<br>
 <p>
 <b>2.62 Translations</b><br>
 <font color="Peru">When a man thinks of objects, attachment for them arises. From attachment arises desire; from desire arises wrath.</font><br>
@@ -198,7 +183,6 @@ saṅgāt sañjāyate kāmaḥ kāmāt krodho 'bhijāyate
 <font color="DarkGreen">When a man dwells on the pleasures of sense, attraction for them arises in him. From attraction arises desires, the lust of possession, and this leads to passion, to anger.</font>
 </p>
 
-<br>
 <p>
 <b>2.62 Quotes</b><br>
 <font color="DarkRed">Second thing, I think in the whole of Gītā, if you read it, there's one very important thing, it says: "Krodahād 'bhijāyate saṃmohah." You see, among all the worst things that we have -- according to Him we have six uh-uh enemies. But in Gītā He started with krodha. He said, "Starts with krodh[a]," with anger.</font><br>
@@ -206,14 +190,12 @@ saṅgāt sañjāyate kāmaḥ kāmāt krodho 'bhijāyate
 ......
 </p>
 
-<br>
 <p>
 <b>2.63 IAST</b><br>
 krodhād bhavati sammohaḥ sammohāt smṛiti-vibhramaḥ<br>
 smṛiti-bhranśhād buddhi-nāśho buddhi-nāśhāt praṇaśhyati
 </p>
 
-<br>
 <p>
 <b>2.63 Translations</b><br>
 <font color="Peru">From wrath arises delusion; from delusion, failure of memory; from failure of memory, loss of conscience; from loss of conscience he is utterly ruined.</font><br>
@@ -235,14 +217,12 @@ smṛiti-bhranśhād buddhi-nāśho buddhi-nāśhāt praṇaśhyati
 <font color="blue"><b>Jñāna Karma Saṃnyāsa Yoga</b></font>
 </p>
 
-<br>
 <p>
 <b>4.7 IAST</b><br>
 yadā yadā hi dharmasya glānirbhavati Bhārata<br>
 abhyutthānam adharmasya tadātmānam sṛjāmyaham
 </p>
 
-<br>
 <p>
 <b>4.7 Translations</b><br>
 <font color="Peru">Whenever there is a decay of religion, O Bharata, and an ascendency of irreligion, then I manifest Myself.</font><br>
@@ -250,7 +230,6 @@ abhyutthānam adharmasya tadātmānam sṛjāmyaham
 <font color="DarkGreen">When righteousness is weak and faints and unrighteousness exults in pride, then my Spirit arises on earth.</font>
 </p>
 
-<br>
 <p>
 <b>4.7 Quotes</b><br>
 <font color="DarkRed">This is true that how much powerful you are but still they are so negative that you cannot fight with them.<br>
@@ -261,14 +240,12 @@ All the condition is because of Kali Yuga: "Yadā yadā hi dharmasya glānirbhav
 ......
 </p>
 
-<br>
 <p>
 <b>4.8 IAST</b><br>
 paritrāṇāya sādhūnāṃ vināśhāya cha duṣhkṛutām<br>
 dharma-saṃsthāpanārthāya saṃbhavāmi yuge yuge
 </p>
 
-<br>
 <p>
 <b>4.8 Translations</b><br>
 <font color="Peru">For the protection of the good, for the destruction of evil-doers, for the firm establishment of religion, I am born in every age.</font><br>
@@ -276,7 +253,6 @@ dharma-saṃsthāpanārthāya saṃbhavāmi yuge yuge
 <font color="DarkGreen">For the salvation of those who are good, for the destruction of evil in men, for the fulfilment of the kingdom of righteousness, I come to this world in the ages that pass.</font>
 </p>
 
-<br>
 <p>
 <b>4.8 Quotes</b><br>
 <font color="DarkRed">This is the only way in Kali Yuga that works out. I can't understand any other way. If you think that, There should be some old methods to use,' then it is not possible.<br>
@@ -298,14 +274,12 @@ But if with the Sādhu there is the devil sitting inside then he will have to be
 <font color="blue"><b>Karma Saṃnyāsa Yoga</b></font>
 </p>
 
-<br>
 <p>
 <b>5.5 IAST</b><br>
 yat sāńkhyaiḥ prāpyate sthānaṃ tad yogair api gamyate<br>
 ekaṃ sāńkhyaṃ ca yogaḿ ca yaḥ paśhyati sa paśhyati
 </p>
 
-<br>
 <p>
 <b>5.5 Translations</b><br>
 <font color="Peru">That state which is reached by Sankhyas is rached by Yogins also. He sees, who sees Sankhya and Yoga as one.</font><br>
@@ -313,7 +287,6 @@ ekaṃ sāńkhyaṃ ca yogaḿ ca yaḥ paśhyati sa paśhyati
 <font color="DarkGreen">Because the victory won by the man of wisdom is also won by the man of good work. That man sees indeed the truth who sees that vision and creation are one.</font>
 </p>
 
-<br>
 <p>
 <b>5.5 Quotes</b><br>
 <font color="DarkRed">It is being said in the Scriptures, in all the Scriptures, whether Indian, Islamic or Biblical, that, 'To be there, you have to be born-again.'<br>
@@ -352,7 +325,6 @@ Now how ... why [it] is said, "That those who can see, can see, and those who ca
 <font color="blue"><b>Rāja Vidyā Rāja Guhya Yoga</b></font>
 </p>
 
-<br>
 <p>
 <b>9.22 IAST</b><br>
 ananyāśh chintayanto māṁ ye janāḥ paryupāsate<br>
@@ -360,7 +332,6 @@ teṣhāṁ nityābhiyuktānāṁ yogakṣhemaṁ vahāmyaham
 m
 </p>
 
-<br>
 <p>
 <b>9.22 Translations</b><br>
 <font color="Peru">Those men who, meditating on Me as non-separate, worship Me all around, -- to them who are ever devout, I secure gain and safety.</font><br>
@@ -368,7 +339,6 @@ m
 <font color="DarkGreen">But to those who adore me with pure oneness of soul, to those who are ever in harmony, I increase what they have and I give them what they have not.</font>
 </p>
 
-<br>
 <p>
 <b>9.22 Quotes</b><br>
 <font color="DarkRed">We sometimes ask for worldly things, power, money: you are still entangled in little things.<br>
@@ -387,14 +357,12 @@ So, for bhakti He said like this.</font><br>
 ......
 </p>
 
-<br>
 <p>
 <b>9.26 IAST</b><br>
 patraṃ puṣhpaṃ phalaṃ toyaṃ yo me bhaktyā prayacchati<br>
 tad ahaṃ bhakty-upahṛtam aśhnāmi prayatātmanaḥ
 </p>
 
-<br>
 <p>
 <b>9.26 Translations</b><br>
 <font color="Peru">When one offers to Me with devotion a leaf, a flower, a fruit, water, -- that I eat, offered with devotion by the pure-minded.</font><br>
@@ -402,7 +370,6 @@ tad ahaṃ bhakty-upahṛtam aśhnāmi prayatātmanaḥ
 <font color="DarkGreen">He who offers to me with devotion only a leaf, or a flower, or a fruit, or even a little water, this I accept from that yearning soul, because with a pure heart it was offered with love.</font>
 </p>
 
-<br>
 <p>
 <b>9.26 Quotes</b><br>
 <font color="blue"></font><br>
@@ -473,14 +440,12 @@ Chapter 15<br>
 <font color="blue"><b>Mokṣha Saṃnyāsa Yoga</b></font>
 </p>
 
-<br>
 <p>
 <b>18.66 IAST</b><br>
 sarva-dharmān parityajya Mām ekaṃ śharaṇaṃ vraja<br>
 ahaṃ tvāṃ sarva-pāpebhyo mokṣhayiṣhyāmi mā śhuchaḥ
 </p>
 
-<br>
 <p>
 <b>18.66 Translations</b><br>
 <font color="Peru">Abandoning all righteous deeds, seek me as thy sole Refuge; I will liberate thee from all sins; do thou not grieve.</font><br>
@@ -488,7 +453,6 @@ ahaṃ tvāṃ sarva-pāpebhyo mokṣhayiṣhyāmi mā śhuchaḥ
 <font color="DarkGreen">Leave all things behind, and come to me for thy salvation. I will make thee free from the bondage of sins. Fear no more.</font>
 </p>
 
-<br>
 <p>
 <b>18.66 Quotes</b><br>
 <font color="DarkRed">Today I am openly telling you. As long as you do not accept Me, this work will not be done. This thing I did not say earlier.<br>
@@ -504,5 +468,4 @@ And this state only can be achieved through meditation. But I am say... not sayi
 <b>1998-0510 Sahasrāra Pūjā, Blessing of the Divine Pours Only if the Sahasrāra is Open (Meditation Is the Only Way You Can Enrich Yourself with the Beauty of Reality), Hangar, Cabella Ligure, Alessandria, Italy</b>
 </p>
 
-<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>

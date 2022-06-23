@@ -21,9 +21,6 @@ As a first such new format, we would like to start with the Al Qur'ān (Holy Qur
 Looking forward to receiving your support, feedback, cooperation, and help.
 </p>
 
-<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
-
-<br>
 
 Scriptures Team
