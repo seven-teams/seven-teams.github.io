@@ -3,7 +3,7 @@ title: 'ŚHRĪ PARAŚHURĀMA in the Words of ŚHRĪ MĀTĀJĪ'
 date: 2022-06-03
 permalink: /quotes/2022/0603
 tags:
-  - crimson @ Shri Parashuram
+  - crimson @ Shri Parashurama
   - pink @ Shri Vishnu
 ---
 

@@ -8,13 +8,10 @@ tags:
   - orange @ Bhagavad Gita
   - peru @ Hinduism
 ---
-
-<font color="DarkRed"><b>Śhrī Mātājī's words on Bhagavad Gītā</b></font>
-
-<font color="Peru"><b>The Bhagavad Gītā with the commentary of Śhrī Ādi Śhaṅkarāchārya translated from the original Sanskrit by Alladi Mahadeva Sastry, 1992 Edition 1992 of Samata Books, Madras</b></font>
-
-<font color="blue"><b>Jnaneśhwarī of Śhrī Jñānadeva (Gyāneśhwara) translated from Marathi by Ramchandra Keshav Bhagwat, 1994 Edition 1992 of Samata Books, Madras</b></font>
-
+<br>
+<font color="DarkRed"><b>Śhrī Mātājī's words on Bhagavad Gītā</b></font><br><br>
+<font color="Peru"><b>The Bhagavad Gītā with the commentary of Śhrī Ādi Śhaṅkarāchārya translated from the original Sanskrit by Alladi Mahadeva Sastry, 1992 Edition 1992 of Samata Books, Madras</b></font><br><br>
+<font color="blue"><b>Jnaneśhwarī of Śhrī Jñānadeva (Gyāneśhwara) translated from Marathi by Ramchandra Keshav Bhagwat, 1994 Edition 1992 of Samata Books, Madras</b></font><br><br>
 <font color="DarkGreen"><b>Juan Mascaró's translation of Bhagavad Gītā published by Penguin Classics in 1962</b></font>
 
 <div class="para-divider"></div>
