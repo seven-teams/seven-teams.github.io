@@ -8,7 +8,6 @@ tags:
   - medical
 ---
 
-<br>
 <p>
 Jay Śhrī Mātājī!<br>
 <br>
@@ -17,8 +16,8 @@ Please kindly share the file with all our brothers and sisters.<br>
 We would like to thank the Sahaja Yoginī who suggested this topic.<br>
 <br>
 The Comprehensive Compilations Team<br>
-<br>
-[Instantly download the pdf here](https://bit.ly/3bf9Tbr)<br>
-<br>
-<iframe src="/pdf/#/files/Gout.pdf" width="1000px" height="1000px"></iframe>
 </p>
+
+[Instantly download the pdf here](https://bit.ly/3bf9Tbr)<br>
+
+<iframe src="/pdf/#/files/Gout.pdf" width="1000px" height="1000px"></iframe>
