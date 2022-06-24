@@ -83,7 +83,6 @@ As soon as that stability is achieved, in Absolute Peace and Joy, you achieve th
 
 <div class="para-divider"></div>
 
-%
 <p>
 <font color="DarkRed">"Then comes the most important part of our body, is the stomach. It represents the Bhavasāgara. Is the māyā, in which we are placed.<br>
 We are born in this Bhavasāgara, when Śhrī Vriṣhṇu [Viṣhṇu] Himself incarnates again and again -- you have seen as Matsya Avatāra, Kūrma Avatāra -- and He Himself leads the human beings in their evolutionary path.<br>
