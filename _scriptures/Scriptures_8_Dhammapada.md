@@ -24,21 +24,21 @@ tags:
 
 <p>
 <b>Quotes</b><br>
-<font color="DarkRed">The-ee ... great writer who is living now in England, his name is Doctor Mascaró, you might have heard his name, he has written lots of treatises about uh-uh Gītā, and Upaniṣhada[s], also Dhammapad, and also Bible. He is a master. And he is a master of Sanskrit language.<br>
+<font color="red">The-ee ... great writer who is living now in England, his name is Doctor Mascaró, you might have heard his name, he has written lots of treatises about uh-uh Gītā, and Upaniṣhada[s], also Dhammapad, and also Bible. He is a master. And he is a master of Sanskrit language.<br>
 I went to see him, and he gave Me a flower, such a beautiful couplet from Gītā, and he said that, ``Mother, give us light. Give them all light so that they can see. Please give them." I said, ``I'm doing that!"<br> 
 I'm doing that, but, somehow, people do not know what to expect within themselves.<br> 
 I'm doing that, but somehow people do not know what to expect within themselves. </font><br>
 <b>1980-1010 Public Program (2nd Day of Navarātri), Zürich, Switzerland</b><br>
 <br>
-<font color="DarkRed">In any book whatsoever, take it Bible, or go to Qur'ān, or go to any book, Zen, go to Buddhist, uh-uh-uh books of a Dhammapad, or you go to any other Śhāstras, like Vedas, they have talked of Kuṇḍalinī all right.</font><br>
+<font color="red">In any book whatsoever, take it Bible, or go to Qur'ān, or go to any book, Zen, go to Buddhist, uh-uh-uh books of a Dhammapad, or you go to any other Śhāstras, like Vedas, they have talked of Kuṇḍalinī all right.</font><br>
 <b>1985-0603 Public Program, Day 1, The Bayard Rustin High School for the Humanities, 351 W 18th Street, New York City, NY, U.S.A.</b><br>
 <br>
-<font color="DarkRed">Is not like Buddha's time when they had to give up their whole kingdom. Everything to dhamma! Every pā'ī [1/3 of paisā], everything that they had, even their hair, I think. Everything to dhamma! And just come absolutely bare! No children, no wife, no father, nothing! That was Buddhism. That was Buddha's style.<br>
+<font color="red">Is not like Buddha's time when they had to give up their whole kingdom. Everything to dhamma! Every pā'ī [1/3 of paisā], everything that they had, even their hair, I think. Everything to dhamma! And just come absolutely bare! No children, no wife, no father, nothing! That was Buddhism. That was Buddha's style.<br>
 He had His disciples like this, and they used to walk miles together! [They walked] to preach from one place to another in thousands.<br>
 What an impression it must be on people, when they see all this.</font><br>
 <b>1989-0520 Śhrī Buddha Pūjā, Gautama, The Lord of the Ego, Open Air near El Farell Hotel, Barcelona, Spain </b><br>
 <br>
-<font color="DarkRed">The other day, I was reading about people who are now getting frustrated with Christianity and trying to go to Buddhism or want to go to Islam or anything. They are just the same! There's no difference.<br>
+<font color="red">The other day, I was reading about people who are now getting frustrated with Christianity and trying to go to Buddhism or want to go to Islam or anything. They are just the same! There's no difference.<br>
 Because what Bible is, or what Christ is, is very different from Christians. What Islam is, is very different from Muslims. That's what all of them admit also. What Buddhism is, is very different from the Buddhist. So what they preach, what they talk about.<br>
 The other day, I was reading a book on Islam, I was surprised: is saying the same thing!<br>
 Also if you read, say, Buddha, Dhammapad, it says the same thing. Or, these Christian Sciences people, they say the same thing.</font><br>
