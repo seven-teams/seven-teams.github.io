@@ -11,7 +11,7 @@ tags:
 
 <p>
 <br>
-<font color="DarkRed"><b>Śhrī Mātājī's words on Al Qurʾān</b></font><br>
+<font color="red"><b>Śhrī Mātājī's words on Al Qurʾān</b></font><br>
 <br>
 <font color="DarkGreen"><b>N. J. Dawood's translation of The Koran published by Penguin Classics in 1956, fifth revised edition dated 1990</b></font><br>
 <br>
@@ -22,16 +22,16 @@ tags:
 
 <p>
 <b>Quotes</b><br>
-<font color="DarkRed">So, it is all described iking uh-uhb uh Qur'ān. There's a complete Sūrah describing about the Sent One, means the Avatāra, means the Incarnation. And also said that, "You won't believe," "You won't accept," and all those things.  </font><br>
+<font color="red">So, it is all described iking uh-uhb uh Qur'ān. There's a complete Sūrah describing about the Sent One, means the Avatāra, means the Incarnation. And also said that, "You won't believe," "You won't accept," and all those things.  </font><br>
 <b>1990-0107 Pūjā (English+Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b>
 <br>
-<font color="DarkRed">Even in the Islam they showed Me a complete Sūrah written about Me, that the Sent One, they call Me a Sent One, and, 'That person will give you Realization, that would make you Pīrs, that will give you Collective Consciousness,' everything written in that, so beautiful, you won't believe it. "But you will not believe, you will be non-believers." Like that it is written in that.</font><br>
+<font color="red">Even in the Islam they showed Me a complete Sūrah written about Me, that the Sent One, they call Me a Sent One, and, 'That person will give you Realization, that would make you Pīrs, that will give you Collective Consciousness,' everything written in that, so beautiful, you won't believe it. "But you will not believe, you will be non-believers." Like that it is written in that.</font><br>
 <b>1990-0228 Talk to Sahaja Yogis, in Transit, Changi Airport, Singapore</b>
 <br>
-<font color="DarkRed">In any book whatsoever, take it Bible, or go to Qur'ān, or go to any book, Zen, go to Buddhist, uh-uh-uh books of a Dhammapad, or you go to any other Śhāstras, like Vedas, they have talked of Kuṇḍalinī all right.</font><br>
+<font color="red">In any book whatsoever, take it Bible, or go to Qur'ān, or go to any book, Zen, go to Buddhist, uh-uh-uh books of a Dhammapad, or you go to any other Śhāstras, like Vedas, they have talked of Kuṇḍalinī all right.</font><br>
 <b>1985-0603 Public Program, Day 1, The Bayard Rustin High School for the Humanities, 351 W 18th Street, New York City, NY, U.S.A.</b><br>
 <br>
-<font color="DarkRed">The other day, I was reading about people who are now getting frustrated with Christianity and trying to go to Buddhism or want to go to Islam or anything. They are just the same! There's no difference.<br>
+<font color="red">The other day, I was reading about people who are now getting frustrated with Christianity and trying to go to Buddhism or want to go to Islam or anything. They are just the same! There's no difference.<br>
 Because what Bible is, or what Christ is, is very different from Christians. What Islam is, is very different from Muslims. That's what all of them admit also. What Buddhism is, is very different from the Buddhist. So what they preach, what they talk about.<br>
 The other day, I was reading a book on Islam, I was surprised: is saying the same thing!<br>
 Also if you read, say, Buddha, Dhammapad, it says the same thing. Or, these Christian Sciences people, they say the same thing.</font><br>
@@ -128,7 +128,7 @@ Nor of those who have gone astray.</font><br>
 
 <p>
 <b>3 Quotes</b><br>
-<font color="DarkRed">In one of the Sūrahs of Holy Qur'ān it is written, "The only religion with Allah is Islam" [3:19], and, "There is no other religion to be accepted" [3:85].<br>
+<font color="red">In one of the Sūrahs of Holy Qur'ān it is written, "The only religion with Allah is Islam" [3:19], and, "There is no other religion to be accepted" [3:85].<br>
 Allah is one of the names of Lord Almighty, and it means that for Him Islam is necessary.<br>
 What is islam? It is surrender and from the same root comes the word salam or peace [in Arabic].</font><br>
 <b>1900-0000 Two Quotes from the book Divine Knowledge through Vibrations (1992) by P.T. Rajasekharan and R. Venkatesan, Page 72</b><br>
@@ -252,18 +252,18 @@ What is islam? It is surrender and from the same root comes the word salam or pe
 
 <p>
 <b>36 Quotes</b><br>
-<font color="DarkRed">Like there's one boy who has fished out lots of things from Qur'ān, [he] is German, from Qur'ān, what it has to say for Sahaj.<br>
+<font color="red">Like there's one boy who has fished out lots of things from Qur'ān, [he] is German, from Qur'ān, what it has to say for Sahaj.<br>
 And they said, "Thes ... there is a Sūrah called Saishta [Śhāsti] Yoga, Saishta [Śhāsti] Yoga" [Sūrah 36: Yāʾ-Sīn], and that Sūrah is dealing with Me. Because eve... will be ... it is said that: "We are going to send, and the Sent, the One who is sent, will not be acceptable to you. You will deny, you will defy." Everything is described. Even, that's, "Your hands will speak," at the Time  of your Resurrection, all that in that Sūrah is given. It's very interesting, that Sūrah is.</font><br>
 <b>1990-0314 Śhrī Mahālakṣhmī Pūjā, Auckland, New Zealand</b><br>
 <br>
-<font color="DarkRed">Whatever is said about the Last Judgment, this is the time for that Last Judgment.<br>
+<font color="red">Whatever is said about the Last Judgment, this is the time for that Last Judgment.<br>
 Also in Qur'ān it is said: that, "At the Time of your Resurrection, your hands will speak, and they will give witness against you." Exactly this happens in Sahaja Yoga. The Sūrah that is in Qur'ān called as Sashtī [Śhāsti] Yoga [Sūrah 36: Yāʾ-Sīn], is surprising how Muhammad Sāhab clearly said about it.</font><br>
 <b>1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia</b><br>
 <br>
-<font color="DarkRed">In the Qur'ān there is one beautiful Sūrah called Saishta [Śhāsti] Yoga [Sūrah 36: Yāʾ-Sīn]. In that they have described all about it, that, "Your hands will speak, at the Time of your Resurrection. And they will give witness against you."</font><br>
+<font color="red">In the Qur'ān there is one beautiful Sūrah called Saishta [Śhāsti] Yoga [Sūrah 36: Yāʾ-Sīn]. In that they have described all about it, that, "Your hands will speak, at the Time of your Resurrection. And they will give witness against you."</font><br>
 <b>1990-0319 Public Program, Canberra, Australia</b><br>
 <br>
-<font color="DarkRed">In Qur'ān, there's a Sūrah [36] called Ee uh-uh-uh ... Yāʾsīn, meaning ... they say that Yoga Sajadā [Prayer] is the name of that one, in which Muhammad Sāhab has clearly described: "At the Time of Resurrection, your hands will speak."<br>
+<font color="red">In Qur'ān, there's a Sūrah [36] called Ee uh-uh-uh ... Yāʾsīn, meaning ... they say that Yoga Sajadā [Prayer] is the name of that one, in which Muhammad Sāhab has clearly described: "At the Time of Resurrection, your hands will speak."<br>
 Now, if Muhammad Sāhab was the last Man [see 33:40], why did He talk of Resurrection? Why did He talk of the future? Why did He say, "Your hands will speak"?</font><br>
 <b>1990-0603 Public Program, Day 1, Miami, FL, U.S.A.</b><br>
 </p>
@@ -329,4 +329,5 @@ div class="para-divider"></div>
 
 <div class="para-divider"></div>
 
-<p style="color:red;">Jay Śhrī Mātājī!<br></p>
+<p><b>Jay Śhrī Mātājī!</b>
+</p>

@@ -523,6 +523,5 @@ surely partakes of the ascetic life.</font>
 
 <div class="para-divider"></div>
 
-<br>
 <p><b>Jay Śhrī Mātājī!</b>
 </p>
