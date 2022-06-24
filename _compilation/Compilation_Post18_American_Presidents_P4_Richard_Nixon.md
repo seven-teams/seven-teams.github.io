@@ -3,8 +3,8 @@ title: 'Post 18: American Presidents, Part 4 (Richard Nixon)'
 date: 2020-11-01
 permalink: /compilation/2020/1101
 tags:
-  - Indigo @ Personalities
-  - Indigo @ American Presidents
+  - indigo @ Personalities
+  - indigo @ American Presidents
 ---
 Jay Śhrī Mātājī!
 

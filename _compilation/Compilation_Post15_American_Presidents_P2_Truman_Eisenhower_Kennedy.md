@@ -3,8 +3,8 @@ title: 'Post 15: American Presidents, Part 2 (Truman, Eisenhower, and Kennedy)'
 date: 2019-03-19
 permalink: /compilation/2019/0319
 tags:
-  - Indigo @ Personalities
-  - Indigo @ American Presidents
+  - indigo @ Personalities
+  - indigo @ American Presidents
 ---
 Jai Shri Mataji
 

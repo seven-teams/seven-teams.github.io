@@ -3,8 +3,8 @@ title: 'Post 14: American Presidents, Part 1 (George Washington)'
 date: 2019-02-26
 permalink: /compilation/2019/0226
 tags:
-  - Indigo @ Personalities
-  - Indigo @ American Presidents
+  - indigo @ Personalities
+  - indigo @ American Presidents
 ---
 Jai Shri Mataji
 
