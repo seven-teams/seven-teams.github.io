@@ -3,8 +3,8 @@ title: 'Post 6: Sahaja Yoga Treatments, published by The Life Eternal Trust in 1
 date: 2015-04-19
 permalink: /compilation/2015/0419
 tags:
-  - treatment
-  - medical
+  - green @ Treatment
+  - peru @ Medical
 ---
 Jai Shri Mataji
 

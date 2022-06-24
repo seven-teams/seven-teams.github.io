@@ -3,8 +3,7 @@ title: 'Post 13: Judas Iscariot'
 date: 2017-02-17
 permalink: /compilation/2017/0217
 tags:
-  - personalities
-  - Judas Iscariot
+  - Indigo @ Personalities
 ---
 Jai Shri Mataji
 

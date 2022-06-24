@@ -3,9 +3,9 @@ title: 'Post 3: Lemons and Chilies'
 date: 2015-02-02
 permalink: /compilation/2015/0202
 tags:
-  - treatment
-  - lemons
-  - chilies
+  - green @ treatment
+  - green @ lemons
+  - green @ chilies
 ---
 Jai Shri Mataji
 

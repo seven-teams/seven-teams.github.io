@@ -3,8 +3,8 @@ title: 'Post 26: American Presidents, Part 10c (Abraham Lincoln)'
 date: 2022-02-12
 permalink: /compilation/2022/0212
 tags:
-  - personalities
-  - American Presidents
+  - Indigo @ Personalities
+  - Indigo @ American Presidents
 ---
 Jay Śhrī Mātājī!
 

@@ -3,9 +3,7 @@ title: 'Post 16: Narcissism'
 date: 2019-03-27
 permalink: /compilation/2019/0327
 tags:
-  - treatment
-  - narcissism
-  - medical
+  -  purple @ narcissism
 ---
 Jai Shri Mataji
 

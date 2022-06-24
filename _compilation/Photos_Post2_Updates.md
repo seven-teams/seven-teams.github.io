@@ -3,7 +3,7 @@ title: 'Photos Post 2: Updates'
 date: 2021-09-26
 permalink: /compilation/2021/0926
 tags:
-  - Photographs of Shri Mataji
+  - crimson @ Photographs of Shri Mataji
 ---
 
 Dear Sahaja Yogis and Sahaja Yoginīs,

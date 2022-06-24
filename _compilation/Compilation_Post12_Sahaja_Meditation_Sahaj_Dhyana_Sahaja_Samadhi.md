@@ -3,9 +3,9 @@ title: 'Post 12: Sahaja Meditation, Sahaj Dhyana, and Sahaja Samadhi'
 date: 2016-08-12
 permalink: /compilation/2016/0812
 tags:
-  - Sahaja Meditation
-  - Sahaj Dhyana
-  - Sahaja Samadhi
+  - gold @ Sahaja Meditation
+  - gold @ Sahaj Dhyana
+  - gold @ Sahaja Samadhi
 ---
 Jai Shri Mataji
 

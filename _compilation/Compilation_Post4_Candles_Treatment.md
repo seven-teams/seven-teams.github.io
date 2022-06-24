@@ -3,8 +3,8 @@ title: 'Post 4: Candles Treatment'
 date: 2015-02-14
 permalink: /compilation/2015/0214
 tags:
-  - treatment
-  - candles
+  - green @ treatment
+  - green @ candles
 ---
 Jai Shri Mataji
 

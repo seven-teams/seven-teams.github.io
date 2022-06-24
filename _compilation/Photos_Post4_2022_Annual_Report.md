@@ -3,7 +3,7 @@ title: 'Photos Post 4: First Annual Report'
 date: 2022-03-12
 permalink: /compilation/2022/0312
 tags:
-  - Photographs of Shri Mataji
+  - crimson @ Photographs of Shri Mataji
 ---
 
 Dear Sahaja Yogis and Sahaja Yoginīs,

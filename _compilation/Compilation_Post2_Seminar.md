@@ -3,7 +3,8 @@ title: 'Post 2: Seminar'
 date: 2015-01-26
 permalink: /compilation/2015/0126
 tags:
-  - seminar
+  - green @ seminar
+  - gold @ Sahaja Culture
 ---
 Jai Shri Mataji
 

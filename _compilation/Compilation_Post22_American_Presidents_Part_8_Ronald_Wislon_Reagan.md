@@ -3,8 +3,8 @@ title: 'Post 22: American Presidents, Part 8 (Ronald Wilson Reagan)'
 date: 2021-01-21
 permalink: /compilation/2021/0121
 tags:
-  - personalities
-  - American Presidents
+  - Indigo @ Personalities
+  - Indigo @ American Presidents
 ---
 Jay Śhrī Mātājī!
 

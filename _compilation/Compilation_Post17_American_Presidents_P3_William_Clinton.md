@@ -3,8 +3,8 @@ title: 'Post 17: American Presidents, Part 3 (William Clinton)'
 date: 2020-10-11
 permalink: /compilation/2020/1011
 tags:
-  - personalities
-  - American Presidents
+  - Indigo @ Personalities
+  - Indigo @ American Presidents
 ---
 Jai Shri Mataji
 

@@ -3,8 +3,8 @@ title: 'Post 23: American Presidents, Part 9 (George Walker Bush)'
 date: 2021-02-08
 permalink: /compilation/2021/0208
 tags:
-  - personalities
-  - American Presidents
+  - Indigo @ Personalities
+  - Indigo @ American Presidents
 ---
 Jay Śhrī Mātājī!
 

@@ -3,9 +3,7 @@ title: 'Post 7: Vaccines'
 date: 2015-04-30
 permalink: /compilation/2015/0430a
 tags:
-  - treatment
-  - vaccine
-  - medical
+  - peru @ vaccine
 ---
 Jai Shri Mataji
 

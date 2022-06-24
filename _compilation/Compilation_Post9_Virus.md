@@ -3,9 +3,7 @@ title: 'Post 9: Virus'
 date: 2015-05-08
 permalink: /compilation/2015/0508
 tags:
-  - treatment
-  - virus
-  - medical
+  -  peru @ virus
 ---
 Jai Shri Mataji
 

@@ -3,7 +3,7 @@ title: 'Photos Post 5: Search Feature'
 date: 2022-05-05
 permalink: /compilation/2022/0505
 tags:
-  - Photographs of Shri Mataji
+  - crimson @ Photographs of Shri Mataji
 ---
 
 Dear Sahaja Yogis and Sahaja Yoginīs,

@@ -3,9 +3,7 @@ title: 'Post 8: Bacteria'
 date: 2015-04-30
 permalink: /compilation/2015/0430b
 tags:
-  - treatment
-  - bacteria
-  - medical
+  - peru @ bacteria
 ---
 Jai Shri Mataji
 

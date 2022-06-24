@@ -3,8 +3,8 @@ title: 'Post 19: American Presidents, Part 5 (George Herbert Walker Bush)'
 date: 2020-11-07
 permalink: /compilation/2020/1107
 tags:
-  - personalities
-  - American Presidents
+  - Indigo @ Personalities
+  - Indigo @ American Presidents
 ---
 Jay Śhrī Mātājī!
 
