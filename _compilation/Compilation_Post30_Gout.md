@@ -3,6 +3,7 @@ title: 'Post 30: Gout'
 date: 2022-06-22
 permalink: /compilation/2022/0622
 tags:
+  - peru @ Medical
   - peru @ gout
 ---
 

@@ -3,8 +3,8 @@ title: 'Post 20: American Presidents, Part 6 (James Earl Carter)'
 date: 2020-11-23
 permalink: /compilation/2020/1123
 tags:
-  - personalities
-  - American Presidents
+  - Indigo @ Personalities
+  - Indigo @ American Presidents
 ---
 Jay Śhrī Mātājī!
 

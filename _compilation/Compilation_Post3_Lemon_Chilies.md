@@ -3,7 +3,7 @@ title: 'Post 3: Lemons and Chilies'
 date: 2015-02-02
 permalink: /compilation/2015/0202
 tags:
-  - green @ treatment
+  - green @ Treatment
   - green @ lemons
   - green @ chilies
 ---

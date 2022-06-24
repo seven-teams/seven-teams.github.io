@@ -3,7 +3,7 @@ title: 'Post 1: Shoe-beat Treatment'
 date: 2014-12-14
 permalink: /compilation/2014/1214
 tags:
-  - green @ treatment
+  - green @ Treatment
   - green @ shoe-beat
 ---
 Jai Shri Mataji
