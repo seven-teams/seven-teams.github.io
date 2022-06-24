@@ -103,7 +103,7 @@ ye taṁ na upanayhanti veraṁ tesūpasammati.</font>
 <b>1.4 Translations</b><br>
 <font color="DarkGreen">'He insulted me, he hurt me, he defeated me, he robbed me.' Those who think not such thoughts will be free from hate.</font><br>
 <font color="blue">"Look how he abused me and hurt me,<br> 
-How he threw me down and robbed me."<br<
+How he threw me down and robbed me."<br>
 Abandon such thoughts, and live in love.</font><br>
 <font color="DarkGreen">"He abused me, he struck at me,<br> 
 he overcame me, he robbed me,"<br> 
@@ -178,9 +178,9 @@ te sāraṁ adhigacchanti, sammāsaṅkappagocarā.</font>
 <p>
 <b>1.12 Translations</b><br>
 <font color="DarkGreen">But those who know the Real is, and know that the unreal is not, they shall reach the Truth, safe on the path of right thought.</font><br>
-<font color="blue">See the false as false,<br
-The true as true.<br
-Look into your heart.<br
+<font color="blue">See the false as false,<br>
+The true as true.<br>
+Look into your heart.<br>
 Follow your nature.</font><br>
 <font color="Peru">Knowing the truth in what is true,<br> 
 and knowing falsehood in the false,<br> 
