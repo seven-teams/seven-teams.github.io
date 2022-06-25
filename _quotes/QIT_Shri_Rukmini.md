@@ -31,9 +31,9 @@ I said, "I am going to My parent's place."<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Right Viśhuddhi mantra is Auṃ Twameva sākṣhāt Viṭṭhala Rakhumāī [Rukmiṇī] sākṣhāt ...</font><br>
 <b>Sahaja Yogi:</b> Viṭṭhala?<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Viṭṭhala Rakhumāī [Rukmiṇī]!</font><br>
-<b>Sahaja Yogi:</b> Viṭṭhala Rakhumāī [Rukmiṇī].
-<font color="red"><b>Śhrī Mātājī:</b></font> Ha-ha! 
-<b>All Sahaja Yogis:</b> Auṃ Twameva sākṣhāt Śhrī Viṭṭhala Rakhumāī [Rukmiṇī] sākṣhāt Śhrī Ādi Śhakti sākṣhāt Śhrī Bhagavatī sākṣhāt Śhrī Mātājī Śhrī Nirmalā Devī namo namaḥ. Auṃ Twameva sākṣhāt Śhrī Viṭṭhala Rakhumāī [Rukmiṇī] sākṣhāt Śhrī Ādi Śhakti sākṣhāt Śhrī Bhagavatī sākṣhāt Śhrī Mātājī Śhrī Nirmalā Devī namo namaḥ. Auṃ Twameva sākṣhāt Śhrī Viṭṭhala Rakhumāī [Rukmiṇī] sākṣhāt Śhrī Ādi Śhakti sākṣhāt Śhrī Bhagavatī sākṣhāt Śhrī Mātājī Śhrī Nirmalā Devī namo namaḥ.</font><br>
+<b>Sahaja Yogi:</b> Viṭṭhala Rakhumāī [Rukmiṇī].<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Ha-ha!<br>
+<b>All Sahaja Yogis:</b> Auṃ Twameva sākṣhāt Śhrī Viṭṭhala Rakhumāī [Rukmiṇī] sākṣhāt Śhrī Ādi Śhakti sākṣhāt Śhrī Bhagavatī sākṣhāt Śhrī Mātājī Śhrī Nirmalā Devī namo namaḥ. Auṃ Twameva sākṣhāt Śhrī Viṭṭhala Rakhumāī [Rukmiṇī] sākṣhāt Śhrī Ādi Śhakti sākṣhāt Śhrī Bhagavatī sākṣhāt Śhrī Mātājī Śhrī Nirmalā Devī namo namaḥ. Auṃ Twameva sākṣhāt Śhrī Viṭṭhala Rakhumāī [Rukmiṇī] sākṣhāt Śhrī Ādi Śhakti sākṣhāt Śhrī Bhagavatī sākṣhāt Śhrī Mātājī Śhrī Nirmalā Devī namo namaḥ.<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> Mhh! Good? [Laughs.]<br>
 Just see: if the Mantras are awakened, how powerful they can be!<br>
 <font size="+0"><b>1979-1008 Public Program, Maintaining Purity of Sahaja Yoga, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
@@ -61,7 +61,7 @@ And He was called as Yogeśhwara.<br>
 <font color="red"><b>Śhrī Mātājī:</b></font><font color="red"> Five elements: they were called His five wives, they were five elements.</font><br>
 <b>Grégoire de Kalbermatten:</b> Who were they, Mother?<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red"> You see, there were five of them Kālī and all that. There are five of them: Rukmiṇī, and all these five of them. [Smiles.] He had five queens!</font><br> 
-But after all He was, you have Virāṭa, you see. [Laughing:] Imagine, He has to have all these powers."</font><br>
+But after all He was, you have Virāṭa, you see. [Laughing:] Imagine, He has to have all these powers."<br>
 <font size="+0"><b>1982-0503 Talk to Sahaja Yogis, before and during Breakfast, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), France</b></font>
 </p>
 
@@ -80,7 +80,7 @@ But after all He was, you have Virāṭa, you see. [Laughing:] Imagine, He has t
 You see, it is very significant that also.<br>
 Because they say that there was a Puṇḍarīkākṣh, one boy, who was serving his parents. "<font color="red">And his parents were sleeping, he was pressing their feet, when Viṭṭhala and His Power Rakhumāī ... Rukmiṇī, They appeared uh in the door. But he said, ``Now keep quiet. My parents are sleeping, so You stay there!" So he had one brick near him which he threw, and asked Them, ``You stay on that." So They kept quiet. They kept quiet because they are sleeping."</font><br> 
 Now, this is the thing is: on the right side, if you are talking loudly, if you talk too much, uh-uh-uh-uh if you uh intimidate people with your talking, then you catch on right Viśhuddhi.<br>
-So for that, best is to take some rest, and give some rest to your right Viśhuddhi, by stopping your talk. `Go into mauna,' they say: just don't talk. For some time if you don't taulk [talk], you'll see that your Viśhuddhi will be improved, your problems will be improved."</font><br>
+So for that, best is to take some rest, and give some rest to your right Viśhuddhi, by stopping your talk. `Go into mauna,' they say: just don't talk. For some time if you don't taulk [talk], you'll see that your Viśhuddhi will be improved, your problems will be improved."<br>
 <font size="+0"><b>1989-0814 Śhrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, UK</b></font>
 </p>
 
