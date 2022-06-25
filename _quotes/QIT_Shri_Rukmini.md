@@ -3,8 +3,8 @@ title: 'ŚHRĪ RUKMINĪ in the Words of ŚHRĪ MĀTĀJĪ'
 date: 2022-06-25
 permalink: /quotes/2022/0625
 tags:
-  - Shri Rukmini
-  - Shri Mahasaraswati
+  - crimson @ Shri Rukmini
+  - hotpink @ Shri Mahasaraswati
 ---
 
 <div class="para-divider"></div>
