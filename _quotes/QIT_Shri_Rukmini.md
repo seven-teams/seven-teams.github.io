@@ -104,5 +104,4 @@ So for that, best is to take some rest, and give some rest to your right Viśhud
 
 <div class="para-divider"></div>
 
-<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>

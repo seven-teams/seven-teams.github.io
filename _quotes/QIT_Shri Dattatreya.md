@@ -197,5 +197,4 @@ Now after He is gone, they are worshipping Him. But you have given immense respe
 
 <div class="para-divider"></div>
 
-<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>

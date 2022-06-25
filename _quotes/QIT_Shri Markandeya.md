@@ -289,8 +289,4 @@ They had the True Knowledge of the Kuṇḍalinī and went as far as Bolivia and
 
 [<font color="orange">WARNING: Quotes after January 1981 to follow.</font>] 
 
-<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
-
-<br>
-Quotes on Incarnations Team
