@@ -45,7 +45,7 @@ Just see: if the Mantras are awakened, how powerful they can be!<br>
 "Viśhuddhi chakra has two other points, which are very important, within us.<br> 
 I take this up because you people are suffer[ing] from left Viśhuddhi.<br>
 Left Viśhuddhi is on the left-hand side, and right [is] on the right-hand side.<br> 
-<font color="red">Right-hand side Viśhuddhi is the Viśhuddhi when ... when He was the king and called as Viṭṭhala and His wife Rukmiṇī [{\bf{\textcolor{amber+}{unclear}}}].</font>"<br>
+<font color="red">Right-hand side Viśhuddhi is the Viśhuddhi when ... when He was the king and called as Viṭṭhala and His wife Rukmiṇī</font> [<font color="orange">unclear</font>]."<br>
 <font size="+0"><b>1981-0401 Public Program, Cycle 1, Day 5, Viśhuddhi and Āgñyā Chakras, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
 </p>
 
