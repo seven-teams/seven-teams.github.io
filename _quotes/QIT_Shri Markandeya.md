@@ -234,7 +234,7 @@ He's clearly said it. He never believed in any such secular uh-uh-uh sort of ide
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"One has to know that the powers are tremendous. <font color="red">You cannot conceive it, as it is said by Mārkaṇḍeya. You cannot conceive it.</font> Is beyond your conception. Outwardly, you cannot understand. You just cannot understand.<br>
+"One has to know that the powers are tremendous. <font color="red">You cannot conceive it, as it is said by Mārkaṇḍeya. You cannot conceive it.</font> Is beyond your conception. Outwardly, you cannot understand. You just cannot understand.<br>
 Under such circumstances, the best thing is: to surrender yourself.>br>
 Now, in surrendering, what do you surrender? What do you surrender? Is your ego and your superego."<br>
 <font size="+0"><b>1980-1019 Havan, Navarātri Celebrations (Dussehra Day), To Solve All Your Problems Is to Surrender, Temple of All Faiths, Hampstead, London, UK</b></font>
