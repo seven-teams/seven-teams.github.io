@@ -1,7 +1,7 @@
 ---
 title: 'Post 8: DHAMMAPADA'
 date: 2022-06-24
-permalink: /quotes/2022/0624
+permalink: /scriptures/2022/0624
 tags:
   - crimson @ Lord Buddha
   - green @ Disciple Principle

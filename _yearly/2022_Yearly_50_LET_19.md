@@ -32,14 +32,17 @@ And today only I received the message saying that somebody has donated that. I w
 <font color="blue"><b>1981-0625 Public Program, Friends Meeting House, 120 Heath Street, Hampstead, London NW3 1DR, UK</b></font><br>
 </p>
 
-Links to suggested talk: <a href="https://soundcloud.com/sahaja-library/1981-0625-the-ocean-of-love"> soundcloud</a><br>
+<p>
+Links to suggested talk: <a href="https://soundcloud.com/sahaja-library/1981-0625-the-ocean-of-love"> soundcloud</a>
+</p>
 
 <p>
 <b>Objectives:</b><br>
 15. To print, edit and publish journals, books and literature written by Mātājī and her disciples with her approval for conveying the knowledge of truth so that the human beings who are the highest in evolution, rise in their glory, dignity and freedom, as also for publicizing the activities of the institutions run by the Trust.<br>
-19. To build sanatoria, hospitals, nursing homes for the sick and invalid. <br>
+19. To build sanatoria, hospitals, nursing homes for the sick and invalid.
 </p>
 
-<p style="color:red;">Jay Śhrī Mātājī!<br></p>
+<p style="color:red;">Jay Śhrī Mātājī!<br>
+<br>
+Comprehensive Compilations and Yearly Topics Teams</p>
 
-Comprehensive Compilations and Yearly Topics Teams
