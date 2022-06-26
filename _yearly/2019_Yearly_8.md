@@ -3,7 +3,8 @@ title: 'Celebrating 30 Years of Sahaja Yoga in Nepal, Russia, Turkey and Ukraine
 date: 2019-03-18
 permalink: /yearly/2019/0318
 tags:
-  - countries
+  - crimson @ 30 Years of Sahaja Yoga in Nepal, Russia, Turkey and Ukraine
+  - orange @ countries
 ---
 
 ![PICTURE 9](/images/image9.png)

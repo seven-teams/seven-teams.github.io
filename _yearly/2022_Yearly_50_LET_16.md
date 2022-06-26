@@ -3,7 +3,7 @@ title: 'Celebrating 50 Years of Life Eternal Trust and its Objects, Post 16'
 date: 2022-05-29
 permalink: /yearly/2022/0529
 tags:
-  - 50 Years of Life Eternal Trust and its Objects
+  - crimson @ 50 Years of Life Eternal Trust and its Objects
 ---
 
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>

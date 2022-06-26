@@ -3,7 +3,7 @@ title: 'Celebrating 50 Years of Life Eternal Trust and its Objects, Post 19'
 date: 2022-06-26
 permalink: /yearly/2022/0626
 tags:
-  - 50 Years of Life Eternal Trust and its Objects
+  - crimson @ 50 Years of Life Eternal Trust and its Objects
 ---
 
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
@@ -36,7 +36,6 @@ And today only I received the message saying that somebody has donated that. I w
 <br>
 Links to suggested talk: <a href="https://soundcloud.com/sahaja-library/1981-0625-the-ocean-of-love"> soundcloud</a><br>
 <br>
-
 
 <p>
 <b>Objectives:</b><br>
