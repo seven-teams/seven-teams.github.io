@@ -43,7 +43,7 @@ layout: default
         Tags:
         {% assign sortedtags = page.tags | sort %}
         {% for tag in sortedtags %}
-          <a href="{{ site.baseurl }}{{ site.scriptures_tag }}#{{ tag | slugify }}" class="post-tag">{{ tag | colorize }}</a>
+          <a href="{{ site.baseurl }}{{ site.tag_scriptures }}#{{ tag | slugify }}" class="post-tag">{{ tag | colorize }}</a>
         {% endfor %}
       {% endif %}
 

@@ -18,17 +18,30 @@ layout: default
   <div class="archive">
     {% unless page.header.overlay_color or page.header.overlay_image %}
       <style type="text/css">
-        .CUSTOM_CSS__tag-link {
+        .tag-link {
           color: darkcyan !important;
         }
 
-        .CUSTOM_CSS__tag-link:hover {
-          text-decoration: underline;
-          text-decoration-color: darkcyan;
+        .tag-link::after {
+        	content: '';
+        	background-color: darkcyan;
+        	transform: scaleX(0);
+        	transform-origin: bottom right;
+        	transition: transform 0.25s ease-out;
+        	position: absolute;
+        	width: 100%;
+        	height: 0.25em;
+        	bottom: 0;
+        	left: 0;
+        }
+
+        .tag-link:hover::after {
+          transform: scaleX(1);
+          transform-origin: bottom left;
         }
       </style>
       {% capture tagpage %}/tag-{{page.url | split: "/" | last}}{% endcapture %}
-      <h1 class="page__title">{{ page.title }} <span class="CUSTOM_CSS__tag-link">(<a href="{{tagpage}}">Tags</a>)</span></h1>
+      <h1 class="page__title">{{ page.title }} <span class="tag-link">(<a href="{{tagpage}}">Tags</a>)</span></h1>
     {% endunless %}
     {{ content }}
     

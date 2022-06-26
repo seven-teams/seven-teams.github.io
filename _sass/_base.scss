@@ -314,6 +314,10 @@ b, i, strong, em, blockquote, p, q, span, figure, img, h1, h2, header, input, a,
   transition: $global-transition;
 }
 
+/*
+  Custom styles
+  ========================================================================== */
+
 .para-divider {
   background-image: url("/images/Z.jpg");
   background-repeat: no-repeat;
@@ -330,4 +334,3 @@ b, i, strong, em, blockquote, p, q, span, figure, img, h1, h2, header, input, a,
   	padding-top: 0;
   }
 }
-
