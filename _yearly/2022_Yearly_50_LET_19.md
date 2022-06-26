@@ -10,7 +10,6 @@ tags:
 
 <div style="text-align: center"><img src="/images/image9.png" /></div>
 
-<br>
 <p style="color:DarkGreen; text-align:center">
 <font size="+2"><b>Ocean of Love</b><br></font>
 </p>
@@ -33,9 +32,7 @@ And today only I received the message saying that somebody has donated that. I w
 <font color="blue"><b>1981-0625 Public Program, Friends Meeting House, 120 Heath Street, Hampstead, London NW3 1DR, UK</b></font><br>
 </p>
 
-<br>
 Links to suggested talk: <a href="https://soundcloud.com/sahaja-library/1981-0625-the-ocean-of-love"> soundcloud</a><br>
-<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -43,8 +40,6 @@ Links to suggested talk: <a href="https://soundcloud.com/sahaja-library/1981-062
 19. To build sanatoria, hospitals, nursing homes for the sick and invalid. <br>
 </p>
 
-<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
-<br>
 Comprehensive Compilations and Yearly Topics Teams
