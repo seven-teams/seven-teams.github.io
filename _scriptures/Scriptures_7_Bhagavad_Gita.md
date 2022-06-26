@@ -101,14 +101,14 @@ Now it is described about Mahāviṣhṇu that Rādhā Herself created Him.<br>
 And His father was Kṛiṣhṇa, hence He was named Christ. No one has realized why Christ was called after Kṛiṣhṇa. Because Kṛiṣhṇa was the one to bring in the kṛiṣhi' [plowing], and fruit of that is Christ.<br>
 And it has also been described that Kṛiṣhṇa has bestowed upon Christ His sixteenth right. That is, Christ would become the Support of the World and show the people what Kṛiṣhṇa had said, "Nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ, Na chainaṃ kledayanty āpo, na śhoṣhayati mārutaḥ." That this power can never be destroyed and will bring forth the ascent of people. And this has been evidenced in His [Christ's] Resurrection.</font><br>
 <b>Version 2:</b><br>
-And Christ's Mother, Mary, was none other than Rādhā Herself.<br>
+<font color="red">And Christ's Mother, Mary, was none other than Rādhā Herself.<br>
 Now it is described about Mahāviṣhṇu, that Rādhā Herself created Her Son.<br>
 And His Father was Viṣhṇu, hence He was named Christ. No one understood why Kṛiṣhṇa was called Christ over there. Kṛiṣhṇa was coined after the word kṛiṣhi. Kṛiṣhṇa practiced farming (kṛiṣhi), and the fruit of that is Christ.<br>
-And it has also been described that Kṛiṣhṇa has bestowed upon Christ His sixteenth right. Similarly Christ would become the support of the world and demonstrate people what Kṛiṣhṇa had said: "Nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ." This He will show. That this power can never be destroyed and will bring forth the upliftment of people. And this has been evidenced in His Resurrection.
+And it has also been described that Kṛiṣhṇa has bestowed upon Christ His sixteenth right. Similarly Christ would become the support of the world and demonstrate people what Kṛiṣhṇa had said: "Nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ." This He will show. That this power can never be destroyed and will bring forth the upliftment of people. And this has been evidenced in His Resurrection.</font><br>
 <b>1979-0223 Public Program (Marathi), Kuṇḍalinī Śhakti ani Sat Chakra (Kuṇḍalinī Śhakti and the Seven Chakras), Ahmednagar, Maharashtra, India</b><br>
 <br>
-Then we come to Āgñyā chakra, which is the Light Itself. That is the one that enlightens your attention, Āgñyā chakra. That is the Light by which you see everything, after Realization. And when you know you are the Light, and when you know that you are the Eternal Light, that nothing can kill you: "Nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ.">br> 
-Once you know that in your Āgñyā, then all the fears and domination disappear [snapping Her fingers:] just like that. Because it is the Light of Love that does not dominate nor is afraid because it knows it is eternal, it is not afraid of death or of crucifixion or of anything.<br>
+<font color="red">Then we come to Āgñyā chakra, which is the Light Itself. That is the one that enlightens your attention, Āgñyā chakra. That is the Light by which you see everything, after Realization. And when you know you are the Light, and when you know that you are the Eternal Light, that nothing can kill you: "Nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ.">br> 
+Once you know that in your Āgñyā, then all the fears and domination disappear [snapping Her fingers:] just like that. Because it is the Light of Love that does not dominate nor is afraid because it knows it is eternal, it is not afraid of death or of crucifixion or of anything.</font><br>
 <b>1979-1230 Talk to Sahaja Yogis, God is Love or The Meaning of Love Explained Along the Chakras, CKP Hall, Mumbai, Maharashtra, India</b><br>
 ......<br>
 <br>
