@@ -8,7 +8,7 @@ tags:
 
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image9.png" /></div>
+<div style="text-align: center"><img src="/images/image988_Asha_Peter_Brownscombe_Collection.png" /></div>
 
 <p style="color:DarkGreen; text-align:center">
 <font size="+2"><b>Ocean of Love</b><br></font>
