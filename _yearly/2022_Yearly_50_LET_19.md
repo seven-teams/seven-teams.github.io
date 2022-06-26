@@ -42,7 +42,8 @@ Links to suggested talk: <a href="https://soundcloud.com/sahaja-library/1981-062
 19. To build sanatoria, hospitals, nursing homes for the sick and invalid.
 </p>
 
-<p style="color:red;">Jay Śhrī Mātājī!<br>
+<p>
+<font color="red">Jay Śhrī Mātājī!</font><br>
 <br>
 Comprehensive Compilations and Yearly Topics Teams</p>
 
