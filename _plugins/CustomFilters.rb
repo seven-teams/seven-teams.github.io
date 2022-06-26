@@ -1,22 +1,22 @@
 def colorizeCore(input)
-  color, tag = input.split("@").map{|item| item.strip}
-  unless tag then tag, color = color, nil end
-  
-  style = if color then %(style="color: #{color}") end
-  html = "<span #{style}>#{tag}</span>"
-  color = if color then color else "?" end
+  color, tag = input.split('@').map(&:strip)
+  unless tag
+    tag = color
+    color = nil
+  end
 
-  return color, html
+  [color || '?', "<span #{
+    %(style="color: #{color}; text-decoration: underline; text-decoration-color: #{color}") if color
+  }>#{tag}</span>"]
 end
-  
 
 module CustomFilters
   def colorize(input)
-    return colorizeCore(input)[1]
+    colorizeCore(input)[1]
   end
 
   def getColor(input)
-    return colorizeCore(input)[0]
+    colorizeCore(input)[0]
   end
 end
 
