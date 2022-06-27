@@ -183,7 +183,7 @@ feed:
     - chronology
     - yearly
     - divine
-  tags: true
+  disable_in_development: false
 
 
 # Collections
