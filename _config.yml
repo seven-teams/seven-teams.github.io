@@ -45,9 +45,7 @@ staticman:
     date:
       type               : "date"
       options:
-        format           : "iso8601" # "iso8601" (default), "timestamp-seconds", "timestamp-milliseconds"
-atom_feed:
-  path                   : # blank (default) uses feed.xml
+        format           : "iso8601" # "iso8601" (default), "timestamp-seconds", "timestamp-milliseconds"oll
 
 # SEO Related
 google_site_verification :
@@ -172,6 +170,20 @@ kramdown:
   toc_levels: 1..6
   smart_quotes: lsquo,rsquo,ldquo,rdquo
   enable_coderay: false
+
+
+# Atom Feed
+feed:
+  post_limit: 25
+  collections:
+    - festivity
+    - compilation
+    - quotes
+    - scriptures
+    - chronology
+    - yearly
+    - divine
+  tags: true
 
 
 # Collections
