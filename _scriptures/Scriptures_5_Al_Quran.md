@@ -26,7 +26,7 @@ tags:
 The whole of Namāz depicts the awakening of Kuṇḍalinī.<br>
 And in it, He mentioned Allah hu Akbar, that Akbar is Himself Śhrī Virāṭa.<br>
 If I say this to the Muslims will come after Me. Even the Hindus will come after Me.</font><br>
-<br>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b><br>
+<b>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b><br>
 <br>
 <font color="red">So, it is all described iking uh-uhb uh Qur'ān. There's a complete Sūrah describing about the Sent One, means the Avatāra, means the Incarnation. And also said that, "You won't believe," "You won't accept," and all those things.  </font><br>
 <b>1990-0107 Pūjā (English+Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b>
@@ -315,7 +315,7 @@ Now, if Muhammad Sāhab was the last Man [see 33:40], why did He talk of Resurre
 <font color="DarkGreen">Ḥāʾ mīm: ʿain sīn qāf</font>
 </p>
 
-div class="para-divider"></div>
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Sūrah 50</b><br>
