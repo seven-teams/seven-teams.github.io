@@ -27,7 +27,15 @@ tags:
 <font color="red">The-ee ... great writer who is living now in England, his name is Doctor Mascaró, you might have heard his name, he has written lots of treatises about uh-uh Gītā, and Upaniṣhada[s], also Dhammapad, and also Bible. He is a master. And he is a master of Sanskrit language.<br>
 I went to see him, and he gave Me a flower, such a beautiful couplet from Gītā, and he said that, "Mother, give us light. Give them all light so that they can see. Please give them." I said, "I'm doing that!"<br>
 I'm doing that, but somehow people do not know what to expect within themselves.</font><br>
-<b>1980-1010 Public Program (2nd Day of Navarātri), Zürich, Switzerland</b>
+<b>1980-1010 Public Program (2nd Day of Navarātri), Zürich, Switzerland</b><br>
+<br>
+<font color="red">People say that, "In Gītā," I haven't read Gītā, "the one who is born in a particular caste belongs to that caste." I say, ``It's not possible."<br>
+The author of Gītā, Vedavyās, whose son was he? A fisherwoman's.<br>
+The author of Rāmāyaṇa, Vālmīki, who was he? A dacoit who wrote Rāmāyaṇa.<br>
+Rāma who ate Śhabarī's berries, Kṛiṣhṇa who had food at Vidura, to understand all these Incarnations we must know that this outward superficiality we have created is all wasteful doings.<br>
+We feel secure in all these false ideas we have created, that, `We belong to a certain sect or religion.' All this is a trick of our intellect, our mental projection, which does not spread around but goes only in one direction and then comes back again.<br>
+All such beliefs are of adharma and not of dharma, just not possible. Any person who puts another person down, or says, `I am placed higher than others,' can't be right, or in dharma.</font><br>
+<b>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b><br>
 </p>
 
 <div class="para-divider"></div>
@@ -363,6 +371,13 @@ m
 <font color="red">We sometimes ask for worldly things, power, money: you are still entangled in little things.<br>
 The Supreme Self that I am talking of is all seeing. "Yogakṣhemaṁ vahāmyaham": Yoga and kṣhema are looked after by Him.<br> See now, there is nothing superior to Him in this world. What in this world can stand in comparison to the Lord‽ The entire world is functioning because of this Superior Entity.</font><br>
 <b>1976-0205 Śhrī Viṣhnu Havan (Hindi) (Vasant Pañchamī), Upakār Buddhi (Sense of Gratitude), New Delhi, India</b><br>
+......<br>
+<font color="red">Looking at his country, of Śhrī Kṛiṣhṇa, when we torture women in the name of religion are we capable of us being Indians? We go on trumpeting about Indian culture. But are we capable of calling ourselves where we go out [abroad] and project ourselves about burning and killing our daughters-in-law? And so the outsiders say that, `Your country is such spiritual place, so much knowledge is there, people talk about righteousness and lecture about it, then how is it so that such horrible events happen?' What answer do we have on this?<br>
+Only one answer is there, that Śhrī Kṛiṣhṇa has said, "Yogakṣhemaṁ vahāmyaham."<br>
+There is a catch in this. `First there should be Yoga, and then I will look after their benevolence.' Why Did He not say, 'Kṣhema-yoga'?<br>
+First there will be Yoga, and then benevolence. This is the depiction of dharma. So first you achieve your Yoga.<br>
+So if you glorify the Indian culture, then the most essential and important essence of this culture is that you achieve your Self-realization.</font><br>
+<b>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b><br>
 ......<br>
 <br>
 <font color="red">But the second thing He said, that, you should do [laughing:] bhakti: "Whatever fruit or flower or water you give Me, I'll take it. But you must do bhakti which is ananya."<br>

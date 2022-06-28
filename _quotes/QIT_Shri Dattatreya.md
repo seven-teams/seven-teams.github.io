@@ -16,9 +16,10 @@ No one fought with each other. See what type of darkness you are in?<br>
 Fāṭimah, the daughter of Muhammad Sāheb was the same who became daughter of King Janaka.<br>
 Whom are you fighting? Think over it.<br>
 The Nāṇakī of Guru Janaka was none else but Jānakī.<br>
-<font color="red">Śhirḍī Sāī Nāth was also an Ādi Guru. They are the Masters of all.</font><br>
+<font color="red">Śhirḍī Sāī Nāth was also an Ādi Guru.<br> 
+They are the Masters of all.</font><br>
 <font color="red">Also, They are My Gurus. These Ādi Gurus taught Me all this Knowledge. In different Incarnations They kept Me teaching.<br> 
-Ultimately I had to come and do His work. They could not do it and now they are placing Me as a Guru so that I take up the job of a Guru.<br>
+Ultimately I had to come and do His work. They could not do it and now They are placing Me as a Guru so that I take up the job of a Guru.<br>
 There was an age when no one was willing to accept a woman as a Guru but in Kali Yuga only Mother could do His work: it is beyond the power of men.</font><br>
 This work could not be done by force, only the love of a Mother could do it because already there is so much pressure, tension in this world. The day it is forced upon the human being they will break down. So, love is the only way out.<br>
 So this Gurudom was given to Me. Everything is acceptable to Me.<br>
@@ -174,6 +175,17 @@ Vaidya Sāhab has told you about Muhammad Sāhab, I have to tell you that He was
 "For Cancer best treatment is of water i.e. putting feet in the river, sea or in the water at home with the photograph. <font color="red">Water has the religion (Dharma) of cleansing and hence Shri VISHNU and DATTATREYA responsible for the religion (Dharma) of human beings are to be worshiped. They help you to cure and also the local Deity of the Chakra that is attacked.</font> Put the patient before the photograph with the candle and his feet being in the water, bring down your hands across the sympathetic nervous system towards the water. The patient will cool down gradually. If he gets realization, then he is cured."<br>
 <font size="+0"><b>1979-0000 Letter to Dr. Raul from Nirmala Yoga, Issue 8 (March-April 1982), Page 24</b></font>
 </p>
+
+<div class="para-divider"></div>
+
+<p>
+"So the dharma that has been established in us by God Almighty because if we want to go to the Kingdom of God, then in our freedom we must desire to get to God. If someone tries to pressurize us and says, `You must ask for God,' then it is of no use, it is not an evaluation. That is why to reach in this state, a person has to seek the God as per his own independent sweet will and not due to any pressure, or any disease or any hardships or any sorrow, but only because of the fact and realizing that, `It is the only motive of our life to seek God.'<br>
+<font color="red">That is why, when we desire for this Divine Gift, then the doors of God Almighty's Divine Blessings open for you, and around the center is a place of Ten Primordial Gurus. These are the Main Gurus which are the Incarnation[s] of Śhri Dattātreya. They are: Socrates, Moses, Muhammad Sāhab, Guru Nāṇak, Śhirḍī Sāi Nāth, and Zoroaster. They are all Incarnation[s] of one Incarnation.</font>"<br>
+There is no difference between Muhammad Sāhab and Guru Nāṇak. When Muhammad Sahab saw that people are taking wrong interpretation of His Dharma and doing everything against the dharma, then He was born again as Guru Nāṇak to correct it. Because He wanted to bring unity among people but you know what happened during Their lives.<br>
+<font size="+0"><b>1979-0322 Public Program (Hindi), Sahaja Yoga and the Subtle System, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India (other date 0321)</b></font>
+</p>
+
+<div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>

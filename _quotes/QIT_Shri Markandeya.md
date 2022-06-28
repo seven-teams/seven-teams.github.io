@@ -278,6 +278,11 @@ They had the True Knowledge of the Kuṇḍalinī and went as far as Bolivia and
 <font color="red"><b>Śhrī Mātājī:</b></font> Now Sahaja Yoga has created the environment for many great Souls to take their birth.<br>
 <font size="+0"><b>1980-1229 Talk to Sahaja Yogis, House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
+
+<div class="para-divider"></div>
+
+[<font color="orange">WARNING: Quotes for the period 1981-02 to 2000-04 will follow in due time.</font>] 
+
 <div class="para-divider"></div>
 
 <p>
@@ -287,6 +292,31 @@ They had the True Knowledge of the Kuṇḍalinī and went as far as Bolivia and
 
 <div class="para-divider"></div>
 
-[<font color="orange">WARNING: Quotes after January 1981 to follow.</font>] 
+<p>
+"About Kuṇḍalinī, many people knew It long time back.<br>
+<font color="red">I must say, there was Mārkaṇḍeya, who was thirteen thousand years back, He has talked about Kuṇḍalinī.</font><br>
+Ādi Śhaṅkarāchārya has talked about Kuṇḍalinī.<br>
+And later, am I ...  I must say, they were at least sixteen to seventeen Great Saints, seventeen, who have talked about Kuṇḍalinī in the twelve ... in the sixteenth century.<br>
+One of them was Guru Nāṇak, who has clearly said: that, "You have to seek it within."<br>
+And Kabīr, who is also included in the Grantha Sāhab, has said, [laughing:] that: "It is the Kuṇḍalinī that can give it."<br>
+All of Them have said the same thing."<br>
+<font size="+0"><b>2000-0926 Public Program, Day 1, Royal Albert Hall, Kensington Gore, London SW7, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">According to Mārkaṇḍeya, an ancient spiritual giant and author of an important <i>Purāṇa</i>, these demonic forces [tāntrikas] are destroyed many times in physical form, and are sent to hell to suffer untold punishment.</font> In spite of all the punishment they go through there, they never cease in their search to find more subtle and cunning methods of wrecking the morality of human beings who genuinely sought God. Like prisoners released from jail, they return to Earth again and again to wreak their evil against this morality which builds up the sense of religion in man (<i>dharma</i>)."<br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 6: Tantrism</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">We had a Saint called Mārkaṇḍeya, who they say lived fourteen thousand years ago. He has written about this fourth dimension and has described it as the blessing of the Primordial Mother.</font> The second person who was very well equipped with this knowledge, was Ādi Śhaṅkarāchārya who has written many books. The first book he wrote was Vivekachūḍāmaṇi, in which he describes this fourth dimension and explains why we should try to attain this fourth dimension. An intellectual, one Mister Sharma, challenged him and told him that he could not do anything as an ascetic and win over my intellect. Thus he felt that for the common people all this discussion might just seem to be mental acrobatics. So he decided to write books just praising the Primordial Mother, especially in Saundaryalaharī, where he described all the Divine Vibrations as the vibrations of the loving beauty of the Primordial Mother. At that time all this was written in the Sanskrit language but the common people did not understand this language, except for a very few learned people, who also did not want to go into the details of this exposition."</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 9: Evolution</b></font>
+</p>
+
+<div class="para-divider"></div>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
