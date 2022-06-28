@@ -22,11 +22,17 @@ tags:
 
 <p>
 <b>Quotes</b><br>
+<font color="red">So much has been said in the Qur'ān. My father who translated the Qur'ān has mentioned it, which I have read.<br>
+The whole of Namāz depicts the awakening of Kuṇḍalinī.<br>
+And in it, He mentioned Allah hu Akbar, that Akbar is Himself Śhrī Virāṭa.<br>
+If I say this to the Muslims will come after Me. Even the Hindus will come after Me.</font><br>
+<br>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b><br>
+<br>
 <font color="red">So, it is all described iking uh-uhb uh Qur'ān. There's a complete Sūrah describing about the Sent One, means the Avatāra, means the Incarnation. And also said that, "You won't believe," "You won't accept," and all those things.  </font><br>
 <b>1990-0107 Pūjā (English+Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b>
 <br>
 <font color="red">Even in the Islam they showed Me a complete Sūrah written about Me, that the Sent One, they call Me a Sent One, and, 'That person will give you Realization, that would make you Pīrs, that will give you Collective Consciousness,' everything written in that, so beautiful, you won't believe it. "But you will not believe, you will be non-believers." Like that it is written in that.</font><br>
-<b>1990-0228 Talk to Sahaja Yogis, in Transit, Changi Airport, Singapore</b>
+<b>1990-0228 Talk to Sahaja Yogis, in Transit, Changi Airport, Singapore</b><br>
 <br>
 <font color="red">In any book whatsoever, take it Bible, or go to Qur'ān, or go to any book, Zen, go to Buddhist, uh-uh-uh books of a Dhammapad, or you go to any other Śhāstras, like Vedas, they have talked of Kuṇḍalinī all right.</font><br>
 <b>1985-0603 Public Program, Day 1, The Bayard Rustin High School for the Humanities, 351 W 18th Street, New York City, NY, U.S.A.</b><br>
@@ -252,6 +258,9 @@ What is islam? It is surrender and from the same root comes the word salam or pe
 
 <p>
 <b>36 Quotes</b><br>
+<font color="red">Muhammad Sāheb, who was a great personality, said, "At the Time of your Resurrection, your hands will speak," which is known as Qiyāmah, the Resurrection Time.</font><br>
+<b>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b><br>
+<br>
 <font color="red">Like there's one boy who has fished out lots of things from Qur'ān, [he] is German, from Qur'ān, what it has to say for Sahaj.<br>
 And they said, "Thes ... there is a Sūrah called Saishta [Śhāsti] Yoga, Saishta [Śhāsti] Yoga" [Sūrah 36: Yāʾ-Sīn], and that Sūrah is dealing with Me. Because eve... will be ... it is said that: "We are going to send, and the Sent, the One who is sent, will not be acceptable to you. You will deny, you will defy." Everything is described. Even, that's, "Your hands will speak," at the Time  of your Resurrection, all that in that Sūrah is given. It's very interesting, that Sūrah is.</font><br>
 <b>1990-0314 Śhrī Mahālakṣhmī Pūjā, Auckland, New Zealand</b><br>
