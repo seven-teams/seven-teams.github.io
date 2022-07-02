@@ -45,9 +45,8 @@ Now see the difference, because you are deep, you are much deeper. In evolution 
 <font color="blue"><b>1988-0709 Talk to Sahaja Yogis, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), France</b></font>
 </p>
 
-<br>
+
 Links to suggested talk: <a href="https://vimeo.com/725081272"> vimeo</a>, <a href="https://soundcloud.com/sahaja-library/1988-0709-intuition-women"> youtube</a><br>
-<br>
 
 
 <p>
