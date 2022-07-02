@@ -19,24 +19,30 @@ tags:
 "Why I asked him to talk to arrange a meeting with you people is this: because I've discovered that in Kali Yuga, specially in the West, the problem will be coming from the women.<br>
 ......<br>
 I being a woman, you see, I can come much closer to you people.<br>
-And sometimes people start thinking that the ladies have a special relationship with Me.<br>
+And sometimes people start thinking that uh the ladies have a special relationship with Me.<br>
 ......<br>
-And especially in the West you see this woman slave and all these nonsensical ideas have gone into the heads of even Sahaja Yogis. One of the conditionings they have: women's lib, the liberation of women.<br>
-Now in Sahaja Yoga nobody can dominate you. Because you are the Spirit and Spirit cannot be dominated. If you think you are dominated then know that you are not the Spirit.<br>
-So now we have to understand we are women in Sahaja Yoga.<br>
+And specially in the West, you see, ah with this a woman's lib and all these nonsensical ideas have gone into the heads of even Sahaja Yogis. One of the conditionings they have.<br>
 ......<br>
-But one should be very proud that you are women. I am very proud that I am a Woman. Because women can perform so many things which men cannot do.<br>
+Now, in Sahaja Yoga, nobody can dominate you. Because you are the Spirit, and the Spirit cannot be dominated. If you think you are dominated, then know that you are not a Spirit.<br>
+So, now, we have to understand: we are women in Sahaja Yoga. And we have to understand our balancing power.<br>
 ......<br>
-Same women in Sahaja Yoga are very important for Me. But the first thing they should have is a bearing power. And also they should have lots and lots of love and compassion.<br>
+But one should be very proud that you are women. I am very proud that I am a woman. Because women can perform so many things which men cannot do. <br>
 ......<br>
-Love is the best way to control any one. But love means sacrifice. But after some time you won't feel any sacrifice. Once you start enjoying, giving, then it is no more a sacrifice.<br>
+Same, women in Sahaja Yoga are very important for Me. But the first thing they should have is a bearing power.<br>
 ......<br>
-Women have been given so many qualities, because their lifestyle is more difficult than that of men.<br>
-So I have to make one request to you that you must try to make yourself into a proper Sahaja Yoginī.<br>
+And also they should have lots and lots of love and compassion.<br>
 ......<br>
-No, men are more intelligent. No doubt. But women have intuition. But you don't have to argue. It will happen, the way you have intuition will happen and they will learn a lesson.<br>
+Th Absolute Womanhood is the climax for you.<br>
 ......<br>
-All right, now see the difference, because you are deep, you [women] are much deeper. In evolution you are higher, no doubt. "<br>
+Love is the best way to control anyone. But love means sacrifice. But after some time you won't feel any sacrifice. Once you start enjoying, giving, then it is no more a sacrifice.<br>
+......<br>
+Women ha... have been given so many qualities, because their lifestyle is more difficult than that of men.<br>
+So, I have to make one request to you: that you must try to make yourself uh-uh into a proper Sahaja Yoginī.<br>
+......<br>
+No, men are more intelligent, no doubt. But women have intuition. But you don't have to argue! It will happen, the way you have intuition will happen, and they will learn a lesson.<br>
+......<br>
+So, you see, they ... they ... special quality which is intuition must be developed. All right?<br>
+Now see the difference, because you are deep, you are much deeper. In evolution you are higher, no doubt. "<br>
 <font color="blue"><b>1988-0709 Talk to Sahaja Yogis, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), France</b></font>
 </p>
 
