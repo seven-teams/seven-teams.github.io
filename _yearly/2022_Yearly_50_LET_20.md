@@ -31,7 +31,7 @@ Same, women in Sahaja Yoga are very important for Me. But the first thing they s
 ......<br>
 And also they should have lots and lots of love and compassion.<br>
 ......<br>
-Th Absolute Womanhood is the climax for you.<br>
+The Absolute Womanhood is the climax for you.<br>
 ......<br>
 Love is the best way to control anyone. But love means sacrifice. But after some time you won't feel any sacrifice. Once you start enjoying, giving, then it is no more a sacrifice.<br>
 ......<br>
