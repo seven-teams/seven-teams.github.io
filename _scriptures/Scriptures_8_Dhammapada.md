@@ -17,7 +17,7 @@ tags:
 <br>
 <font color="blue"><b>Thomas Byrom's translation of Dhammapada available at</b></font> <a href="https://archive.org/details/pdfy-5xsS5pSi8sQDrKnc">link</a><br>
 <br>
-<font color="Peru"><b>Dhamma Verses -- Dhammapada edited and translated by Ānandajoti Bhikkhu (first edition 2016 August) available at <a href="https://www.holybooks.com/wp-content/uploads/Dhamma-Verses.pdf">pdf</a></b></font>
+<font color="Peru"><b>Dhamma Verses -- Dhammapada edited and translated by Ānandajoti Bhikkhu (first edition 2016 August) available at</b> <a href="https://www.holybooks.com/wp-content/uploads/Dhamma-Verses.pdf">pdf</a></font>
 </p>
 
 <div class="para-divider"></div>
