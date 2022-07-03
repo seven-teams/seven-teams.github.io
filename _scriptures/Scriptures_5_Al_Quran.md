@@ -79,7 +79,8 @@ Nor of those who have gone astray.</font><br>
 
 <p>
 <b>New Mantras or Names of God</b><br>
-<font color="DarkGreen">Alif lām mīm</font>
+<font color="DarkGreen">Alif lām mīm</font><br>
+<font color="DarkBlue">surely Allah has power over al things</font>
 </p>
 
 <p>
@@ -98,6 +99,48 @@ Nor of those who have gone astray.</font><br>
 <b>2:4 Translations</b><br>
 <font color="DarkGreen">who trust what has been revealed to you [Muḥammad] and to others before you, and firmly belief in the life to come.</font><br>
 <font color="DarkBlue">And who believe in that which has been revealed to you and that which was revealed before you and they are sure of the hereafter.</font>
+</p>
+
+<p>
+<b>2:5 Translations</b><br>
+<font color="DarkGreen">These are rightly guarded by their Lord; these shall triumph.</font><br>
+<font color="DarkBlue">These are on a right course from their Lord and these it is that shall be successful.</font>
+</p>
+
+<p>
+<b>2:6 Translations</b><br>
+<font color="DarkGreen">As for the unbelievers, it is the same whether or not you forewarn them; they wil not have faith.</font><br>
+<font color="DarkBlue">Surely those who disbelieve, it being alike to them whether you warn them, or do not warn them, will not believe.</font>
+</p>
+
+<p>
+<b>2:7 Translations</b><br>
+<font color="DarkGreen">God has set a seal upon their hearts and ears; their sight is dimmed and grievous punishment awaits them.</font><br>
+<font color="DarkBlue">Allah has set a seal upon their hearts and upon their hearing and there is a covering over their eyes, and there is a great punishment for them.</font>
+</p>
+
+<p>
+<b>2:8 Translations</b><br>
+<font color="DarkGreen">There are some who declare: 'We believe in God and the Last Day,' yet they are not true believers.</font><br>
+<font color="DarkBlue">And there are some people who say: We believe in Allah and the last day; and they are not at all believers.</font>
+</p>
+
+<p>
+<b>2:9 Translations</b><br>
+<font color="DarkGreen">They seek to deceive God and those who believe in Him: but they deceive none save themselves, though they may not perceive it. </font><br>
+<font color="DarkBlue">They desire to deceive Allah and those who belivee, and they deceive only themselves and they do not perceive.</font>
+</p>
+
+<p>
+<b>2:21 Translations</b><br>
+<font color="DarkGreen">Men, serve your Lord, who has created you and those who have gone before you, so that you may guard yourselves against evil;</font><br>
+<font color="DarkBlue">O men! serve your Lord Who created you and those before you so that you may guard (against evil).</font>
+</p>
+
+<p>
+<b>2:22 Translations</b><br>
+<font color="DarkGreen">who has made the earth a bed for you and the sky a dome, and has sent down water from the sky to bring forth fruits for your sustenance. Do not knowingly set up other gods beside God.</font><br>
+<font color="DarkBlue">Who made the earth a resting place for you and the heaven canopy and (who) sends down rain from the cloud, then brings forth with it subsistence for you of the fruits; therefore do not set up rivals to Allah while you know.</font>
 </p>
 
 <p>
