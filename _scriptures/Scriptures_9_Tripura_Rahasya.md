@@ -20,6 +20,17 @@ tags:
 
 <p>
 <b>Quotes</b><br>
+<font color="red">And after many Incarnations on this Earth, They gave Realization to some people, but very few. And then these people later on started giving Realization to others.<br>
+We can say that this all started with Paraśhurāma. When Paraśhurāma was incarnated it was the beginning of individual spirituality. People started learning spirituality by going individually to the forest. But Paraśhurāma was [an] Incarnation.<br>
+And with Paraśhurāma, Śhrī Ādi Guru Dattātreya had also many Incarnations. But due to Śhrī Dattātreya's collaboration in Śhrī Paraśhurāma's Incarnation, one in karoṛs or lākhs used to get his Realization.<br>
+And after this, He also used to sit in the forest. He was next to the Incarnation. People used to get cured by going to Him in case of need. They thought, 'He is a Saint, we should pay our respects to Him.'</font><br>
+<b>1976-0527 Talk to Sahaja Yogis (Marathi), Sahaja Yoga Baddal Sarvānna Sangaychee Hi Sahajayogyānchi Jababdari Āhe (Responsibility of Sahaja Yoga), Dadar, Mumbai, Maharashtra, India</b><br>
+<br>
+<font color="red">His sixth form was as the Strong Man (Paraśhurāma). He brought forth the powers achieved by self-control ({\it tapobala}). When they were fully evolved human beings developed their `I'-ness and felt a need to seek the unknown within themselves. They began to think about God, and became aware of the strengths of spiritual life, and started a new search of the inner life. The search was an individual one, and the seeker absolutely secluded himself from society. Many renounced the world and went into complete retreat in the forests and jungles in search of the Ultimate Reality, often pursuing their quest day and night for years on end, and often for life after life. Paraśhurāma was the founder of Haṭha and Rāja Yoga which were practiced all alone under the guidance of a guru.</font><br>
+<b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 32</b><br>
+<br>
+<font color="red">Ādi Śhakti incarnated as Durgā a thousand times to protect such Saints, and apart from these full Incarnations She also manifested Her Powers through many chaste women of India in a partial form ({\it Aṃśhāvatāra}). The Incarnation of Ādi Viṣhṇu as Paraśhurāma. (the Strong Man) created an awareness of the techniques of physical and mental powers. Seekers discovered many new methods of meditation through such discoveries. </font><br>
+<b>The Book of Ādi Śhakti, Chapter 7: Haṭha Yoga and Rāja Yoga, Page 105</b><br>
 </p>
 
 <div class="para-divider"></div>
@@ -31,7 +42,7 @@ tags:
 
 <p>
 <b>1.1 Translation</b><br>
-<font color="DarkGreen">Salutation to >i>Aum</i> (undifferentiated Brahman and yet the) Primal and Blissful cause, the transcendental consciousness shining as the unique mirror of the wonderful universe.</font>
+<font color="DarkGreen">Salutation to <i>Aum</i> (undifferentiated Brahman and yet the) Primal and Blissful cause, the transcendental consciousness shining as the unique mirror of the wonderful universe.</font>
 </p>
 
 <p>
@@ -41,7 +52,7 @@ tags:
 
 <p>
 <b>1.2 Translation</b><br>
-<font color="DarkGreen">[Haritāyana:] "Undisturbed you have heard, O Narada! the Mahatmya (The Gospel) [Māhātmya Khanda or Haritāyana Saṃhitā Section 1] of Sri Tripura, which teaches the way to transcendence."</font>
+<font color="DarkGreen">[Haritāyana:] "Undisturbed you have heard, O Narada! the Mahatmya (The Gospel) [Māhātmya Khanda or Haritāyana Saṃhitā Section 1] of Śhrī Tripurā, which teaches the way to transcendence."</font>
 </p>
 
 <p>
@@ -56,7 +67,7 @@ tags:
 
 <p>
 <b>1.5 Translation</b><br>
-<font color="DarkGreen"></font>
+<font color="DarkGreen">No other course will impress the mind so much as this one on Wisdom which was once taught by that illustrious master Dattātreya to Paraśhurāma. ......</font>
 </p>
 
 <p>
