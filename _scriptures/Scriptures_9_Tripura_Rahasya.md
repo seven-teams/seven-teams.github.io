@@ -1,7 +1,7 @@
 ---
 title: 'Post 9: TRIPURĀ RAHASYA'
-date: 2022-07-04
-permalink: /quotes/2022/0704
+date: 2022-07-03
+permalink: /quotes/2022/0703
 tags:
   - crimson @ Shri Dattatreya
   - crimson @ Shri Parashurama
