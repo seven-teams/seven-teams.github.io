@@ -1,7 +1,7 @@
 ---
 title: '2021 Celebrating Day 7 of Vasant Navarātri: "Kuṇḍalinī is the pure desire. Again it, listen to it carefully: pure desire" '
-date: 2021-04-17
-permalink: /festivity/2021/04/17
+date: 2021-04-18
+permalink: /festivity/2021/04/18
 tags:
   - green @ Vasant Navaratri
 ---

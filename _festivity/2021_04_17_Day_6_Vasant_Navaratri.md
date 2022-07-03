@@ -1,7 +1,7 @@
 ---
 title: '2021 Celebrating Day 6 of Vasant Navarātri: "You have to be first of all fully equipped with readiness, readiness to serve the Divine." '
-date: 2021-04-16
-permalink: /festivity/2021/04/16
+date: 2021-04-17
+permalink: /festivity/2021/04/17
 tags:
   - green @ Vasant Navaratri
 ---

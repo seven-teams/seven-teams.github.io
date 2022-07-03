@@ -3,7 +3,7 @@ title: '2022 Celebrating Vasant Navarātri: "They have one festival called Ganga
 date: 2022-04-02
 permalink: /festivity/2022/04/04
 tags:
-  - marron @ Shri Gangaur Festival
+  - maroon @ Shri Gangaur Festival
   - green @ Vasant Navaratri
 ---
 

@@ -10,14 +10,11 @@ redirect_from:
 
 ![PICTURE 1](/images/HHShriMatajiNirmalDevi.jpg)
 
-<br>
 
 **<font color="blue">Divine Treasures: an eternal token of gratitude and love</font>**
 ======
 
 The chance to meet Śhrī Mātājī and to hear Her teachings represented a dramatic turnaround in our lives. Sometimes fast, sometimes slow, visible transformation took place, producing a lasting change infused by beauty, serenity, joy, purity, simplicity, collectivity, etc. As an eternal expression of our gratitude towards Śhrī Mātājī, we would like to share some of the Divine Treasures we have delighted our Souls and Spirits with while following Śhrī Mātājī and practicing Sahaja Yoga. In particular, the site includes the complete and unedited Divine Message of Śhrī Mātājī and all its connections with the Spiritual Festivals and Scriptures of the World.
-
-<br>
 
 
 **<font color="red">Śhrī Mātājī Nirmalā Devī</font>**
@@ -37,7 +34,6 @@ Her lifelong mission started publicly on May 5, 1970, when in the early morning 
 
 H. H. Śhrī Mātājī withdrew from this world on February 23, 2011.
 
-<br>
 
 **<font color="blue">On the Posts of the Seven Teams</font>**
 ======

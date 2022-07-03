@@ -3,7 +3,7 @@ title: '2021 Celebrating Gangaur Festival during Vasant Navarātri: "They have o
 date: 2021-04-14
 permalink: /festivity/2021/04/14
 tags:
-  - marron @ Shri Gangaur Festival
+  - maroon @ Shri Gangaur Festival
   - green @ Vasant Navaratri
 ---
 
