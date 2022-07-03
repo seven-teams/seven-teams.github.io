@@ -3,7 +3,7 @@ title: '2021 Celebrating Akṣhaya Tṛitīya: "it is the Pūjā of the Kundalin
 date: 2021-05-14
 permalink: /festivity/2021/05/14
 tags:
-  - Akshaya Tritiya
+  - maroon @ Akshaya Tritiya
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

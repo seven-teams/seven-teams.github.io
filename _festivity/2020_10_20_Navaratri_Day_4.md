@@ -3,7 +3,8 @@ title: '2020 Celebrating Navarātri Festival: "Help us to fight our negativity w
 date: 2020-10-20
 permalink: /festivity/2020/10/20
 tags:
-  - Navaratri
+  - deeppink @ Shri Kushmanda
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

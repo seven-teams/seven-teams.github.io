@@ -3,7 +3,8 @@ title: '2020 Celebrating Rakshābandhan: "This rākhī is nothing but the Viṣh
 date: 2020-08-03
 permalink: /festivity/2020/0803
 tags:
-  - Diwali
+  - marron @ Rakshabandhan
+  - orange @ Shri Vishnumaya Puja
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

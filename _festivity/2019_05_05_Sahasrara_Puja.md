@@ -3,8 +3,8 @@ title: '2019 Celebrating Sahasrara Puja : "We can say, in 1970, 5th May, [for th
 date: 2019-05-05
 permalink: /festivity/2019/0505
 tags:
-  - Sahasrara Puja
-  - Sahasrara Day
+  - orange @ Sahasrara Puja
+  - maroon @ Sahasrara Say
 ---
 
 ![PICTURE 1](/images/image1.png)

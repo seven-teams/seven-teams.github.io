@@ -3,7 +3,7 @@ title: '2020 Preparations for Celebrating Navarātri'
 date: 2020-10-14
 permalink: /festivity/2020/10/14
 tags:
-  - Navaratri
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

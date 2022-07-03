@@ -3,7 +3,8 @@ title: '2020 Celebrating Diwālī Festivity: "the brotherhood and sisterhood is 
 date: 2020-11-16
 permalink: /festivity/2020/11/16
 tags:
-  - Diwali
+  - maroon @ Bhai Duja Day
+  - green @ Diwali
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

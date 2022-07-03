@@ -3,7 +3,7 @@ title: '2022 Celebrating Sahasrāra Pūjā: "To be one with the Divine is the gr
 date: 2022-05-08
 permalink: /festivity/2022/05/08
 tags:
-  - Sahasrara Puja
+  - orange @ Sahasrara Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

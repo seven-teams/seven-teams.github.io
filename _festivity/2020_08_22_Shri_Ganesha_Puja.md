@@ -3,8 +3,9 @@ title: '2020 Celebrating Śhrī Gaṇeśha Chaturthī: "The greatest quality of 
 date: 2020-08-22
 permalink: /festivity/2020/08/22
 tags:
-  - Shri Ganesha
-  - Chaturthi
+  - orange @ Shri Ganesha Puja
+  - maroon @ Shri Ganesha Chaturthi 
+  - deeppink @ Shri Ganesha
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

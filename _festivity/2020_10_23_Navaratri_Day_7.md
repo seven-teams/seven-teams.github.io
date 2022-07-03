@@ -3,7 +3,8 @@ title: '2020 Celebrating the Navarātri festival: "Worshiping is not just out of
 date: 2020-10-23
 permalink: /festivity/2020/10/23
 tags:
-  - Navaratri
+  - deeppink @ Shri Kalaratri
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

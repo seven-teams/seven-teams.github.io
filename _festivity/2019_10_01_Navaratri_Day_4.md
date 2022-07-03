@@ -3,7 +3,8 @@ title: '2019 Celebrating Navarātri (Day 4): Worshiping Śhrī Mātājī in the 
 date: 2019-10-01
 permalink: /festivity/2019/1001
 tags:
-  - Navaratri
+  - deeppink @ Shri Kushmanda
+  - green @ Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)

@@ -3,8 +3,10 @@ title: '2020 Celebrating Christmas: "Christ&#8217;s Power was of course Auṃkā
 date: 2020-12-25
 permalink: /festivity/2020/12/25
 tags:
-  - Ganapatipule Seminar
-  - Christmas Puja
+  - crimson @ Christmas Day
+  - orange @ Christmas Puja
+  - deeppink @ Shri Jesus Christ
+  - green @ Ganapatipule Seminar
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

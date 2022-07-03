@@ -3,8 +3,8 @@ title: '2021 Celebrating Guru Pūrṇimā: "it was said that guru is a person wh
 date: 2021-07-23
 permalink: /festivity/2021/07/23
 tags:
-  - Guru Purnima
-  - Guru Puja
+  - maroon @ Guru Purnima
+  - orange @ Guru Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

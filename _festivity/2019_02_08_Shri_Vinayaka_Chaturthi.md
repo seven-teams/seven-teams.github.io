@@ -3,7 +3,8 @@ title: '2019 Celebrating Birthday of Śhrī Gaṇeśha: Śhrī Vināyaka Chaturt
 date: 2019-02-08
 permalink: /festivity/2019/0208
 tags:
-  - Shri Vinayaka Chaturthi
+  - crimson @ Shri Vinayaka Chaturthi
+  - deeppink @ Shri Ganesha
 ---
 
 ![PICTURE 1](/images/image1.png)

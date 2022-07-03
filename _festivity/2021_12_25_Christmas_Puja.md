@@ -4,7 +4,9 @@ title: '2021 Celebrating Christmas: "Merry Christmas is enjoyment for joy. Out o
 date: 2021-12-25
 permalink: /festivity/2021/12/25
 tags:
-  - Christmas Puja
+  - crimson @ Christmas Day
+  - orange @ Christmas Puja
+  - deeppink @ Shri Jesus Christ
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

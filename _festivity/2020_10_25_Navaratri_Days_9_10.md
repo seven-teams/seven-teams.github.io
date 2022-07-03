@@ -3,7 +3,9 @@ title: '2020 Celebrating the Navarātri festival: "...... today is a very great 
 date: 2020-10-25
 permalink: /festivity/2020/10/25
 tags:
-  - Navaratri
+  - deeppink @ Shri Siddhidatri
+  - deeppink @ Shri Adi Shakti
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

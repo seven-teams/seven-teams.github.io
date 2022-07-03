@@ -3,7 +3,7 @@ title: '2022 Celebrating Śhrī Hanumān Jayanti: "He is the one who controls, o
 date: 2022-04-16
 permalink: /festivity/2022/04/16
 tags:
-  - Shri Hanumana
+  - crimson @ Shri Hanumana Jayanti
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

@@ -3,8 +3,8 @@ title: '2019 Shri Adi Shakti Puja: Evening Program before Shri Adi Shakti Puja'
 date: 2019-06-22
 permalink: /festivity/2019/0622
 tags:
-  - Evening Program
-  - Shri Adi Shakti Puja 
+  - green @ Shri Adi Shakti Puja Seminar
+  - indigo @ Evening Program
 ---
 
 ![PICTURE 1](/images/image1.png)

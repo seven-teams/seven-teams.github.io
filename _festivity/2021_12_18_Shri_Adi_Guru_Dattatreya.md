@@ -3,7 +3,7 @@ title: '2021 Celebrating Śhrī Ādi Guru Dattātreya&#8217;s Jayanti'
 date: 2021-12-18
 permalink: /festivity/2021/12/18
 tags:
-  - Shri Adi Guru Dattatreya
+  - crimson @ Shri Adi Guru Dattatreya Jayanti
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

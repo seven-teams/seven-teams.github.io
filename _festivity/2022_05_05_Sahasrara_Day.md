@@ -3,7 +3,8 @@ title: '2022 Celebrating Sahasrāra Day: "In the breaking of the Sahasrāra, I h
 date: 2022-05-05
 permalink: /festivity/2022/05/05
 tags:
-  - Sahasrara Puja
+  - orange @ Sahasrara Puja
+  - maroon @ Sahasrara Say
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

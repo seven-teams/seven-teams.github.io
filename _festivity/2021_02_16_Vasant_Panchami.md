@@ -3,7 +3,8 @@ title: '2021 Celebrating Vasant Pañchamī: Worshipping Śhrī Mātājī in the
 date: 2021-02-16
 permalink: /festivity/2021/02/16
 tags:
-  - Vasant Panchami
+  - maroon @ Vasant Panchami
+  - orange @ Shri Mahasaraswati Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

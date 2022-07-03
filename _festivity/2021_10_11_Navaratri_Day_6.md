@@ -3,7 +3,8 @@ title: '2021 Celebrating Navarātri Festival: "Navarātri is the day to give you
 date: 2021-10-11
 permalink: /festivity/2021/10/11
 tags:
-  - Navaratri
+  - deeppink @ Shri Katyayani
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

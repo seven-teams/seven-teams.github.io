@@ -46,7 +46,7 @@ Now see the difference, because you are deep, you are much deeper. In evolution 
 </p>
 
 
-Links to suggested talk: <a href="https://vimeo.com/725081272"> vimeo</a>, <a href="https://soundcloud.com/sahaja-library/1988-0709-intuition-women"> youtube</a><br>
+Links to suggested talk: <a href="https://vimeo.com/725081272"> vimeo</a>, <a href="https://soundcloud.com/sahaja-library/1988-0709-intuition-women"> soundcloud</a><br>
 
 
 <p>

@@ -3,7 +3,7 @@ title: '2022 Celebrating Śhivarātri Pūjā: Those whose heart is not clean can
 date: 2022-02-27
 permalink: /festivity/2022/02/27
 tags:
-  - Shivaratri Puja
+  - orange @ Shivaratri Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

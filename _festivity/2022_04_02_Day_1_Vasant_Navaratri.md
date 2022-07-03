@@ -3,7 +3,8 @@ title: '2022 Celebrating Vasant Navarātri Guḍhī Pāḍavā: "establishment o
 date: 2022-04-02
 permalink: /festivity/2022/04/02
 tags:
-  - Vasant Navaratri
+  - maroon @ Gudhi Padawa
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

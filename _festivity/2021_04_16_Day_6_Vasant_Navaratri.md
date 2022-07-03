@@ -3,7 +3,7 @@ title: '2021 Celebrating Day 6 of Vasant Navarātri: "You have to be first of al
 date: 2021-04-16
 permalink: /festivity/2021/04/16
 tags:
-  - Vasant Navaratri
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

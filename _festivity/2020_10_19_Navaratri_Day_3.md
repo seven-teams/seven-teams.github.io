@@ -3,7 +3,8 @@ title: '2020 Celebrating Navarātri Festival: "the significance of Pūjā ... is
 date: 2020-10-19
 permalink: /festivity/2020/10/19
 tags:
-  - Navaratri
+  - deeppink @ Shri Chandraghanta
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
@@ -60,7 +61,7 @@ So that also what we call Islam is nothing but is the creation of Ādi Śhakti."
 
 <p>
 <font size="+0">Dear All,<br>
-Today is the third day of Navarātri. We worship the golden complexion Goddess Chandraghanta who rides a lion or tiger. She has a half-moon shaped like a bell on Her forehead or who uses the moon as Her bell. During the battle between Her and the demons, the horrible sound produced by Her bell sent thousands of demons to hell.</font><br>
+Today is the third day of Navarātri. We worship the golden complexion Goddess Chandraghaṇṭā who rides a lion or tiger. She has a half-moon shaped like a bell on Her forehead or who uses the moon as Her bell. During the battle between Her and the demons, the horrible sound produced by Her bell sent thousands of demons to hell.</font><br>
 </p>
 
 <div style="text-align: center"><img src="/images/image518.png" /></div>

@@ -3,8 +3,8 @@ title: '2019 Celebrating Kojāgirī Pūrṇimā Day: also known as Śhārad'
 date: 2019-10-13
 permalink: /festivity/2019/1013
 tags:
-  - Sharad
-  - Kojagiri
+  - maroon @ Kojagiri Purnima
+  - maroon @ Sharad Purnima
 ---
 
 ![PICTURE 1](/images/image1.png)

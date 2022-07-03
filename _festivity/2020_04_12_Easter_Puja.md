@@ -3,7 +3,8 @@ title: '2020 Celebrating Easter: "He created the Path of Resurrection for us. Th
 date: 2020-04-12
 permalink: /festivity/2020/04/12
 tags:
-  - Easter Puja
+  - orange @ Easter Puja
+  - deeppink @ Shri Jesus Christ
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

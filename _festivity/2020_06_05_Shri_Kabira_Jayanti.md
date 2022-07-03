@@ -3,7 +3,7 @@ title: '2020 Celebrating Śhrī Kabīra Jayanti: "He brought forth so many funda
 date: 2020-06-05
 permalink: /festivity/2020/06/05
 tags:
-  - Shri Kabira Jayanti
+  - crimson @ Shri Kabira Jayanti
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

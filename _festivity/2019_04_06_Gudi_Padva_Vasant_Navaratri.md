@@ -3,8 +3,8 @@ title: '2019 Worshipping Shri Ganesha and Shri Gauri on Gudi Padwa: Vasant Navar
 date: 2019-04-06
 permalink: /festivity/2019/0406
 tags:
-  - Gudi Padwa
-  - Vasant Navaratri
+  - maroon @ Gudhi Padawa
+  - green @ Vasant Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)

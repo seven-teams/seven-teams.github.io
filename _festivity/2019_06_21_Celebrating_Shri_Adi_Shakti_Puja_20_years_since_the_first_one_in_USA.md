@@ -3,8 +3,8 @@ title: '2019 Celebrating Shri Adi Shakti Puja: 20 years since the first Shri Adi
 date: 2019-06-21
 permalink: /festivity/2019/0621
 tags:
-  - Shri Adi Shakti Puja
-  - USA
+  - orange @ Shri Adi Shakti Puja
+  - purple @ USA
 ---
 
 ![PICTURE 1](/images/image1.png)

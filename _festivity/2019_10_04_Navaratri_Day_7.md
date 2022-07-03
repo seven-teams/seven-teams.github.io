@@ -3,7 +3,8 @@ title: '2019 Celebrating Navarātri (Day 7): Worshiping Śhrī Mātājī in the 
 date: 2019-10-04
 permalink: /festivity/2019/1004
 tags:
-  - Navaratri
+  - deeppink @ Shri Kalaratri
+  - green @ Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)

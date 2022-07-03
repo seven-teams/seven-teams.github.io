@@ -3,7 +3,8 @@ title: '2021 Celebrating Navarātri Festival: "Mother is the power behind every 
 date: 2021-10-10
 permalink: /festivity/2021/10/10
 tags:
-  - Navaratri
+  - deeppink @ Shri Shandamata
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

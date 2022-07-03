@@ -3,7 +3,7 @@ title: '2020 Celebrating Vasant Navarātri: "Just watch the Photograph and slowl
 date: 2020-03-31
 permalink: /festivity/2020/03/31
 tags:
-  - Vasant Navaratri
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

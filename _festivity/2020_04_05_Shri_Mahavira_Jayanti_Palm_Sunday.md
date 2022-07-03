@@ -3,8 +3,8 @@ title: '2020 Celebrating Śhrī Mahāvīra Jayanti & Palm Sunday: "Sahaj Yoga is
 date: 2020-04-05
 permalink: /festivity/2020/04/05
 tags:
-  - Shri Mahavira
-  - Palm Sunday
+  - crimson @ Shri Mahavira Jayanti
+  - maroon @ Palm Sunday
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

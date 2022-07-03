@@ -3,7 +3,7 @@ title: '2020 Celebrating the Navarātri festival: "This recognition itself will 
 date: 2020-10-26
 permalink: /festivity/2020/10/26
 tags:
-  - Navaratri
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

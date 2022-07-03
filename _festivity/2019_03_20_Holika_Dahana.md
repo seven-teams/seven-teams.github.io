@@ -3,7 +3,7 @@ title: '2019 Celebrating Holika Dahan on Holi Purnima (full moon night)'
 date: 2019-03-20
 permalink: /festivity/2019/0320
 tags:
-  - Holika Dahana
+  - maroon @ Holika Dahana
 ---
 
 ![PICTURE 1](/images/image1.png)

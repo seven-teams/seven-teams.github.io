@@ -3,7 +3,8 @@ title: '2020 Celebrating the Navarātri festival: "in the Śhāstras it is writt
 date: 2020-10-22
 permalink: /festivity/2020/10/22
 tags:
-  - Navaratri
+  - deeppink @ Shri Katyayani
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

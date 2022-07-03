@@ -3,7 +3,8 @@ title: '2022 Celebrating Rāma Navamī: "We don’t leave our dharma, Vishwa Nir
 date: 2022-04-10
 permalink: /festivity/2022/04/10
 tags:
-  - Vasant Navaratri
+  - crimson @ Rama Navami
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

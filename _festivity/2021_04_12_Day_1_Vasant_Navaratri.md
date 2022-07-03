@@ -3,7 +3,8 @@ title: '2021 Celebrating Day 1 of Vasant Navarātri : "Today is the Day of Guḍ
 date: 2021-04-12
 permalink: /festivity/2021/04/12
 tags:
-  - Vasant Navaratri
+  - maroon @ Gudhi Padawa
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

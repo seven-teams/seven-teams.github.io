@@ -3,8 +3,8 @@ title: '2021 Celebrating New Year&#8217;s Day: "This is going to be your vow on 
 date: 2021-01-01
 permalink: /festivity/2021/01/01
 tags:
-  - New Year
-  - Shri Mahalakshmi
+  - maroon @ New Year Day
+  - deeppink @ Shri Mahalakshmi Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

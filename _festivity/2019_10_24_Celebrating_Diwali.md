@@ -3,7 +3,7 @@ title: '2019 Celebrating Diwālī: The five days of Diwālī'
 date: 2019-10-24
 permalink: /festivity/2019/1024
 tags:
-  - Diwali
+  - green @ Diwali
 ---
 
 ![PICTURE 1](/images/image1.png)

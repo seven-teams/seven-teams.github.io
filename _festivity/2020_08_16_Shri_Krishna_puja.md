@@ -3,7 +3,7 @@ title: '2020 Celebrating Śhrī Kṛiṣhṇa Pūjā: "you should be a perfect m
 date: 2020-08-16
 permalink: /festivity/2020/08/16
 tags:
-  - Shri Krishna Puja
+  - orange @ Shri Krishna Puja
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

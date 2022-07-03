@@ -1,10 +1,10 @@
 ---
-title: '2019 Worshipping Shri Lalita: "Lalita is Shri Gauri’s name"'
+title: '2019 Worshipping Śhrī Lalitā: "Lalitā is Śhrī Gaurī’s name"'
 date: 2019-04-10
 permalink: /festivity/2019/0410
 tags:
-  - Shri Lalita
-  - Vasant Navaratri
+  - maroon @ Shri Lalita Panchami
+  - green @ Vasant Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)

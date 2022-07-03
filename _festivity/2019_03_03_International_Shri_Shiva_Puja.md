@@ -3,7 +3,7 @@ title: '2019 International Shri Shiva Puja: "Try to follow the qualities of Shri
 date: 2019-03-03
 permalink: /festivity/2019/0303
 tags:
-  - International Shri Shiva Puja
+  - orange @ Shri Shiva Puja
 ---
 
 ![PICTURE 1](/images/image1.png)

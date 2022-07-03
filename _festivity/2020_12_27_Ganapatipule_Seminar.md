@@ -3,8 +3,8 @@ title: '2020 Celebrating Gaṇapatīpuḷe Festival: "Christ&#8217;s Power was o
 date: 2020-12-27
 permalink: /festivity/2020/12/27
 tags:
-  - Ganapatipule Seminar
-  - Evening Program
+  - green @ Ganapatipule Seminar
+  - indigo @ Evening Program
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

@@ -3,7 +3,7 @@ title: '2022 Celebrating Mahāśhivarātri: "what demarcates today’s celebrati
 date: 2022-03-01
 permalink: /festivity/2022/03/01
 tags:
-  - New Year
+  - maroon @ Shivaratri Day
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

@@ -3,7 +3,7 @@ title: '2021 Celebrating Day 8 of Vasant Navaratri: "Kuṇḍalinī has only one
 date: 2021-04-19
 permalink: /festivity/2021/04/19
 tags:
-  - Vasant Navaratri
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

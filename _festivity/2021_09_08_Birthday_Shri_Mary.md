@@ -3,8 +3,9 @@ title: '2021 Celebrating Śhrī Mother Mary&#8217;s Birthday: "I am so happy, to
 date: 2021-09-08
 permalink: /festivity/2021/09/08
 tags:
-  - Mother Mary
-  - Shri Mahalakshmi
+  - crimson @ Birthday Mother Mary
+  - deeppink @ Mother Mary
+  - deeppink @ Shri Mahalakshmi
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

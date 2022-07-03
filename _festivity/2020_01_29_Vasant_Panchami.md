@@ -3,7 +3,8 @@ title: '2020 Celebrating Vasant Pañchamī: Worshipping Śhrī Mahāsaraswatī 
 date: 2020-01-29
 permalink: /festivity/2020/01/29
 tags:
-  - Vasant Panchami
+  - maroon @ Vasant Panchami
+  - orange @ Shri Mahasaraswati Puja
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

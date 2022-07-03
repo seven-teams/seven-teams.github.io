@@ -3,7 +3,8 @@ title: '2020 Celebrating Vasant Navarātri: "this New Year’s Day is the first 
 date: 2020-03-25
 permalink: /festivity/2020/03/25
 tags:
-  - Vasant Navaratri
+  - maroon @ Gudhi Padawa
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

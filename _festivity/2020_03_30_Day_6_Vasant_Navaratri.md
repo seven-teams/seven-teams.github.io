@@ -3,7 +3,7 @@ title: '2020 Celebrating Vasant Navarātri: "When you will clear your Viśhuddhi
 date: 2020-03-30
 permalink: /festivity/2020/03/30
 tags:
-  - Vasant Navaratri
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

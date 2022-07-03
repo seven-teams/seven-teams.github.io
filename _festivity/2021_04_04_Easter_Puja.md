@@ -3,7 +3,8 @@ title: '2021 Celebrating Easter: "The Resurrection of Christ is very symbolic fo
 date: 2021-04-04
 permalink: /festivity/2021/04/04
 tags:
-  - Easter Puja
+  - orange @ Easter Puja
+  - deeppink @ Shri Jesus Christ
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

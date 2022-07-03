@@ -3,7 +3,7 @@ title: '2020 Celebrating 50 years of opening of Sahasrāra: "Now, this Sahasrār
 date: 2020-05-04
 permalink: /festivity/2020/05/04
 tags:
-  -  Sahasrara Puja
+  - green @ Sahasrara Seminar
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

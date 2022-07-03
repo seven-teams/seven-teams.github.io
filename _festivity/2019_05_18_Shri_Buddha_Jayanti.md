@@ -3,7 +3,7 @@ title: '2019 Celebrating Shri Buddha Jayanti: "Mother, please take away this cur
 date: 2019-05-18
 permalink: /festivity/2019/0518
 tags:
-  - Shri Buddha Jayanti
+  - crimson @ Shri Buddha Jayanti
 ---
 
 ![PICTURE 1](/images/image1.png)

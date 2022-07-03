@@ -3,7 +3,7 @@ title: '2020 Celebrating Mother&#8217;s Day: "The Mother is the source of love."
 date: 2020-05-10
 permalink: /festivity/2020/05/10
 tags:
-  - Mother's Day
+  - maroon @ Mother's Day
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

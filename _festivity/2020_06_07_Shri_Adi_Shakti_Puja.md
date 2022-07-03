@@ -3,7 +3,7 @@ title: '2020 Worshiping Śhrī Ādi Śhakti: "Ādi Śhakti is a complete persona
 date: 2020-06-07
 permalink: /festivity/2020/06/07
 tags:
-  - Shri Adi Shakti Puja
+  - orange @ Shri Adi Shakti Puja
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

@@ -3,10 +3,10 @@ title: '2021 Worshipping Three Great Incarnations: Śhrī Bhairavanāth, Śhrī 
 date: 2021-11-28
 permalink: /festivity/2021/11/28
 tags:
-  - Shri William Blake
-  - Shri Bhairava
-  - Shri Jesus
-  - Advent Sunday
+  - crimson @ Shri William Blake Birthday
+  - crimson @ Shri Bhairava Jayanti
+  - deeppink @ Shri Jesus Christ
+  - maroon @ Advent Sunday
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

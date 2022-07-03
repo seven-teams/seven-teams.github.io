@@ -3,7 +3,7 @@ title: '2022 Celebrating Śhrī Buddha Jayanti: "Because you are all connected w
 date: 2022-05-16
 permalink: /festivity/2022/05/16
 tags:
-  - Shri Buddha Jayanti
+  - crimson @ Shri Buddha Jayanti
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

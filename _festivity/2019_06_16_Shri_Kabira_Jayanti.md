@@ -3,7 +3,7 @@ title: '2019 Shri Kabira Jayanti: "We become people of authority like Kabīra: h
 date: 2019-06-16
 permalink: /festivity/2019/0616
 tags:
-  - Shri Kabira Jayanti
+  - crimson @ Shri Kabira Jayanti
 ---
 
 ![PICTURE 1](/images/image1.png)

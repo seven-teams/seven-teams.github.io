@@ -3,7 +3,7 @@ title: '2021 Celebrating Birthday Pūjā: "Birthdays increase your age from one 
 date: 2021-03-21
 permalink: /festivity/2021/03/21
 tags:
-  - Birthday Puja
+  - orange @ Birthday Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

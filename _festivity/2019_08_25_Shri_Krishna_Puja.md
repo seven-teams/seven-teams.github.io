@@ -3,7 +3,7 @@ title: '2019 Shri Krishna Puja'
 date: 2019-08-25
 permalink: /festivity/2019/0825
 tags:
-  - Shri Krishna Puja
+  - orange @ Shri Krishna Puja
 ---
 
 ![PICTURE 1](/images/image1.png)

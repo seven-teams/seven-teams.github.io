@@ -3,8 +3,8 @@ title: '2019 Music Program before Guru Puja '
 date: 2019-07-20
 permalink: /festivity/2019/0720
 tags:
-  - Guru Puja
-  - Evening Program
+  - green @ Guru Puja Seminar
+  - indigo @ Evening Program
 ---
 
 ![PICTURE 1](/images/image1.png)

@@ -3,7 +3,9 @@ title: '2021 Celebrating Śhrī Gaṇeśha Chaturthī: "Chaturthi is the day He 
 date: 2021-09-10
 permalink: /festivity/2021/09/10
 tags:
-  - Shri Ganesha Chaturthi
+  - maroon @ Shri Ganesha Chaturthi
+  - orange @ Shri Ganesha Puja
+  - deeppink @ Shri Ganesha
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

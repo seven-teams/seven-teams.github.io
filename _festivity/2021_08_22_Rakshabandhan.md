@@ -3,7 +3,7 @@ title: '2021 Celebrating Rakshābandhan: "you should also understand that it&#82
 date: 2021-08-22
 permalink: /festivity/2021/08/22
 tags:
-  - Rakshabandhan
+  - maroon @ Rakshabandhan
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

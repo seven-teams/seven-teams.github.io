@@ -3,7 +3,8 @@ title: '2021 Celebrating Navarātri Festival: "She is doing the play and She cre
 date: 2021-10-14
 permalink: /festivity/2021/10/14
 tags:
-  - Navaratri
+  - deeppink @ Shri Siddhidatri
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

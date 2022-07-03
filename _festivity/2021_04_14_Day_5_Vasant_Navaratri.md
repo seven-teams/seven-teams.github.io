@@ -3,7 +3,8 @@ title: '2021 Celebrating Fifth Day of Vasant Navarātri: "the Kuṇḍalinī is 
 date: 2021-04-16
 permalink: /festivity/2021/04/16
 tags:
-  - Vasant Navaratri
+  - deeppink @ Shri Adi Kundalini 
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

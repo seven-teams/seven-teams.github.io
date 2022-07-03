@@ -3,7 +3,7 @@ title: '2022 Celebrating Mahāsamādhi Day: "I am with you, completely, in perso
 date: 2022-02-23
 permalink: /festivity/2022/02/23
 tags:
-  - Paramachaitanya Day
+  - maroon @ Paramachaitanya Day
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

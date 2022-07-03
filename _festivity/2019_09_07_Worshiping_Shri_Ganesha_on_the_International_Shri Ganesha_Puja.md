@@ -3,7 +3,8 @@ title: '2019 Worshiping Shri Ganesha on the International Shri Ganesha Puja'
 date: 2019-09-07
 permalink: /festivity/2019/0907
 tags:
-  - Shri Ganesha
+  - orange @ Shri Ganesha Puja
+  - deeppink @ Shri Ganesha
 ---
 
 ![PICTURE 1](/images/image1.png)

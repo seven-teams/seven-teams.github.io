@@ -3,7 +3,8 @@ title: '2021 Celebrating Śhrī Vināyaka Chaturthī: "Today is a very important
 date: 2021-02-15
 permalink: /festivity/2021/02/15
 tags:
-  - Shri Vinayaka Chaturthi
+  - crimson @ Shri Vinayaka Chaturthi
+  - deeppink @ Shri Ganesha
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

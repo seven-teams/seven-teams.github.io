@@ -3,8 +3,8 @@ title: '2022 Celebrating New Year&#8217;s Day: "Mother depends on us, on our own
 date: 2022-01-01
 permalink: /festivity/2022/01/01
 tags:
-  - New Year Day
-  - Shri Mahalakshmi
+  - maroon @ New Year Day
+  - deeppink @ Shri Mahalakshmi Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

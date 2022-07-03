@@ -3,7 +3,7 @@ title: '2021 Celebrating Śhrī Hanumān Jayanti: "Each cell of Śhrī Hanumāna
 date: 2021-04-27
 permalink: /festivity/2021/04/27
 tags:
-  - Shri Hanumana
+  - crimson @ Shri Hanumana Jayanti
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

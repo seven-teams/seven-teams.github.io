@@ -3,7 +3,8 @@ title: '2021 Celebrating Christmas Eve with Śhrī Mātājī: "This is the messa
 date: 2021-12-24
 permalink: /festivity/2021/12/24
 tags:
-  - Christmas Eve
+  - maroon @ Christmas Eve
+  - deeppink @ Shri Jesus Christ
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

@@ -3,7 +3,8 @@ title: '2021 Celebrating Navarātri Festival: "In Sahaja Yoga, Navarātri is the
 date: 2021-10-07
 permalink: /festivity/2021/10/07
 tags:
-  - Navaratri
+  - deeppink @ Shri Shailaputri
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

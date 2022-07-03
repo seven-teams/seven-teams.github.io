@@ -3,8 +3,7 @@ title: '2019 Celebrating the Birthday of Śhrī Ādi Guru Dattātreya'
 date: 2019-12-02
 permalink: /festivity/2019/12/02
 tags:
-  - Shri Adi Guru Dattatreya
-
+  - crimson @ Shri Adi Guru Dattatreya Jayanti
 ---
 
 ![PICTURE 1](/images/image1.png)

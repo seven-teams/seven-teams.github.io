@@ -3,7 +3,8 @@ title: '2019 Celebrating Navarātri (Day 8): Worshiping Śhrī Mātājī in the 
 date: 2019-10-05
 permalink: /festivity/2019/1005
 tags:
-  - Navaratri
+  - deeppink @ Shri Mahagauri
+  - green @ Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)

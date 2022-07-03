@@ -3,9 +3,9 @@ title: '2019 Celebrating Christmas Eve'
 date: 2019-12-24
 permalink: /festivity/2019/12/24
 tags:
-  - Christmas Eve
-  - Ganapatipule Seminar
-  
+  - maroon @ Christmas Eve
+  - green @ Ganapatipule Seminar
+  - deeppink @ Shri Jesus Christ
 ---
 
 ![PICTURE 1](/images/image1.png)

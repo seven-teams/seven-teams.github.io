@@ -3,7 +3,8 @@ title: '2020 Celebrating Diwālī Festivity: "By the power of Mahālakṣhmī on
 date: 2020-11-15
 permalink: /festivity/2020/11/15
 tags:
-  - Diwali
+  - maroon @ Diwali Padava
+  - green @ Diwali
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

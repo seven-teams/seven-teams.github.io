@@ -3,8 +3,8 @@ title: '2021 Celebrating International Śhivarātri Pūjā: "He is called Mahād
 date: 2021-03-13
 permalink: /festivity/2021/03/13
 tags:
-  - Shivaratri Day
-  - Shivaratri Puja
+  - maroon @ Shivaratri Day
+  - orange @ Shivaratri Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

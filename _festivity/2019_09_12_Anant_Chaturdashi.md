@@ -3,7 +3,7 @@ title: '2019 Anant Chaturdashi: "The day when we visarjan, dissolve Shri Ganesha
 date: 2019-09-12
 permalink: /festivity/2019/0912
 tags:
-  - Anant Chaturdashi
+  - maroon @ Anant Chaturdashi
 ---
 
 ![PICTURE 1](/images/image1.png)

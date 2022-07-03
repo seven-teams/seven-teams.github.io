@@ -3,7 +3,7 @@ title: '2020 Celebrating Vasant Navarātri: "Only through your channels, I can w
 date: 2020-03-29
 permalink: /festivity/2020/03/29
 tags:
-  - Vasant Navaratri
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

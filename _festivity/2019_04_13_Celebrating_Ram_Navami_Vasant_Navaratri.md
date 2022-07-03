@@ -3,8 +3,8 @@ title: '2019 Celebrating Ram Navami: Shri Rama was born this day'
 date: 2019-04-13
 permalink: /festivity/2019/0413
 tags:
-  - Ram Navami
-  - Shri Ram
+  - crimson @ Rama Navami
+  - green @ Vasant Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)

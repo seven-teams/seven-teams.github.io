@@ -3,7 +3,7 @@ title: '2020 Celebrating Gaṇapatīpuḷe Festival: "Mother, You have brought u
 date: 2020-12-23
 permalink: /festivity/2020/12/23
 tags:
-  - Ganapatipule Seminar
+  - green @ Ganapatipule Seminar
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

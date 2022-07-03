@@ -3,7 +3,8 @@ title: '2020 Celebrating Navarātri Festival: "Celibacy must come from within, t
 date: 2020-10-18
 permalink: /festivity/2020/10/18
 tags:
-  - Navaratri
+  - deeppink @ Shri Brahmacharini
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

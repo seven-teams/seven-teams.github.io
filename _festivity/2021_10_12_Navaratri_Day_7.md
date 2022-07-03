@@ -3,7 +3,8 @@ title: '2021 Celebrating Navarātri Festival: "God Almighty has manifested all H
 date: 2021-10-12
 permalink: /festivity/2021/10/12
 tags:
-  - Navaratri
+  - deeppink @ Shri Kalaratri
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

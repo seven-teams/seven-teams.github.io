@@ -3,7 +3,7 @@ title: '2021 Celebrating Śhrī Guru Nāṇaka Jayanti: "You are the seekers: yo
 date: 2021-11-19
 permalink: /festivity/2021/11/19
 tags:
-  - Shri Guru Nanaka
+  - crimson @ Shri Guru Nanaka Birthday
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

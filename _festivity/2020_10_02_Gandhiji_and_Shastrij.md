@@ -3,8 +3,8 @@ title: '2020 Celebrating Mahātmā Gāndhī Jayanti and Śhrī Lal Bahadur Shast
 date: 2020-10-02
 permalink: /festivity/2020/10/02
 tags:
-  - Mahatma Gandhi
-  - Lal Bahadur Shastri
+  - peru @ Mahatma Gandhi
+  - peru @ Lal Bahadur Shastri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

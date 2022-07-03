@@ -3,7 +3,8 @@ title: '2019 Celebrating Navarātri (Day 1): Worshipping Śhrī Mātājī in the
 date: 2019-09-29
 permalink: /festivity/2019/0929
 tags:
-  - Navaratri
+  - deeppink @ Shri Shailaputri
+  - green @ Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)

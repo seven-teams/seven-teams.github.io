@@ -3,7 +3,7 @@ title: '2022 Celebrating Akṣhaya Tṛitīya: "It is My dream that with Sahaja 
 date: 2022-05-03
 permalink: /festivity/2022/05/03
 tags:
-  - Akshaya Tritiya
+  - maroon @ Akshaya Tritiya
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

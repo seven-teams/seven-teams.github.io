@@ -3,7 +3,8 @@ title: '2022 Celebrating Easter: "Crucifixion is the accomplishment, but Resurre
 date: 2022-04-17
 permalink: /festivity/2022/04/17
 tags:
-  - New Year
+  - orange @ Easter Puja
+  - deeppink @ Shri Jesus Christ
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

@@ -3,7 +3,8 @@ title: '2020 Celebrating the Navarātri festival: "Sahaja Yoga is the Power of C
 date: 2020-10-24
 permalink: /festivity/2020/10/24
 tags:
-  - Navaratri
+  - deeppink @ Shri Mahagauri
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

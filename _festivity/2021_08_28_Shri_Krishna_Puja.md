@@ -3,7 +3,7 @@ title: '2021 Celebrating Śhrī Kṛiṣhṇa Pūjā "the Power of Joy we have t
 date: 2021-08-28
 permalink: /festivity/2021/08/28
 tags:
-  - Shri Krishna Puja
+  - orange @ Shri Krishna Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

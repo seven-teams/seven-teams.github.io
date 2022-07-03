@@ -3,7 +3,7 @@ title: '2020 Celebrating Vasant Navarātri: "Ā-gñyā, āgñyā means obedience
 date: 2020-04-01
 permalink: /festivity/2020/04/01
 tags:
-  - Vasant Navaratri
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

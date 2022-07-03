@@ -3,8 +3,8 @@ title: '2019 Celebrating Śhrī Gaṇeśha Chaturthī'
 date: 2019-09-02
 permalink: /festivity/2019/0902
 tags:
-  - Shri Ganesha
-  - Chaturthi
+  - maroon @ Shri Ganesha Chaturthi
+  - deeppink @ Shri Ganesha
 ---
 
 ![PICTURE 1](/images/image1.png)

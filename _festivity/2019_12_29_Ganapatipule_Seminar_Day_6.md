@@ -3,8 +3,7 @@ title: '2019 "System of marriages because it is the system established by God Al
 date: 2019-12-29
 permalink: /festivity/2019/12/29
 tags:
-  - Ganapatipule Seminar
-
+  - green @ Ganapatipule Seminar
 ---
 
 ![PICTURE 1](/images/image1.png)

@@ -3,7 +3,7 @@ title: '2019 Makar Sankranti'
 date: 2019-01-14
 permalink: /festivity/2019/0114
 tags:
-  - Makar Sankranti
+  - maroon @ Makar Sankranti
 ---
 
 ![PICTURE 1](/images/image1.png)

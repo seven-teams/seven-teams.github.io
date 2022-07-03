@@ -3,7 +3,7 @@ title: '2022 Celebrating Holikā Dahana on Full Moon Day (Holī Pūrṇimā: "On
 date: 2022-03-17
 permalink: /festivity/2022/03/17
 tags:
-  - New Year
+  - maroon @ Holika Dahana
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

@@ -3,8 +3,8 @@ title: '2020 Celebrating Śhrī Kṛiṣhṇa Janamāṣhṭamī: "central part 
 date: 2020-08-11
 permalink: /festivity/2020/08/11
 tags:
-  - Shri Krishna Puja
-  - Shri Krishna Janmashtami
+  - crimson @ Shri Krishna Janmashtami
+  - orange @ Shri Krishna Puja
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

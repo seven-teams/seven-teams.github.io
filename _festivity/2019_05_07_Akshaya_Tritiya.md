@@ -3,7 +3,7 @@ title: '2019 Akshaya Tritiya: "It is regarded as the most auspicious day to star
 date: 2019-05-07
 permalink: /festivity/2019/0507
 tags:
-  - Akshaya Tritiya
+  - maroon @ Akshaya Tritiya
 ---
 
 ![PICTURE 1](/images/image1.png)

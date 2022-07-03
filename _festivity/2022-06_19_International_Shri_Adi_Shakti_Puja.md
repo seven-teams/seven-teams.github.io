@@ -3,7 +3,7 @@ title: '2022 Celebrating the Worship of Śhrī Ādi Śhakti: "I declare that I a
 date: 2022-06-19
 permalink: /festivity/2022/06/19
 tags:
-  - Shri Adi Shakti Puja
+  - orange @ Shri Adi Shakti Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

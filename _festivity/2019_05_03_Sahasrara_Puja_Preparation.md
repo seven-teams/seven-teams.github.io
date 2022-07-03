@@ -3,7 +3,7 @@ title: '2019 Sahasrara Puja: "If you have come for Sahasrāra, be prepared"'
 date: 2019-05-03
 permalink: /festivity/2019/0503
 tags:
-  - Sahasrara Puja
+  - green @ Sahasrara Seminar
 ---
 
 ![PICTURE 1](/images/image1.png)

@@ -3,8 +3,8 @@ title: '2020 Worshipping Śhrī Ādi Śhakti: Evening program before the Puja'
 date: 2020-06-06
 permalink: /festivity/2020/06/06
 tags:
-  - Evening Program
-  - Shri Adi Shakti Puja
+  - green @ Shri Adi Shakti Puja Seminar
+  - indigo @ Evening Program
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

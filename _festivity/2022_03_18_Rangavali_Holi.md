@@ -3,7 +3,7 @@ title: '2022 Celebrating Holī Festival: "All the colors also, if you see, are t
 date: 2022-03-18
 permalink: /festivity/2022/03/18
 tags:
-  - New Year
+  - maroon @ Holi Day
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

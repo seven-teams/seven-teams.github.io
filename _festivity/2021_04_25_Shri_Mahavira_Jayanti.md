@@ -3,7 +3,7 @@ title: '2021 Celebrating Śhrī Mahāvīra Jayanti: "Mahāvīra, meaning The Gre
 date: 2021-04-25
 permalink: /festivity/2021/04/25
 tags:
-  - Shri Mahavira
+  - crimson @ Shri Mahavira Jayanti
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

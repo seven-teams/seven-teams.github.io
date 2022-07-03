@@ -3,7 +3,7 @@ title: '2020 Celebrating Mahāśhivarātri: "Today’s celebration, is the estab
 date: 2020-02-22
 permalink: /festivity/2020/02/22
 tags:
-  - Shivaratri Puja
+  - orange @ Shivaratri Puja
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

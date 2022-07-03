@@ -3,8 +3,8 @@ title: '2019 Celebrating Sahasrara Puja: Evening Program'
 date: 2019-05-04
 permalink: /festivity/2019/0504
 tags:
-  - Evening Program
-  - Sahasrara Puja
+  - green @ Sahasrara Seminar
+  - indigo @ Evening Program
 ---
 
 ![PICTURE 1](/images/image1.png)

@@ -3,8 +3,8 @@ title: '2019 Guru Purnima'
 date: 2019-07-16
 permalink: /festivity/2019/0716
 tags:
-  - Guru Purnima
-  - Guru Puja
+  - maroon @ Guru Purnima
+  - orange @ Guru Puja
 ---
 
 ![PICTURE 1](/images/image1.png)

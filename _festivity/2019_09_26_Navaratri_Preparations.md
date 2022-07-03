@@ -3,7 +3,7 @@ title: '2019 Navaratri Preparations'
 date: 2019-09-26
 permalink: /festivity/2019/0926
 tags:
-  - Navaratri
+  - green @ Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)

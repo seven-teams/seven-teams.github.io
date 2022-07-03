@@ -3,7 +3,7 @@ title: '2020 Celebrating Vasant Navarātri: "If you get sick, it is Viṣhṇu w
 date: 2020-03-27
 permalink: /festivity/2020/03/27
 tags:
-  - Vasant Navaratri
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

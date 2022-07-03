@@ -3,7 +3,7 @@ title: '2020 Celebrating Makar Saṅkrānti: "On the day of Saṅkrānti, you sh
 date: 2020-01-14
 permalink: /festivity/2020/01/14
 tags:
-  - Makar Sankranti
+  - maroon @ Makar Sankranti
 ---
 
 <div style="text-align: left"><img src="/images/image0.png" width="250" /></div><br>

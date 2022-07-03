@@ -3,7 +3,9 @@ title: '2020 Celebrating Diwālī Festivity: "Diwālī is very significant becau
 date: 2020-11-14
 permalink: /festivity/2020/11/14
 tags:
-  - Diwali
+  - maroon @ Naraka Chaturdashi
+  - maroon @ Diwali Day
+  - green @ Diwali
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

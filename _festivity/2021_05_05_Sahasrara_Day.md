@@ -3,7 +3,8 @@ title: '2021 Celebrating the Sahasrāra Day: "All these Chaitanya, Ādi Śhakti,
 date: 2021-05-05
 permalink: /festivity/2021/05/05
 tags:
-  - Sahasrara Puja
+  - orange @ Sahasrara Puja
+  - maroon @ Sahasrara Say
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

@@ -3,7 +3,7 @@ title: '2020 Celebrating Śhrī Guru Nāṇaka Jayanti: "Is a great thing we are
 date: 2020-11-30
 permalink: /festivity/2020/11/30
 tags:
-  - Shri Guru Nanaka
+  - crimson @ Shri Guru Nanaka Birthday
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

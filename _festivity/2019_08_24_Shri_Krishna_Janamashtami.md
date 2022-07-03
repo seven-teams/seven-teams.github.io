@@ -3,8 +3,8 @@ title: '2019 Shri Krishna Janmāṣhṭamī: "Today we have decided to have Kris
 date: 2019-08-24
 permalink: /festivity/2019/0824
 tags:
-  - Shri Krishna Puja
-  - Shri Krishna Janmashtami
+  - crimson @ Shri Krishna Janmashtami
+  - orange @ Shri Krishna Puja
 ---
 
 ![PICTURE 1](/images/image1.png)

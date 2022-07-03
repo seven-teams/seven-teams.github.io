@@ -3,7 +3,7 @@ title: '2021 Celebrating Day 7 of Vasant Navarātri: "Kuṇḍalinī is the pure
 date: 2021-04-17
 permalink: /festivity/2021/04/17
 tags:
-  - Vasant Navaratri
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

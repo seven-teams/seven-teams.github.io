@@ -3,7 +3,8 @@ title: '2020 Celebrating Śhrī Vināyaka Chaturthī: Birthday of Śhrī Gaṇe�
 date: 2020-01-28
 permalink: /festivity/2020/01/28
 tags:
-  - Shri Vinayaka Chaturthi
+  - crimson @ Shri Vinayaka Chaturthi
+  - deeppink @ Shri Ganesha
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

@@ -3,7 +3,8 @@ title: '2020 Celebrating 50 years of opening of Sahasrāra: "Sahaj Yog is the Un
 date: 2020-05-03
 permalink: /festivity/2020/05/03
 tags:
-  -  Sahasrara Puja
+  - green @ Sahasrara Seminar
+  - orange @ Sahasrara Puja
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

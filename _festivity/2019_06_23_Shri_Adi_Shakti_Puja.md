@@ -3,7 +3,7 @@ title: '2019 Shri Adi Shakti Puja: "I think if there is any Pūjā you should do
 date: 2019-06-23
 permalink: /festivity/2019/0623
 tags:
-  - Shri Adi Shakti Puja
+  - orange @ Shri Adi Shakti Puja
 ---
 
 ![PICTURE 1](/images/image1.png)

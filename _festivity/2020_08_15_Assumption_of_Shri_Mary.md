@@ -3,9 +3,10 @@ title: '2020 Celebrating Mother Mary&#8217;s Assumption and India&#8217;s Indepe
 date: 2020-08-15
 permalink: /festivity/2020/08/15
 tags:
-  - Assumption
-  - Mother Mary
-  - India
+  - maroon @ Assumption
+  - deeppink @ Mother Mary
+  - deeppink @ Shri Mahalakshmi
+  - purple @ India
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

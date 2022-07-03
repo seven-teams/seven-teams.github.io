@@ -3,7 +3,8 @@ title: '2021 Celebrating Navarātri Festival: "The pure desire of a seeker is to
 date: 2021-10-08
 permalink: /festivity/2021/10/08
 tags:
-  - Navaratri
+  - deeppink @ Shri Brahmacharini
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

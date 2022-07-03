@@ -3,7 +3,8 @@ title: '2021 Celebrating Navarātri Festival: "at the tenth time, all these Thre
 date: 2021-10-15
 permalink: /festivity/2021/10/15
 tags:
-  - Navaratri
+  - deeppink @ Shri Adi Shakti
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

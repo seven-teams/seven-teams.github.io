@@ -3,7 +3,7 @@ title: '2021 Worshiping Śhrī Ādi Śhakti: : "So Ādi Śhakti is the desire, c
 date: 2021-06-27
 permalink: /festivity/2021/06/27
 tags:
-  - Shri Adi Shakti Puja
+  - orange @ Shri Adi Shakti Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

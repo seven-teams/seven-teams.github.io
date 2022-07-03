@@ -3,7 +3,7 @@ title: '2021 Offering our humble gratitude at the Lotus Feet of our Beloved Moth
 date: 2021-02-23
 permalink: /festivity/2021/01/01
 tags:
-  - Paramachaitanya Day
+  - maroon @ Paramachaitanya Day
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

@@ -3,7 +3,7 @@ title: '2021 Celebrating Makar Saṅkrānti: "Warmth of the Sun represents the w
 date: 2021-01-14
 permalink: /festivity/2021/01/14
 tags:
-  - Makar Sankranti
+  - maroon @ Makar Sankranti
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

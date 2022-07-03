@@ -3,7 +3,8 @@ title: '2022 Celebrating Vasant Panchami: "He sent to us, was Mahāsaraswatī an
 date: 2022-02-05
 permalink: /festivity/2022/02/05
 tags:
-  - Vasant Panchami
+  - maroon @ Vasant Panchami
+  - orange @ Shri Mahasaraswati Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

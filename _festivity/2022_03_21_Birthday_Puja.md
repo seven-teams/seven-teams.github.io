@@ -3,7 +3,7 @@ title: '2022 Celebrating Birthday Pūjā: "The world itself became a lotus, full
 date: 2022-03-21
 permalink: /festivity/2022/03/21
 tags:
-  - Birthday Puja
+  - orange @ Birthday Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

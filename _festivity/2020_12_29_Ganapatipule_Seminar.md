@@ -3,8 +3,8 @@ title: '2020 Celebrating Śhrī Ādi Guru Dattātreya&#8217;s Jayanti: "Maheśha
 date: 2020-12-29
 permalink: /festivity/2020/12/29
 tags:
-  - Ganapatipule Seminar
-  - Shri Adi Guru Dattatreya
+  - crimson @ Shri Adi Guru Dattatreya Jayanti
+  - green @ Ganapatipule Seminar
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

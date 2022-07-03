@@ -3,7 +3,7 @@ title: '2021 Celebrating Śhrī Buddha Jayanti: "Buddha means a person who is en
 date: 2021-05-25
 permalink: /festivity/2021/05/26
 tags:
-  - Shri Buddha Jayanti
+  - crimson @ Shri Buddha Jayanti
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

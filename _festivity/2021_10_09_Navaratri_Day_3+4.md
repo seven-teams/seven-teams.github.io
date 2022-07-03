@@ -3,7 +3,9 @@ title: '2021 Celebrating Navarātri Festival: "Sahaja Yogis are the epitome of t
 date: 2021-10-09
 permalink: /festivity/2021/10/09
 tags:
-  - Navaratri
+  - deeppink @ Shri Chandraghanta
+  - deeppink @ Shri Kushmanda
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

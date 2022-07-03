@@ -3,9 +3,10 @@ title: '2021 Celebrating August 15: Mother Mary&#8217;s Assumption and India&#82
 date: 2021-08-15
 permalink: /festivity/2021/08/15
 tags:
-  - Assumption
-  - Mother Mary
-  - India
+  - maroon @ Assumption
+  - deeppink @ Mother Mary
+  - deeppink @ Shri Mahalakshmi
+  - purple @ India
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

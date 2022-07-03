@@ -3,8 +3,8 @@ title: '2021 Worshipping Śhrī Sadāśhiva: "Existence comes from the Power of 
 date: 2021-03-11
 permalink: /festivity/2021/03/11
 tags:
-  - Shivaratri Day
-  - Shivaratri Puja
+  - maroon @ Shivaratri Day
+  - orange @ Shivaratri Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

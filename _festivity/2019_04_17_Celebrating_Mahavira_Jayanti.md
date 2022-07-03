@@ -3,8 +3,8 @@ title: '2019 Celebrating Mahavira Jayanti: "He is like Bhairava and the Power of
 date: 2019-04-17
 permalink: /festivity/2019/0417
 tags:
-  - Shri Mahavira
-  - Shri Bhairava
+  - crimson @ Shri Mahavira Jayanti
+  - deeppink @ Shri Bhairava
 ---
 
 ![PICTURE 1](/images/image1.png)

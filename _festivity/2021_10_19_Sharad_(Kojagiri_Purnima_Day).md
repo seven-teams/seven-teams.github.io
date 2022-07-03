@@ -3,8 +3,8 @@ title: '2021 Celebrating Kojāgirī Pūrṇimā or Śhārad Pūrṇimā: "The re
 date: 2021-10-19
 permalink: /festivity/2021/10/19
 tags:
-  - Sharad
-  - Kojagiri
+  - maroon @ Kojagiri Purnima
+  - maroon @ Sharad Purnima
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

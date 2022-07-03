@@ -3,7 +3,8 @@ title: '2019 Celebrating Navarātri (Day 10): Worshiping Śhrī Mātājī in the
 date: 2019-10-07
 permalink: /festivity/2019/1007
 tags:
-  - Navaratri
+  - deeppink @ Shri Adi Shakti
+  - green @ Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)

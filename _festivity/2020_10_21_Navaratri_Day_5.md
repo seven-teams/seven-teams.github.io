@@ -3,7 +3,8 @@ title: '2020 Celebrating the Navarātri festival: "In Sahaja Yoga, Navarātri is
 date: 2020-10-21
 permalink: /festivity/2020/10/21
 tags:
-  - Navaratri
+  - deeppink @ Shri Shandamata
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

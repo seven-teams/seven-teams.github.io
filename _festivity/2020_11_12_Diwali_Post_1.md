@@ -3,7 +3,8 @@ title: '2020 Celebrating Diwālī Festivity: "That&#8217;s the real Diwālī: th
 date: 2020-11-12
 permalink: /festivity/2020/11/12
 tags:
-  - Diwali
+  - maroon @ Dhanatrayodashi
+  - green @ Diwali
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

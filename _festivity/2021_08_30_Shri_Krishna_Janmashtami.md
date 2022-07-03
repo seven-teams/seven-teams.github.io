@@ -3,7 +3,8 @@ title: '2021 Celebrating Śhrī Kṛiṣhṇa Janmāṣhṭamī: "Śhrī Kṛi�
 date: 2021-08-30
 permalink: /festivity/2021/08/30
 tags:
-  - Shri Krishna Janmashtami
+  - crimson @ Shri Krishna Janmashtami
+  - orange @ Shri Krishna Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

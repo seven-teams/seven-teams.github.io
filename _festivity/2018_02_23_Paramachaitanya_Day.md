@@ -3,7 +3,7 @@ title: '2018 Mahasamadhi Day'
 date: 2018-02-23
 permalink: /festivity/2018/0223
 tags:
-  - Paramachaitanya Day
+  - maroon @ Paramachaitanya Day
 ---
 
 ![PICTURE 1](/images/image1.png)

@@ -3,7 +3,7 @@ title: '2022 Celebrating Makar Saṅkrānti: "saṅkrānt means the Auspicious R
 date: 2022-01-14
 permalink: /festivity/2022/01/14
 tags:
-  - Makar Sankranti
+  - maroon @ Makar Sankranti
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

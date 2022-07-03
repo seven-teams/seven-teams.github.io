@@ -3,7 +3,8 @@ title: '2022 Celebrating Śhrī Vināyaka Chaturthī: "the birth of Śhrī Gaṇ
 date: 2022-02-04
 permalink: /festivity/2022/02/04
 tags:
-  - Shri Vinayaka Chaturthi
+  - crimson @ Shri Vinayaka Chaturthi
+  - deeppink @ Shri Ganesha
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

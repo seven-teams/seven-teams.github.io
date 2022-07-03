@@ -3,8 +3,9 @@ title: '2019 Celebrating Palm Sunday and International Mahavira Puja'
 date: 2019-04-14
 permalink: /festivity/2019/0414
 tags:
-  - Palm Sunday
-  - Shri Mahavira
+  - maroon @ Palm Sunday
+  - crimson @ Shri Mahavira Jayanti
+  - green @ Vasant Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)

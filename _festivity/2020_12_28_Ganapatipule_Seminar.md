@@ -3,8 +3,8 @@ title: '2020 Celebrating Gaṇapatīpuḷe Festival: "Marriage is the bondage th
 date: 2020-12-28
 permalink: /festivity/2020/12/28
 tags:
-  - Ganapatipule Seminar
-  - Marriages
+  - green @ Ganapatipule Seminar
+  - indigo @ Marriages
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

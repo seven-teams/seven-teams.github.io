@@ -3,7 +3,7 @@ title: '2021 Celebrating the Birth of Śhrī Rāma: "He was the Embodiment of Dh
 date: 2021-04-21
 permalink: /festivity/2021/04/21
 tags:
-  - Vasant Navaratri
+  - green @ Vasant Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

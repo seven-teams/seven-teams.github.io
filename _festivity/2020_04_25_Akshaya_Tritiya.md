@@ -3,7 +3,7 @@ title: '2020 Celebrating Akṣhaya Tṛitīya: "Akṣhaya Tṛitīya, means un-d
 date: 2020-04-25
 permalink: /festivity/2020/04/25
 tags:
-  - Akshaya Tritiya
+  - maroon @ Akshaya Tritiya
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

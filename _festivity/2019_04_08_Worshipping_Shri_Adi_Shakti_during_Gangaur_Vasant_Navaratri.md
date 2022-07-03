@@ -3,8 +3,8 @@ title: '2019 Worshipping Shri Adi Shakti during Gangaur: Vasant Navaratri'
 date: 2019-04-08
 permalink: /festivity/2019/0408
 tags: 
-  - Shri Gangaur
-  - Vasant Navaratri
+  - marron @ Shri Gangaur Festival
+  - green @ Vasant Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)

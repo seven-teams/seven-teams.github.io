@@ -3,8 +3,8 @@ title: '2019 Musical Evening before Shivaratri Puja'
 date: 2019-03-02
 permalink: /festivity/2019/0302
 tags:
-  - Musical Evening
-  - Shivaratri Puja
+  - green @ Shivaratri Seminar
+  - indigo @ Evening Program
 ---
 
 ![PICTURE 1](/images/image1.png)

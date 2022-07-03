@@ -3,7 +3,7 @@ title: '2020 Celebrating Śhrī Buddha Jayanti'
 date: 2020-05-07
 permalink: /festivity/2020/05/07
 tags:
-  - Shri Buddha Jayanti
+  - crimson @ Shri Buddha Jayanti
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

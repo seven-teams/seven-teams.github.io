@@ -3,7 +3,9 @@ title: '2019 Celebrating Navarātri (Days 2 and 3): Worshiping Śhrī Mātājī 
 date: 2019-09-30
 permalink: /festivity/2019/0930
 tags:
-  - Navaratri
+  - deeppink @ Shri Brahmacharini
+  - deeppink @ Shri Chandraghanta
+  - green @ Navaratri
 ---
 
 ![PICTURE 1](/images/image1.png)

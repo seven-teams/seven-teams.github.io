@@ -3,7 +3,7 @@ title: '2021 Celebrating Sahasrāra Pūjā: "Today, it&#8217;s a great day becau
 date: 2021-05-09
 permalink: /festivity/2021/05/09
 tags:
-  - Sahasrara Puja
+  - orange @ Sahasrara Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

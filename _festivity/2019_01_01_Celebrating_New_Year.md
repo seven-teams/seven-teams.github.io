@@ -3,7 +3,7 @@ title: '2019 Celebrating New Year'
 date: 2019-01-01
 permalink: /festivity/2019/0101
 tags: 
-  - New Year Day
+  - maroon @ New Year Day
 ---
 
 ![PICTURE 1](/images/image1.png)

@@ -3,8 +3,8 @@ title: '2020 Celebrating Kojāgirī Pūrṇimā or Śhārad Pūrṇimā'
 date: 2020-10-30
 permalink: /festivity/2020/10/30
 tags:
-  - Sharad
-  - Kojagiri
+  - maroon @ Kojagiri Purnima
+  - maroon @ Sharad Purnima
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

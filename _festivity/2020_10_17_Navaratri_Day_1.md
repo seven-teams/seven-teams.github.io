@@ -3,7 +3,8 @@ title: '2020 Celebrating Navarātri Festival: "You are made in the pattern of Ś
 date: 2020-10-17
 permalink: /festivity/2020/10/17
 tags:
-  - Navaratri
+  - deeppink @ Shri Shailaputri
+  - green @ Navaratri
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>
