@@ -11,10 +11,9 @@ tags:
   - peru @ Advaita
 ---
 
-<br>
-<font color="red"><b>Śhrī Mātājī's words on Tripurā, Rahasya, Śhrī Dattātreya, and Śhrī Paraśhurāma</b></font><br>
+<font color="red"><b>Śhrī Mātājī's words on Tripurā, Rahasya, Śhrī Dattātreya, and Śhrī Paraśhurāma</b></font>
 
-<font color="DarkGreen"><b>Swami Sri Ramananda Saraswathi's translation of Tripurā Rahasya (Haritāyana Saṃhitā Section 2 or Jnāna Khanda or The Mystery beyond the Trinity) in 1936 published by Sri Ramanashramam, Tiruvannamalai, India, fifth edition 1989</b></font><br>
+<font color="DarkGreen"><b>Swami Sri Ramananda Saraswathi's translation of Tripurā Rahasya (Haritāyana Saṃhitā Section 2 or Jnāna Khanda or The Mystery beyond the Trinity) in 1936 published by Sri Ramanashramam, Tiruvannamalai, India, fifth edition 1989</b></font>
 
 <div class="para-divider"></div>
 
