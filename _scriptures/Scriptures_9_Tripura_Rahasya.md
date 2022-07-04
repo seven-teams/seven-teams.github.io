@@ -15,7 +15,7 @@ tags:
 <br>
 <font color="red"><b>Śhrī Mātājī's words on Tripurā, Rahasya, Śhrī Dattātreya, and Śhrī Paraśhurāma</b></font><br>
 <br>
-<font color="DarkGreen"><b>Swami Sri Ramananda Saraswati's [Munagala S. Venkataramiah's] translation of Tripurā Rahasya (Haritāyana Saṃhitā Section 2 or Jnāna Khanda or The Mystery beyond the Trinity) in 1936 published by Sri Ramanashramam, Tiruvannamalai, India, fifth edition 1989,</b> <a href="https://users.cs.duke.edu/~kamesh/venkataramiah.html">bio</a>, <b>seventh edition available as pdf at</b> <a href="https://holybooks-lichtenbergpress.netdna-ssl.com/wp-content/uploads/Tripura-Rahasya.pdf">pdf</a></font><br>
+<font color="DarkGreen"><b>Swami Sri Ramananda Saraswati's [Munagala S. Venkataramiah's] translation of Tripurā Rahasya (Haritāyana Saṃhitā Section 2 or Jnāna Khanda or The Mystery beyond the Trinity) in 1936 published by Sri Ramanashramam, Tiruvannamalai, India, fifth edition 1989,</b> <a href="https://users.cs.duke.edu/~kamesh/venkataramiah.html">bio</a>, <b>seventh edition 2006 is available as a pdf at</b> <a href="https://holybooks-lichtenbergpress.netdna-ssl.com/wp-content/uploads/Tripura-Rahasya.pdf">pdf</a></font><br>
 </p>
 
 <div class="para-divider"></div>
