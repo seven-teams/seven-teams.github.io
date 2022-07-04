@@ -34,17 +34,17 @@ I'm doing that, but somehow people do not know what to expect within themselves.
 <font color="red"><b>Śhrī Mātājī:</b> Yeah's, that's true. But not Realization. [Some laughter.]<br>
 You see, what He has said is: Buddha had it asked you to limit your desire, of ascent.<br>
 Because people talked of God, once they talked of, in India for example, they talked of the Deities. That was a problem, because it became a talk again. Then they talked to God uh-uh-uh ... God which was ab ... abstract, uh-uh-uh like you can say Jehovah, and other things, because they wanted people to uh-uh-uh get over their uh-uh-uh st... stuck up points, you see. Nothing worked, you see!<br>
-So Buddha said, ``All right, let's talk only about the Self-realization, nothing else. Not even of God: let's talk of that only! Let people get to Self-realization, then we'll talk about God." So He said, ``All right: only Self-realization! No God, nothing!" That was His job: to fix you up with the idea of Self-realization. He said, ``Don't worship anything, don't do anything, get your Self-realization!"<br>
+So Buddha said, "All right, let's talk only about the Self-realization, nothing else. Not even of God: let's talk of that only! Let people get to Self-realization, then we'll talk about God." So He said, "All right: only Self-realization! No God, nothing!" That was His job: to fix you up with the idea of Self-realization. He said, "Don't worship anything, don't do anything, get your Self-realization!"<br>
 They are worshiping every-thing under the sun, this Buddhist! What am I to do?<br>
 So whatever Buddha has said, is, everything is re-said in Sahaja Yoga.<br>
-``Buddham śharaṇaṃ gacchāmi." ``I surrender myself to the Enlightened One." The one which is enlightened is your Spirit.<br>
-``Saṅghaṃ śharaṇaṃ gacchāmi": ``I surrender myself to the collectivity."<br>
+"Buddham śharaṇaṃ gacchāmi." "I surrender myself to the Enlightened One." The one which is enlightened is your Spirit.<br>
+"Saṅghaṃ śharaṇaṃ gacchāmi": "I surrender myself to the collectivity."<br>
 Unless and until you are a collectively conscious person, how can you surrender?<br>
 Buddha also, whatever He said, is not understood before Realization. You cannot.<br>
-``Dharmam śharaṇaṃ gacchāmi": is the sustenance within you.<br>
-Śharaṇaṃ means you become that! Is not a mental thing, `Oh, I surrender myself!' But you just become!<br>
+"Dharmam śharaṇaṃ gacchāmi": is the sustenance within you.<br>
+Śharaṇaṃ means you become that! Is not a mental thing, 'Oh, I surrender myself!' But you just become!<br>
 You become the Enlightened One, you become the collectively conscious, you become the dharma, the sustenance, the religion within us. You become! That's what He meant.<br>
-But for them, ``śharaṇaṃ gacchāmi," means take a wheel in the hand, go on, ``Buddham śharaṇaṃ gacchāmi," now [puts the right hand on Her forehead]. What this wheel is going to do I just don't understand, you know! They go on [for] hours together: they'll go mad! They will end up into lunatic asylum, believe Me!<br>
+But for them, "śharaṇaṃ gacchāmi," means take a wheel in the hand, go on, "Buddham śharaṇaṃ gacchāmi," now [puts the right hand on Her forehead]. What this wheel is going to do I just don't understand, you know! They go on [for] hours together: they'll go mad! They will end up into lunatic asylum, believe Me!<br>
 Or like mad, you are saying something, all the time praying: is that the way you are becoming?<br>
 They don't even know where is Buddha placed within yourself!<br>
 But Sahaja Yogis know where He is placed and how to please Him.<br>
@@ -52,7 +52,7 @@ Whatever He'd said is nothing but Sahaja Yoga, absolutely, hundred percent!<br>
 Actually Buddha was nobody else but an Incarnation, who reincarnated Himself as Ādi Śhaṅkarāchārya. You can see it clearly that it was He! And can be proved on Kuṇḍalinī again! You see, how can I prove it‽<br>
 To understand Them, first you get your Realization.<br>
 Again, I am talking like Buddha only!<br>
-He tried some things, by which He thought people would take to Realization, with human beings, as they are. He thought, `They are very much involved in materialism, take them out. Try this, try that,' nothing works out. `Not this!' </font><br>
+He tried some things, by which He thought people would take to Realization, with human beings, as they are. He thought, 'They are very much involved in materialism, take them out. Try this, try that,' nothing works out. 'Not this!' </font><br>
 <b>1982-0511 Public Program, Understanding the Love of God, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b><br>
 <br>
 <font color="red">In any book whatsoever, take it Bible, or go to Qur'ān, or go to any book, Zen, go to Buddhist, uh-uh-uh books of a Dhammapad, or you go to any other Śhāstras, like Vedas, they have talked of Kuṇḍalinī all right.</font><br>
