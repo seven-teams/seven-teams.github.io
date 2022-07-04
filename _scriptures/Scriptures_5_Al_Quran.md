@@ -29,7 +29,7 @@ If I say this to the Muslims will come after Me. Even the Hindus will come after
 <b>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b><br>
 <br>
 <font color="red">So, it is all described iking uh-uhb uh Qur'ān. There's a complete Sūrah describing about the Sent One, means the Avatāra, means the Incarnation. And also said that, "You won't believe," "You won't accept," and all those things.  </font><br>
-<b>1990-0107 Pūjā (English+Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b>
+<b>1990-0107 Pūjā (English+Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b><br>
 <br>
 <font color="red">Even in the Islam they showed Me a complete Sūrah written about Me, that the Sent One, they call Me a Sent One, and, 'That person will give you Realization, that would make you Pīrs, that will give you Collective Consciousness,' everything written in that, so beautiful, you won't believe it. "But you will not believe, you will be non-believers." Like that it is written in that.</font><br>
 <b>1990-0228 Talk to Sahaja Yogis, in Transit, Changi Airport, Singapore</b><br>
@@ -362,8 +362,7 @@ Now, if Muhammad Sāhab was the last Man [see 33:40], why did He talk of Resurre
 
 <p style="text-align:center;">
 <b>Sūrah 50</b><br>
-<font color="DarkGreen"><b>Qāf</b></font><br>
-<font color="DarkBlue"><b>Qaf</b></font>
+<font color="DarkGreen"><b>Qāf</b></font>
 </p>
 
 <p>
