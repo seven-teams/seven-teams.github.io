@@ -10,12 +10,10 @@ redirect_from:
 
 ![PICTURE 1](/images/HHShriMatajiNirmalDevi.jpg)
 
-
 **<font color="blue">Divine Treasures: an eternal token of gratitude and love</font>**
 ======
 
 The chance to meet Śhrī Mātājī and to hear Her teachings represented a dramatic turnaround in our lives. Sometimes fast, sometimes slow, visible transformation took place, producing a lasting change infused by beauty, serenity, joy, purity, simplicity, collectivity, etc. As an eternal expression of our gratitude towards Śhrī Mātājī, we would like to share some of the Divine Treasures we have delighted our Souls and Spirits with while following Śhrī Mātājī and practicing Sahaja Yoga. In particular, the site includes the complete and unedited Divine Message of Śhrī Mātājī and all its connections with the Spiritual Festivals and Scriptures of the World.
-
 
 **<font color="red">Śhrī Mātājī Nirmalā Devī</font>**
 ======
@@ -107,7 +105,6 @@ E-mail: <b>yearlycelebrations@gmail.com</b>
 7. **<font color="blue">Divine Message Subteam.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 For other databases of transcripts please see:
-
 
     i. <a href="https://www.amruta.org/transcripts-and-translations/"> Nirmala Vidya Amruta</a>
 
