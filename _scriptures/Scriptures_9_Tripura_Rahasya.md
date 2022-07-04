@@ -226,4 +226,5 @@ And after this, He also used to sit in the forest. He was next to the Incarnatio
 
 <div class="para-divider"></div>
 
-<p style="color:red;">Jay Śhrī Mātājī!<br></p>
+<p><b>Jay Śhrī Mātājī!</b>
+</p>
