@@ -238,10 +238,10 @@ There is no difference between Muhammad Sāhab and Guru Nāṇak. When Muhammad 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"About Me also you can ask questions. There are many ways of recognizing because in this life, you have to recognize. You have never recognized an Incarnation so far. You have to recognize.<br>
+"About Me also you can ask questions. There are many ways of recognizing because in this life, you have to recognize. You have never recognized an Incarnation so far. You have to recognize.<br>
 That is compulsory and that is done through Sahajs Yoga because unless and until you are realized, how are going to recognize Them also?<br>
 But even if you have not recognized Them, there was no need for you to crucify Them or to torture.<br>
-Then all the Gurus who came on this Earth, the Real Ones -- fakes are never gurus; they are not gurus. The Real Ones that came on this Earth, say, we can say Moses, Abraham, Nāṇak, Muhammad Sāhib, Kabīr, all these are Incarnations of Primordial Master whom we call as Dattātreya.<br>
+<font color="red">Then all the Gurus who came on this Earth, the Real Ones -- fakes are never gurus; they are not gurus. The Real Ones that came on this Earth, say, we can say Moses, Abraham, Nāṇak, Muhammad Sāhib, Kabīr, all these are Incarnations of Primordial Master whom we call as Dattātreya.<br>
 If They are or not, if Muhammad Sāhib and Guru Nāṇak are the same personality, same people who came in different times, then what justice are we doing to Them? How are we to find out? How are you to believe Me about it?"</font><br>
 <font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5--12</b></font>
 </p>
@@ -257,7 +257,7 @@ If They are or not, if Muhammad Sāhib and Guru Nāṇak are the same personalit
 
 <p>
 <font color="red">"If they would have recognized that Sāi Nāth is an Incarnation of Datta, this is very recent, that in your land of Maharashtra He did not even have food to eat. You are such great followers of Datta. Did you recognize Datta?<br>
-Now after He is gone, they are worshipping Him. But you have given immense respect to rogues when they were alive."</font><br>
+Now after He is gone, they are worshipping Him. But you have given immense respect to rogues when They were alive."</font><br>
 <font size="+0"><b>1981-0115 Public Program (Marathi), Akurdi, Piṃparī Chiṃchavaḍa (18 kms NNW of Pune), Maharashtra, India</b></font>
 </p>
 
