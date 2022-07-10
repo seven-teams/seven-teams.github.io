@@ -8,7 +8,7 @@ tags:
 
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/images989_Balwant_Kumbhojkar_Collection.jpg" /></div>
+<div style="text-align: center"><img src="/images/image989_Balwant_Kumbhojkar_Collection.jpg" /></div>
 
 <p style="color:DarkGreen; text-align:center">
 <font size="+2"><b>Love Means Sacrifice</b><br></font>
