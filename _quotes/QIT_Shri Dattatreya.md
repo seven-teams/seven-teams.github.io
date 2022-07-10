@@ -81,7 +81,8 @@ As you must have eyes to see any shape, its color, in the same way you are requi
 
 <p>
 "But in some people that stability has to be brought about. No problem. You have obtained that thing, you recognized it, you reached there and there is a complete arrangement for bringing stability.<br>
-<font color="red">As soon as that stability is achieved, in Absolute Peace and Joy, you achieve that Witness State described by Śhrī Kṛiṣhṇa, by Jesus, by all the Scriptures whether by Zoroaster, Socrates, Confucius or any of Dattātreya's Incarnations."</font><br>
+<font color="red">As soon as that stability is achieved, in Absolute Peace and Joy, you achieve that Witness State described by Śhrī Kṛiṣhṇa, by Jesus, by all the Scriptures whether by Zoroaster, Socrates, Confucius or any of Dattātreya's Incarnations.</font><br>
+Till today, these people who were of a higher state, who would take birth in a higher state, would talk in a manner that others were unable to understand. They could see matters of the tenth floor and others would remain on the first floor and they would just not understand what was being talked about."<br>
 <font size="+0"><b>1975-1222 Public Program (Hindi), Day 1, Prabhu ke Prem kā Anubhav (Experiences of Lord's Love), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
