@@ -28,9 +28,7 @@ If you can do that, then you'll do full justice to this-s life, which is a spiri
 <font color="blue"><b>2002-0721 Guru Pūjā, Enlarge Your Heart and Spread Sahaja Yoga with Humility, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font><br>
 </p>
 
-<br>
 Links to suggested talk: <a href="https://vimeo.com/24547969"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/2002-0727-1-guru_puja-1-wav"> soundcloud</a><br>
-<br>
 
 <p>
 <b>Objectives:</b><br>
@@ -38,8 +36,6 @@ Links to suggested talk: <a href="https://vimeo.com/24547969"> vimeo</a>, <a hre
 13. To employ the energy of love to overcome hatred that is the cause of wars, disintegration and destruction by publishing and relating the spiritual experiences of Sadhakas which prove the universal laws of love.
 </p>
 
-<br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
-<br>
 Comprehensive Compilations and Yearly Topics Teams
