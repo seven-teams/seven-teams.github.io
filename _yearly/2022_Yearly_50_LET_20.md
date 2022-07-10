@@ -6,6 +6,7 @@ tags:
   - crimson @ 50 Years of Life Eternal Trust and its Objects
 ---
 
+<br>
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
 <div style="text-align: center"><img src="/images/image989_Balwant_Kumbhojkar_Collection.jpg" /></div>
@@ -45,9 +46,7 @@ Now see the difference, because you are deep, you are much deeper. In evolution 
 <font color="blue"><b>1988-0709 Talk to Sahaja Yogis, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), France</b></font>
 </p>
 
-
 Links to suggested talk: <a href="https://vimeo.com/725081272"> vimeo</a>, <a href="https://soundcloud.com/sahaja-library/1988-0709-intuition-women"> soundcloud</a><br>
-
 
 <p>
 <b>Objectives:</b><br>

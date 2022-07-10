@@ -6,11 +6,11 @@ tags:
   - crimson @ 50 Years of Life Eternal Trust and its Objects
 ---
 
+<br>
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
 <div style="text-align: center"><img src="/images/image990_Photo_credit_Michael_Markl.jpg" /></div>
 
-<br>
 <p style="color:DarkGreen; text-align:center">
 <font size="+2"><b>The Right Side Movement Is The Collectivity</b><br></font>
 </p>
@@ -38,4 +38,4 @@ Links to suggested talk: <a href="https://vimeo.com/24547969"> vimeo</a>, <a hre
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
-Comprehensive Compilations and Yearly Topics Teams
+<p>Comprehensive Compilations and Yearly Topics Teams</p>
