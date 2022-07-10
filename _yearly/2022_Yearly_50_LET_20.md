@@ -42,7 +42,7 @@ So, I have to make one request to you: that you must try to make yourself uh-uh 
 No, men are more intelligent, no doubt. But women have intuition. But you don't have to argue! It will happen, the way you have intuition will happen, and they will learn a lesson.<br>
 ......<br>
 So, you see, they ... they ... special quality which is intuition must be developed. All right?<br>
-Now see the difference, because you are deep, you are much deeper. In evolution you are higher, no doubt. "<br>
+Now see the difference, because you are deep, you are much deeper. In evolution you are higher, no doubt."<br>
 <font color="blue"><b>1988-0709 Talk to Sahaja Yogis, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), France</b></font>
 </p>
 

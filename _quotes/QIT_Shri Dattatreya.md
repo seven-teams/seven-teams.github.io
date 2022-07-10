@@ -270,4 +270,19 @@ Now after He is gone, they are worshipping Him. But you have given immense respe
 
 <div class="para-divider"></div>
 
+<p>
+<font color="red">"Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one teacher God, the Primordial Master, Dattātreya. He came onto this Earth to teach people the secrets of the Divine, to reveal God, and to help them cross the Ocean of Illusion themselves within their own identity. Evolution could not go further in the hands of human beings who were in the bondage of ignorance, so they were given guidance through this Incarnation of the Primordial Master (Ādi Guru) again and again in different lives. He was created as the three-headed child, Dattātreya, by Ādi Śhakti who appeared on Earth during the Tretā Yuga as Satī Anasūyā, wife of the Sage Atreya. He was born as Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara] who founded Jainism -- one of the oldest religions. Then he was born as Rāja Janaka, father of Jānakī also called Sītā, Rāma's wife. She was an Incarnation of Ādi Śhakti.<br>
+The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. In China He was born as Confucius and as Lao Tze, and in Greece as Socrates. He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."</font><br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Pages 32 and 33</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
