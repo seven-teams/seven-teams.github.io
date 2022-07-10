@@ -195,7 +195,11 @@ So the relationship exists and whenever He is born, She is born, in a way, that,
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"There was a doctor who was suffering from cancer, who came to Me. And he was an ardent Muslim. And I told him to take the name of Nāṇaka. He said, "I would not. I can only take the name of Muhammad." I said, "Muhammad Himself is angry with you because you are such a fanatic. Because Muhammad was born as Nāṇaka." He said, "No, I cannot take His name." "All right," I said, "go ahead." <font color="red">I said, "All right, take the name of Dattātreya." He would not take it. He would not take the name of Moses. He said, "I only know Muhammad."</font><br>
+But then he was very much worse.<br>
+<font color="red">Then he came to Me. I said, "Now take the name of Dattātreya." You won't believe: he sat down, he said, "Mother, teach me how to do Pūjā of Dattātreya." And he got much better. I must say!</font><br>
+There was another gentleman who was a staunch Hindu. And if they are staunch, they are the worst they can take up. [Laughter.] And I told him that he has to take the name of Muhammad. And he would not! He said, "You are finishing my religion in, what are you doing‽ You are blasphemous!" And all kind of things he said. I said, "All right. You can say whatever you like."<br>
+After one year he again reappeared, in Delhi. And then I told him, "Now will you take the name of Muhammad Sāhab and do some Namāz?" And he read it! And he is all right."<br>
 <font size="+0"><b>1978-1014 Talk to Sahaja Yogis, Advice on Our Powers, How to Handle Scientists, First Western Seminar, Day 1, Conference Center, East Hampstead Park (near Workingham, 60 kms W of London), UK</b></font>
 </p>
 
