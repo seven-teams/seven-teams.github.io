@@ -22,6 +22,9 @@ tags:
 
 <p>
 <b>Quotes</b><br>
+<font color="red">According to me, Hazrate [Hazarat] Muhammad was one of the greatest incarnations because he was even greater than a Prophet. He announced some prophecies which none of the incarnations, such as Jesus, had described. The first thing he said was that we must have Meerraj [Mirāj], meaning the ascent through different levels. And at the third level he described how he met with all the previous Prophets such as Ibrahim, and he described the ascent on the white horse which is actually the power of Kundalini [Kuṇḍalinī]. Secondly, he said that when you receive your realization you have to fully surrender, meaning "Islam", and then your hands will speak. He did not condemn any previous religion or incarnation. For example, the Kabe Makeshwara [Kaaba Makkeśhwara] is also described in the Indian Koran [Qur'ān]. And thirdly, he described the next advent that is going to come. He never said that he was the last one. What shows that he never said he was the last is that he said that I am the seal, meaning that he was the stamp of the Prophets. He described the work of the advent of Mandi [Mahdī]. The word of Mandi [Mahdī] actually means the incarnation of the great primordial Mother -- Ma + Adi [Ādi]. No one has prophesised [prophesized] so clearly about Sahaja Yoga except for Hazrate [Hazarat] Muhammad who has described Sahaja Yoga in his great book of Koran [Qur'ān].</font><br>
+<font size="+0"><b>1901-0000 Letter Published in the Turkish Newspaper Bursa</b></font><br>
+<br>
 <font color="red">So much has been said in the Qur'ān. My father who translated the Qur'ān has mentioned it, which I have read.<br>
 The whole of Namāz depicts the awakening of Kuṇḍalinī.<br>
 And in it, He mentioned Allah hu Akbar, that Akbar is Himself Śhrī Virāṭa.<br>

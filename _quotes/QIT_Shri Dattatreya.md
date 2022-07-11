@@ -10,7 +10,7 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"To make the people cross the Void (Bhavasāgara) He has to make some arrangement. So the Great Power like Brahmā, Viṣhṇu, Maheśha was created and they were placed in the Area of Dharma.<br>
+<font color="red">"To make the people cross the Void (Bhavasāgara) He has to make some arrangement. So the Great Power like Brahmā, Viṣhṇu, Maheśha was created and They were placed in the Area of Dharma.<br>
 Dattātreya and Ādi Gurus incarnated in this world many a times. He incarnated as King Janaka who was like the father of Ādi Śhakti. After that He incarnated in Iran as Zoroaster, then as Macchindranāth, then as Muhammad Sāheb and Nāṇak Sāheb.</font><br>
 No one fought with each other. See what type of darkness you are in?<br>
 Fāṭimah, the daughter of Muhammad Sāheb was the same who became daughter of King Janaka.<br>
@@ -59,14 +59,14 @@ As I told you yesterday, King Janaka was one of them. King Janaka was the father
 Thereafter, Macchindranāth, most have you must have heard His name, was also His Incarnation.<br>
 After that Zoroaster who came three times on the Earth, He was also His Incarnation.<br>
 After that Muhammad Sāhab, who was His Incarnation.<br>
-And when He was asked that, "Bhāī [Brother] there must have been others also before you," then He replied, "Yes, there [was] a Muhammad." Then again He was asked who was before him. He replied, "There was one Muhammad."</font><br>
+And when He was asked that, "Bhāī [Brother] there must have been others also before you," then He replied, "Yes, there [was] a Muhammad." Then again He was asked who was before Him. He replied, "There was one Muhammad."</font><br>
 Muhammad means Praise, the One who is praised, the One who deserves to be praised and is the One who is Redeemer of the world.<br> 
 <font color="red">They were all Muhammads, they were all Dattātreyas, who came on Earth regularly.<br>
-After that [was] Nāṇaka, Guru Nāṇaka. If you ever read His teachings, if you read His talks then you will be surprised that He has always talked in a Sahaja. He has said, "Sahaja Samādhi lago." He has said, "Kāhe re ban khojan jāe, Sarab nivāsī sadā alepā tohī saṃg[a] samāī, Puṣhpamadhya jo bāsa basata hai mukara māhī jaise chhāī, Taise hī harī base niraṃtara ghaṭa hī khojo bhāī." "Why to go to forest to find Him, He is always there with you just like there is a fragrance in a flower and just as the reflection is there in a mirror, in the same way God is residing in you eternally seek Him within. He is just inside, achieve Him just inside. We are just singing poem, singing songs, we are just cramming His prescription."<br>
+After that [was] Nāṇaka, Guru Nāṇaka. If you ever read His teachings, if you read His talks then you will be surprised that He has always talked in a Sahaja. He has said, "Sahaja Samādhi lago." He has said, "Kāhe re ban khojan jāe, Sarab nivāsī sadā alepā tohī saṃg[a] samāī, Puṣhpamadhya jo bāsa basata hai mukara māhī jaise chhāī, Taise hī harī base niraṃtara ghaṭa hī khojo bhāī." ["Why to go to forest to find Him, He is always there with you just like there is a fragrance in a flower and just as the reflection is there in a mirror, in the same way God is residing in you eternally, seek Him within."] He is just inside, achieve Him just inside. We are just singing poem, singing songs, we are just cramming His prescription.<br>
 The talk of seeking this Absolute Principle, residing just inside the heart, has been made since ancient times by these Ādi Gurus, who are incarnated on this Earth again and again.</font><br>
 ......<br> 
 <font color="red">After Nāṇak Sāhab, around fifty, sixty years ago in our Maharashtra Dattātreya incarnated as Sāī Bābā of Śhirḍī.</font> If you want proof of it, then you get your Realization and after that if you put your hand on anyone, then you will get vibration of same kind: from just vibration only you can know about all.<br>
-As you must have eyes to see any shape, its color, in the same way you are required to feel vibrations so that you may know all the gurus of the world and will be able to know as who is a true guru and who is a liar, who is equal to that Incarnation of Ādi Guru Dattātreya, for mere saying there are thousands of guru in modern times. No one become guru just by saying of another. And by believing in him also, he does not become a guru."<br>
+As you must have eyes to see any shape, its color, in the same way you are required to feel vibrations so that you may know all the Gurus of the world and will be able to know as who is a true guru and who is a liar, who is equal to that Incarnation of Ādi Guru Dattātreya, for mere saying there are thousands of guru in modern times. No one become guru just by saying of another. And by believing in him also, he does not become a guru."<br>
 <font size="+0"><b>1973-1209 Public Program (Hindi), Day 3, Śhrī Dattātreya Jayanti, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -121,8 +121,12 @@ So, Guru Tattwa is killed as soon as you become a fanatic person. Your Guru Tatt
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Another thing is, here in Bhavasāgar, all Three, Brahmā, Viṣhṇu, Maheśhwar, combined to make a child, who is called Ādi Guru, is known as Dattātreya. There were many Incarnations of Him. And His Child Tattwa also took Incarnations. First was Dattātreya, then came Rāja Janak. Like this, many Incarnations came, Rāja Janak, Nāṇak, Zarathusrta, Muhammad Sāhab, Sāi Nāth of Śhirḍī.<br>
-They are all one. Are They or not? You can witness it after Self-realization. If you believe in one Guru, like Nāṇak, then you have no right not to accept Muhammad Sāhab. If you get Muhammad Sāhab and not Nāṇak, then you have no authority as well."</font><br>
+<font color="red">"Another thing is, here in Bhavasāgar, all Three, Brahmā, Viṣhṇu, Maheśhwar, combined to make a child, who is called Ādi Guru, is known as Dattātreya. There were many Incarnations of Him. And His Child Tattwa also took Incarnations. First was Dattātreya, then came Rāja Janak. <font color="red">Like this, many Incarnations came, Rāja Janak, Nāṇak, Zarathustra, Muhammad Sāhab, Sāī Nāth of Śhirḍī.<br>
+They are all one. Are They or not? You can witness it after Self-realization. If you believe in one Guru, like Nāṇak, then you have no right not to accept Muhammad Sāhab. If you get Muhammad Sāhab and not Nāṇak, then you have no authority as well.<br>
+You will be surprised, most of the cancer disease comes from the imbalance of Bhavasāgar, you follow one but not the other. Cancer also comes when we don't follow Them.<br>
+Like He forbade two things, like not to smoke a cigarette and not to consume alcohol.<br>
+Alcohol is entirely not allowed. Here, in Sahaja Yoga, if someone is habituated to drink alcohol, they will leave it. If they don't leave alcohol, it will [not] be in moderation because both of these things go against Guru Tattwa.<br>
+If Guru Tattwa is not established within us, we cannot have our evolution. Guru Tattwa is essential. Guru Tattwa is one destiny for all religions. There is one flow from all the religions."</font><br>
 <font size="+0"><b>1976-032x Public Program (Hindi), Day y, Advertised as 'Kuṇḍalinī Awakening', New Delhi, India (date to be confirmed)</b></font>
 </p>
 
@@ -136,7 +140,24 @@ They are all one. Are They or not? You can witness it after Self-realization. If
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Before some years back we had Great Guru of Śhirḍī Sāī Nāth. No doubt about it, He was an Incarnation of Śhrī Dattātreya. There is no doubt about His Incarnation. He was a Muslim. You recognized Him, that is important."</font><br>
+"In Maharashtra, some Great Gurus have taken birth, which means we are some special people, that's what I have to say. Land of Maharashtra has something extraordinary. Or you can say that because of that soil, lotus bloomed. Those Gurus were very great.<br>
+<font color="red">Before some years back we had Great Guru of Śhirḍī Sāī Nāth. No doubt about it, He was an Incarnation of Śhrī Dattātreya. There is no doubt about His Incarnation. He was a Muslim. You recognized Him, that is important.</font><br>
+But there now you have built temples, big priests have come there. How they would do Pūjā for Him or worship Him? What authority they have? Who are they? And in front of them you put the money. Means, what is going on? <font color="red">What He taught, what He said?</font><br>
+<font color="red">Only going to temple and sitting there, you will say, 'Sāī Bābā [of Śhirḍī] has fulfilled our wishes,' means He has done our work. He does that because He is very kind. Once you surrender to Him, He will do your work. But what you have done for Him?<br>
+He is angry because you are taking His name. I have seen so many of His devotees. I have to tell Him, 'Forgive them, they don't know.' We are not qualified to take His name.<br>
+He is very great, for Me.</font><br>
+I am OK if you have taken My name for so many times, there is no problem. I will not get angry, I am your Mother.<br>
+<font color="red">But for Him, to take His name, or to see Him with big eyes, is a big thing.</font><br>
+These kinds of Great Saints we had.<br>
+When they were alive, then they were tortured, that you have to accept.<br>
+Now they are not here. Whatever happened it happened.<br>
+But now also, how you are behaving‽ Are we behaving as per them?<br>
+In Maharashtra so many Saints were there.<br>
+There is one group, Śhiva Senā [Party] is created [on 1966-0619]. Some others are also created. This kind of dirty things we are doing now.<br>
+<font color="red">I want to say it means what it's not a political thing, but to envy someone or think bad about others or seeing someone less than you or big than you, etc., these things should not happen by [to] devotees of Śhirḍī Sāī Nāth. Let other people do that.<br>
+Keeping Sāī's Photo at home and say[ing] that, 'Hindus, Muslims are different'! That kind of thing you can't spread. Admitted that Muslims are bad that they have done something wrong or harassed someone, admitted Hindus are bad [that] they have harassed someone! But when you are keeping His Photo, where you stand? You are at His Feet.</font><br>
+But if you are a disciple of anyone, fine.<br>
+<font color="red">But if you are a disciple of Sāī, then you are all one. Then you don't have to have different feelings."</font><br>
 <font size="+0"><b>1976-0531 Public Program (Marathi), Sahajyog Sgalyāṃnā Samagra Karto (Sahaja Yoga Makes Everyone Holistic), Matunga, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -224,7 +245,7 @@ After one year he again reappeared, in Delhi. And then I told him, "Now will you
 
 <p>
 "So the dharma that has been established in us by God Almighty because if we want to go to the Kingdom of God, then in our freedom we must desire to get to God. If someone tries to pressurize us and says, 'You must ask for God,' then it is of no use, it is not an evaluation. That is why to reach in this state, a person has to seek the God as per his own independent sweet will and not due to any pressure, or any disease or any hardships or any sorrow, but only because of the fact and realizing that, 'It is the only motive of our life to seek God.'<br>
-<font color="red">That is why, when we desire for this Divine Gift, then the doors of God Almighty's Divine Blessings open for you, and around the center is a place of Ten Primordial Gurus. These are the Main Gurus which are the Incarnation[s] of Śhri Dattātreya. They are: Socrates, Moses, Muhammad Sāhab, Guru Nāṇak, Śhirḍī Sāi Nāth, and Zoroaster. They are all Incarnation[s] of one Incarnation.</font>"<br>
+<font color="red">That is why, when we desire for this Divine Gift, then the doors of God Almighty's Divine Blessings open for you, and around the center is a place of Ten Primordial Gurus. These are the Main Gurus which are the Incarnation[s] of Śhri Dattātreya. They are: Socrates, Moses, Muhammad Sāhab, Guru Nāṇak, Śhirḍī Sāī Nāth, and Zoroaster. They are all Incarnation[s] of one Incarnation.</font>"<br>
 There is no difference between Muhammad Sāhab and Guru Nāṇak. When Muhammad Sahab saw that people are taking wrong interpretation of His Dharma and doing everything against the dharma, then He was born again as Guru Nāṇak to correct it. Because He wanted to bring unity among people but you know what happened during Their lives.<br>
 <font size="+0"><b>1979-0322 Public Program (Hindi), Sahaja Yoga and the Subtle System, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India (other date 0321)</b></font>
 </p>
@@ -240,10 +261,10 @@ There is no difference between Muhammad Sāhab and Guru Nāṇak. When Muhammad 
 
 <p>
 "About Me also you can ask questions. There are many ways of recognizing because in this life, you have to recognize. You have never recognized an Incarnation so far. You have to recognize.<br>
-That is compulsory and that is done through Sahajs Yoga because unless and until you are realized, how are going to recognize Them also?<br>
+That is compulsory and that is done through Sahajs Yoga because unless and until you are realized, how are [you] going to recognize Them also?<br>
 But even if you have not recognized Them, there was no need for you to crucify Them or to torture.<br>
-<font color="red">Then all the Gurus who came on this Earth, the Real Ones -- fakes are never gurus; they are not gurus. The Real Ones that came on this Earth, say, we can say Moses, Abraham, Nāṇak, Muhammad Sāhib, Kabīr, all these are Incarnations of Primordial Master whom we call as Dattātreya.<br>
-If They are or not, if Muhammad Sāhib and Guru Nāṇak are the same personality, same people who came in different times, then what justice are we doing to Them? How are we to find out? How are you to believe Me about it?"</font><br>
+<font color="red">Then all the Gurus who came on this Earth, the Real Ones -- fakes are never gurus, they are not gurus -- the Real Ones that came on this Earth, say, we can say Moses, Abraham, Nāṇak, Muhammad Sāhib, Kabīr, all these are Incarnations of Primordial Master whom we call as Dattātreya.</font><br>
+<font color="red">If They are or not, if Muhammad Sāhib and Guru Nāṇak are the same personality, same people who came in different times, then what justice are we doing to Them?</font> How are we to find out? How are you to believe Me about it?"<br>
 <font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5--12</b></font>
 </p>
 
@@ -257,7 +278,7 @@ If They are or not, if Muhammad Sāhib and Guru Nāṇak are the same personalit
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"If they would have recognized that Sāi Nāth is an Incarnation of Datta, this is very recent, that in your land of Maharashtra He did not even have food to eat. You are such great followers of Datta. Did you recognize Datta?<br>
+<font color="red">"If they would have recognized that Sāī Nāth is an Incarnation of Datta, this is very recent, that in your land of Maharashtra He did not even have food to eat. You are such great followers of Datta. Did you recognize Datta?<br>
 Now after He is gone, they are worshipping Him. But you have given immense respect to rogues when They were alive."</font><br>
 <font size="+0"><b>1981-0115 Public Program (Marathi), Akurdi, Piṃparī Chiṃchavaḍa (18 kms NNW of Pune), Maharashtra, India</b></font>
 </p>
