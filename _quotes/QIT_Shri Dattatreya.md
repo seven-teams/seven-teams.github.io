@@ -121,7 +121,7 @@ So, Guru Tattwa is killed as soon as you become a fanatic person. Your Guru Tatt
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Another thing is, here in Bhavasāgar, all Three, Brahmā, Viṣhṇu, Maheśhwar, combined to make a child, who is called Ādi Guru, is known as Dattātreya. There were many Incarnations of Him. And His Child Tattwa also took Incarnations. First was Dattātreya, then came Rāja Janak. <font color="red">Like this, many Incarnations came, Rāja Janak, Nāṇak, Zarathustra, Muhammad Sāhab, Sāī Nāth of Śhirḍī.<br>
+"Another thing is, here in Bhavasāgar, all Three, Brahmā, Viṣhṇu, Maheśhwar, combined to make a child, who is called Ādi Guru, is known as Dattātreya. There were many Incarnations of Him. And His Child Tattwa also took Incarnations. First was Dattātreya, then came Rāja Janak. <font color="red">Like this, many Incarnations came, Rāja Janak, Nāṇak, Zarathustra, Muhammad Sāhab, Sāī Nāth of Śhirḍī.<br>
 They are all one. Are They or not? You can witness it after Self-realization. If you believe in one Guru, like Nāṇak, then you have no right not to accept Muhammad Sāhab. If you get Muhammad Sāhab and not Nāṇak, then you have no authority as well.<br>
 You will be surprised, most of the cancer disease comes from the imbalance of Bhavasāgar, you follow one but not the other. Cancer also comes when we don't follow Them.<br>
 Like He forbade two things, like not to smoke a cigarette and not to consume alcohol.<br>
@@ -266,6 +266,25 @@ But even if you have not recognized Them, there was no need for you to crucify T
 <font color="red">Then all the Gurus who came on this Earth, the Real Ones -- fakes are never gurus, they are not gurus -- the Real Ones that came on this Earth, say, we can say Moses, Abraham, Nāṇak, Muhammad Sāhib, Kabīr, all these are Incarnations of Primordial Master whom we call as Dattātreya.</font><br>
 <font color="red">If They are or not, if Muhammad Sāhib and Guru Nāṇak are the same personality, same people who came in different times, then what justice are we doing to Them?</font> How are we to find out? How are you to believe Me about it?"<br>
 <font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5--12</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"What it is remarkable to see, that before this, no Incarnation said publicly, that, They were Incarnations.<br>
+Rāma, of course, had forgotten that He was an incarnation. In a way, He was ... He made Himself to forget, played His māyā upon Himself, to become a complete human be-ing, Maryādā Puruṣhottama.<br>
+And Śhrī Kṛiṣhṇa also only told one person, Arjuna, just before he was to start the war.<br>
+Abraham never said that He was the Incarnation, though He was the Incarnation of Primordial Master.<br>
+<font color="red">Dattātreya Himself never said that He was the Incarnation of the Primordial Master. With all these three forces, acting through innocence, [He] came on this Earth to guide.</font><br>
+Moses never said that, though they knew He was great. He had overpowered nature. But He never said that He was the Incarnation."<br>
+<font size="+0"><b>1979-1202 Guru Pūjā, The Declaration, Living Room, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
 <div class="para-divider"></div>

@@ -22,8 +22,11 @@ tags:
 
 <p>
 <b>Quotes</b><br>
+<font color="red">In all the above verses, Prophet Muhammad has talked about Rebirth [True Baptism], the Day of Resurrection and has also said that hatred and enmity in the name of religion will last till the Day of Resurrection. True Baptism is only after the Kuṇḍalinī awakening, which is happening now. The Muslim way of offering prayers, Namāz as taught by the Prophet, was in fact a way of Kuṇḍalinī awakening.</font><br>
+<b>1900-0000 Two Quotes from the book Divine Knowledge through Vibrations (1992) by P.T. Rajasekharan and R. Venkatesan, Page 73</b><br>
+<br>
 <font color="red">According to me, Hazrate [Hazarat] Muhammad was one of the greatest incarnations because he was even greater than a Prophet. He announced some prophecies which none of the incarnations, such as Jesus, had described. The first thing he said was that we must have Meerraj [Mirāj], meaning the ascent through different levels. And at the third level he described how he met with all the previous Prophets such as Ibrahim, and he described the ascent on the white horse which is actually the power of Kundalini [Kuṇḍalinī]. Secondly, he said that when you receive your realization you have to fully surrender, meaning "Islam", and then your hands will speak. He did not condemn any previous religion or incarnation. For example, the Kabe Makeshwara [Kaaba Makkeśhwara] is also described in the Indian Koran [Qur'ān]. And thirdly, he described the next advent that is going to come. He never said that he was the last one. What shows that he never said he was the last is that he said that I am the seal, meaning that he was the stamp of the Prophets. He described the work of the advent of Mandi [Mahdī]. The word of Mandi [Mahdī] actually means the incarnation of the great primordial Mother -- Ma + Adi [Ādi]. No one has prophesised [prophesized] so clearly about Sahaja Yoga except for Hazrate [Hazarat] Muhammad who has described Sahaja Yoga in his great book of Koran [Qur'ān].</font><br>
-<font size="+0"><b>1901-0000 Letter Published in the Turkish Newspaper Bursa</b></font><br>
+<b>1901-0000 Letter Published in the Turkish Newspaper Bursa</b><br>
 <br>
 <font color="red">So much has been said in the Qur'ān. My father who translated the Qur'ān has mentioned it, which I have read.<br>
 The whole of Namāz depicts the awakening of Kuṇḍalinī.<br>
@@ -304,6 +307,9 @@ What is islam? It is surrender and from the same root comes the word salam or pe
 
 <p>
 <b>36 Quotes</b><br>
+<font color="red">When Kuṇḍalinī awakening and Self-realization has occurred, a flow of energy in the form of Cool Vibrations starts flowing from the hands; this is what is signified in the above passage [Qur'ān 36:65]. Here Prophet Muhammad is talking of the coming time, the Time of Resurrection, which is, in fact, the present age of Aquarius or Kuṇḍalinī awakening.</font><br>
+<b>1900-0000 Two Quotes from the book Divine Knowledge through Vibrations (1992) by P.T. Rajasekharan and R. Venkatesan, Page 73</b><br>
+<br>
 <font color="red">Muhammad Sāheb, who was a great personality, said, "At the Time of your Resurrection, your hands will speak," which is known as Qiyāmah, the Resurrection Time.</font><br>
 <b>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b><br>
 <br>

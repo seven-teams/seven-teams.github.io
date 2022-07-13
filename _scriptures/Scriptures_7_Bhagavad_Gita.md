@@ -29,12 +29,12 @@ I went to see him, and he gave Me a flower, such a beautiful couplet from Gītā
 I'm doing that, but somehow people do not know what to expect within themselves.</font><br>
 <b>1980-1010 Public Program (2nd Day of Navarātri), Zürich, Switzerland</b><br>
 <br>
-<font color="red">People say that, "In Gītā," I haven't read Gītā, "the one who is born in a particular caste belongs to that caste." I say, ``It's not possible."<br>
+<font color="red">People say that, "In Gītā," I haven't read Gītā, "the one who is born in a particular caste belongs to that caste." I say, "It's not possible."<br>
 The author of Gītā, Vedavyās, whose son was he? A fisherwoman's.<br>
 The author of Rāmāyaṇa, Vālmīki, who was he? A dacoit who wrote Rāmāyaṇa.<br>
 Rāma who ate Śhabarī's berries, Kṛiṣhṇa who had food at Vidura, to understand all these Incarnations we must know that this outward superficiality we have created is all wasteful doings.<br>
-We feel secure in all these false ideas we have created, that, `We belong to a certain sect or religion.' All this is a trick of our intellect, our mental projection, which does not spread around but goes only in one direction and then comes back again.<br>
-All such beliefs are of adharma and not of dharma, just not possible. Any person who puts another person down, or says, `I am placed higher than others,' can't be right, or in dharma.</font><br>
+We feel secure in all these false ideas we have created, that, 'We belong to a certain sect or religion.' All this is a trick of our intellect, our mental projection, which does not spread around but goes only in one direction and then comes back again.<br>
+All such beliefs are of adharma and not of dharma, just not possible. Any person who puts another person down, or says, 'I am placed higher than others,' can't be right, or in dharma.</font><br>
 <b>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b><br>
 </p>
 
@@ -48,9 +48,9 @@ All such beliefs are of adharma and not of dharma, just not possible. Any person
 
 <p>
 <b>1.1 Translations</b><br>
-<font color="Peru"></font><br>
-<font color="blue"></font><br>
-<font color="DarkGreen"></font>
+<font color="Peru">...... on the sacred plain of Kurukṣhetra ......</font><br>
+<font color="blue">On that holy (battle) -field -- at Kurukṣhetra -- ......</font><br>
+<font color="DarkGreen">On the field of Truth, on the battle-field of life ......</font>
 </p>
 
 <p>
@@ -59,6 +59,27 @@ All such beliefs are of adharma and not of dharma, just not possible. Any person
 
 <p>
 <b>1.1 Comments</b><br>
+</p>
+
+<p>
+<b>1.6 Translations</b><br>
+<font color="Peru">...... the sons of Draupadī ......</font><br>
+<font color="blue">..... the (five) sons of Draupadī ......</font>.<br>
+<font color="DarkGreen">...... five princes of queeen Draupadī. ......</font>
+</p>
+
+<p>
+<b>1.14 Translations</b><br>
+<font color="Peru">Then, too, Mādhava and the son of Pāṇḍu, seated in a grand chariot yoked to white horses, blew their celestial conches.</font><br>
+<font color="blue">Thereupon, seated in an ample chariot with white steeds yoked, (Kṛiṣhṇa, the) Mādhava and (Arjuna, the) Pāṇḍava blew forth their celedtial conches:</font><br>
+<font color="DarkGreen">Thereupon Kṛiṣhṇa of Mādhava and Arjuna, the son of Pāṇḍu, standing in their glorious charior drawn by white horses, answered the challenge and blew their divine conch-shells.</font>
+</p>
+
+<p>
+<b>1.15 Translations</b><br>
+<font color="Peru">Hṛiṣhīkeśha blew the Pañchajanya, and Arjuna blew the devadatta. ......</font><br>
+<font color="blue">Hṛiṣhīkeśha (=Kṛiṣhṇa) blew the Pañchajanya and Dhanaṁjaya (=Arjuna) the Devadatta. ......(</font><br>
+<font color="DarkGreen">Kṛiṣhṇa, the Lord of the soul, blew his conch-shell Pañcha-janya. Arjuna, the winner of treasure, sounded forth his own Deva-datta. ......</font>
 </p>
 
 ......
@@ -372,9 +393,9 @@ m
 The Supreme Self that I am talking of is all seeing. "Yogakṣhemaṁ vahāmyaham": Yoga and kṣhema are looked after by Him.<br> See now, there is nothing superior to Him in this world. What in this world can stand in comparison to the Lord‽ The entire world is functioning because of this Superior Entity.</font><br>
 <b>1976-0205 Śhrī Viṣhnu Havan (Hindi) (Vasant Pañchamī), Upakār Buddhi (Sense of Gratitude), New Delhi, India</b><br>
 ......<br>
-<font color="red">Looking at his country, of Śhrī Kṛiṣhṇa, when we torture women in the name of religion are we capable of us being Indians? We go on trumpeting about Indian culture. But are we capable of calling ourselves where we go out [abroad] and project ourselves about burning and killing our daughters-in-law? And so the outsiders say that, `Your country is such spiritual place, so much knowledge is there, people talk about righteousness and lecture about it, then how is it so that such horrible events happen?' What answer do we have on this?<br>
+<font color="red">Looking at his country, of Śhrī Kṛiṣhṇa, when we torture women in the name of religion are we capable of us being Indians? We go on trumpeting about Indian culture. But are we capable of calling ourselves where we go out [abroad] and project ourselves about burning and killing our daughters-in-law? And so the outsiders say that, 'Your country is such spiritual place, so much knowledge is there, people talk about righteousness and lecture about it, then how is it so that such horrible events happen?' What answer do we have on this?<br>
 Only one answer is there, that Śhrī Kṛiṣhṇa has said, "Yogakṣhemaṁ vahāmyaham."<br>
-There is a catch in this. `First there should be Yoga, and then I will look after their benevolence.' Why Did He not say, 'Kṣhema-yoga'?<br>
+There is a catch in this. 'First there should be Yoga, and then I will look after their benevolence.' Why Did He not say, 'Kṣhema-yoga'?<br>
 First there will be Yoga, and then benevolence. This is the depiction of dharma. So first you achieve your Yoga.<br>
 So if you glorify the Indian culture, then the most essential and important essence of this culture is that you achieve your Self-realization.</font><br>
 <b>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b><br>
