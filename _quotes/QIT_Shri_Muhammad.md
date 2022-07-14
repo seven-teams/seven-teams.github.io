@@ -325,7 +325,7 @@ That the helmet they cannot wear! Because they must have a right and freedom to 
 [Laughing:] And there is a big procession every, I think every Sunday they take it out, 'against protecting'. My head's off to all these people.<br>
 <font color="red">That is what they have done out of Nāṇak Sāhib.</font><br>
 And the Muslims, think of them, they have written poetry on drinking.<br>
-Now if I say, 'You don't have to drink,'' they will think, 'This Lady is talking from [laughing:] about ten thousand years back.' But is a fact, I'm telling you: it is not meant for human consumption at all, none of these are!<<br>
+Now if I say, 'You don't have to drink,'' they will think, 'This Lady is talking from [laughing:] about ten thousand years back.' But is a fact, I'm telling you: it is not meant for human consumption at all, none of these are!<br>
 ......<br>
 He has incarnated only once on this Earth, and you'll be surprised if I tell you who was that: is Hazarat ʿAlī. <font color="red">He was the son-in-law of Muhammad Sāhab.<br>
 Muhammad Sāhib is the Incarnation of the Primordial Master or the Ādi Guru, who incarnated in the Void, in the Bhavasāgara. And He is the same as Nāṇak.</font><br>
@@ -465,7 +465,7 @@ Then you will say, 'Then Kṛiṣhṇa was greater than Him.'</font><br>
 So tell Me in your case, if your eyes are bigger or nose? That your ear is bigger or your mouth?<br>
 Everyone has Their own space, Their own importance [points towards the human Chakra Chart and describes the Virāṭa].<br>
 ......<br>
-Now in this Void we have two great entities as well which we know as Chandra [Moon] and Sūrya [Sun]. Moon and Sun are such chakras which reside on these nāḍīs here and here [likely pointing towards the Chakra Chart]. On these chakras there are two very great personalities who have been appointed. They are complete embodiment of human beings. They are like humans, in fact are humans. Out of these one is Buddha and one is Mahāvīra.>br>
+Now in this Void we have two great entities as well which we know as Chandra [Moon] and Sūrya [Sun]. Moon and Sun are such chakras which reside on these nāḍīs here and here [likely pointing towards the Chakra Chart]. On these chakras there are two very great personalities who have been appointed. They are complete embodiment of human beings. They are like humans, in fact are humans. Out of these one is Buddha and one is Mahāvīra.<br>
 But if you listen to the whole history of Their lives, then these are two sons which Śhrī Sītā had as Lav and Kuśha who is completely in human form. And after They evolved to the level that They are here as Buddha and Mahāvīra. There also they thought They have reached an extreme of nonviolence because the supports of nonviolence came in and started protecting even mosquitoes and bugs.<br>
 Then They again took birth and came at the time of Muhammad. <font color="red">Muhammad was an Incarnation of Śhrī Janaka and His daughter Fāṭimah Bi was also Incarnation of Śhrī Sītā.</font><br>
 Then, as Their sons as Hasan and Husayn, They gave their life in Karbalāʾ to prove that no kind of extreme is good."<br>
@@ -485,7 +485,7 @@ The problems get removed by this only. It's a matter of great surprise, but it's
 If you are realized, that is Alla hu Akbar, means Allah who is the Virāṭ. And Virāṭ is the description of Śhrī Kṛiṣhṇa.<br>
 <font color="red">Prophet Muhammad has Himself described Śhrī Kṛiṣhṇa with such fervor. Wherever He said about Allah, He talked about Śhrī Kṛiṣhṇa.</font><br>
 Wherever Christ talked about His Father, He talked about Śhrī Kṛiṣhṇa.<br>
-But He [Prophet Muhammad] talked about Formless because the people were caught up in petty things, you can say in our country only.</font>"<br>
+<font color="red">But He [Prophet Muhammad] talked about Formless because the people were caught up in petty things, you can say in our country only.</font>"<br>
 <font size="+0"><b>1978-0201 Public Program (Hindi), Brahma kā Gyān (Knowledge of Brahma) or Mūlādhāra to Viśhuddhi, Āgñyā, and Sahasrāra, 9 Raisina Road, New Delhi, India</b></font>
 </p>
 
@@ -615,7 +615,7 @@ So if someone becomes a Muslim, he turns bad, how did you form this conclusion? 
 
 <p>
 "This vegetarianism of this extreme type is also not necessary. All right, those who do not need, should not eat. <font color="red">But that does not mean a person cannot achieve spirituality if he eats other things, like Muhammad Sāhab was a great person, Christ was a great person, even Rāma was a Kṣhatriya, Kṛiṣhṇa was a Kṣhatriya.</font><br>
-So only thing you can do is to control your food. By controlling food and all these things you cannot achieve God."><br>
+So only thing you can do is to control your food. By controlling food and all these things you cannot achieve God."<br>
 <font size="+0"><b>1979-0209 Public Talk for Westerners and Westernized Indians, Holiness Is the Basis of Religion and Spirituality (Religion Is Within Not Without), Program Organized by the Government of India, Day 3, Kovalam (18 kms S of Thiruvananthapuram), Kerala, India</b></font>
 </p>
 
@@ -760,7 +760,6 @@ So, Lord's Prayer is the best for people to put Āgñyā chakra all right. And i
 <div class="para-divider"></div>
 
 <p>
-<font color="red">
 <b>Sahaja Yogi:</b> Like uh Islam, Muhammad Sāhab said that: "Now I am the last Prophet. Now nobody is going to come and tell you." Is it?<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">He just wanted to frighten people, that they should take to ... mhh dharma. So He said like that.</font><br>
 Now these Islam people are using it as a ...<br>
@@ -804,7 +803,6 @@ Then as Nāṇaka He came. So, in Nāṇaka's system also the Sikhism came in an
 <font color="red">So, then He came as Śhirḍī Sāī Nāth to teach them.</font><br>
 <font color="red">Now, this is not a very important thing that, say Muhammad Sāhab said, "I am the last." Say He is the last, all right, even take that position. Who are you to Him? How are you related? Through what? What is your authority? How do you appropriate Him to yourself? Because you say you are Muslims, so what? How did you become Muslims? Did you get your certificate from God?</font>"<br> 
 <font size="+0"><b>1979-0530 Public Program, A Higher Life, A World of Bliss and Joy (The Three Paths of Evolution), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
-</p>size="+0"><b>1979-0530 Public Program, A Higher Life, A World of Bliss and Joy (The Three Paths of Evolution), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -819,7 +817,7 @@ The thing that really gives you the balance is the sustainance [sustenance], is 
 But in dharma also there could be a problem, and that is one of the worst possible, is of fanaticism. So, I mean, if you try to make the dharma a fanatic idea.<br>
 <font color="red">Like none of these Incarnations, like Muhammad Sāhab who was a[n] Incarnation of the Primordial Master, and all others like Him, Moses, Abraham, any One of Them who came on this Earth, ever thought of fanaticism. Never they realized, that when they told, 'Don't do this,' 'Don't do that,' some sort of people will take up upon themselves that, 'We are the chosen ones. We are the great.' I mean, this They could never understood. And whenever They found it was happening again They took birth. Again They took birth to tell people: 'This is not dharma.'</font><br>
 To form any kind of a cult or an organization and religion is against God! Is blasphemous!<br>
-How can you organize God? You cannot."</font><br>
+How can you organize God? You cannot."<br>
 <font size="+0"><b>1979-0611 Public Program, How Aspects of God Are Expressed within Us, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
@@ -925,7 +923,7 @@ This is one of the greatest hurdles of so-called seekers."<br>
 
 <p>
 "<font color="red">See, when Muhammad Sāhab taught people how to do Namāz, they all used to laugh at Him. What He taught was nothing but the Kuṇḍalinī's rising. He just taught the Kuṇḍalinī rising. And by Kuṇḍalinī rising, He wanted people to get Realization.</font><br> 
-<font color="red">But they all went wrong because there was nobody self-realized to do all that job except for Him or His uh son-in-law, His daughter or His grandsons.<. The rest were all good-for-nothing people perhaps, or maybe it declined after some time.<br>
+<font color="red">But they all went wrong because there was nobody self-realized to do all that job except for Him or His uh son-in-law, His daughter or His grandsons.</font> The rest were all good-for-nothing people perhaps, or maybe it declined after some time.<br>
 And the whole system of Namāz became just a, what you call a formal stuff, and nobody knows why, what it is like. But they are just doing it because they are told. Nobody laughs at it now! When it was genuine everybody laughed at it."<br>
 <font size="+0"><b>1979-0806 Public Program, Self-realization and Fulfillment, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
@@ -1086,7 +1084,7 @@ Muslims who are not educated enough to understand Qur'ān in original believe th
 
 <p>
 "In Japan we had another great Master whose name was Viditama. He was the disciple of Lord Buddha and he went to Japan and started the Zen system. Zen means meditation -- dhyāna -- and he wanted people to become "thoughtlessly aware". He found out many ways of making people "thoughtlessly aware" -- the tea ceremony and the temples that they have, are all meant to create thoughtless awareness. I was amazed that none of the Japanese knew what the purpose of these gardens were. There is one garden which has some moss on top of a hill in a very small area and it is very interesting. You have to see the flowers and other foliage there through a magnifying glass. All this should amaze a person and one should become thoughtlessly aware. That was the idea of Zen, but surprisingly, few understood Zen. Then there was a Prophet, Zoroaster, who was born five times in His country, Persia. <font color="red">Ultimately Muhammad Sāhib had to come to say something very clearly about religion. But the people who followed Muhammad Sāhib, never realized the oneness of His preaching or that of Zoroaster, and they made all the Persians run away to all the other countries and so many of them came to India.</font><br>
-<font color="red">Muhammad Sāhib has talked about Abraham, Moses, Christ in a series as They came one after the other.</font> He has talked about the Mother of Christ especially with great respect. In the Bible She is not given so much respect because of Paul who edited the Bible. She is just called "the woman". But Prophet Muhammad says that anyone who talks against this Holy Lady will be punished, or something to that effect. So one can see that Muhammad Sāhib never talked of an exclusive religion called "Islam" (i.e., I surrender to God Almighty). But so many followers of Islam are fighting the followers of other religions and even amongst themselves.</font><br>
+<font color="red">Muhammad Sāhib has talked about Abraham, Moses, Christ in a series as They came one after the other. He has talked about the Mother of Christ especially with great respect. In the Bible She is not given so much respect because of Paul who edited the Bible. She is just called "the woman". But Prophet Muhammad says that anyone who talks against this Holy Lady will be punished, or something to that effect. So one can see that Muhammad Sāhib never talked of an exclusive religion called "Islam" (i.e., I surrender to God Almighty). But so many followers of Islam are fighting the followers of other religions and even amongst themselves.</font><br>
 The worst part is the practice of conversion. People are being converted from one religion to another not for faith but for non-religious reasons such as matrimony or monetary gain. Bitter fights are going on in different parts of the world between followers of different religions, all in the name of God Almighty! This cruel phenomenon is not understood by any saintly person. Groups of people claiming to profess the Islamic religion are in the forefront of these fights. <font color="red">The Sufis amongst the Islamic people tried to tell them that this is not the way to behave if you are a follower of Muhammad Sāhib, because this brings a bad name to Muhammad Sāhib and to Islam. There are some people who believe that Islam should be spread by Jihād. This was never the idea of Muhammad Sāhib. At the time when He was here on this Earth, the people were facing a very difficult situation because there were lots of tribes, and these tribes were fighting and killing all the people who were taking to Islam. That was the time when it was all right to talk about Jihād, but today there is no such problem.</font> Moreover by talking incessantly of Jihād, they are becoming very unpopular. Not only that, actually, they have achieved nothing. By doing all this have they achieved their Self-realization? Have they attained their Qiyāmah and have they found the Truth? Nothing of the kind has happened to them. They are diverting the attention of people to wrong things and are trying to do something which is absolutely no good for the peace of the world. It is because of them that there are little wars going on in so many places. In Chechnya there is a war going on. Wars are going on in other countries as well, where the Muslims are thinking that they are the chosen ones and that the whole world should become Islamic."<br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 8: World Peace</b></font>
 </p>

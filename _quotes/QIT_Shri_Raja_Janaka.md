@@ -1,5 +1,5 @@
 ---
-title: 'ŚHRĪ RĀja JANAKA in the Words of ŚHRĪ MĀTĀJĪ'
+title: 'ŚHRĪ RĀJA JANAKA in the Words of ŚHRĪ MĀTĀJĪ'
 date: 2022-07-14
 permalink: /quotes/2022/0714-a
 tags:
@@ -168,7 +168,7 @@ You will be surprised to know that our attention is in our stomach. Actually, to
 They said, "You don't drink alcohol," so your attention does not get spoiled. You know by drinking human awareness gets damaged.<br>
 People got the other way by saying, 'OK, if drinking is not allowed then let's not garlic, onions, etc.' Prophet Muhammad used to eat garlic, onions and also Nāṇaka used to eat meat and all that.<br>
 ......<br>
-Now in this Void we have two great entities as well which we know as Chandra [Moon] and Sūrya [Sun]. Moon and Sun are such chakras which reside on these nāḍīs here and here [likely pointing towards the Chakra Chart]. On these chakras there are two very great personalities who have been appointed. They are complete embodiment of human beings. They are like humans, in fact are humans. Out of these one is Buddha and one is Mahāvīra.>br>
+Now in this Void we have two great entities as well which we know as Chandra [Moon] and Sūrya [Sun]. Moon and Sun are such chakras which reside on these nāḍīs here and here [likely pointing towards the Chakra Chart]. On these chakras there are two very great personalities who have been appointed. They are complete embodiment of human beings. They are like humans, in fact are humans. Out of these one is Buddha and one is Mahāvīra.<br>
 But if you listen to the whole history of Their lives, then these are two sons which Śhrī Sītā had as Lav and Kuśha who is completely in human form. And after They evolved to the level that They are here as Buddha and Mahāvīra. There also they thought They have reached an extreme of nonviolence because the supports of nonviolence came in and started protecting even mosquitoes and bugs.<br>
 Then They again took birth and came at the time of Muhammad. <font color="red">Muhammad was an Incarnation of Śhrī Janaka and His daughter Fāṭimah Bi was also Incarnation of Śhrī Sītā.</font><br>
 Then, as Their sons as Hasan and Husayn, They gave their life in Karbalāʾ to prove that no kind of extreme is good."<br>

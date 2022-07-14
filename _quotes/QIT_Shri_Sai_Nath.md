@@ -377,7 +377,7 @@ What do these people gain by doing so? Some people say that, "Mother, this will 
 
 <p>
 "But there is a group of people, still, who have been realized, and who are not, yet, there. Now what is the difference between the two is? In very simple: is the recognition. Those who have not recognized Me, will not be blessed. They'll be going round and round and round. So, it is necessary to recognize.<br>
-<font color="red">Now there are some people, like, we ... I'll say, very good example is, Śhirḍī Sāī Nāth's disciples are there. Now He is no more. So they believe in Him. Now where is He?<</font>br>
+<font color="red">Now there are some people, like, we ... I'll say, very good example is, Śhirḍī Sāī Nāth's disciples are there. Now He is no more. So they believe in Him. Now where is He?</font><br>
 They don't want to believe in the present Incarnation! They want to believe in something that is dead. They believe in Rāma. They'll believe in Christ. Most of the Christians have this problem.<br>
 Even they will relate Me only to Christ. If I cannot relate Myself to Christ they cannot be in Sahaja Yoga. Or they'll relate Me, only to Moses, or to someone like that.<br>
 You have to live in the present."<br>
