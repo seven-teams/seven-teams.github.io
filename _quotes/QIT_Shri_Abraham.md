@@ -33,7 +33,7 @@ But does't mean Hinduism. It doesn't mean Hinduism at all. But it is called as D
 <p>
 "<font color="red">And when it is worked out with effort, many Gurus and many -- Real Ones, I'm saying, not, I'm not talking of the horrid ones -- but the Real Ones who have been working in the forest, and the great people like Moses, and Abraham and all these people, They knew how difficult it was to raise the Kuṇḍalinī, this coiled thing: gradually, one after another.</font><br>
 And the detailed description of this is so horrifying that people get a fright.<br>
-Actually when the Kuṇḍalinī rises, normally, by effort of people who are authorized to do it, is such a slow movement that at any center where there is any escape, any weakness, the attention immediately goes on the sides from the cause, from the center. Once it moves to the center, you start getting all kinds of visions."</font><br>
+Actually when the Kuṇḍalinī rises, normally, by effort of people who are authorized to do it, is such a slow movement that at any center where there is any escape, any weakness, the attention immediately goes on the sides from the cause, from the center. Once it moves to the center, you start getting all kinds of visions."<br>
 <font size="+0"><b>1979-0524 Public Program, Seeking and Rationality, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
@@ -64,7 +64,7 @@ So, these Gurus first started under the Primordial Master Himself, He was called
 But in dharma also there could be a problem, and that is one of the worst possible, is of fanaticism. So, I mean, if you try to make the dharma a fanatic idea.<br>
 <font color="red">Like none of these Incarnations, like Muhammad Sāhab who was a[n] Incarnation of the Primordial Master, and all others like Him, Moses, Abraham, any One of Them who came on this Earth, ever thought of fanaticism. Never they realized, that when they told, 'Don't do this,' 'Don't do that,' some sort of people will take up upon themselves that, 'We are the chosen ones. We are the great.' I mean, this They could never understood. And whenever They found it was happening again They took birth. Again They took birth to tell people: 'This is not dharma.'</font><br>
 To form any kind of a cult or an organization and religion is against God! Is blasphemous!<br>
-How can you organize God? You cannot."</font><br>
+How can you organize God? You cannot."<br>
 <font size="+0"><b>1979-0611 Public Program, How Aspects of God Are Expressed within Us, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
