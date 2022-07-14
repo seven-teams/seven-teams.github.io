@@ -1,0 +1,167 @@
+---
+title: 'ŚHRĪ SOCRATES in the Words of ŚHRĪ MĀTĀJĪ'
+date: 2022-07-14
+permalink: /quotes/2022/0714-g
+tags:
+  - crimson @ Shri Socrates
+  - hotpink @ Shri Adi Guru
+---
+
+<div class="para-divider"></div>
+
+<p>
+"But in some people that stability has to be brought about. No problem. You have obtained that thing, you recognized it, you reached there and there is a complete arrangement for bringing stability.<br>
+<font color="red">As soon as that stability is achieved, in Absolute Peace and Joy, you achieve that Witness State described by Śhrī Kṛiṣhṇa, by Jesus, by all the Scriptures whether by Zoroaster, Socrates, Confucius or any of Dattātreya's Incarnations.</font><br>
+Till today, these people who were of a higher state, who would take birth in a higher state, would talk in a manner that others were unable to understand. They could see matters of the tenth floor and others would remain on the first floor and they would just not understand what was being talked about."<br>
+<font size="+0"><b>1975-1222 Public Program (Hindi), Day 1, Prabhu ke Prem kā Anubhav (Experiences of Lord's Love), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"It has been since ages, one simple question: "How to reach the Infinite through this finite mind, through this rationality, which God has given us?" <font color="red">This is the eternal problem which has been there from the times of Socrates, Confucius.</font> Kant, Hegel, all these great philosophers have been only asking this question in all their findings and search: "How to reach the Infinite through this finite?" "<br>
+<font size="+0"><b>1976-0319 Talk to Sahaja Yogis, It Is a Spontaneous Growth of Your Being into that Infinite Realm of God's Grace and The Articulation of Your Personality, Seminar, Day 1, Session 2 (evening), Cowasji Jehangir Hall, 15, Madam Cama Rd, Mantralaya, Fort, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Otherwise, so far, you see, anywhere, great men were born.<br>
+Socrates see: just, what happened to [Him]? And what did He do? I mean, just think of it! He did not do anything wrong!<br>
+Galileo, anybody!</font><br>
+Because never Truth was accepted by people who were not realized! They cannot, because they do not have that power to bear the Truth."<br>
+<font size="+0"><b>1977-0701 Guru Pūjā (Guru Pūrṇimā Day) (first more formal Pūjā in the West), Self-realization, Living Room, Gavin Brown's Geological Institute (Terrace House), 160 North Gower Street, 2nd Floor, Euston, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now we have got Ten Dharmas within us which we have to keep all right. These are the main Ten Commandments.<br>
+<font color="red">These Ten Commandments we have to look after, and these are looked after by the people who are these, the Primordial Masters, as you call Them Incarnations Divinely: like Rāja Janaka, like Moses, like Socrates, like Nāṇaka, the last one was the Śhirḍī Sāī Nāth. This is the Principle is there, is the Primordial Master.</font>"<br>
+<font size="+0"><b>1978-1015 Talk to Sahaja Yogis, Zen and Void, Part 1, First Western Seminar, Day 2, Session 2 (during and after tea and coffee), Conference Center, East Hampstead Park (near Workingham, 60 kms W of London), UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Any Saint, you can say, Kabīra Dās or it bring say Nāṇaka, any Saint you ... you read, uh Khalil Gibran or any Saint, whosoever has lived, you ask him, 'How do you do it? How it is?', he said [will say], 'I cannot say. You see, I've become dumb.'<br>
+How do you ask a dumb person what is the taste of the mhh jaggery [made from sugarcane and date palm] or of the's sugar? How can a dumb person say?<br>
+'I've become dumb.'<br>
+Because the thing is, it's a happening! It happens within you. You cannot describe it. But it just happens within you, you can see it happen.<br>
+<font color="red">This is the breakthrough which was historically, was described from the time of Socrates it started. He said that, "You have to become."</font><br>
+Everyone has said!<br>
+And today the time has come: is to happen."<br>
+<font size="+0"><b>1978-1030 Public Program, Sahaja Yoga as a Hypothesis, Caxton Hall, 10 Caxton Street, Westminster, London, UK (very likely)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Not only that, everything that is written in our Scriptures, not only in Hindu Scriptures but the Scriptures of the whole world, about things even those written by Lao Tze, by Socrates, whatever is written, because They all stood for the Truth and the same Truth. There are no two truths."</font><br>
+<font size="+0"><b>1979-0114 Public Program (Hindi), Day 1, Satya kā Anveṣhaṇa (Exploration of Truth), Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"After that there is Nābhī center. For Nābhī center you know that whatever has happened in the evolution from fish to human being, everything has happened here.<br>
+<font color="red">For helping in it many Big Gurus have Incarnated inside us, whom you know from Socrates to Confucius, Moses, Rāja Janak, Muhammad Sāhab, Nāṇak Sāhab, Kabīr, all these Big Gurus, all of Them have worked hard on it and made dharma of human beings. It is the dharma of human beings inside, in the stomach, not outside.</font><br>
+Like dharma of this gold is that it does not get spoiled, it is untarnishable.<br>
+In the same way Ten Dharma[s] of human beings are formed inside the stomach."<br>
+<font size="+0"><b>1979-0312 Public Program (Hindi), Day 3, Session 2 (evening), Mūlādhāra Chakra or Realization of Divine and Spirit, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"So the dharma that has been established in us by God Almighty because if we want to go to the Kingdom of God, then in our freedom we must desire to get to God. If someone tries to pressurize us and says, 'You must ask for God,' then it is of no use, it is not an evaluation. That is why to reach in this state, a person has to seek the God as per his own independent sweet will and not due to any pressure, or any disease or any hardships or any sorrow, but only because of the fact and realizing that, 'It is the only motive of our life to seek God.'<br>
+<font color="red">That is why, when we desire for this Divine Gift, then the doors of God Almighty's Divine Blessings open for you, and around the center is a place of Ten Primordial Gurus. These are the Main Gurus which are the Incarnation[s] of Śhri Dattātreya. They are: Socrates, Moses, Muhammad Sāhab, Guru Nāṇak, Śhirḍī Sāī Nāth, and Zoroaster. They are all Incarnation[s] of one Incarnation.</font>"<br>
+<font size="+0"><b>1979-0322 Public Program (Hindi), Sahaja Yoga and the Subtle System, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India (other date 0321)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">Or Greeks can ask: 'Was Socrates an Incarnation of Primordial Master?'<br>
+His birthday was celebrated the other day. And that day I was so very happy, you don't know, and it was extremely hot weather. Then I said ... I said, "All right, have any drops from flowers to the leaves," and they said, "Today is His birthday." And I was so happy today, all the time.<br>
+'Was He the Incarnation of our sustainance [sustenance]?' 'And is He within us?'<br>
+He looks after our sustainance [sustenance].<br>
+He was not the property of Greeks, He was everybody's property which is within us, on this green Void, as you call it. He exists there.</font><br>
+Ask such questions: these can be answered only on vibratory awareness.<br>
+......<br>
+They ... they want to, you see, even the Christ, even Christ, they don't think much of Him, they never thought much of Him. Now, I don't know what, they think because He's no more! What did you think of Him? You see, not one educated person went to Him, not one!<br>
+[After 10 seconds:] <font color="red">As a person they don't think much of Socrates, now what to do?<br>
+Every word that Socrates has said is Absolute Truth.<br>
+And these are the human beings who, who are evaluating Him! What is your measure?</font><br>
+And then they crucified Christ, very nicely, thinking that they have done the greatest ... job."<br>
+<font size="+0"><b>1979-0524 Public Program, Seeking and Rationality, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">Now, it is being said, not only by Me! What I say I have a complete historical background. You can go to Socrates and you can come up to Christ, everywhere you will find what I say is written down there.</font><br>
+I do not have to quarrel with Them at all: They are My own, They are with Me.<br>
+But I am here to convince you that whatever They have said is the Truth. Not by preaching about it, not by brainwashing, not by writing books about it, but by giving you the experience of your be-ing, actualizing it, what They have said, that, "There is a Spirit within us and we have to be born of the Spirit." And what is that Spirit is, and how do we become that, that is what we are going to experience."<br>
+<font size="+0"><b>1979-0531 Public Program, Hall in City Center, Birmingham, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">Whatever I'm saying, whatever I'm explaining, has been explained right from Socrates, Christ, Muhammad Sāhab, all of Them have said this.</font><br>
+And I would request you to be humble about it, and take your gift which is for you."<br>
+<font size="+0"><b>1979-0625 Public Program, Seeking the Life Beyond, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Only in the human stage, it is said that, "You will become aware of it." Is said in all the Scriptures: like Qur'ān, like Bible, like Vedas, like uh Gītā which is a part of Veda, you can say. <font color="red">Also, Great Sages, all over the world, right from Moses, Abraham, Socrates, Lao Tze, in India, Janaka, Nāṇaka, Vasiṣhṭha, later on, people like, we can say, in the history, about sixth century, we had a very Great Saint or a great personality or an Incarnation like Śhaṅkarāchārya, all these people have been talking about your Second Birth.</font> That you are to be born-again.<br>
+Unless and until you are born-again, you are not a Christian, you are not a Hindu, you are not a Muslim.<br>
+Keep it one name. There are ten names, to one thing, for twice-born."<br>
+<font size="+0"><b>1979-1203 Public Program, Session 1 (morning), Realization Is Not of the Intellect, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+[<font color="orange">WARNING: Quotes for the period 1980-04 to 2001-12 will follow in due time.</font>]
+
+<div class="para-divider"></div>
+
+<p>
+"The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. <font color="red">In China He was born as Confucius and as Lao Tze, and in Greece as Socrates.</font> He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."<br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 33</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"The Brahmachaitanya (All-pervading Power) has Itself become very active as a new type of age called "Kṛita Yuga" has started. It is achieving results and producing miracles. It is not only talk or reading Scriptures, but it is actualization and the proof. Of course, all false people are afraid of facing the Truth, because Sahaja Yoga goes against their interests. They are challenging and opposing violently the spread of Sahaja Yoga. The Satya Yuga has to be established by the Sahaja Yogis. <font color="red">Now they are not alone like Christ our Lord, Muhammad the Prophet, Socrates the Philosopher or other Incarnations, Seers and realized Souls.</font> They are in thousands. They are not in any way hampered by the few people who are trying to harm their collective progress. The Truth will be established and thus the dawn of Satya Yuga (the Kingdom of God) would be seen on the horizon. The message of Sahaja Yoga is that even these negative people have to accept the Truth and enjoy the blessings of the Divine Love."<br>
+<font size="+0"><b>1991-0700 Book 'Sahaja Yoga', Chapter 1: Sahaja Yoga</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">A benevolent ruler, in the form of a philosopher king (as put forward by Socrates), is the ideal person to be the head of government.</font> Such a person must be an extremely wise, detached personality, without any desires for lust, power and money. There have been such persons in the recent past, people like Mahātmā Gāndhī, Atatürk Kemal Pasha, Anwar el-Sadat, Lal Bahadur Shastri, Ho Chi Minh, Martin Luther King, Nelson Mandela, Dag Hammarksjöld, and Mujibur Rahman.<br>
+......<br>
+<font color="red">The Socratic ideal of serving the benevolence of the people, does not exist any more. On the contrary, they criticize it by insisting that Socrates was not a practical man. All the great Saints and Prophets were, of course, idealists and not practical people.</font> Most of the democracies of today's world are under the thumb of people who have no honorable or moral ideas whatsoever. They discover very fast that power can give them prosperity and that this money power can whitewash and obliterate all their misdeeds and conceal the dubious business they are up to. Unfortunately for them, this false license has now gone into their heads, like a fixed idea, and they go on behaving immorally, without any fear of the Divine, ruthlessly destroying the entire value system of democracy. They may carry on for years, as they did in Italy, until, by the Law of Polarity or by Divine Retribution, they are exposed. But before this happens, such rulers unfortunately become models for the people whom they govern and gradually moral degradation in day-to-day life begins to create a decadent or dying democratic society."<br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 3: Democracy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"World peace can be achieved only when people in charge of world affairs get their Self-realization. They are leaders of different countries and through a Sahaja relation they will respect and love each other. <font color="red">They will be like benevolent kings described by Socrates, who will think of global peace.</font> Today it seems as if the whole world is ablaze with war."<br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 7: Peace</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p style="color:red;">Jay Śhrī Mātājī!<br></p>
