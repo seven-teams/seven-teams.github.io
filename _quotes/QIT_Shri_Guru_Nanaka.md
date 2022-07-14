@@ -275,7 +275,7 @@ That the helmet they cannot wear! Because they must have a right and freedom to 
 [Laughing:] And there is a big procession every, I think every Sunday they take it out, 'against protecting'. My head's off to all these people.<br>
 <font color="red">That is what they have done out of Nāṇak Sāhib.</font><br>
 And the Muslims, think of them, they have written poetry on drinking.<br>
-Now if I say, 'You don't have to drink,'' they will think, 'This Lady is talking from [laughing:] about ten thousand years back.' But is a fact, I'm telling you: it is not meant for human consumption at all, none of these are!<<br>
+Now if I say, 'You don't have to drink,'' they will think, 'This Lady is talking from [laughing:] about ten thousand years back.' But is a fact, I'm telling you: it is not meant for human consumption at all, none of these are!<br>
 ......<br>
 He has incarnated only once on this Earth, and you'll be surprised if I tell you who was that: is Hazarat ʿAlī. He was the son-in-law of Muhammad Sāhab.<br>
 Muhammad Sāhib is the Incarnation of the Primordial Master or the Ādi Guru, who incarnated in the Void, in the Bhavasāgara. <font color="red">And He is the same as Nāṇak.</font><br>
@@ -622,18 +622,6 @@ He was the religion, but not His followers. They drink, He allowed them to drink
 <font size="+0"><b>1979-0507 Public Program, Sahaja Yoga and Christianity, Bharatiya Vidyā Bhavan, London, UK</b></font>
 </p>
 
-<p>
-"So if you think evolution is a religion then I would say that Sahaja Yoga is a religion. If your evolution if you call it as a religion then Sahaja Yoga is a religion but is a religion which takes you beyond your sustenance, beyond your religion, dharmātīt, beyond the dharma.<br>
-We have amongst ourselves Hindus, Muslims, Christians all that, you know that. All these people can feel it within themselves as a religion in their stomachs, they can feel it. They can find out where is a religion because I say the religion in the stomach is looked after by the Deities of Primordial Master who we call as Dattātreya in the Sanskrit language.>br>
-I don't mean in Hinduism. It doesn't mean Hinduism at all. But it is called as Dattātreya in the Sanskrit language, in English it's Primordial Master.<br>
-<font color="red">He is the same who incarnated on this earth as Moses, as Abraham, has incarnated as Muhammad Sāhib, as Rāja Janaka, as Nāṇaka, and also as Śhirḍī Sāī Nāth. Can you believe that Muhammad Sāhib is the same as our Nāṇak?"</font><br>
-Now in the religion of these people, the Muslims so-called and the so-called Sikhs, are fighting amongst themselves, can you believe that Mahāvīra and Buddha were the same as Hasan and Husayn which we can prove it to you on vibrations and on curing people they were the same people reincarnated just to improve on themselves because people believe into something which they were not so they were incarnated just to show this was wrong, no, no, I never said it this is the truth.<br>
-<font color="red">In the story of Nāṇaka it was said that once He was sleeping so they said, "You are preaching that there should be unity between Hindus and Muslims and you are putting your feet towards Mecca." He said, "Really?" Then He turned to the other side, He said, "Mecca has moved."<br>
-He was the religion but not his followers. They drink, He allowed them to drink, did He?</font><br>
-When Muhammad Sāhib said, "Don't drink," that means they make a fanaticism out of all that.<br>
-<font size="+0"><b>1979-0507 Public Program, Sahaja Yoga and Christianity, Bharatiya Vidyā Bhavan, London, UK</b></font>
-</p>
-
 <div class="para-divider"></div>
 
 <p>
@@ -802,7 +790,7 @@ If one great lesson is to be learnt from the life of Jesus, then that is that yo
 Now, man has picked up this one incident to suggest that, 'Since Jesus Christ made wine out of water, He used to drink wine.' In Hebrew language you would notice that the word wine means pure juice of fresh grapes. It does not mean alcohol.<br> 
 Jesus Christ incarnated to open the Āgñyā chakra and to dissolve our ego.<br>
 My job is to awaken your Kuṇḍalinī Power so that it could pierce your Sahasrāra chakra.<br>
-<font color="red">This work is of collective nature: I have, therefore, to do it in the case of one and all, I want to tell you about Jesus Christ, Guru Nāṇaka, King Janaka and a number of other Incarnations and the way they relate with the collectivity.</font> Similarly, I wish to talk to you about Incarnations of Śhrī Rāma, Śhrī Kṛiṣhṇa, etc., and also about Śhrī Śhiva because all the Powers of these Gods and Deities are in us. Now, the time has come for Collective Consciousness to manifest.</font>"<br>
+<font color="red">This work is of collective nature: I have, therefore, to do it in the case of one and all, I want to tell you about Jesus Christ, Guru Nāṇaka, King Janaka and a number of other Incarnations and the way they relate with the collectivity.</font> Similarly, I wish to talk to you about Incarnations of Śhrī Rāma, Śhrī Kṛiṣhṇa, etc., and also about Śhrī Śhiva because all the Powers of these Gods and Deities are in us. Now, the time has come for Collective Consciousness to manifest."<br>
 <font size="+0"><b>1979-0927 Talk to Sahaja Yogis (Hindi), Kuṇḍalinī and Lord Jesus Christ, Navarātri Celebrations (6th Day), Hinduja Auditorium, Mumbai, Maharashtra, India</b></font>
 </p>
 
