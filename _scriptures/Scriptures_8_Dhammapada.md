@@ -301,11 +301,89 @@ surely partakes of the ascetic life.</font>
 
 <p>
 <b>21 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Appamādo amatapadaṁ, pamādo maccuno padaṁ,<br>
+appamattā na mīyanti, ye pamattā yathā matā</font>
 </p>
 
 <p>
 <b>21 Translations</b><br>
+<font color="DarkGreen">Watchfulness is the path of immortality: the unwatchfulness is the path of death. Those who are watchful never die: those who do not watch are already as dead.</font><br>
+<font color="blue">Wakefulness is the way to life.<br> 
+The fool sleeps<br>
+As if he were already dead,<br>
+But the master is awake
+And he lives forever.</font><br>
+<font color="Peru">The heedful one gains the deathless,<br> 
+the heedless one the state of death,<br> 
+those who are heedful do not die,<br> 
+but the heedless are like the dead.</font>
+</p>
+
+<p>
+<b>22 Transliteration</b><br>
+<font color="Peru"> Etaṁ visesato ñatvā appamādamhi paṇḍitā,<br>
+appamāde pamodanti, Ariyānaṁ gocare ratā.</font>
+</p>
+
+<p>
+<b>22 Translations</b><br>
+<font color="DarkGreen">Those who with a clear mind have seen this truth, those who are wise and ever-watchful, they feel the joy of watchfulness, the joy of the path of the Great.</font><br>
+<font color="blue">He watches.<br>
+He is clear.<br>
+How happy he is!<br>
+For he sees that wakefulness is life.<br> 
+How happy he is,<br>
+Following the path of the awakened.</font><br>
+<font color="Peru">The wise, fully understanding<br> 
+this in regard to heedfulness,<br> 
+rejoice in heedfulness,<br> 
+delight in the domain of the Noble.</font>
+</p>
+
+<p>
+<b>23 Transliteration</b><br>
+<font color="Peru">Te jhāyino sātatikā, niccaṁ daḷhaparakkamā,<br>
+phusanti dhīrā Nibbānaṁ, yogakkhemaṁ anuttaraṁ. </font>
+</p>
+
+<p>
+<b>23 Translations</b><br>
+<font color="DarkGreen">And those who in high thought and in deep contemplation with ever-living power advance on the path, they in the end reach NIRVĀṆA, the peace supreme and infinite joy.</font><br>
+<font color="blue">With great perseverance<br>
+He meditates, seeking<br>
+Freedom and happiness.</font><br>
+<font color="Peru">Those who meditate all the time<br> 
+constant and firm in their effort,<br> 
+those wise ones will reach Nirbbāna,
+the supreme release from all bonds.</font>
+</p>
+
+<p>
+<b>24 Transliteration</b><br>
+<font color="Peru">Uṭṭhānavato satīmato sucikammassa nisammakārino,<br>
+saññatassa ca Dhammajīvino appamattassa yasobhivaḍḍhati.</font>
+</p>
+
+<p>
+<b>24 Translations</b><br>
+<font color="DarkGreen">The man who arises in faith, who ever remembers his high purpose, whose work is pure, and who carefully considers his work, who in self-possession lives the life of perfection, and who ever, for ever, is watchful, that man shall arise in glory.</font><br>
+<font color="blue">So awake, reflect, watch.<br>
+Work with care and attention.<br> 
+Live in the way<br>
+And the light will grow in you.</font><br>
+<font color="Peru">For he who is active, mindful,<br>
+pure in deeds and considerate,<br> 
+self-controlled, living by Dhamma,<br> 
+heedful, fame greatly increases.</font>
+</p>
+
+<p>
+<b>25 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>25 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
 <font color="Peru"></font>
