@@ -150,6 +150,43 @@ Nor of those who have gone astray.</font><br>
 </p>
 
 <p>
+<b>2:23 Translations</b><br>
+<font color="DarkGreen">If you doubt what We have revealed to Our servant, produce one chapter comparable to it. Call upon your idols to assist you, if what you say be true.</font><br>
+<font color="DarkBlue">And if you are in doubt as to that which We have revealed to Our servant, then produce a chapter like it and call on your witnesses besides Allah if you are truthful.</font>
+</p>
+
+<p>
+<b>2:24 Translations</b><br>
+<font color="DarkGreen">But if you fail (as you are sure to fail) then guard yourselves against the Fire whose fuel is men and stones, prepared for the unbelievers.</font><br>
+<font color="DarkBlue">But if you do (it) not and never shall you do (it), then be on your guard against the fire of which men and stones are the fuel; it is prepared for the unbelievers.</font>
+</p>
+
+<p>
+<b>2:25 Translations</b><br>
+<font color="DarkGreen">Proclaim good tidings to those who have faith and do good works. They shall dwell in gardens watered by running streams: whenever they are given fruit to eat they will say: 'This is what we used to eat before,' for they shall be given the like. Wedded to chaste virgins, they shall abide therein for ever.</font><br>
+<font color="DarkBlue">And convey good news to those who believe and do good deeds, that they shall have gardens in which rivers flow; whenever they shall be given a portion of the fruit thereof, they shall say: This is what was given to us before; and they shall be given the like of it, and they shall have pure mates in them, and in them, they shall abide.</font>
+</p>
+
+<p>
+<b>2:26 Translations</b><br>
+<font color="DarkGreen">God does not disdain to give a parable about a gnat or a larger creature. The faithful know what it is the truth from their Lord, but the unbelievers ask: 'What could God mean by this parable?'<br>
+By such parables God confounds many and enlightens many. But He confounds none except the evil-doers,</font><br>
+<font color="DarkBlue">Surely Allah is not ashamed to set fourth any parable -- (that of) gnat or any thing above that; then as for those who believe, they know it is the truth from their Lord, and as for those who disbelieve, they say: What is it that Allah means by this parable: He causes many to err by it and many He leads alright by it! but He does not cause to err by it (any) except the transgressors,</font>
+</p>
+
+<p>
+<b>2:28 Translations</b><br>
+<font color="DarkGreen">How can you deny God? Did He not give you life when you were dead, and will He not cause you to die and then restore you to life? Will you not return to Him at last?</font><br>
+<font color="DarkBlue">How do you deny Allah and you were dead and He gave you life? Again He will cause you to die and again bring you to life; then you shall be brought back to Him.</font>
+</p>
+
+<p>
+<b>2:29 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="DarkBlue"></font>
+</p>
+
+<p>
 <b>2:136 Translations</b><br>
 <font color="DarkGreen">Say: 'We believe in God and that which is revealed to us; in what was revealed to Abraham, Ishmael, Isaac, Jacob, and the tribes; to Moses and Jesus and the other prophets by their Lord. We make no distinction among any of them, and to Gd we have surrendered ourselves.'</font><br>
 <font color="DarkBlue">Say: We believe in Allah and (in) that which had been revealed to us, an (in) that which was revealed to Ibrahim and Ismail and Ishaq and Yaqoub and the tribes, and (in) that which was given to Musa and Isa, and (in) that which was given to the prophets from their Lord, we do not make any distinction between any of them, and to Him do we submit.</font>
