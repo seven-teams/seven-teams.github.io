@@ -51,9 +51,8 @@ Of all ascetics and students, of all rulers and wordly men<br>
 will attain the Brahman, the treasure coveted by all<br>
 <font color="chocolate"><b>Gururukta Vakye Mano Yasya Lagnam</b></font><br>
 By applying his mind with constant zeal to the Guru's teaching<br>
-<a href="https://youtu.be/H2oWRPAEY_M">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="DarkRed">"Today is a great day, for all of us, because we are celebrating the Guru Pūjā and remembering all the Great Gurus who came on Earth to teach the world about the Truth. So many of Them were here. And They tried Their level best to explain to humanity what is spirituality.<br>
@@ -85,9 +84,8 @@ Your are my Hari and also my Mahādev,</font><br>
 <font size="+0">He only will be my True Guru</font><br>
 <font color="chocolate"><b>Guru Zhotz. Banavil. Mam. Mazha</b></font><br>
 <font size="+0">The One who makes me my own Guru</font><br>
-<a href="https://www.youtube.com/watch?v=NmK3OTRAc2U&ab_channel=SahajaYoga">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="DarkRed">"Sahaja Yoga is very different from all other gurus that we believe in the Power of Love. Power of Love teaches you how to be forgiving, it makes you noble, it makes you very balanced.<br>
@@ -135,15 +133,13 @@ She gives realization to those who are lost</font><br>
 <p>
 <font color="Maroon"><b>Guru bin Kaun
 </b></font><br>
-<a href="https://youtu.be/7jjdlluWX8Q">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="Maroon"><b>Guru kī Mahima</b></font><br>
-<a href="https://youtu.be/gPtkxft14L4">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
  
 <p>
 <font color="Maroon"><b>10 Names of Ādi Guru</b></font><br>
@@ -157,9 +153,8 @@ She gives realization to those who are lost</font><br>
 
 <p>
 <font color="Maroon"><b>Guru Mauli</b></font><br>
-<a href="https://youtu.be/j47sPBt_KyA">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <div style="text-align: center"><img src="/images/image995.png" /></div>
 
@@ -177,9 +172,8 @@ May God bless you.</b>"</font><br>
 The Guru is Brahmā [creator], Viṣhṇu [sustainer] and Mahesh [destroyer] and the Guru who is himself God, I offer My obeisance to him."</b></font><br>
 <font size="+0"><b>1973-1209 Public Program (Hindi), Day 3, Śhrī Dattātreya Jayanti, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font><br>
 <font size="+0"><b>Guru Vandana</b></font><br>
-<a href="https://youtu.be/xw-C4g4swo4?list=PL407136734B2B056D">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>
