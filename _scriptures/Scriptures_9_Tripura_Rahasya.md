@@ -68,8 +68,39 @@ And after this, He also used to sit in the forest. He was next to the Incarnatio
 </p>
 
 <p>
-<b>1.5 Translation</b><br>
-<font color="DarkGreen">No other course will impress the mind so much as this one on Wisdom which was once taught by that illustrious master Dattātreya to Paraśhurāma. ......</font>
+<b>1.5-7 Translation</b><br>
+<font color="DarkGreen">No other course will impress the mind so much as this one on Wisdom which was once taught by that Illustrious Master Dattātreya to Paraśhurāma. The teaching was born on His own experience, logical in sense and quite unique in its nature. One who cannot apprehend Truth even after hearing this must be dismissed as a silly fool to be ranked among the insentient and accursed of God; Śhiva Himself cannot make such a one gain wisdom.</font>
+</p>
+
+<p>
+<b>1.8 Translation</b><br>
+<font color="DarkGreen">...... Oh, the lives of sages are most sacred!</font>
+</p>
+
+<p>
+<b>1.9-11 Translation</b><br>
+<font color="DarkGreen">Nārada too served me to learn the same from me; for, service to Sages enables one to apprehend their innate kindness, ......<br>
+As Paraśhurāma, the son of Jamadagni, already pure-minded and pleasing to all, was listening to the Gospel [Māhātmya] of Tripurā from the lips of Dattātreya, He became abstracted in devotion and so growing still for a time, His mind became still purer.</font>
+</p>
+
+<p>
+<b>1.9-11 Comment</b><br>
+Jamadagni is one of the Saptarṣhi [Seven Sages].
+</p>
+
+<p>
+<b>1.12-13 Translation</b><br>
+<font color="DarkGreen">Then as the mind relaxed, His eyes glowed in rapture and His hair stood on end, as if His ecstasy could not be contained within but must escape through the very pores of His body. He then fell to the ground before His master Dattā.</font>
+</p>
+
+<p>
+<b>1.14 Translation</b><br>
+<font color="DarkGreen">Again He rose, and being filled with ecstasy, His voice choked with emotion and He said: "Lucky am I; blessed am I; through Thy Grace, O Lord!"</font>
+</p>
+
+<p>
+<b>1.15 Translation</b><br>
+<font color="DarkGreen"></font>
 </p>
 
 <p>
