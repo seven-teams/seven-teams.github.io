@@ -30,7 +30,7 @@ First of all, the quality of a person who has dharma is: that he listens to othe
 ......<br>
 The basic thing is humility.<br>
 ......<br>
-Now, for a Guru, as you have seen, that, in My own ... ownway, in My own image, you have to come up.<br>
+Now, for a Guru, as you have seen, that, in My own ... own way, in My own image, you have to come up.<br>
 First of all, your life should be absolutely transparent. Transparency is the essence of Sahaja Yoga.<br>
 ......<br>
 So the food part of it is āswāda. You should not have any taste for any special food.<br>
