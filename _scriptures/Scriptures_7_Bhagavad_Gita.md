@@ -139,6 +139,15 @@ And it has also been described that Kṛiṣhṇa has bestowed upon Christ His s
 <font color="red">Then we come to Āgñyā chakra, which is the Light Itself. That is the one that enlightens your attention, Āgñyā chakra. That is the Light by which you see everything, after Realization. And when you know you are the Light, and when you know that you are the Eternal Light, that nothing can kill you: "Nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ."<br> 
 Once you know that in your Āgñyā, then all the fears and domination disappear [snapping Her fingers:] just like that. Because it is the Light of Love that does not dominate nor is afraid because it knows it is eternal, it is not afraid of death or of crucifixion or of anything.</font><br>
 <b>1979-1230 Talk to Sahaja Yogis, God is Love or The Meaning of Love Explained Along the Chakras, CKP Hall, Mumbai, Maharashtra, India</b><br>
+<br>
+<font color="red">He had to die to show that the body though [it] dies, can be saved. That's why He had to be crucified. Otherwise He could not have shown you.<br>
+But it's actually it was experimented in the Vaikuṇṭha, as you call it, that He died and then resurrected to show that this does not die.<br>
+Kṛiṣhṇa has said, "Nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ." "It is not killed by any weapon, neither it is burned by any fires, nor it is blown by any wind." "Na chainaṃ kledayanty āpo, na śhoṣhayati mārutaḥ." "Neither, nothing can suck in." That Spirit is He.</font><br>
+<b>1980-0406 Easter Pūjā, Significance of Christ (Easter Is a Special Day Because in Our Lives the Death has Died and We Are Resurrected), Āśhram, 8, Hamilton Road, Dollis <b>Hill, London NW10 1NX, UK</b><br>
+<br>
+<font color="red">Moses and other people like Him, the Primordial Masters all over the world incarnated in this area and established your sustainance [sustenance]. This was to prepare you for your ascent.<br>
+Then came Kṛiṣhṇa, who said that, "It's a Spirit, cannot be destroyed." I'll say it in Sanskrit because it's a mantra. "Nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ. Na chainaṃ kledayanty āpo, na śhoṣhayati mārutaḥ." It cannot be destroyed by anything. True. So the prove He's saying Christ was to be resurrected.</font><br>
+<b>1980-0917 Public Program, Day 3, Paris, France</b><br>
 ......<br>
 <br>
 <font color="red">Uh [laughing:] only trouble with Sahaja Yogis is that they take things [a] little lightly. Of course, that is their character. But not Sahaja Yoga. Other things you can take lightly: if somebody shouts at you, somebody gets angry with you, somebody even slaps you, take it lightly. Doesn't matter. Makes no difference to you. Because you are the Spirit: nothing can destroy the Spirit. "Nainaṃ chindanti śhastrāṇi" ["Weapons do not cut It": first part of the first verse of Bhagavad Gītā 2.23].<br>
@@ -388,11 +397,30 @@ m
 </p>
 
 <p>
-<b>9.22 Quotes</b><br>
+<b>9.26 IAST</b><br>
+patraṃ puṣhpaṃ phalaṃ toyaṃ yo me bhaktyā prayacchati<br>
+tad ahaṃ bhakty-upahṛtam aśhnāmi prayatātmanaḥ
+</p>
+
+<p>
+<b>9.26 Translations</b><br>
+<font color="Peru">When one offers to Me with devotion a leaf, a flower, a fruit, water, -- that I eat, offered with devotion by the pure-minded.</font><br>
+<font color="blue">A leaf, a flower, a fruit, (even) water, whoso offers unto Me in devotion: that same, proffered in devotion by one whose soul is pure, I accept.</font><br>
+<font color="DarkGreen">He who offers to me with devotion only a leaf, or a flower, or a fruit, or even a little water, this I accept from that yearning soul, because with a pure heart it was offered with love.</font>
+</p>
+
+<p>
+<b>9.22 and 9.26 Quotes</b><br>
 <font color="red">We sometimes ask for worldly things, power, money: you are still entangled in little things.<br>
 The Supreme Self that I am talking of is all seeing. "Yogakṣhemaṁ vahāmyaham": Yoga and kṣhema are looked after by Him.<br> See now, there is nothing superior to Him in this world. What in this world can stand in comparison to the Lord‽ The entire world is functioning because of this Superior Entity.</font><br>
 <b>1976-0205 Śhrī Viṣhnu Havan (Hindi) (Vasant Pañchamī), Upakār Buddhi (Sense of Gratitude), New Delhi, India</b><br>
 ......<br>
+<br>
+<font color="red">So, Arjuna said, "What about dharma? What about devotion to God? These are our organized religions, churches, and our temples and all, what about that?"<br>
+He says that also, He was very clever. He says in Sanskrit, "Puṣhpaṃ, phalaṃ, toyaṃ" [part of Bhagavad Gītā 9.26, line 1]. "Whatever is the fruit, whatever is the flower, or whatever is the water you give Me, I'll take it. I'll take all that. If you give me a flower, I'll take it." "But by giving" -- He is very clever, which I don't know if people have seen the point or not -- He says, "By giving," He says, "by that you do Ananya Bhakti" [related to  Bhagavad Gītā 9.22, line 1] devotion that is ananya. Now the word ananya is the word, which is the real feel of God. A-nanya, it means: when you are not the other, when you are realized. You can only do bhakti when you are realized, ananya. The person who's ananya, means the one who is not the other, you become one with God, then you do the bhakti. Very clearly He says: that, "You do Ananya Bhakti." Ananya Devotion: means, devotion when you are not the other, when you are realized. Before that what's the devotion? Very cleverly He said, but nobody sees the point.</font><br>
+<b>1981-0401 Public Program, Cycle 1, Day 5, Viśhuddhi and Āgñyā Chakras, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b><br>
+......<br>
+<br>
 <font color="red">Looking at his country, of Śhrī Kṛiṣhṇa, when we torture women in the name of religion are we capable of us being Indians? We go on trumpeting about Indian culture. But are we capable of calling ourselves where we go out [abroad] and project ourselves about burning and killing our daughters-in-law? And so the outsiders say that, 'Your country is such spiritual place, so much knowledge is there, people talk about righteousness and lecture about it, then how is it so that such horrible events happen?' What answer do we have on this?<br>
 Only one answer is there, that Śhrī Kṛiṣhṇa has said, "Yogakṣhemaṁ vahāmyaham."<br>
 There is a catch in this. 'First there should be Yoga, and then I will look after their benevolence.' Why Did He not say, 'Kṣhema-yoga'?<br>
@@ -410,25 +438,6 @@ Very subtly He has put Yoga first. Why didn't He say, 'Kṣhema-yoga'?<br>
 So, for bhakti He said like this.</font><br>
 <b>1991-1206 Public Program, Day 1, Narada Gana Sabha, 254 Mowbrays Road, Alwarpet, Chennai, Tamil Nadu, India</b><br>
 ......
-</p>
-
-<p>
-<b>9.26 IAST</b><br>
-patraṃ puṣhpaṃ phalaṃ toyaṃ yo me bhaktyā prayacchati<br>
-tad ahaṃ bhakty-upahṛtam aśhnāmi prayatātmanaḥ
-</p>
-
-<p>
-<b>9.26 Translations</b><br>
-<font color="Peru">When one offers to Me with devotion a leaf, a flower, a fruit, water, -- that I eat, offered with devotion by the pure-minded.</font><br>
-<font color="blue">A leaf, a flower, a fruit, (even) water, whoso offers unto Me in devotion: that same, proffered in devotion by one whose soul is pure, I accept.</font><br>
-<font color="DarkGreen">He who offers to me with devotion only a leaf, or a flower, or a fruit, or even a little water, this I accept from that yearning soul, because with a pure heart it was offered with love.</font>
-</p>
-
-<p>
-<b>9.26 Quotes</b><br>
-<font color="blue"></font><br>
-<b></b>
 </p>
 
 <div class="para-divider"></div>
