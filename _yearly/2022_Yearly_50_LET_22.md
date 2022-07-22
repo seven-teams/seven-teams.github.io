@@ -45,7 +45,6 @@ So this madness of antique has to go away from our minds."<br>
 </p>
 
 Links to suggested talk: <a href="https://vimeo.com/583339674"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1990-0708-guru-puja-talk"> soundcloud</a><br>
-<br>
 
 <p>
 <b>Objectives:</b><br>
