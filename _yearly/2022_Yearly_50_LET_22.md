@@ -17,7 +17,7 @@ tags:
 </p>
 
 <p>
-"In Sahaja Yoga, the Guru Pūjā has a very different significant from any other guru pūjā. When you worship your Guru, you are also worshiping the Guru within you. This is not in any other guru-disciple system, because, in you, the Guru, the Master, has been awakened. And so, when you are worshiping your Guru, then this Master within you is also worshiped, you respect it, you glorify it, you awaken it, and you manifest it.<br>
+"In Sahaja Yoga, the Guru Pūjā has a very different significant [significance] from any other guru pūjā. When you worship your Guru, you are also worshiping the Guru within you. This is not in any other guru-disciple system, because, in you, the Guru, the Master, has been awakened. And so, when you are worshiping your Guru, then this Master within you is also worshiped, you respect it, you glorify it, you awaken it, and you manifest it.<br>
 This, we have to realize: that, in Sahaja Yoga, if you are a Sahaja Yogi.<br>
 Now the quality of guru, first and foremost is: that he makes you meet God. Means: he raises the Kuṇḍalinī, and establish the relation between the All-pervading Power.<br>
 And, as your Guru is Ādi Śhakti, you make that person meet, also, the Ādi Śhakti.<br>
