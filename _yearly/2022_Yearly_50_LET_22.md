@@ -44,7 +44,6 @@ So this madness of antique has to go away from our minds."<br>
 <font color="blue"><b>1990-0708 Guru Pūjā, Camp Site, Island in the NW side of Avignon, France</b></font><br>
 </p>
 
-<br>
 Links to suggested talk: <a href="https://vimeo.com/583339674"> vimeo</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1990-0708-guru-puja-talk"> soundcloud</a><br>
 <br>
 
@@ -54,6 +53,6 @@ Links to suggested talk: <a href="https://vimeo.com/583339674"> vimeo</a>, <a hr
 5. To introduce the only one internal living religion lying dead and camouflaged under external practices and precepts of religion in all the human beings and for this to organize tours and hold spiritual meetings as per wishes of Mātājī.<br>
 </p>
 
-<p style="color:red;">Jay Śhrī Mātājī!<br></p>
+<p style="color:red;">Jay Śhrī Mātājī!</p>
 
 <p>Comprehensive Compilations and Yearly Topics Teams</p>

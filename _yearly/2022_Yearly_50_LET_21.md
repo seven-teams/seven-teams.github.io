@@ -36,6 +36,6 @@ Links to suggested talk: <a href="https://vimeo.com/24547969"> vimeo</a>, <a hre
 13. To employ the energy of love to overcome hatred that is the cause of wars, disintegration and destruction by publishing and relating the spiritual experiences of Sadhakas which prove the universal laws of love.
 </p>
 
-<p style="color:red;">Jay Śhrī Mātājī!<br></p>
+<p style="color:red;">Jay Śhrī Mātājī!</p>
 
 <p>Comprehensive Compilations and Yearly Topics Teams</p>
