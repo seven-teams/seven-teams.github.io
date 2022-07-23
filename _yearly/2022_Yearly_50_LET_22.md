@@ -24,7 +24,7 @@ And, as your Guru is Ādi Śhakti, you make that person meet, also, the Ādi Śh
 So you have a double advantage. That, at the same time, when you give them Realization, not only that you make them feel the Union with the Divine Power, but you can make them meet the Divinity Itself, the Source of Divine Power.<br>
 So your responsibility as Sahaja Yogis is very great because in you is ... there is the Guru.<br>
 Now we in our mantras we say that: 'Mother, I am my own guru.' But, saying that, do we realize, that, "If I am ah ... my own guru, this 'I' and 'my guru', between the two, what have I achieved? Where am I? Can I guide myself? Have I got the light of the Spirit on my attention, so well established and manifested, that I can guide myself and guide others later on?"<br>
-First of all, the ... in the Guru Principle it is important, that you see to yourself the introspection: 'Can I be my own guru? Have I become my own guru?'
+First of all, the ... in the Guru Principle it is important, that you see to yourself the introspection: 'Can I be my own guru? Have I become my own guru?'<br>
 ......<br>
 First of all, the quality of a person who has dharma is: that he listens to others, he obeys.<br>
 ......<br>
