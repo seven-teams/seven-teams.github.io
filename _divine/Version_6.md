@@ -32,7 +32,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 <p>
 <font color="DarkGreen">II. Numerical Data on</font>
 <font color="blue"> Divine Message, Version 6:</font> <br>
-1. has 18,047 17,417 16,661 pages (an increment of 630 pages from Version 5);<br>
+1. has 18,047 pages (an increment of 630 pages from Version 5);<br>
 2. contains 4,415 events started (an increment of 38 from Version 5);<br>
 3. contains 211 figures;<br>
 4. has a size of 364 mb.<br>
