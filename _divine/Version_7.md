@@ -10,7 +10,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,  
 </p>
 
-We would like to share with you all the up-dated <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been working on since Divine Message, Version 6.1 was posted on April 24, 2022. The pdf file <font color="blue">Divine Message, Version 7</font> is available at the link
+We would like to share with you all the up-dated <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been working on since Divine Message, Version 6.1 was posted on April 24, 2022. The pdf file <font color="blue">Divine Message, Version 7</font> can be viewed and then downloaded at the link
 <a href="https://bit.ly/3ooisDZ">Version 7</a>
 
 <p>
