@@ -88,11 +88,11 @@ Your kind support for the other teams (Quotes on Incarnations Team, Scriptures T
 </p>
 
 <p>
-<font color="DarkGreen">VI. Current work flow.</font><br>
+<font color="DarkGreen">VI. Current workflow.</font><br>
 1. Intensive work on about 1,097 events with transcripts started.<br>
 2. Gradual work on the other 3,489 events with transcripts started.<br>
 3. Queued work on additional 7,781 events among which many hundreds will become events with transcripts.<br>
-In the last 6 years, the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew up by about 3.5 pages a day (as an average). In particular, for the period 2020-0718 to 2022-0802 the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew up by exactly 3.5 pages a day (as an average). aWould be very desirable that this growth will continue for the period 2022-0803 to 2027-0718. Gradually, the file will grow to a number of pages between <font color="mediumvioletred">26,000 (an increment of 1,000 from Version 3) and 108,000.</font>
+In the last 6 years, the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew by about 3.5 pages a day (as an average). In particular, for the period 2020-0718 to 2022-0802 the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew by exactly 3.5 pages a day (as an average). aWould be very desirable that this growth will continue for the period 2022-0803 to 2027-0718. Gradually, the file will grow to a number of pages between <font color="mediumvioletred">26,000 (an increment of 1,000 from Version 3) and 108,000.</font>
 </p>
 
 Jay Śhrī Mātājī!
