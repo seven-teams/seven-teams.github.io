@@ -12,7 +12,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-The handwritings photos are very special type of photos Moments of Joy that are very relevant to multiple projects, searches and studies. As such, we are pleased to make an offering at the Lotus Feet of Śhrī Mātāj and to let you know that Handwritings Galleries have been singled out from the Moments of Joy Galleries. They will be showing up in both the Collections Folders as well as altogether in the Moments of Joy Folder of the <font color="blue"><b>Eternal Moments</b></font> website of Photographs of Śhrī Mātājī.<br>
+The photos of handwritings are very special photos Moments of Joy that are very relevant to multiple projects, searches and studies. As such, we are pleased to make an offering at the Lotus Feet of Śhrī Mātāj and to let you know that Handwritings Galleries have been singled out from the Moments of Joy Galleries. They will be showing up in both the Collections Folders as well as altogether in the Moments of Joy Folder of the <font color="blue"><b>Eternal Moments</b></font> website of Photographs of Śhrī Mātājī.<br>
 </p> 
 
 The link to the website is:<a href="https://eternalmoments.smugmug.com/"> website</a>
