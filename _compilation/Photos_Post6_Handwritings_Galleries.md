@@ -17,7 +17,7 @@ The handwritings photos are very special type of photos Moments of Joy that are 
 
 The link to the website is:<a href="https://eternalmoments.smugmug.com/"> website</a>
 
-The direct link to the altogether Handwritings Gallery is: <a href=""> link</a>
+The direct link to the altogether Handwritings Gallery is: <a href="https://eternalmoments.smugmug.com/Moments-of-Joy/Handwritings/"> link</a>
 
 <p>
 Currently this gallery contains 108 handwritings photos but we will gradually add more.<br>
