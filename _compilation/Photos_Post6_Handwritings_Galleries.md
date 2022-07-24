@@ -6,6 +6,7 @@ tags:
   - crimson @ Photographs of Shri Mataji
 ---
 
+<br>
 <p>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
