@@ -20,7 +20,7 @@ The photos of handwritings are very special photos Moments of Joy that are very 
 <p>The direct link to the altogether Handwritings Gallery is: <a href="https://eternalmoments.smugmug.com/Moments-of-Joy/Handwritings/"> link</a></p>
 
 <p>
-Currently this gallery contains 108 handwritings photos but we will gradually add more.<br>
+Currently this gallery contains 108 handwritings (as photos) but we will gradually add more.<br>
 <br>
 We would be most happy to receive, enjoy, study, and share more handwritings of our Divine Mother. We thank you in advance for any help, support, and feedback. Please write to us at sahajayoga.compilations@gmail.com<br>
 <br>
