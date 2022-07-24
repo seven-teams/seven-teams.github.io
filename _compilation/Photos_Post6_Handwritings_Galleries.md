@@ -7,6 +7,7 @@ tags:
 ---
 
 <p>
+<br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 Jay Śhrī Mātājī!<br>
