@@ -281,7 +281,86 @@ They had the True Knowledge of the Kuṇḍalinī and went as far as Bolivia and
 
 <div class="para-divider"></div>
 
-[<font color="orange">WARNING: Quotes for the period 1981-02 to 2000-04 will follow in due time.</font>] 
+<p>
+"It's very interesting to see: how ah the spirituality spread into these countries, and he ... then how it died out.<br>
+All these things happened, but then They were born again and again. They were born as Mahāvīra and Buddha. They are the same. They are born as Mārkaṇḍeya. They are born as Kabīra, as Ādi Śhaṅkarāchārya.<br>
+It was Buddha who was born as Ādi Śhaṅkarāchārya, just to correct Himself. Buddha was shocked the way people were going towards Nirākāra, that He had to be born as Śhaṅkarāchārya to tell people, "Oh God! What are you doing?" It was only Buddha who came to correct Himself as Śhaṅkarāchārya.<br>
+It is so [laughing:] surprising, that people are fighting, Buddhist and Hindus are great uh enemies of each other. But they do not know that the person who really re-established Hinduism was the same who established Buddhism.<br>
+So, imagine the same personality coming in and agai... coming, coming again and again on this Earth, tries to correct uh-uh-uh His disciples, again finds that there are two groups He has created: it's a big problem.<br>
+<font color="red">Now, Mahāvīra also was one of Them, who ... who was born again and again, and He was Mārkaṇḍeya, and He was Kabīra.</font><br>
+The way Kabīra lashes people, you can see that He is tremendous! He is like Bhairava.<br>
+And the Power of Bhairava, Kabīra has used in His language, but for Hindi poets it is Sadhukaddi [vernacular dialect of Hindi+Punjabi+Māravāṛī in medieval North India] and they have made fun of it.<br>
+The best thing of a person who doesn't want to face reality, is to make fun of everyone. That is the best way.<br>
+They said, "What is this talk, 'Iḍā, Piṅgalā, Suṣhumṇā'? Who is He? What does He think of Himself?" But He was appreciated, very much, by the Saints and specially by Guru Nāṇaka, who included all His poetry in His Grantha Sāhab.<br>
+He's included so many of these poetry from all the realized Souls from Ma... Maharashtra, also."<br>
+<font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">Never a word was it told about Kuṇḍalinī nor this word was used except, also, by Mārkaṇḍeya, who was there long time back, much before Śhaṅkarāchārya.</font><br>
+But to people, Kuṇḍalinī was something unknown, something very much away from the understanding of people."<br>
+<font size="+0"><b>1981-0601 Public Program, The Time of the Seekers, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now the trouble is: this knowledge was a very secret knowledge, thousands of years back. And it started descending, this knowledge, to people very slowly.<br>
+Like on a tree there's only one flower or two flowers in the beginning.<br>
+Now, in the sixth century -- actually Christ talked about it quite a lot. And the other people, like Moses, and all these people have talked about it. But the ones who wrote, never got anything there perhaps, so they wrote it in a very mystical way like, "I'll appear before you like tongues of flames," or, "The Fir... uh the Tree of Fire" and all that, indicative of all that.<br>
+But ah it so happened that in the sixth century, somebody in India, called as Ādi Śhaṅkarāchārya, He was actually Buddha reborn, He started talking about it. Self-realization, of course Buddha talked about it. Then He started telling about these, all these nāḍīs and everything He described.<br>
+<font color="red">But there is a poet, in India, whose name is Mārkaṇḍeya, who has written about this. They say He was living in India about, say, ten thousand years back, this poet, about that time.</font><br>
+So this knowledge was known to people but was not put down on the paper, was not circulated, was not for en masse."<br>
+<font size="+0"><b>1981-0817 Public Program, Seeking the Light, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"But, this knowledge, was a secret knowledge for many years, thousands of years.<br>
+<font color="red">There was a poet called as Mārkaṇḍeya, who lived, I think, they say about ten thousand years back: He has described about the Kuṇḍalinī. But He has just described that, 'She resides here and She is awakened, and She passes those chakras and all that. But not in details and not very clearly: in a very mystic language.</font>"<br>
+<font size="+0"><b>1981-0927 Public Program, Day 4, East West Center, 141 5th Avenue, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Mārkaṇḍeya's you don't have, otherwise you could have read about Mahāviṣhṇu, about Jesus Christ, but it's all right now."</font><br>
+<font size="+0"><b>1981-0929 Navarātri Pūjā (1st Day), Room, Home of a Sahaja Yogi, Staten Island, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">But in the Purāṇas it is described that Kṛiṣhṇa said, "You are higher than Me. I placed You higher than Me." He placed Him, you can imagine, that Christ is at this point, and Kṛiṣhṇa is at this point. He placed higher Him than Him. And He said: "In anywhere people worship Me" -- Śhrī Kṛiṣhṇa said -- "automatically You are worshiped. You will be the Support," Ādhāra, "of the whole world."<br>
+Is wonderful to say that, about, I think, fourteen thousand years or twelve thousand years back, Mārkaṇḍeya, such a great Saint was born in India. And He has written the complete Gaṇeśha Stotram. Means the complete praise of the Gaṇeśha. You can see the translation is so beautiful. And that he said: "You will be so humble."</font><br>
+<font color="red">He is the One who is the ninth Incarnation, called as Bauddha, among the Ten Incarnations.<br>
+That, 'He will be so humble that He will wash the feet of His disciples.'<br>
+All the miracles of Christ are described in these books. But these books are not translated.<br>
+And that, 'He will be the One, when enlightened within you with the Kuṇḍalinī, He will take away all your karmas, and all your conditionings. Because He will die for your sins, for your karmas. The world will not have to suffer anymore, if He is awaken within you.'</font><br>
+These are all the things already written, thousands of years back, can you imagine?<br>
+I wish the Christians who went from here [laughing:] to take, explain Christianity to Indians, told them that, 'Mahāviṣhṇu is already born! And we are preaching about Him! The One who is going to suck your conditioning, the One who is going to suck all your problems of karmas.' They never told them.<br>
+On the contrary, they were so stupid, I must tell you, that they would put a loaf in a ... in a well, and say: that, "You all have become Christians because we have put the meat of the beef ... uh uh the beef inside the well." In ... Indians don't eat beef, you see. "So you all have become Christians." Villages after villages they converted into Christianity. They started branding them as Christians.<br>
+This was absurd! And that's why them ...  people were waiting and waiting for the Advent of Christ."<br>
+<font size="+0"><b>1981-1006 Public Program (8th Day of Navarātri), Day 3, The New Age Has Started (From Kṛiṣhṇa to Christ), Venue 2, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"And is so subtle, so subtle, every word [of Śhrī William Blake] is so subtle, that is like a chanting, is like a chanting.<br> 
+You are specially blessed, because such a great poet was born in this country.<br>
+And, wherever I go, in My series of lectures, at least in one lecture I always mention Him.<br>
+<font color="red">He has gone into great details, just like Mārkaṇḍeya, another great poet in India, who was born thousands of years back.</font><br>
+But to realize that, `This country is the heart of the Universe, and here the Jerusalem is going to be'!"<br>
+<font size="+0"><b>1981-1128 Public Program, You Are the Spirit, Friends Meeting House, 120 Heath Street, Hampstead, London NW3 1DR, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+[<font color="orange">WARNING: Quotes for the period 1982-02 to 2000-04 will follow in due time.</font>] 
 
 <div class="para-divider"></div>
 
