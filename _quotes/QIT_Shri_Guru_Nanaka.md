@@ -859,7 +859,7 @@ And he came back to Me. <font color="red">He said, "All right, I'll accept, and 
 <p>
 "Apart from that, there is [a] third type of Incarnations which worked [pointing to the Void on the Chakra Chart:] in this gap: to sustain us. These are Ten Pri... Primordial Masters, the Ādi Guru. These people incarnated on this Earth to give us our sustainance [sustenance], our religion as they call it. They gave us those Ten Religions or sustainance [sustenance] which is important for a human being.<br>
 <font color="red">This Principle of Primordial Master incarnated as Abraham, as Moses, as Muhammad Sāhab, as Janaka, as Nāṇaka, and recently, till recently, the One who is no more a now, is Śhirḍī Sāī Nāth.</font><br>
-[During the translation helps with the enumeration:] Muh... mhh. Socrates. <font color="red">Nāṇaka.<</font>br>
+[During the translation helps with the enumeration:] Muh... mhh. Socrates. <font color="red">Nāṇaka.</font><br>
 Yes.<br>
 <font color="red">Now, these people are Incarnation[s] of the one Principle, that is Primordial Master.<br> 
 The energy or the power with which They work[ed] is either a sister or a daughter: is a very pure relationships.<br> 
