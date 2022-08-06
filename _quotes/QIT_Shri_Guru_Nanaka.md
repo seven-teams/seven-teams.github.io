@@ -842,6 +842,45 @@ Keep it one name. There are ten names, to one thing, for twice-born."<br>
 <div class="para-divider"></div>
 
 <p>
+"For example, there was a doctor from Iran who was suffering from cancer, he came to see Me in London. He had the cancer of the stomach.<br> 
+In this part resides all the Ten Great Masters, or the Primordial Masters, the Incarnations of the Primordial Master.<br> 
+He ... ah ... I told ... I asked him ... uh-uh-uh what religion was he following, he said he was a ... uh-uh-uh Muslim, and out and out Muslim. I said, "What does that mean?", so he said, "It means only Muhammad was the only last Prophet, that cannot be any other Prophet." I said, "How do you know? But how are you so cocksure about it? How can you [laughing:] claim that He was the last Prophet?"<br>
+Moreover his cancer was due to that kind of a fanaticism within his stomach. I told him: "You have to believe in other Prophets also." <br>
+<font color="red">We had a Prophet in India called Guru Nāṇak, who was the Incarnation of the same.</font> Abraham, Moses, all of Them were the Incarnation of the same Principle.<br>
+But he would not accept it. I said, "I can't cure your cancer." <br>
+So he went back.<br>
+But when it comes to life, you understand.<br>
+And he came back to Me. <font color="red">He said, "All right, I'll accept, and I'll take the name of Guru Nāṇak." I told him, "Muhammad Sāhāb Himself is angry with you for behaving like this. Because He was not a fanatic like you!" And when he did that, he got all right.</font>"<br>
+<font size="+0"><b>1980-0416 Public Program, Day 1, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Apart from that, there is [a] third type of Incarnations which worked [pointing to the Void on the Chakra Chart:] in this gap: to sustain us. These are Ten Pri... Primordial Masters, the Ādi Guru. These people incarnated on this Earth to give us our sustainance [sustenance], our religion as they call it. They gave us those Ten Religions or sustainance [sustenance] which is important for a human being.<br>
+<font color="red">This Principle of Primordial Master incarnated as Abraham, as Moses, as Muhammad Sāhab, as Janaka, as Nāṇaka, and recently, till recently, the One who is no more a now, is Śhirḍī Sāī Nāth.</font><br>
+[During the translation helps with the enumeration:] Muh... mhh. Socrates. <font color="red">Nāṇaka.<</font>br>
+Yes.<br>
+<font color="red">Now, these people are Incarnation[s] of the one Principle, that is Primordial Master.<br> 
+The energy or the power with which They work[ed] is either a sister or a daughter: is a very pure relationships.<br> 
+If you read Their teachings you will find [that] They are saying the same things. Because They were worried about our sustainance [sustenance].</font>"<br>
+<font size="+0"><b>1980-0419 Public Program, Day 4, Spiritual Evolution of Man, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"For example, we can say the gree... green thing is the one that represents the water, water element. This center the ... in the stomach is the water element within us. It is called as Nābhī chakra, and around it is called as the Bhavasāgara, you can say the Void, or you can say the Gap, or whatever you may say, the whole world as such, within us. So, the people who were born on this center, around this center, were born out of water element.<br>
+<font color="red">In this Bhavasāgara -- oc... Bhavasāgara means the ocean of this world -- were born, through this ocean of the world, were born all the Primordial Masters, one after another. We can say Abraham, Moses, we had Janaka, were Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], and Socrates, and so many others like that, Nāṇaka, and also very recently, we had about hundred years back, a very great Saint born in India known as Sāī Nāth.<br>
+They all represent the same element that is the water element. Being responsible or being born out of that, They are anxious to maintain water element as the one which is within us for sustaining ourselves. We su... we are sustained by water, so They help us to sustain ourselves. They are the sustainers: They tell us how to sustain us as a human being.<br>
+And all of Them have tried to establish religion within us.</font><br>
+A religion doesn't mean outside, but the religion as a man: means the capacity of a man, or you can say the quality of a man. What a human being should be like, what is the way to know if he is a human being or not, which is described in al... in the Ten Commandments."<br>
+<font size="+0"><b>1980-0421 Public Program, What Is Second Birth, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "About Kuṇḍalinī, many people knew It long time back.<br>
 I must say, there was Mārkaṇḍeya, who was thirteen thousand years back, He has talked about Kuṇḍalinī.<br>
 Ādi Śhaṅkarāchārya has talked about Kuṇḍalinī.<br>

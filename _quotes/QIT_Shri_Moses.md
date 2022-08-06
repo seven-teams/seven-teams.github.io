@@ -260,7 +260,7 @@ We had a Prophet in India called Guru Nāṇak, who was the Incarnation of the s
 But he would not accept it. I said, "I can't cure your cancer." <br>
 So he went back.<br>
 But when it comes to life, you understand.<br>
-And he came back to Me. He said, "All right, I'll accept, and I'll take the name of Guru Nāṇak." I told him, "Muhammad Sāhāb Himself is angry with you for behaving like this. Because He was not a fanatic like you!" And when he did that, he got all right.<br>
+And he came back to Me. He said, "All right, I'll accept, and I'll take the name of Guru Nāṇak." I told him, "Muhammad Sāhāb Himself is angry with you for behaving like this. Because He was not a fanatic like you!" And when he did that, he got all right."<br>
 <font size="+0"><b>1980-0416 Public Program, Day 1, Paris, France</b></font>
 </p>
 
