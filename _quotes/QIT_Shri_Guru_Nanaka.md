@@ -74,7 +74,7 @@ So He pushes away the evil spirits from your Āgñyā because these spirits sit 
 So Lord Jesus put His hand on this plexus first of all.<br>
 <font color="red">It was done at the time of Nāṇak Sāheb.</font><br>
 In all ages these ghostly powers came to do encroachment. But Śhrī Kṛiṣhṇa has such a destructive power that He cut their throats.<br>
-So on Āgñyā chakra is the name of Lord Jesus.<br>
+So on Āgñyā chakra is the name of Lord Jesus."<br>
 <font size="+0"><b>1973-1125 Public Program (Hindi), Day 7, Pāne ke Bāda: Sāta Chakroṃ ke Devatā (After Getting It: Deities of the Seven Chakras), 4 Duplex Lane, New Delhi, India</b></font>
 </p>
 
@@ -892,7 +892,7 @@ A religion doesn't mean outside, but the religion as a man: means the capacity o
 You must understand: everyone has one's own job. See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
 <font color="red">But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>
 So, these Ten Principles, as I told you, They established [dharma].</font><br> 
-<font color="red">They are created in the Void.<br>
+<font color="red">They are created in the Void.</font><br>
 As you see here the Void part, this part is made out of the water element. <font color="red">So, whatever miracles They did, had something to do with water, like They could create water anywhere They wanted to. They would not cure people. All of Them have created water in the desert or in the places where ... like in ... Nāṇaka has created a Pan̄jā Sāhab they call it, or everywhere They have been able to create water. Whatever They touched, They could create water out of it.</font><br>
 Water is the life, life force which sustains us. Without water we cannot live! The is the sustainance [sustenance].<br>
 <font color="red">But, They actually are symbolized in an ocean, in the ocean, because They give us the salt, the salt of life, which gives us the sustainance [sustenance].</font> If you see the salt, if we do not have salt in our body, we'll have no sustainance [sustenance]."<br>
