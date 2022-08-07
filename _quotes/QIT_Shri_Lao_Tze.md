@@ -56,7 +56,7 @@ Chinese don't use it in China. Can you imagine? In China they don't.<br>
 Just they don't have it. They have other teas and this and that and they use certain roots, I am more Ayurvedic style, but not, acupuncture they don't have.<br>
 <font color="red">I have been in China Myself. They, I asked Him about it [asked about Him]. They said, "Lao Tze! Useless fellow," [some laughter] like that.</font><br>
 <font color="red">You see, because after Lao Tze very few people got Realization.</font><br> 
-And this one has to know what are the centers in the hand, where they are. They are also using all wrong points, all sympathetic points. They are not using the right points, which are the parasympathetic."</font><br>
+And this one has to know what are the centers in the hand, where they are. They are also using all wrong points, all sympathetic points. They are not using the right points, which are the parasympathetic.</font><br>
 <font size="+0"><b>1980-0424 Talk to Sahaja Yogis, Sympathetic and Parasympathetic, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
