@@ -161,6 +161,29 @@ A religion doesn't mean outside, but the religion as a man: means the capacity o
 <font size="+0"><b></b></font>
 </p>
 
+<div class="para-divider"></div>
+
+<p>
+"And these Ten Sustainances [Sustenances] are represented by Great Prophets. The Principle is called as Ādi Guru, in Sanskrit language, the Primordial Master. <font color="red">He had incarnated on this Earth as Abraham, Moses, as Lao Tze, as Confucius, as Socrates.</font> Recently, He has been as Sāī Nāth of Śhirḍī, not the other fellow, and other great people have been like Nāṇaka, Janaka.<br>
+All these Great Saints can ... came on this Earth to tell us: how to keep in the center, how to keep our sustenance, how to be human beings.<br>
+As carbon has got four valances, we too have got ten valances. We have to maintain those ten valances within us! That's what they came to tell us."<br>
+<font size="+0"><b>1981-0325 Public Program, Cycle 1, Day 2, Mūlādhāra and Swādhiṣhṭhāna Chakras, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Moses, Abraham, Confucius, Socrates, Muhammad, Nāṇak, Janak, Lao Tze, these are the Primordial Masters, the Principle of Primordial Masters, the Ādi Gurus, who incarnated on this Earth to teach us how to keep our sustainance [sustenance]. They taught against all alcohols and strong things."</font><br>
+<font size="+0"><b>1981-0402 Public Program, Day 1, The Pure Power of Desire or Aim of Seeking, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
+</p>
+
 [<font color="orange">WARNING: Quotes for the period 1980-04 to 2001-12 will follow in due time.</font>]
 
 <div class="para-divider"></div>

@@ -415,6 +415,37 @@ A religion doesn't mean outside, but the religion as a man: means the capacity o
 <font size="+0"><b>1980-0421 Public Program, What Is Second Birth, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again. In India we can say the Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had one Ādināth, the Guru long time back. <font color="red">Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth.</font> We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius. <font color="red">All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.</font><br>
+You must understand: everyone has one's own job. See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
+<font color="red">But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>
+So, these Ten Principles, as I told you, They established [dharma].</font><br> 
+<font color="red">They are created in the Void.<br>
+As you see here the Void part, this part is made out of the water element. <font color="red">So, whatever miracles They did, had something to do with water, like They could create water anywhere They wanted to. They would not cure people. All of Them have created water in the desert or in the places where ... like in ... Nāṇaka has created a Pan̄jā Sāhab they call it, or everywhere They have been able to create water. Whatever They touched, They could create water out of it.</font><br>
+Water is the life, life force which sustains us. Without water we cannot live! The is the sustainance [sustenance].<br>
+<font color="red">But, They actually are symbolized in an ocean, in the ocean, because They give us the salt, the salt of life, which gives us the sustainance [sustenance].</font> If you see the salt, if we do not have salt in our body, we'll have no sustainance [sustenance]."<br>
+<font size="+0"><b>1980-0728 Public Program, The Principle of Guru (Moderation Is the Way We Really Solve the Problem and The Innocence Is in the Center), Sea is the Guru (The Sea Is to Be Worshiped and So Much to Learn from the Sea) and Your Dharma Is the Way Your Attention Is (Dharma Is Balancing), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"And these Ten Sustainances [Sustenances] are represented by Great Prophets. The Principle is called as Ādi Guru, in Sanskrit language, the Primordial Master. <font color="red">He had incarnated on this Earth as Abraham, Moses, as Lao Tze, as Confucius, as Socrates.</font> Recently, He has been as Sāī Nāth of Śhirḍī, not the other fellow, and other great people have been like Nāṇaka, Janaka.<br>
+All these Great Saints can ... came on this Earth to tell us: how to keep in the center, how to keep our sustenance, how to be human beings.<br>
+As carbon has got four valances, we too have got ten valances. We have to maintain those ten valances within us! That's what they came to tell us."<br>
+<font size="+0"><b>1981-0325 Public Program, Cycle 1, Day 2, Mūlādhāra and Swādhiṣhṭhāna Chakras, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
 [<font color="orange">WARNING: Quotes for the period 1980-01 to 2000-09 will follow in due time.</font>]
 
 <div class="para-divider"></div>
