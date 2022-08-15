@@ -34,11 +34,11 @@ You have to achieve a great deal for others. You have to work, within yourself, 
 </p>
 
 <p>
-"[Śhrī Mātājī reminisced about Her time with Gāndhī in his āśhram and said that he was such a simple, disciplined and straightforward man.]<br> 
+[Śhrī Mātājī reminisced about Her time with Gāndhī in his āśhram and said that he was such a simple, disciplined and straightforward man.]<br> 
 [She explained that his khādī movement killed the textile industry in Manchester, England and that they used to even have a song that if we use home spun, the factories will stop. Dr. David Szpiro, who was present at the time, is from Manchester and confirmed that in fact there is no textile industry in Manchester today.]<br>
 [Śhrī Mātājī explained that when Her father was jailed for 6 months during the struggle for independence, She knew true poverty for the first time because he was the primary earner. Her father was the only prominent Christian jailed at the time.]<br>
 [Śhrī Mātājī went on to say that the English were wise to withdraw, but that She still didn't fully understand why because this has never happened before. She said there was no war or conflict and that without this, occupying countries do not leave, so the English had some wisdom.]<br>
-[Śhrī Mātājī said that the Nehru dynasty had not been good for India, and that had Gāndhī become the president, India would be a very different country today.]"<br>
+[Śhrī Mātājī said that the Nehru dynasty had not been good for India, and that had Gāndhī become the president, India would be a very different country today.]<br>
 <font color="blue"><b>2007-080x Comments on India's Independence, during the period 0730 to 0803, Palazzo Doria, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
