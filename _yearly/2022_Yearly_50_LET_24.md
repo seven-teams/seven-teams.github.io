@@ -1,5 +1,5 @@
 ---
-title: 'Celebrating 50 Years of Life Eternal Trust and its Objects, Post 24 on '
+title: 'Celebrating 50 Years of Life Eternal Trust and its Objects, Post 24 on the Assumption of Mother Mary and the Independence Day of India'
 date: 2022-08-15
 permalink: /yearly/2022/0815
 tags:
