@@ -41,7 +41,7 @@ In a collective life that we have, in the Āśhram where we live, where we move 
 <font size="+0"><b>1988-0820 Śhrī Viṣhṇumāyā Pūjā (1 week before Rakṣhābandhan Day), Cure that Left Viśhuddhi, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font><br>
 <br>
 <font color="blue"><font size="+0">Nirmalā, Kiti Varnāvi Tujhiga Stuti:</font></font><br>
-<font size="+0"><b>Bābā Māmā (March 1990): "This is what the brother has written for the sister:
+<font size="+0"><b>Bābā Māmā (March 1990): This is what the brother has written for the sister:
 "O Nirmalā, my Sister, how much should I praise You? Because You have given the human being the experience of God."</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
@@ -67,7 +67,7 @@ Sahaja Yogis should not destroy their attention on trifle issues.<br>
 Lot of work has yet to be done.<br>
 Those Sahaja Yogis who have progressed should get busy.<br>
 New centers should be opened.<br>
-<b>People should be cured of their diseases and their attention should be drawn towards God-realization.</b>"<br> 
+<b>People should be cured of their diseases and their attention should be drawn towards God-realization.</b>"</font><br> 
 <font size="+0"><b>1978-0817 Letter (Marathi) on Rakṣhābandhan and Pūrṇimā Day (0818), London, UK from Nirmala Yoga, Issue 11 (September-October 1982), Page 25</b></font>
 </p>
 
@@ -93,7 +93,7 @@ New centers should be opened.<br>
 </p>
 
 <p>
-<font color="blue"><b>He Govinda He Gopala</b></font><br>
+<font color="blue"><b>He Govinda He Gopāla</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -105,7 +105,7 @@ Because you are human,<br>
 And we all are sons and daughters<br>
 Of one Holy Spirit;<br>
 We are equal and made of the same Earth.</b></font><br>
-<font size="+0"><b>(My Brethren by Kahlil Gibran)</b></font>
+<font size="+0"><b>('My Brethren' by Kahlil Gibran)</b></font>
 </p>
 
 <p>
