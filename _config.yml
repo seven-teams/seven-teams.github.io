@@ -173,7 +173,7 @@ feed:
     - compilation
     - quotes
     - scriptures
-    - chronology
+    # - chronology
     - yearly
     - divine
   disable_in_development: false
