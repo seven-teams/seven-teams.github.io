@@ -24,14 +24,14 @@ The Comprehensive Compilations Team
 
 1. Divine Cool Breeze (USA), Volume 13, Issues 1 and 2 (28 pages, shared publicly on 2022-0819)
 
-[Instantly download the original CCT scan pdf here](https://bit.ly/3pu4xwO)
+[Download the original CCT scan pdf here](https://bit.ly/3pu4xwO)
 
 <iframe src="/pdf/?usedownload=true#/files/DCB_13-1-2-compressed_CCT_Scans_Collection.pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-2. Divine Cool Breeze (USA), Volume 13, Issues 1 and 2 (40 pages, shared publicly on 2022-0819)
+2. Divine Cool Breeze (USA), Volume 13, Issues 3 to 5 (40 pages, shared publicly on 2022-0819)
 
-[Instantly download the original CCT scan pdf here](https://bit.ly/3Civprf)
+[Download the original CCT scan pdf here](https://bit.ly/3Civprf)
 
-<iframe src="/pdf/?usedownload=true#/files/DCB_13-1-2-compressed_CCT_Scans_Collection.pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#/files/DCB_13-3-5-compressed_CCT_Scans_Collection.pdf" width="1000px" height="1000px"></iframe>
