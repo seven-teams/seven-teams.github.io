@@ -10,7 +10,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,
 
 Jay Śhrī Mātājī!
 
-The website <a href="https://www.divinecoolbreeze.com/collection/magazines"> <font color="blue"><b>Divine Cool Breeze Books</b></font></a> has generously shared as pdfs and/or ebooks and/or online the old issues of Divine Cool Breeze (USA) Magazine and of its predecessors in the U.S.A. Our team has been asked to contribute with pdf scans of the few missing issues, which will be shared gradually below. Our team also hopes to contribute with a few better pdf scans versions than the currently available on the mentioned website or on other dedicated websites or sources. 
+The website <a href="https://www.divinecoolbreeze.com/collection/magazines"> <font color="blue"><b>Divine Cool Breeze Books</b></font></a> has generously shared as pdfs and/or ebooks and/or onlines the old issues of Divine Cool Breeze (USA) Magazine and of its predecessors in the U.S.A. Our team has been asked to contribute with pdf scans of the few missing issues, which will be shared gradually below. Our team also hopes to contribute with a few better pdf scans versions than the currently available on the mentioned website or on other dedicated websites or sources. 
 
 Please enjoy and kindly share with all our brothers and sisters.
 
