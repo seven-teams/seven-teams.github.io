@@ -22,7 +22,7 @@ The Comprehensive Compilations Team
 
 <br>
 
-I1. Divine Cool Breeze (USA), Volume 13, Issues 1 and 2 (28 pages, shared publicly on 2022-0819)
+I1. Divine Cool Breeze (USA), Volume 13, Issues 1 and 2 (28 pages, uploaded on 2022-0819)
 
 [Download the original CCT scan pdf here](https://bit.ly/3pu4xwO)
 
@@ -30,7 +30,7 @@ I1. Divine Cool Breeze (USA), Volume 13, Issues 1 and 2 (28 pages, shared public
 
 <br>
 
-I2. Divine Cool Breeze (USA), Volume 13, Issues 3 to 5 (40 pages, shared publicly on 2022-0819)
+I2. Divine Cool Breeze (USA), Volume 13, Issues 3 to 5 (40 pages, uploaded on 2022-0819)
 
 [Download the original CCT scan pdf here](https://bit.ly/3Civprf)
 
