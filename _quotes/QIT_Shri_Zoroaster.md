@@ -145,10 +145,10 @@ They had the True Knowledge of the Kuṇḍalinī and went as far as Bolivia and
 
 <p>
 "In the same way, Sahaja Yoga is the Ocean. You cannot name it. Do not try to find its identifity ... identity with other things.<br>
-<br>If you start doing that, then your mind will start becoming that small little cup.<br>
-<br>And moreover, if you are coming from some organized religions, it's very important to understand: that organized religions make your cup even stronger, it doesn't dissolve.<br>
-<br>If it is a disorganized religion, then it's a cup of earthenware, which can dissolve into this Ocean.<br>
-<b>But if it is a solid, nice porcelain [soft laughter], Meissen, then there is no possibility. Then you are adhering to all that conditioning, all that solidness, and then it's very difficult. <font color="red">All the time you have to bring in Christ, or you have to bring in Muhammad, or you have to bring in Zoroaster, or someone like that, who should be there to guide you.</font><br>
+If you start doing that, then your mind will start becoming that small little cup.<br>
+And moreover, if you are coming from some organized religions, it's very important to understand: that organized religions make your cup even stronger, it doesn't dissolve.<br>
+If it is a disorganized religion, then it's a cup of earthenware, which can dissolve into this Ocean.<br>
+But if it is a solid, nice porcelain [soft laughter], Meissen, then there is no possibility. Then you are adhering to all that conditioning, all that solidness, and then it's very difficult. <font color="red">All the time you have to bring in Christ, or you have to bring in Muhammad, or you have to bring in Zoroaster, or someone like that, who should be there to guide you.</font><br>
 Now, your guidance is your Spirit, which is unlimited. So you don't have to bring any one of Them: They are all within you, They are part and parcel of you.<br>
 But to stick on to one person is again a sign that you are not expanding."<br>
 <font size="+0"><b>1982-0926 Śhrī Durgā Pūjā, Mind Is just like a Donkey, House of Grégoire de Kalbermatten, Sternwartestrasse 62, Vienna, Austria</b></font>
