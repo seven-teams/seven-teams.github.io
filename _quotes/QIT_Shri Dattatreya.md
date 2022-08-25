@@ -326,6 +326,51 @@ Now after He is gone, they are worshipping Him. But you have given immense respe
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"As I told you before, that: we had Ten Gurus who came on this Earth, and They represented the innocence of the three Brahma, Viṣhṇu, Maheśha of Dattātreya. And one of Them was Zoroaster, another was Muhammad Sāhab, and all these Gurus represent those qualities of innocence of these Three Personalities called as Dattātreya.<br>
+And also told you how by understanding these different Gurus we can produce the effects even on our physical health."</font><br>
+<font size="+0"><b>1984-0317 Public Program, Day 5, Āgñyā Chakra, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">And that is what is dharma: is the ten valences within us. These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.<br>
+But despite all that, we do not know: we'll worship Dattātreya, and we will not follow Him.</font><br>
+This is the only problem we have. That: we have all the ideals, we have all the capacity to understand that this is something great, but we have no power to follow it. Because we are not Samartha, we are not equal to the meaning of a human being."<br>
+<font size="+0"><b>1984-1205 Public Program (English+Marathi), Day 2, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Muslims, Hindus, Christians, we do not accept. For us, we are all Sahaja Yogis, and we have faith in all the religion[s]. Not a samabhāv [sympathy, like nature]! We have faith in everyone. As well as we worship Rāma, we worship Muhammad Sāhab also. Same way! No less! <font color="red">As we worship Brahmadeva, or as we worship, let's say, Dattātreya, we worship Zoroaster. There's no difference at all. Same way!</font><br>
+There's a big difference in having just the same ... uh-uh-uh, uh what you call, the same uh respect. Is not that! But we worship the same way.<br>
+So there's no question of differentiating each other, nor on countrywise, nothing."<br>
+<font size="+0"><b>1992-1230 Śhrī Mahālakṣhmī Pūjā (English+Marathi+Hindi+English), The Universal Love, Kalwa, Thane, Maharashtra, India</b></font>
+</p>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one teacher God, the Primordial Master, Dattātreya. He came onto this Earth to teach people the secrets of the Divine, to reveal God, and to help them cross the Ocean of Illusion themselves within their own identity. Evolution could not go further in the hands of human beings who were in the bondage of ignorance, so they were given guidance through this Incarnation of the Primordial Master (Ādi Guru) again and again in different lives. He was created as the three-headed child, Dattātreya, by Ādi Śhakti who appeared on Earth during the Tretā Yuga as Satī Anasūyā, wife of the Sage Atreya. He was born as Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara] who founded Jainism -- one of the oldest religions. Then he was born as Rāja Janaka, father of Jānakī also called Sītā, Rāma's wife. She was an Incarnation of Ādi Śhakti.<br>
 The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. In China He was born as Confucius and as Lao Tze, and in Greece as Socrates. He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Pages 32 and 33</b></font>

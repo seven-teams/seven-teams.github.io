@@ -932,6 +932,39 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <div class="para-divider"></div>
 
 <p>
+"And that is what is dharma: is the ten valences within us. <font color="red">These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.</font><br>
+But despite all that, we do not know: we'll worship Dattātreya, and we will not follow Him.<br>
+This is the only problem we have. That: we have all the ideals, we have all the capacity to understand that this is something great, but we have no power to follow it. Because we are not Samartha, we are not equal to the meaning of a human being."<br>
+<font size="+0"><b>1984-1205 Public Program (English+Marathi), Day 2, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red"><b>Śhrī Mātājī:</b></font> The knowledge of Kuṇḍalinī is not a new one. It's a very ancient science. It is described in most of the Upaniṣhadas which are the second part of the Vedas, up to the sixth century where it was openly talked about by Śhaṅkara [Śhaṅkarāchārya], ...<br>
+<b>Sahaja Yogi translator:</b> Up [to] the ...<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Sixth century.<br>
+<font color="red">... and then by Guru Nāṇaka, Kabīra, all these people have talked about Kuṇḍalinī.</font> Even in the Qur'ān, it is described as 'Asas. In the Bible it is described as the Tree of Life.<br>
+<font size="+0"><b>1985-0514 Public Program, Day 1, La Sala dei Congressi della Provincia di Milano, Via Filippo Corridoni 16, Milan, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "About Kuṇḍalinī, many people knew It long time back.<br>
 I must say, there was Mārkaṇḍeya, who was thirteen thousand years back, He has talked about Kuṇḍalinī.<br>
 Ādi Śhaṅkarāchārya has talked about Kuṇḍalinī.<br>
