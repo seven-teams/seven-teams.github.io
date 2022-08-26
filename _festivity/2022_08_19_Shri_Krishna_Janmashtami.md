@@ -38,9 +38,9 @@ Now, the worst enemy that we have is our ego. And with ego starts all kinds of o
 
 <p style="text-align:center;">
 <font color="blue"><b>Kṛiṣhṇa Govind. Govind Gaya Karo</b></font><br>
-<font size="+0"><b>Sing every day the praise of Śhrī Kṛiṣhṇa</b></font>
+<font size="+0"><b>Sing every day the praise of Śhrī Kṛiṣhṇa</b></font><br>
 <font color="blue"><b>Pyara Mohan Hṛiday me Bithaya Karo</b></font><br>
-<font size="+0"><b>Establish Śhrī Kṛiṣhṇa, Who is the Charming One, within your heart!</b></font>
+<font size="+0"><b>Establish Śhrī Kṛiṣhṇa, Who is the Charming One, within your heart!</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
