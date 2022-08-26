@@ -6,33 +6,14 @@
       <nav id="site-nav" class="greedy-nav">
         <button><div class="navicon"></div></button>
         <ul class="visible-links">
-          {% assign count = 2 %}
-          {% assign firsttime = true %}
+          <li class="masthead__menu-item masthead__menu-item--lg"><a href="{{ base_path }}/">{{ site.title }}</a></li>
           {% for link in site.data.navigation.main %}
-            {% if count == 1 or firsttime %}
-              <div class="header-row">
-            {% endif %}
-
             {% if link.url contains 'http' %}
               {% assign domain = '' %}
               {% else %}
               {% assign domain = base_path %}
             {% endif %}
-            
-            {% if firsttime %}
-              <li class="masthead__menu-item masthead__menu-item--lg"><a href="{{ base_path }}/">{{ site.title }}</a></li>
-              {% assign firsttime = false %}
-            {% endif %}
             <li class="masthead__menu-item"><a href="{{ domain }}{{ link.url }}">{{ link.title }}</a></li>
-            {% if count == 4 %}
-              </div>
-            {% endif %}
-            
-            {% if count == 4 %}
-              {% assign count = 1 %}
-            {% else %}
-              {% assign count = count | plus: 1 %}
-            {% endif %}
           {% endfor %}
         </ul>
         <ul class="hidden-links hidden"></ul>
