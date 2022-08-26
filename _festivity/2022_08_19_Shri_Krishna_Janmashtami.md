@@ -72,7 +72,7 @@ starts flowing through that and enriches your Viśhuddhi chakra."</font><br>
 <p>
 <font color="DarkRed">"To overcome all kinds of nonsense of religion, Śhrī Kṛiṣhṇa’s Advent was there. Is a very important Advent, but I don’t know how many people understand that. He came to show that it’s all Līlā, is all the Play of God. What is there to be serious? What is there to be ritualistic? You cannot bind God in any rituals. That’s why He came on this Earth, to tell you that you should not try to bind yourself by rituals which are nonsensical. This was His teaching soo many years back, He taught this six thousand year back, but still, if you-you see, in every religion there are so many rituals going on.<br>
 So when the Incarnations died, people started rituals, funny stuff."</font><br>
-<font size="+0">1988-0806 Śhrī Kṛiṣhṇa Pūjā, The Witness State (Taṭasth), Lawn, Āśhram, Garlate (40 kms E of Como), Italy<b></b></font>
+<font size="+0"><b>1988-0806 Śhrī Kṛiṣhṇa Pūjā, The Witness State (Taṭasth), Lawn, Āśhram, Garlate (40 kms E of Como), Italy</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1006.png" /></div>
