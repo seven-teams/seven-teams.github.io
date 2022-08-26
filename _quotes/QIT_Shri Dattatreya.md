@@ -300,8 +300,8 @@ Moses never said that, though they knew He was great. He had overpowered nature.
 "Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again. In India we can say the Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had one Ādināth, the Guru long time back. Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth. <font color="red">We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius. All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.</font><br>
 You must understand: everyone has one's own job. See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
 But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>
-So, these Ten Principles, as I told you, They established [dharma].</font><br> 
-<font color="red">They are created in the Void.<br>
+So, these Ten Principles, as I told you, They established [dharma].<br> 
+They are created in the Void.<br>
 As you see here the Void part, this part is made out of the water element. <font color="red">So, whatever miracles They did, had something to do with water, like They could create water anywhere They wanted to. They would not cure people. All of Them have created water in the desert or in the places where ... like in ... Nāṇaka has created a Pan̄jā Sāhab they call it, or everywhere They have been able to create water. Whatever They touched, They could create water out of it.</font><br>
 Water is the life, life force which sustains us. Without water we cannot live! The is the sustainance [sustenance].<br>
 <font color="red">But, They actually are symbolized in an ocean, in the ocean, because They give us the salt, the salt of life, which gives us the sustainance [sustenance].</font> If you see the salt, if we do not have salt in our body, we'll have no sustainance [sustenance]."<br>
@@ -317,6 +317,51 @@ Now after He is gone, they are worshipping Him. But you have given immense respe
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"As I told you before, that: we had Ten Gurus who came on this Earth, and They represented the innocence of the three Brahma, Viṣhṇu, Maheśha of Dattātreya. And one of Them was Zoroaster, another was Muhammad Sāhab, and all these Gurus represent those qualities of innocence of these Three Personalities called as Dattātreya.<br>
+And also told you how by understanding these different Gurus we can produce the effects even on our physical health."</font><br>
+<font size="+0"><b>1984-0317 Public Program, Day 5, Āgñyā Chakra, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">And that is what is dharma: is the ten valences within us. These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.<br>
+But despite all that, we do not know: we'll worship Dattātreya, and we will not follow Him.</font><br>
+This is the only problem we have. That: we have all the ideals, we have all the capacity to understand that this is something great, but we have no power to follow it. Because we are not Samartha, we are not equal to the meaning of a human being."<br>
+<font size="+0"><b>1984-1205 Public Program (English+Marathi), Day 2, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Muslims, Hindus, Christians, we do not accept. For us, we are all Sahaja Yogis, and we have faith in all the religion[s]. Not a samabhāv [sympathy, like nature]! We have faith in everyone. As well as we worship Rāma, we worship Muhammad Sāhab also. Same way! No less! <font color="red">As we worship Brahmadeva, or as we worship, let's say, Dattātreya, we worship Zoroaster. There's no difference at all. Same way!</font><br>
+There's a big difference in having just the same ... uh-uh-uh, uh what you call, the same uh respect. Is not that! But we worship the same way.<br>
+So there's no question of differentiating each other, nor on countrywise, nothing."<br>
+<font size="+0"><b>1992-1230 Śhrī Mahālakṣhmī Pūjā (English+Marathi+Hindi+English), The Universal Love, Kalwa, Thane, Maharashtra, India</b></font>
+</p>
 
 <p>
 <font color="red">""</font><br>

@@ -360,6 +360,27 @@ But to realize that, `This country is the heart of the Universe, and here the Je
 
 <div class="para-divider"></div>
 
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now when I'm talking to you about the mechanism that is built within us for our last breakthrough, you need not believe Me. <br>
+In our country also, this knowledge was kept a secret for thousands of years. <font color="red">Though we can say people like Mārkaṇḍeya, whose dates could be fourteen thousand [years ago], or later on, up to Ādi Śhaṅkarāchārya, people did write about the Kuṇḍalinī.</font><br>
+And at the time of Ādi Śhaṅkarāchārya, He very clearly talked about it. That was the tradition of evolution described in all these great Scriptures.<br>
+Even in the Bible, you find the Tree of Fire. It says: "I will appear before you as tongues of flames." <br>
+Even Muhammad Sāhab, who came much later, very clearly, very, very clearly, and elaborately, at length, talked about the Resurrection Day. He said: "At the Time of Resurrection, your hands will speak."<br>
+But everybody missed the point.<br>
+Zoroaster talked about it thousands of years back. Confucius, Lao Tze, everyone talked about it: that, 'We have to be the Spirit.'<br>
+Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do you mean to say, I should enter into the womb of my mother?" "No," He said, "whatever is born of the flesh is the flesh. You are to be born of the Holy Ghost." "<br>
+<font size="+0"><b>1985-0703 Public Program, Day 1, Nederlands Congresgebouw (now World Forum), Churchillplein 10, The Hague, Netherlands</b></font>
+</p>
+
+<div class="para-divider"></div>
+
 [<font color="orange">WARNING: Quotes for the period 1982-02 to 2000-04 will follow in due time.</font>] 
 
 <div class="para-divider"></div>
