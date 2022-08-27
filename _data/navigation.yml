@@ -21,11 +21,14 @@ main:
   - title: "Divine Message"
     url: /divine/
 
-  - title: "Events"
-    url: /events/
+  - title: "Photos"
+    url: /photos/
 
   - title: "Archives"
     url: /archives/
+
+  - title: "Events"
+    url: /events/ 
 
   - title: "News"
     url: /news/

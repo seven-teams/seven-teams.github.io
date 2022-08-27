@@ -177,9 +177,10 @@ feed:
     - chronology
     - yearly
     - divine
+    - photos
+    - archives
     - events
     - news
-    - archives
   disable_in_development: false
 
 # Collections
@@ -217,13 +218,16 @@ collections:
   divine:
     output: true
     permalink: /:collection/:path
-  news:
+  photos:
     output: true
-    permalink: /:collection/:path
+    permalink: /:collection/:path   
+  archives:
+    output: true
+    permalink: /:collection/:path  
   events:
     output: true
-    permalink: /:collection/:path
-  archives:
+    permalink: /:collection/:path  
+  news:
     output: true
     permalink: /:collection/:path
 
@@ -339,6 +343,17 @@ defaults:
       comments: true
       share: true
       related: true
+  # _photos
+  - scope:
+      path: ""
+      type: photos
+    values:
+      layout: photospost
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true    
   # _posts
   - scope:
       path: ""
@@ -439,9 +454,10 @@ tag_scriptures: "/tag-scriptures/"
 tag_chronology: "/tag-chronology/"
 tag_yearly: "/tag-yearly/"
 tag_divine: "/tag-divine/"
+tag_photos: "/tag-photos/"
+tag_archives: "/tag-archives/"
 tag_events: "/tag-events/"
 tag_news: "/tag-news/"
-tag_archives: "/tag-archives/"
 
 #tag_archive:
 #  type: liquid
