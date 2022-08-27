@@ -25,7 +25,7 @@ Is a, once you're married, just accept this is the part of your life, is from yo
 And we don't even work out marriages, they just work out.<br>
 ......<br>
 But, you see, in Sahaja Yoga you become actually the person who is a Vaiṣhṇava, is the one who is in the center. Viṣhṇu's Path: you are neither left nor right. You're on Śhrī Kṛiṣhṇa's Path.<br>
-So, how can you remain left or right? If you are left or right then you are no more Sahaj Yog.<br>
+So, how can you remain left or right? If you are left or right then you are no more [in] Sahaj Yog.<br>
 ......<br>
 And actually in Sahaja Yoga nobody should be right-sided or left-sided. You are all in the center. You are all in the center. Because certain things like shoe-beating is such an embarrassing things, you know, but you have to [laughing:] do it, you can't help it if you have ego.<br>
 ......<br>
