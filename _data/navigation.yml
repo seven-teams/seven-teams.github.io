@@ -12,9 +12,6 @@ main:
   - title: "Scriptures"
     url: /scriptures/
 
-  - title: "Chronology"
-    url: /chronology/
-
   - title: "Yearly Topics"
     url: /yearly/
 
@@ -27,8 +24,11 @@ main:
   - title: "Archives"
     url: /archives/
 
-  - title: "Events"
+  - title: "Divine Events"
     url: /events/ 
 
   - title: "News"
     url: /news/
+
+  - title: "Chronology"
+    url: /chronology/

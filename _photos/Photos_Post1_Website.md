@@ -4,6 +4,7 @@ date: 2021-05-02
 permalink: /photos/2021/0502
 tags:
   - crimson @ Photographs of Shri Mataji
+  - green @ Updates
 ---
 
 Dear Sahaja Yogis and Sahaja Yoginīs,

@@ -4,6 +4,7 @@ date: 2022-03-12
 permalink: /photos/2022/0312
 tags:
   - crimson @ Photographs of Shri Mataji
+  - green @ Annual Reports
 ---
 
 Dear Sahaja Yogis and Sahaja Yoginīs,
