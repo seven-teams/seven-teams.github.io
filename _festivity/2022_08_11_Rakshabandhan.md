@@ -10,15 +10,16 @@ tags:
 
 <p>
 <font color="blue">"<b>Is so important, that on this day if this is tied on your wrist, then you become brothers and sisters.</b><br>
-Now, <b>in Sahaja Yoga brotherhood is the most important.</b> That is the friendliness among ourselves. When you are very good brothers and sisters, first of all, your left Viśhuddhi improves. This left Viśhuddhi. You get this left Viśhuddhi, because we don't have proper brother and sister relationship. Is not that we should have our own sister, but any woman who is a Sahaja Yoginī is your sister. Except for your own wife. And this is the feeling. Unless and until we develop that pure feeling within ourselves, we cannot work out Sahaja Yoga. Sahaja Yoga cannot be worked out. I know it's rather difficult to digest, but is a fact. You have to feel clean and pure within your heart."</font><br>
+Now, <b>in Sahaja Yoga brotherhood is the most important.</b> That is the friendliness among ourselves. When you are very good brothers and sisters, first of all, your left Viśhuddhi improves.<br>
+This left Viśhuddhi. You get this left Viśhuddhi, because we don't have proper brother and sister relationship. Is not that we should have our own sister, but any woman who is a Sahaja Yoginī is your sister. Except for your own wife.<br>
+And this is the feeling. Unless and until we develop that pure feeling within ourselves, we cannot work out Sahaja Yoga. Sahaja Yoga cannot be worked out. I know it's rather difficult to digest, but is a fact. You have to feel clean and pure within your heart."</font><br>
 <font size="+0"><b>1986-0818 Talk to Sahaja Yogis (the day before Rakṣhābandhan Day), Room, Āśhram, Hampstead, London, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image999.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"<b>Today in India, we celebrate a set ... special festival.<br>
-It is called as Rakshā-bandhan.</b>Rakṣhā means protection and bandhan means the bondage: the bondage of protection. Is a very nice, good, social custom to have this beautiful festival today.<br>
+<font color="DarkRed">"<b>Today in India, we celebrate a set ... special festival. It is called as Rakṣhā-bandhan.</b> Rakṣhā means protection and bandhan means the bondage: the bondage of protection. Is a very nice, good, social custom to have this beautiful festival today.<br>
 Today is the Full Moon Day, and this day what we do is to tie a band of threads around the person whom you want to protect. But it is done between brothers and sisters."</font><br>
 <font size="+0"><b>1980-0826 Talk to Sahaja Yogis (Rakṣhābandhan Day), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
@@ -40,7 +41,7 @@ In a collective life that we have, in the Āśhram where we live, where we move 
 <font size="+0"><b>1988-0820 Śhrī Viṣhṇumāyā Pūjā (1 week before Rakṣhābandhan Day), Cure that Left Viśhuddhi, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font><br>
 <br>
 <font color="blue"><font size="+0">Nirmalā, Kiti Varnāvi Tujhiga Stuti:</font></font><br>
-<font size="+0"><b>Bābā Māmā (March 1990): "This is what the brother has written for the sister:
+<font size="+0"><b>Bābā Māmā (March 1990): This is what the brother has written for the sister:
 "O Nirmalā, my Sister, how much should I praise You? Because You have given the human being the experience of God."</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
@@ -66,7 +67,7 @@ Sahaja Yogis should not destroy their attention on trifle issues.<br>
 Lot of work has yet to be done.<br>
 Those Sahaja Yogis who have progressed should get busy.<br>
 New centers should be opened.<br>
-<b>People should be cured of their diseases and their attention should be drawn towards God-realization.</b>"<br> 
+<b>People should be cured of their diseases and their attention should be drawn towards God-realization.</b>"</font><br> 
 <font size="+0"><b>1978-0817 Letter (Marathi) on Rakṣhābandhan and Pūrṇimā Day (0818), London, UK from Nirmala Yoga, Issue 11 (September-October 1982), Page 25</b></font>
 </p>
 
@@ -92,7 +93,7 @@ New centers should be opened.<br>
 </p>
 
 <p>
-<font color="blue"><b>He Govinda He Gopala</b></font><br>
+<font color="blue"><b>He Govinda He Gopāla</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -104,7 +105,7 @@ Because you are human,<br>
 And we all are sons and daughters<br>
 Of one Holy Spirit;<br>
 We are equal and made of the same Earth.</b></font><br>
-<font size="+0"><b>(My Brethren by Kahlil Gibran)</b></font>
+<font size="+0"><b>('My Brethren' by Kahlil Gibran)</b></font>
 </p>
 
 <p>

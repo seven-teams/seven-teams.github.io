@@ -2,9 +2,9 @@
 main:
   - title: "Sahaja Yoga Festivity"
     url: /festivity/
-  
+
   - title: "Compilations"
-    url: /compilation/ 
+    url: /compilation/
 
   - title: "Quotes"
     url: /quotes/
@@ -12,11 +12,23 @@ main:
   - title: "Scriptures"
     url: /scriptures/
 
-  - title: "Chronology"
-    url: /chronology/
-    
   - title: "Yearly Topics"
     url: /yearly/
 
   - title: "Divine Message"
     url: /divine/
+
+  - title: "Photos"
+    url: /photos/
+
+  - title: "Archives"
+    url: /archives/
+
+  - title: "Divine Events"
+    url: /events/ 
+
+  - title: "News"
+    url: /news/
+
+  - title: "Chronology"
+    url: /chronology/

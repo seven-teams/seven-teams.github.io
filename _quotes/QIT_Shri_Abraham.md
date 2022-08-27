@@ -242,6 +242,40 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 
 <div class="para-divider"></div>
 
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"For example, in the Arabic countries, Zoroaster took birth five times, and later many Ādi Gurus took birth, like Abraham, Moses, and last of all Śhrī Muhammad Sāhib also took birth there. Because it was very necessary, and that is why these Gurus took birth to accomplish some definite work."</font><br>
+<font size="+0"><b>1991-0101 New Year Pūjā (Hindi+English), Mukand Steel Factory, Kalwa, Thane, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"In every religion there is some sort of a stupid stuff pushed forward, in every. Nobody could really stop it. Because those people who are in charge of religion have no enlightenment, they have nothing to k... do with it, anywhere.<br>
+And that's how, I have seen, people, say, in Japan, they follow one religion, and in uh-uh-uh China they follow another religion, both are just the same: one is Zen, another is Tao. But the misunderstanding is that they think, 'We are ex-xu-xu-xclusive [exclusive].' They are not! None of them are exclusive!.<br>
+<font color="red">Muhammad Sāhab described all of Them: from Abraham to Moses, to Christ, to the Mother of Christ. And He said, :There have been more than one lākh Nabīs on this Earth."</font><br>
+But now, why to feel that we are exclusive? This exclusiveness comes from where?<br>
+<font color="red">With Christ also, He described all of Them!</font><br>
+Ta-o, the one religion that they follow in China, is nothing but Sahaja Yoga: Ta-o is Kuṇḍalinī. Zen is nothing [laughing:] but Sahaja. Zoroaster, everyone.<br>
+But this exclusiveness has brought this problem, and they are fighting among each other."<br>
+<font size="+0"><b>1995-0321 Talk to Sahaja Yogis, Birthday Felicitations, Nizamuddin Scouts Grounds, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
 [<font color="orange">WARNING: Quotes for the period 1980-06 to 1999-12 will follow in due time.</font>]
 
 <div class="para-divider"></div>

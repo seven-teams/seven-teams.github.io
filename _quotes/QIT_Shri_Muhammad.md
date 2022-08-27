@@ -1080,6 +1080,210 @@ The same thing with us: you can't follow the Zen is Sahaja Yoga. What ... what Z
 <font size="+0"><b>1981-0402 Public Program, Day 1, The Pure Power of Desire or Aim of Seeking, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"In the same way, Sahaja Yoga is the Ocean. You cannot name it. Do not try to find its identifity ... identity with other things.<br>
+If you start doing that, then your mind will start becoming that small little cup.<br>
+And moreover, if you are coming from some organized religions, it's very important to understand: that organized religions make your cup even stronger, it doesn't dissolve.<br>
+If it is a disorganized religion, then it's a cup of earthenware, which can dissolve into this Ocean.<br>
+But if it is a solid, nice porcelain [soft laughter], Meissen, then there is no possibility. Then you are adhering to all that conditioning, all that solidness, and then it's very difficult. <font color="red">All the time you have to bring in Christ, or you have to bring in Muhammad, or you have to bring in Zoroaster, or someone like that, who should be there to guide you.</font><br>
+Now, your guidance is your Spirit, which is unlimited. So you don't have to bring any one of Them: They are all within you, They are part and parcel of you.<br>
+But to stick on to one person is again a sign that you are not expanding."<br>
+<font size="+0"><b>1982-0926 Śhrī Durgā Pūjā, Mind Is just like a Donkey, House of Grégoire de Kalbermatten, Sternwartestrasse 62, Vienna, Austria</b></font>
+</p>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Today only, we had somebody who had a uh Kuṇḍalinī which was just pulsating at the base.<br>
+<br> If there is no way of getting out, It pulsates, poor thing. You know, It just ... some people have such Kuṇḍalinī that just goes on tossing that, 'Oh God, when I am going to give birth to My child?'<br>
+And then, if you can smooth it out, bring it out [snaps Her right fingers], It just comes up. And then you feel a Cool Breeze coming out of your head. Which is not possible medically, is it possible? You feel a Cool Breeze coming out of your head, you feel a Cool Breeze blowing into your hands. Then, this is the Power, which is the All-pervading Power, the Brahma Tattwa, which you can use, which is all integrated.<br>
+In Sahaja Yoga lung... language we call it Mahākālī, Mahālakṣhmī, Mahāsaraswatī.<br>
+<font color="red">Then you understand what was Muhammad Sāhab, what was Zoroaster, what was Christ, who They are, everything we understand. They are all integrated, we are the only people fighting among ourselves.</font>"<br>
+<font size="+0"><b>1983-0104 Public Talk, Sholapur Brunch of Indian Medical Association, Sholapur, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"As I told you before, that: we had Ten Gurus who came on this Earth, and They represented the innocence of the three Brahma, Viṣhṇu, Maheśha of Dattātreya. And one of Them was Zoroaster, another was Muhammad Sāhab, and all these Gurus represent those qualities of innocence of these Three Personalities called as Dattātreya.<br>
+And also told you how by understanding these different Gurus we can produce the effects even on our physical health."</font><br>
+<font size="+0"><b>1984-0317 Public Program, Day 5, Āgñyā Chakra, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"And that is what is dharma: is the ten valences within us. <font color="red">These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.</font><br>
+But despite all that, we do not know: we'll worship Dattātreya, and we will not follow Him.<br>
+This is the only problem we have. That: we have all the ideals, we have all the capacity to understand that this is something great, but we have no power to follow it. Because we are not Samartha, we are not equal to the meaning of a human being."<br>
+<font size="+0"><b>1984-1205 Public Program (English+Marathi), Day 2, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">So [that] the Ātmā, the Spirit, has to be found out, is said even by Muhammad Sāhab! He said, "You have to become the Pīr."</font><br>
+Is said by Zoroaster, is said by Lao Tze, is also said by Zen. Buddha has said it, Mahāvīra has said it, every one of Them have said it.<br>
+So many religions have started, in the name of God, without going to the Truth, that, "You have to be born-again." "<br>
+<font size="+0"><b>1984-0622 Public Program, The Experience of Truth, Part I, Polytechnic of the South Bank (now London South Bank University), 103 Borough Road, Newington, Southwark, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"So, when we seek also the Truth, we try to get to a new method all the time. And I think the evil[s] that came uh in forms of wrong type of gurus are the product of this kind of demand.<br>
+Only seventy to hundred years back, I should say, in India, suddenly a new wave of some new ideas about the knowledge of the roots started.<br>
+<font color="red">Some things that they talk of are not written in the Vedas, nor in the Purāṇas, nor in any books of uh uh ori-ental knowledge, nor in any books that are uh written after Christ, like the Bible, or Qur'ān after Muhammad Sāhab, and also uh the writings of Zoroaster. It has no relationship whatsoever to the ancient findings about the roots.</font><br>
+So, we had a problem about the religion in the same manner."<br>
+<font size="+0"><b>1985-0611 Public Program, Day 1, The Truth Has Two Sides, Geneva, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now when I'm talking to you about the mechanism that is built within us for our last breakthrough, you need not believe Me. <br>
+In our country also, this knowledge was kept a secret for thousands of years. Though we can say people like Mārkaṇḍeya, whose dates could be fourteen thousand [years ago], or later on, up to Ādi Śhaṅkarāchārya, people did write about the Kuṇḍalinī.<br>
+And at the time of Ādi Śhaṅkarāchārya, He very clearly talked about it. That was the tradition of evolution described in all these great Scriptures.<br>
+Even in the Bible, you find the Tree of Fire. It says: "I will appear before you as tongues of flames." <br>
+Even Muhammad Sāhab, who came much later, very clearly, very, very clearly, and elaborately, at length, talked about the Resurrection Day. He said: "At the Time of Resurrection, your hands will speak."<br>
+But everybody missed the point.<br>
+<font color="red">Zoroaster talked about it thousands of years back.</font> Confucius, Lao Tze, everyone talked about it: that, 'We have to be the Spirit.'<br>
+Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do you mean to say, I should enter into the womb of my mother?" "No," He said, "whatever is born of the flesh is the flesh. You are to be born of the Holy Ghost." "<br>
+<font size="+0"><b>1985-0703 Public Program, Day 1, Nederlands Congresgebouw (now World Forum), Churchillplein 10, The Hague, Netherlands</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Sahaja Yoga is your own religion. Within yourself you have a Kuṇḍalinī: you have this Power within yourself which is to be awakened. About which even Saint Thomas has said, about which Muhammad Sāheb has said, about which Zoroaster has said, about which Christ has said, about which of course, Śhrī Kṛiṣhṇa has said, in a way."</font><br>
+<font size="+0"><b>1988-0000 Public Program, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"For example, in the Arabic countries, Zoroaster took birth five times, and later many Ādi Gurus took birth, like Abraham, Moses, and last of all Śhrī Muhammad Sāhib also took birth there. Because it was very necessary, and that is why these Gurus took birth to accomplish some definite work."</font><br>
+<font size="+0"><b>1991-0101 New Year Pūjā (Hindi+English), Mukand Steel Factory, Kalwa, Thane, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Muslims, Hindus, Christians, we do not accept. For us, we are all Sahaja Yogis, and we have faith in all the religion[s]. Not a samabhāv [sympathy, like nature]! We have faith in everyone. <font color="red">As well as we worship Rāma, we worship Muhammad Sāhab also. Same way! No less! As we worship Brahmadeva, or as we worship, let's say, Dattātreya, we worship Zoroaster. There's no difference at all. Same way!</font><br>
+There's a big difference in having just the same ... uh-uh-uh, uh what you call, the same uh respect. Is not that! But we worship the same way.<br>
+So there's no question of differentiating each other, nor on countrywise, nothing."<br>
+<font size="+0"><b>1992-1230 Śhrī Mahālakṣhmī Pūjā (English+Marathi+Hindi+English), The Universal Love, Kalwa, Thane, Maharashtra, India</b></font>
+</p>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"So, I think Iran is a very old country of great culture.<br>
+And before it became Islamic, it had Zoroastrians living there, who had great philosophy also.<br>
+Then these Islamic people also took to Islam in a very serious way.<br>
+I don't know but, before Islam came, the people used to make art with human figures. And after that they started making things of this kind, where there were only flowers, or cubes, or geometrical drawings.<br>
+It happened that I went to Shiraz, and I went to Metropolis [Persepolis] also. Saw all the places: is full of Divine Vibrations. <font color="red">That means: there have been, even before Muhammad, five times Zoroaster came.<br>
+And then came Hazarat Muhammad, who did such a lot of work for all of us.</font>"<br>
+<font size="+0"><b>1993-1009 Iranian Public Program, 11301 Olympic Boulevard, Los Angeles, CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"In every religion there is some sort of a stupid stuff pushed forward, in every. Nobody could really stop it. Because those people who are in charge of religion have no enlightenment, they have nothing to k... do with it, anywhere.<br>
+And that's how, I have seen, people, say, in Japan, they follow one religion, and in uh-uh-uh China they follow another religion, both are just the same: one is Zen, another is Tao. But the misunderstanding is that they think, 'We are ex-xu-xu-xclusive [exclusive].' They are not! None of them are exclusive!.<br>
+<font color="red">Muhammad Sāhab described all of Them: from Abraham to Moses, to Christ, to the Mother of Christ. And He said, :There have been more than one lākh Nabīs on this Earth."</font><br>
+But now, why to feel that we are exclusive? This exclusiveness comes from where?<br>
+<font color="red">With Christ also, He described all of Them!</font><br>
+Ta-o, the one religion that they follow in China, is nothing but Sahaja Yoga: Ta-o is Kuṇḍalinī. Zen is nothing [laughing:] but Sahaja. Zoroaster, everyone.<br>
+But this exclusiveness has brought this problem, and they are fighting among each other."<br>
+<font size="+0"><b>1995-0321 Talk to Sahaja Yogis, Birthday Felicitations, Nizamuddin Scouts Grounds, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
 [<font color="orange">WARNING: Quotes for the period 1980-01 to 2007-07 will follow in due time.</font>]
 
 <div class="para-divider"></div>

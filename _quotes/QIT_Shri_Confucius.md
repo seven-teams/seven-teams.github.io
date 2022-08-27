@@ -70,6 +70,43 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <font size="+0"><b></b></font>
 </p>
 
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"And that is what is dharma: is the ten valences within us. <font color="red">These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.</font><br>
+But despite all that, we do not know: we'll worship Dattātreya, and we will not follow Him.<br>
+This is the only problem we have. That: we have all the ideals, we have all the capacity to understand that this is something great, but we have no power to follow it. Because we are not Samartha, we are not equal to the meaning of a human being."<br>
+<font size="+0"><b>1984-1205 Public Program (English+Marathi), Day 2, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now when I'm talking to you about the mechanism that is built within us for our last breakthrough, you need not believe Me. <br>
+In our country also, this knowledge was kept a secret for thousands of years. Though we can say people like Mārkaṇḍeya, whose dates could be fourteen thousand [years ago], or later on, up to Ādi Śhaṅkarāchārya, people did write about the Kuṇḍalinī.<br>
+And at the time of Ādi Śhaṅkarāchārya, He very clearly talked about it. That was the tradition of evolution described in all these great Scriptures.<br>
+Even in the Bible, you find the Tree of Fire. It says: "I will appear before you as tongues of flames." <br>
+Even Muhammad Sāhab, who came much later, very clearly, very, very clearly, and elaborately, at length, talked about the Resurrection Day. He said: "At the Time of Resurrection, your hands will speak."<br>
+But everybody missed the point.<br>
+Zoroaster talked about it thousands of years back. <font color="red">Confucius, Lao Tze, everyone talked about it: that, 'We have to be the Spirit.'</font><br>
+Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do you mean to say, I should enter into the womb of my mother?" "No," He said, "whatever is born of the flesh is the flesh. You are to be born of the Holy Ghost." "<br>
+<font size="+0"><b>1985-0703 Public Program, Day 1, Nederlands Congresgebouw (now World Forum), Churchillplein 10, The Hague, Netherlands</b></font>
+</p>
+
 [<font color="orange">WARNING: Quotes for the period 1983-03 to 1996-03 will follow in due time.</font>]
 
 <div class="para-divider"></div>

@@ -142,6 +142,7 @@ exclude:
   - package.json
   - tmp
   - vendor
+  - serve.log
 keep_files:
   - .git
   - .svn
@@ -173,9 +174,13 @@ feed:
     - compilation
     - quotes
     - scriptures
-    # - chronology
     - yearly
     - divine
+    - photos
+    - archives
+    - events
+    - news
+    - chronology
   disable_in_development: false
 
 # Collections
@@ -204,13 +209,25 @@ collections:
   scriptures:
     output: true
     permalink: /:collection/:path
-  chronology:
-    output: true
-    permalink: /:collection/:path
   yearly:
     output: true
     permalink: /:collection/:path
   divine:
+    output: true
+    permalink: /:collection/:path
+  photos:
+    output: true
+    permalink: /:collection/:path   
+  archives:
+    output: true
+    permalink: /:collection/:path  
+  events:
+    output: true
+    permalink: /:collection/:path  
+  news:
+    output: true
+    permalink: /:collection/:path
+  chronology:
     output: true
     permalink: /:collection/:path
 
@@ -233,17 +250,6 @@ defaults:
       type: scriptures
     values:
       layout: scripturespost
-      author_profile: true
-      read_time: true
-      comments: true
-      share: true
-      related: true
-  # _chronology
-  - scope:
-      path: ""
-      type: chronology
-    values:
-      layout: chronologypost
       author_profile: true
       read_time: true
       comments: true
@@ -293,6 +299,61 @@ defaults:
       comments: true
       share: true
       related: true
+  # _events
+  - scope:
+      path: ""
+      type: events
+    values:
+      layout: eventspost
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true
+  # _news
+  - scope:
+      path: ""
+      type: news
+    values:
+      layout: newspost
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true
+  # _archives
+  - scope:
+      path: ""
+      type: archives
+    values:
+      layout: archivespost
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true
+  # _photos
+  - scope:
+      path: ""
+      type: photos
+    values:
+      layout: photospost
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true   
+  # _chronology
+  - scope:
+      path: ""
+      type: chronology
+    values:
+      layout: chronologypost
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true     
   # _posts
   - scope:
       path: ""
@@ -390,9 +451,13 @@ tag_festivity: "/tag-festivity/"
 tag_compilation: "/tag-compilation/"
 tag_quotes: "/tag-quotes/"
 tag_scriptures: "/tag-scriptures/"
-tag_chronology: "/tag-chronology/"
 tag_yearly: "/tag-yearly/"
 tag_divine: "/tag-divine/"
+tag_photos: "/tag-photos/"
+tag_archives: "/tag-archives/"
+tag_events: "/tag-events/"
+tag_news: "/tag-news/"
+tag_chronology: "/tag-chronology/"
 
 #tag_archive:
 #  type: liquid

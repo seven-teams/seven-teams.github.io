@@ -396,6 +396,21 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <font size="+0"><b>1981-0402 Public Program, Day 1, The Pure Power of Desire or Aim of Seeking, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
+<div class="para-divider"></div>
+
+<p>
+"And that is what is dharma: is the ten valences within us. <font color="red">These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.</font><br>
+But despite all that, we do not know: we'll worship Dattātreya, and we will not follow Him.<br>
+This is the only problem we have. That: we have all the ideals, we have all the capacity to understand that this is something great, but we have no power to follow it. Because we are not Samartha, we are not equal to the meaning of a human being."<br>
+<font size="+0"><b>1984-1205 Public Program (English+Marathi), Day 2, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
 
 [<font color="orange">WARNING: Quotes for the period 1980-06 to 2002-07 will follow in due time.</font>]
 
