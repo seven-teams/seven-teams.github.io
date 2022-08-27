@@ -17,7 +17,7 @@ tags:
 </p>
 
 <p>
-"But a this shows that we should understand Sahaja Yoga, that unless and until we are quiet, unless and until we are in thoughtless awareness, we cannot grow. So, all these extreme behaviors cannot take you to the center.<br>
+"But ah this shows that we should understand Sahaja Yoga, that unless and until we are quiet, unless and until we are in thoughtless awareness, we cannot grow. So, all these extreme behaviors cannot take you to the center.<br>
 ......<br>
 But, you see, marriage is a uh-uh-uh thing for Indians, is that is uh-uh, just like having a baby in the house, you see, just like that. It's a part and parcel. So, they never think that, 'All right, my wife has come, she's short or she's uh fair or dark,' nothing, 'Now she's my wife.' Like your child. Like your child comes in, that's it. So, the ... this is what it is a marriage: this is a wife who has come, the husband is there. Husband is supposed to be a husband, wife is supposed to be a wife, finished. That's a part of the family, we all live together. And the-uh husband is supposed to protect the wife, and the wife is supposed to look after the husband and all the family people and everyone.<br>
 ......<br>
