@@ -4,7 +4,7 @@ date: 2022-05-05
 permalink: /photos/2022/0505
 tags:
   - crimson @ Photographs of Shri Mataji
-  - maroon @ Updates
+  - green @ Updates
 ---
 
 Dear Sahaja Yogis and Sahaja Yoginīs,
