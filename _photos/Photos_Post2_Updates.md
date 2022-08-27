@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 2: Updates'
 date: 2021-09-26
-permalink: /compilation/2021/0926
+permalink: /photos/2021/0926
 tags:
   - crimson @ Photographs of Shri Mataji
 ---

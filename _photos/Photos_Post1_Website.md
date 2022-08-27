@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 1: Website'
 date: 2021-05-02
-permalink: /compilation/2021/0502
+permalink: /photos/2021/0502
 tags:
   - crimson @ Photographs of Shri Mataji
 ---

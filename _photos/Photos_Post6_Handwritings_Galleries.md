@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 6: Handwritings Galleries'
 date: 2022-07-24
-permalink: /compilation/2022/0724
+permalink: /photos/2022/0724
 tags:
   - crimson @ Photographs of Shri Mataji
 ---

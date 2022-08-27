@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 5: Search Feature'
 date: 2022-05-05
-permalink: /compilation/2022/0505
+permalink: /photos/2022/0505
 tags:
   - crimson @ Photographs of Shri Mataji
 ---
