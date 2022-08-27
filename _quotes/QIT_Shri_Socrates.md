@@ -184,6 +184,27 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <font size="+0"><b>1981-0402 Public Program, Day 1, The Pure Power of Desire or Aim of Seeking, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red"><b>Śhrī Mātājī:</b></font> Is not only that, I'm saying on the whole, a shee ... worship is a tradition which has come to us from great Seers and ancient Sages. <font color="red">Anybody, even, say, Moses, you can say Socrates, you can say Dattātreya, or Mārkaṇḍeya, or any one of these people, have found out the ways and methods how to tune our instruments to the Divine to achieve the maximum joy.</font><br>
+'How to please the Deities,'' that's the main point is, how to please the Deities. But it's a crude word pleases, but how to ... [laughing:] I don't know what should I say, innovation they say, or what do you call that? How to spark them, ...<br>
+<b>Sahaja Yogi:</b> Invoke.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> ... invoke, invoke them. Invoke them: that they give you complete blessings.<br>
+And the trick of the trade one has to learn, one has to educate. There's nothing wrong in getting educated.<br>
+So we know that we have to educate ourself, first point, and secondly, we have to know, that for that, we have to be humble. The humility should be such: that, 'I have to learn. I have to learn. I have to educate. Nothing ... nothing wrong in it.'<br>
+<font size="+0"><b>1982-0321 Birthday Pūjā, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
 [<font color="orange">WARNING: Quotes for the period 1980-04 to 2001-12 will follow in due time.</font>]
 
 <div class="para-divider"></div>
