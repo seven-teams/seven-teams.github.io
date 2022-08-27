@@ -4,7 +4,7 @@ date: 2022-07-24
 permalink: /photos/2022/0724
 tags:
   - crimson @ Photographs of Shri Mataji
-  - maroon @ Updates
+  - green @ Updates
 ---
 
 <p>
