@@ -37,8 +37,7 @@ Links to suggested talk: <a href="https://vimeo.com/228445564"> vimeo</a>, <a hr
 
 <p>
 <b>Objectives:</b><br>
-.<br>
-.<br>
+9. To create a new generation of self-realized people and to render motherly protection to all such children against evil intentions and to look after their well-being.
 </p>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
