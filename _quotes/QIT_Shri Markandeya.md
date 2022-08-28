@@ -235,7 +235,7 @@ He's clearly said it. He never believed in any such secular uh-uh-uh sort of ide
 
 <p>
 "One has to know that the powers are tremendous. <font color="red">You cannot conceive it, as it is said by Mārkaṇḍeya. You cannot conceive it.</font> Is beyond your conception. Outwardly, you cannot understand. You just cannot understand.<br>
-Under such circumstances, the best thing is: to surrender yourself.>br>
+Under such circumstances, the best thing is: to surrender yourself.<br>
 Now, in surrendering, what do you surrender? What do you surrender? Is your ego and your superego."<br>
 <font size="+0"><b>1980-1019 Havan, Navarātri Celebrations (Dussehra Day), To Solve All Your Problems Is to Surrender, Temple of All Faiths, Hampstead, London, UK</b></font>
 </p>
@@ -386,7 +386,7 @@ So we know that we have to educate ourself, first point, and secondly, we have t
 "<font color="red">I think Gavin will read it out to you later on about what is written about Christ in Devī Māhātmyam [Bhāgavatam]. This was ... this book was written about fourteen thousand years back by Mārkaṇḍeya. So imagine, fourteen thousand years back! He knew, being a Seer, just like Blake, what was going to happen when Christ was to come. But He was called as Mahāviṣhṇu. He was not Viṣhṇu, He was the Son of Viṣhṇu.</font><br>
 And, how many Christians understand this, about Easter? They don't! They, it's ... Christianity today is nothing but a mental activity, that's all, which is dead, nonsense it is. Just like any other nonsensical religion, it has become another foolish, stupid religion, which has no meaning.<br>
 Unless and until you get your Realization, unless and until you feel the vibrations, unless and until you feel this Divine surrounding Power, how will you understand? Because that's the only thing that is Truth, that's the only thing that is Reality. And unless and until you achieve it, how will you know about Christ?<br>
-And fighting about Him! How can you fight? I can't understand really. To Me, it's stupidity gone to another extreme."</font><br>
+And fighting about Him! How can you fight? I can't understand really. To Me, it's stupidity gone to another extreme."<br>
 <font size="+0"><b>1982-0411 Easter Pūjā, How Christ Was Created, Resurrection of Christ, and Collective Resurrection (Mahāviṣhṇu State, Easter Is the Most Important Happening, You are a Collective Being and Collectivity Is the Nature of a Sahaja Yogi), Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>
 
@@ -477,7 +477,7 @@ All of Them have said the same thing."<br>
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">We had a Saint called Mārkaṇḍeya, who they say lived fourteen thousand years ago. He has written about this fourth dimension and has described it as the blessing of the Primordial Mother.</font> The second person who was very well equipped with this knowledge, was Ādi Śhaṅkarāchārya who has written many books. The first book he wrote was Vivekachūḍāmaṇi, in which he describes this fourth dimension and explains why we should try to attain this fourth dimension. An intellectual, one Mister Sharma, challenged him and told him that he could not do anything as an ascetic and win over my intellect. Thus he felt that for the common people all this discussion might just seem to be mental acrobatics. So he decided to write books just praising the Primordial Mother, especially in Saundaryalaharī, where he described all the Divine Vibrations as the vibrations of the loving beauty of the Primordial Mother. At that time all this was written in the Sanskrit language but the common people did not understand this language, except for a very few learned people, who also did not want to go into the details of this exposition."</font><br>
+"<font color="red">We had a Saint called Mārkaṇḍeya, who they say lived fourteen thousand years ago. He has written about this fourth dimension and has described it as the blessing of the Primordial Mother.</font> The second person who was very well equipped with this knowledge, was Ādi Śhaṅkarāchārya who has written many books. The first book he wrote was Vivekachūḍāmaṇi, in which he describes this fourth dimension and explains why we should try to attain this fourth dimension. An intellectual, one Mister Sharma, challenged him and told him that he could not do anything as an ascetic and win over my intellect. Thus he felt that for the common people all this discussion might just seem to be mental acrobatics. So he decided to write books just praising the Primordial Mother, especially in Saundaryalaharī, where he described all the Divine Vibrations as the vibrations of the loving beauty of the Primordial Mother. At that time all this was written in the Sanskrit language but the common people did not understand this language, except for a very few learned people, who also did not want to go into the details of this exposition."<br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 9: Evolution</b></font>
 </p>
 
