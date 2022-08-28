@@ -235,7 +235,7 @@ He's clearly said it. He never believed in any such secular uh-uh-uh sort of ide
 
 <p>
 "One has to know that the powers are tremendous. <font color="red">You cannot conceive it, as it is said by Mārkaṇḍeya. You cannot conceive it.</font> Is beyond your conception. Outwardly, you cannot understand. You just cannot understand.<br>
-Under such circumstances, the best thing is: to surrender yourself.>br>
+Under such circumstances, the best thing is: to surrender yourself.<br>
 Now, in surrendering, what do you surrender? What do you surrender? Is your ego and your superego."<br>
 <font size="+0"><b>1980-1019 Havan, Navarātri Celebrations (Dussehra Day), To Solve All Your Problems Is to Surrender, Temple of All Faiths, Hampstead, London, UK</b></font>
 </p>
@@ -354,8 +354,72 @@ This was absurd! And that's why them ...  people were waiting and waiting for th
 You are specially blessed, because such a great poet was born in this country.<br>
 And, wherever I go, in My series of lectures, at least in one lecture I always mention Him.<br>
 <font color="red">He has gone into great details, just like Mārkaṇḍeya, another great poet in India, who was born thousands of years back.</font><br>
-But to realize that, `This country is the heart of the Universe, and here the Jerusalem is going to be'!"<br>
+But to realize that, 'This country is the heart of the Universe, and here the Jerusalem is going to be'!"<br>
 <font size="+0"><b>1981-1128 Public Program, You Are the Spirit, Friends Meeting House, 120 Heath Street, Hampstead, London NW3 1DR, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"I told you yesterday how, in the ancient times, also this knowledge of Kuṇḍalinī was known to us. This knowledge was known to us that India ... because India is the country where we are supposed to look after the roots of the Creation. We have to look after the roots.<br>
+While others have the tree, the flowers, and the fruits, in India the roots grew up unknown to common masses. These roots reached that stage where Kuṇḍalinī became a knowledge of very, very few people, actually extremely few I should say.<br>
+And this knowledge was not revealed for many days till, I would say, Ādi Śhaṅkarāchārya Himself started talking about it. <font color="red">Though Mārkaṇḍeya has described Kuṇḍalinī, the different powers of the Mother, but it was Ādi Śhaṅkarāchārya who came to this Earth and He is the one who talked of Kuṇḍalinī openly.</font><br>
+The reason was: before this, it was kept secret, and part of it was revealed and people used to doubt. Or if it was to be revealed, whom to reveal it? Because there were very peop... few people who were incapable [capable] of knowing about it."<br>
+<font size="+0"><b>1982-0222 Public Program (English+Hindi) (Śhivarātri Day), Day 5, Lord Śhiva, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red"><b>Śhrī Mātājī:</b></font> Is not only that, I'm saying on the whole, a shee ... worship is a tradition which has come to us from great Seers and ancient Sages. <font color="red">Anybody, even, say, Moses, you can say Socrates, you can say Dattātreya, or Mārkaṇḍeya, or any one of these people, have found out the ways and methods how to tune our instruments to the Divine to achieve the maximum joy.</font><br>
+'How to please the Deities,'' that's the main point is, how to please the Deities. But it's a crude word pleases, but how to ... [laughing:] I don't know what should I say, innovation they say, or what do you call that? How to spark them, ...<br>
+<b>Sahaja Yogi:</b> Invoke.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> ... invoke, invoke them. Invoke them: that they give you complete blessings.<br>
+And the trick of the trade one has to learn, one has to educate. There's nothing wrong in getting educated.<br>
+So we know that we have to educate ourself, first point, and secondly, we have to know, that for that, we have to be humble. The humility should be such: that, 'I have to learn. I have to learn. I have to educate. Nothing ... nothing wrong in it.'<br>
+<font size="+0"><b>1982-0321 Birthday Pūjā, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">I think Gavin will read it out to you later on about what is written about Christ in Devī Māhātmyam [Bhāgavatam]. This was ... this book was written about fourteen thousand years back by Mārkaṇḍeya. So imagine, fourteen thousand years back! He knew, being a Seer, just like Blake, what was going to happen when Christ was to come. But He was called as Mahāviṣhṇu. He was not Viṣhṇu, He was the Son of Viṣhṇu.</font><br>
+And, how many Christians understand this, about Easter? They don't! They, it's ... Christianity today is nothing but a mental activity, that's all, which is dead, nonsense it is. Just like any other nonsensical religion, it has become another foolish, stupid religion, which has no meaning.<br>
+Unless and until you get your Realization, unless and until you feel the vibrations, unless and until you feel this Divine surrounding Power, how will you understand? Because that's the only thing that is Truth, that's the only thing that is Reality. And unless and until you achieve it, how will you know about Christ?<br>
+And fighting about Him! How can you fight? I can't understand really. To Me, it's stupidity gone to another extreme."<br>
+<font size="+0"><b>1982-0411 Easter Pūjā, How Christ Was Created, Resurrection of Christ, and Collective Resurrection (Mahāviṣhṇu State, Easter Is the Most Important Happening, You are a Collective Being and Collectivity Is the Nature of a Sahaja Yogi), Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Blake has described all Sahaja Yoga in such details to comprehend. He said: that, "God of men will be born in those days, and they will have power ... they .... they will become Prophets, and they will have power to make others Prophets." But He even described where I stayed. For He said that, the first we're going to live in Surrey Hills where I lived. Then Ge says that, "Foundation will be laid in London," where we laid the foundation of our Āśhram. Then He described the house that I now have, which uh will be decorated by the Sahaja Yogis. He's describing the house near the Kensington Garden, near Talburn. That's what My house is there now. And these boys are painting it with gold, the ceiling. For the golden builders will be doing that. With such detailed, you know! Such details []. And have ... a sinuous will vibrate this. Sinuous are the ... nerves, will vibrate that land.<br>
+Is so beautifully He has done. <font color="red">I don't know how He could see, like Mārkaṇḍeya. He's a Seer of that point.</font>"<br>
+<font size="+0"><b>1982-0426 Conversation with Sahaja Yogis, Apartment of Ruth Lederberger, Via Giuseppe Mercalli, 46, Rome, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">We had three persons, very main persons in India, like Mārkaṇḍeya, Ādi Śhaṅkarāchārya, and, we can say, all the other Incarnations which came on this Earth, who were in India, who have clearly said what is Self-realization, very clearly.</font> But specially, we have to be very grateful to Ādi Śhaṅkarāchārya who has written books after books on this."<br>
+<font size="+0"><b>1982-0504 Public Program, Day 2, Salle, Maison de la Mutualité, 24 Rue Saint-Victor, 5th Arrondissement, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red"><b>Śhrī Mātājī:</b></font> I think we'd better not tra... translate it, better not. It is more about the breast of the Mother. Because the children are worried about the breast, so it's described here. So is better not to translate.<br>
+<b>Dr. Rustom Burjorjee:</b> [<font color="orange">unclear</font>] ...<br>
+"Salul..."<br>
+I'll translate it then.<br>
+"Sal..."<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> [Overlapping:] No-no-no, is better not.<br>
+<b>Dr. Rustom Burjorjee:</b> Nice, OK.<br>
+[Reads in Sanskrit.]<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You see, this is written by, per people like Mārkaṇḍeya. And they ... they described Mother in and out. I don't know how they found the Mother like that, you see, because they are children, you see.</font> 
+<b>Dr. Rustom Burjorjee:</b> They were the highest children.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You see, so they were the children, so the children know everything about the Mother in and out, see? So He described the whole body.</font><br>
+<font size="+0"><b>1982-0515 Śhrī Lalitā Pūjā, Understand Your Own Importance, House of Gillian Grimshaw, 11 Vallance Road, Hove (next, W of Brighton), UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -381,7 +445,7 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 
 <div class="para-divider"></div>
 
-[<font color="orange">WARNING: Quotes for the period 1982-02 to 2000-04 will follow in due time.</font>] 
+[<font color="orange">WARNING: Quotes for the period 1982-0823 to 2000-04 will follow in due time.</font>] 
 
 <div class="para-divider"></div>
 
@@ -413,7 +477,7 @@ All of Them have said the same thing."<br>
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">We had a Saint called Mārkaṇḍeya, who they say lived fourteen thousand years ago. He has written about this fourth dimension and has described it as the blessing of the Primordial Mother.</font> The second person who was very well equipped with this knowledge, was Ādi Śhaṅkarāchārya who has written many books. The first book he wrote was Vivekachūḍāmaṇi, in which he describes this fourth dimension and explains why we should try to attain this fourth dimension. An intellectual, one Mister Sharma, challenged him and told him that he could not do anything as an ascetic and win over my intellect. Thus he felt that for the common people all this discussion might just seem to be mental acrobatics. So he decided to write books just praising the Primordial Mother, especially in Saundaryalaharī, where he described all the Divine Vibrations as the vibrations of the loving beauty of the Primordial Mother. At that time all this was written in the Sanskrit language but the common people did not understand this language, except for a very few learned people, who also did not want to go into the details of this exposition."</font><br>
+"<font color="red">We had a Saint called Mārkaṇḍeya, who they say lived fourteen thousand years ago. He has written about this fourth dimension and has described it as the blessing of the Primordial Mother.</font> The second person who was very well equipped with this knowledge, was Ādi Śhaṅkarāchārya who has written many books. The first book he wrote was Vivekachūḍāmaṇi, in which he describes this fourth dimension and explains why we should try to attain this fourth dimension. An intellectual, one Mister Sharma, challenged him and told him that he could not do anything as an ascetic and win over my intellect. Thus he felt that for the common people all this discussion might just seem to be mental acrobatics. So he decided to write books just praising the Primordial Mother, especially in Saundaryalaharī, where he described all the Divine Vibrations as the vibrations of the loving beauty of the Primordial Mother. At that time all this was written in the Sanskrit language but the common people did not understand this language, except for a very few learned people, who also did not want to go into the details of this exposition."<br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 9: Evolution</b></font>
 </p>
 
