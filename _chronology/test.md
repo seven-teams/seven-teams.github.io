@@ -6,4 +6,4 @@ tags:
   - red @ Test
 ---
 
-<div style="text-align: left"><img src="/images/image1.png" width="250" /> <\div> <div style="text-align: right"> <img src="/images/image1.png" width="250" /></div><br>
+<div style="text-align: left"><img src="/images/image1.png" width="250" /> <img src="/images/image1.png" width="250" /></div><br>
