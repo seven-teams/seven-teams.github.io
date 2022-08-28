@@ -1,1 +1,88 @@
-<?xml version="1.0" encoding="utf-8"?><feed xmlns="http://www.w3.org/2005/Atom" ><generator uri="https://jekyllrb.com/" version="3.9.2">Jekyll</generator><link href="https://seven-teams.github.io/feed/archives.xml" rel="self" type="application/atom+xml" /><link href="https://seven-teams.github.io/" rel="alternate" type="text/html" /><updated>2022-08-27T21:06:44-04:00</updated><id>https://seven-teams.github.io/feed/archives.xml</id><title type="html">Divine Treasures | Archives</title><subtitle>personal description</subtitle><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><entry><title type="html">Archive Post 2</title><link href="https://seven-teams.github.io/archives/2022/08/26" rel="alternate" type="text/html" title="Archive Post 2" /><published>2022-08-26T00:00:00-04:00</published><updated>2022-08-26T00:00:00-04:00</updated><id>https://seven-teams.github.io/archives/2022/08/test</id><content type="html" xml:base="https://seven-teams.github.io/archives/2022/08/26"><![CDATA[<p>Test</p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="red @ archive" /><summary type="html"><![CDATA[Test]]></summary></entry></feed>
+<?xml version="1.0" encoding="utf-8"?><feed xmlns="http://www.w3.org/2005/Atom" ><generator uri="https://jekyllrb.com/" version="3.9.2">Jekyll</generator><link href="https://seven-teams.github.io/feed/archives.xml" rel="self" type="application/atom+xml" /><link href="https://seven-teams.github.io/" rel="alternate" type="text/html" /><updated>2022-08-27T21:24:32-04:00</updated><id>https://seven-teams.github.io/feed/archives.xml</id><title type="html">Divine Treasures | Archives</title><subtitle>personal description</subtitle><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><entry><title type="html">Archive Post 2</title><link href="https://seven-teams.github.io/archives/2022/08/26" rel="alternate" type="text/html" title="Archive Post 2" /><published>2022-08-26T00:00:00-04:00</published><updated>2022-08-26T00:00:00-04:00</updated><id>https://seven-teams.github.io/archives/2022/08/test</id><content type="html" xml:base="https://seven-teams.github.io/archives/2022/08/26"><![CDATA[<p>Test</p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="red @ archive" /><summary type="html"><![CDATA[Test]]></summary></entry><entry><title type="html">Archive Post 47792789</title><link href="https://seven-teams.github.io/archives/wave_post.html" rel="alternate" type="text/html" title="Archive Post 47792789" /><published>0000-12-31T23:59:56-04:56</published><updated>0000-12-31T23:59:56-04:56</updated><id>https://seven-teams.github.io/archives/wave%20post</id><content type="html" xml:base="https://seven-teams.github.io/archives/wave_post.html"><![CDATA[<h1 id="usage">Usage</h1>
+
+<h2 id="basic-colors">Basic Colors</h2>
+
+<blockquote>
+  <p>Use any valid CSS color name</p>
+</blockquote>
+
+<div class="language-html highlighter-rouge"><div class="highlight"><pre class="highlight"><code><span class="nt">&lt;div</span> <span class="na">class=</span><span class="s">"wave-list"</span><span class="nt">&gt;</span>
+  <span class="nt">&lt;div</span> <span class="na">class=</span><span class="s">"title"</span><span class="nt">&gt;</span>
+    <span class="nt">&lt;div</span> <span class="na">class=</span><span class="s">"text"</span> <span class="na">data-color-</span><span class="err">[</span><span class="na">TITLE</span> <span class="na">COLOR</span><span class="err">]</span><span class="nt">&gt;</span>[TITLE TEXT]<span class="nt">&lt;/div&gt;</span>
+  <span class="nt">&lt;/div&gt;</span>
+  <span class="nt">&lt;ul</span> <span class="na">class=</span><span class="s">"list"</span><span class="nt">&gt;</span>
+    <span class="nt">&lt;li</span> <span class="na">class=</span><span class="s">"item"</span> <span class="na">data-color-</span><span class="err">[</span><span class="na">ITEM</span> <span class="na">COLOR</span><span class="err">]</span><span class="nt">&gt;</span>[ITEM TEXT]<span class="nt">&lt;/li&gt;</span>
+    <span class="nt">&lt;li</span> <span class="na">class=</span><span class="s">"item"</span> <span class="na">data-color-</span><span class="err">[</span><span class="na">ITEM</span> <span class="na">COLOR</span><span class="err">]</span><span class="nt">&gt;</span>[ITEM TEXT]<span class="nt">&lt;/li&gt;</span>
+    <span class="nt">&lt;li</span> <span class="na">class=</span><span class="s">"item"</span> <span class="na">data-color-</span><span class="err">[</span><span class="na">ITEM</span> <span class="na">COLOR</span><span class="err">]</span><span class="nt">&gt;</span>[ITEM TEXT]<span class="nt">&lt;/li&gt;</span>
+  <span class="nt">&lt;/ul&gt;</span>
+<span class="nt">&lt;/div&gt;</span>
+</code></pre></div></div>
+
+<div class="wave-list">
+  <div class="title">
+    <div class="text" data-color-red="">[TITLE TEXT]</div>
+  </div>
+  <ul class="list">
+    <li class="item" data-color-green="">[ITEM TEXT]</li>
+    <li class="item" data-color-orange="">[ITEM TEXT]</li>
+    <li class="item" data-color-purple="">[ITEM TEXT]</li>
+  </ul>
+</div>
+
+<h2 id="precise-colors">Precise Colors</h2>
+
+<blockquote>
+  <p>Use any CSS valid color specifier</p>
+</blockquote>
+
+<div class="language-html highlighter-rouge"><div class="highlight"><pre class="highlight"><code><span class="nt">&lt;div</span> <span class="na">class=</span><span class="s">"wave-list"</span><span class="nt">&gt;</span>
+  <span class="nt">&lt;div</span> <span class="na">class=</span><span class="s">"title"</span><span class="nt">&gt;</span>
+    <span class="nt">&lt;div</span> <span class="na">class=</span><span class="s">"text"</span> <span class="na">style=</span><span class="s">"--color: [TITLE COLOR]"</span><span class="nt">&gt;</span>[TITLE TEXT]<span class="nt">&lt;/div&gt;</span>
+  <span class="nt">&lt;/div&gt;</span>
+  <span class="nt">&lt;ul</span> <span class="na">class=</span><span class="s">"list"</span><span class="nt">&gt;</span>
+    <span class="nt">&lt;li</span> <span class="na">class=</span><span class="s">"item"</span> <span class="na">style=</span><span class="s">"--color: [ITEM COLOR]"</span><span class="nt">&gt;</span>[ITEM TEXT]<span class="nt">&lt;/li&gt;</span>
+    <span class="nt">&lt;li</span> <span class="na">class=</span><span class="s">"item"</span> <span class="na">style=</span><span class="s">"--color: [ITEM COLOR]"</span><span class="nt">&gt;</span>[ITEM TEXT]<span class="nt">&lt;/li&gt;</span>
+    <span class="nt">&lt;li</span> <span class="na">class=</span><span class="s">"item"</span> <span class="na">style=</span><span class="s">"--color: [ITEM COLOR]"</span><span class="nt">&gt;</span>[ITEM TEXT]<span class="nt">&lt;/li&gt;</span>
+  <span class="nt">&lt;/ul&gt;</span>
+<span class="nt">&lt;/div&gt;</span>
+</code></pre></div></div>
+
+<div class="wave-list">
+  <div class="title">
+    <div class="text" style="--color: red">[TITLE TEXT]</div>
+  </div>
+  <ul class="list">
+    <li class="item" style="--color: green">[ITEM TEXT]</li>
+    <li class="item" style="--color: orange">[ITEM TEXT]</li>
+    <li class="item" style="--color: purple">[ITEM TEXT]</li>
+  </ul>
+</div>
+
+<h2 id="block-width">Block width</h2>
+
+<blockquote>
+  <p>Default is 80% of container</p>
+</blockquote>
+
+<div class="language-html highlighter-rouge"><div class="highlight"><pre class="highlight"><code><span class="nt">&lt;div</span> <span class="na">class=</span><span class="s">"wave-list"</span> <span class="na">style=</span><span class="s">"--width: 40%"</span><span class="nt">&gt;</span>
+  <span class="nt">&lt;div</span> <span class="na">class=</span><span class="s">"title"</span><span class="nt">&gt;</span>
+    <span class="nt">&lt;div</span> <span class="na">class=</span><span class="s">"text"</span> <span class="na">style=</span><span class="s">"--color: [TITLE COLOR]"</span><span class="nt">&gt;</span>[TITLE TEXT]<span class="nt">&lt;/div&gt;</span>
+  <span class="nt">&lt;/div&gt;</span>
+  <span class="nt">&lt;ul</span> <span class="na">class=</span><span class="s">"list"</span><span class="nt">&gt;</span>
+    <span class="nt">&lt;li</span> <span class="na">class=</span><span class="s">"item"</span> <span class="na">style=</span><span class="s">"--color: [ITEM COLOR]"</span><span class="nt">&gt;</span>[ITEM TEXT]<span class="nt">&lt;/li&gt;</span>
+    <span class="nt">&lt;li</span> <span class="na">class=</span><span class="s">"item"</span> <span class="na">style=</span><span class="s">"--color: [ITEM COLOR]"</span><span class="nt">&gt;</span>[ITEM TEXT]<span class="nt">&lt;/li&gt;</span>
+    <span class="nt">&lt;li</span> <span class="na">class=</span><span class="s">"item"</span> <span class="na">style=</span><span class="s">"--color: [ITEM COLOR]"</span><span class="nt">&gt;</span>[ITEM TEXT]<span class="nt">&lt;/li&gt;</span>
+  <span class="nt">&lt;/ul&gt;</span>
+<span class="nt">&lt;/div&gt;</span>
+</code></pre></div></div>
+
+<div class="wave-list">
+  <div class="title">
+    <div class="text" style="--color: red">[TITLE TEXT]</div>
+  </div>
+  <ul class="list">
+    <li class="item" style="--color: green">[ITEM TEXT]</li>
+    <li class="item" style="--color: orange">[ITEM TEXT]</li>
+    <li class="item" style="--color: purple">[ITEM TEXT]</li>
+  </ul>
+</div>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><summary type="html"><![CDATA[Usage]]></summary></entry></feed>
