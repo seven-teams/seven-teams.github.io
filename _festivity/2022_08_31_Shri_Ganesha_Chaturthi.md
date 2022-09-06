@@ -112,7 +112,7 @@ You are the source of security.</b></font><br>
 </p>
 
 <p>
-<font color="DarkRed">" Now here I would like to say that it is Śhrī Gaṇeśha who is the Auṃkāra, who is the vibrations. So He is the Truth. What He says is the Truth. So what vibrations say is the truth. He’s Truth. So Auṃkāra is vibrations, that is Śhrī Gaṇeśh."</font><br>
+<font color="DarkRed">"Now here I would like to say that it is Śhrī Gaṇeśha who is the Auṃkāra, who is the vibrations. So He is the Truth. What He says is the Truth. So what vibrations say is the truth. He’s Truth. So Auṃkāra is vibrations, that is Śhrī Gaṇeśh."</font><br>
 <font size="+0"><b>1986-0907 Śhrī Gaṇeśha Pūjā, Establishing Śhrī Gaṇeśha Principle, Holmes Lodge, YMCA Camp Marston, 4761 Pine Hills Road, Julian (near San Diego), CA, U.S.A.</b></font>
 </p>
 
