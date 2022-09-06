@@ -12,7 +12,7 @@ tags:
 
 <p>
 <font color="DarkRed">"<b>Today we have gathered here on the right occasion and very auspicious day to worship Śhrī Gaṇeśha.</b><br>
-Śhrī Gaṇeśha is the first Deity that was created so that the whole Universe is filled with auspiciousness, with peace, bliss, and spirituality. He is the Source. He’s the Source of Spirituality. As a result of that, all other things follow. Like when it rains and is windy you feel a coolness in the atmosphere. In the same way when Śhrī Gaṇeśha emits His Power we feel all these three things within and without"</font><br>
+Śhrī Gaṇeśha is the first Deity that was created so that the whole Universe is filled with auspiciousness, with peace, bliss, and spirituality. He is the Source. He’s the Source of Spirituality. As a result of that, all other things follow. Like when it rains and is windy you feel a coolness in the atmosphere. In the same way when Śhrī Gaṇeśha emits His Power we feel all these three things within and without."</font><br>
 <font size="+0"><b>1985-0804 Śhrī Gaṇeśha Pūjā, The Importance of Chastity, Brighton Friends Meeting House, Ship Street, Brighton, East Sussex, UK</b></font>
 </p>
 
@@ -37,10 +37,12 @@ tags:
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
+<p>
 <font color="DarkRed">"Because Chaturthī is the day He is established, Gaṇeśha is established on this Chaturthī ......"</font><br>
 <font size="+0"><b>1982-0822 Śhrī Gaṇeśha Pūjā, House of Charles and Magda Mathys, Chemin des Moulins-de-Drize 5, Troinex (6 kms S of Geneva), Switzerland</b></font>
 </p>
 
+<p>
 <font color="DarkRed">"<b>Today you have called Me here, to worship Śhrī Gaṇeśha, within Me. Śhrī Gaṇeśha within Me is a powerful identity.</b><br>
 While worshiping Him you have to know that such a powerful thing you have to establish within yourself and by that establishment you have to manifest the Powers of Śhrī Gaṇeśha and the Power of Śhrī Gaṇeśha’s greatness is auspiciousness. It’s a coefficience; it’s a formula, we can say in scientific language, that emits auspiciousness. It’s a magnet in the Mother Earth. The same magnet is within you, which is Śhrī Gaṇeśha."</font><br>
 <font size="+0"><b>1986-0907 Śhrī Gaṇeśha Pūjā, Establishing Śhrī Gaṇeśha Principle, Holmes Lodge, YMCA Camp Marston, 4761 Pine Hills Road, Julian (near San Diego), CA, U.S.A.</b></font>
