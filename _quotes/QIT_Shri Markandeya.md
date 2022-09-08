@@ -425,8 +425,254 @@ I'll translate it then.<br>
 <div class="para-divider"></div>
 
 <p>
+"Christ exists within ourselves in a very small point there on the optic chiasma, in a very subtle point called in Sanskrit language as Āgñyā chakra. <br>
+......<br>
+<font color="red">Now, if it comes from Sanskrit it doesn't mean it is Indian because they knew about Christ fourteen thousand years before you could know. Mai ... Mārkaṇḍeya, who existed fourteen thousand years uh-uh-uh before the ... uh before Christ, you can say, or maybe twelve thousand years before Christ, has written a book called Devī Māhātmyam: is the ... is the importance, the holy importance of the Goddess, in which He has described Christ very clearly. He is called as Mahāviṣhṇu. All His uh formation, how He was formed, and how the Immal.. Immaculate Conception took place, all these details are there. Is described, most of His life, the details about it even up to the point that He will be the support of the whole Universe.</font><br>
+But the people who went from here, who were talking of Christ, never told them that, 'Mahāviṣhṇu is born.' They were such closed... closed-minded people, they did not want to know about Him from any other source.<br>
+Also when they went there, to find the kind of Christ was represented was horrifying. In one hand they had the gun and another hand they had the Bible."<br>
+<font size="+0"><b>1982-0823 Public Program, Day 1, Temple de la Fusterie (Fusterie Temple), Place de la Fusterie, Geneva, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">In India, there was a poet called Mārkaṇḍeya, eh ... about fourteen thousand years back, who has written about this happening.<br> 
+In the South [India] there is a prayer uh pray uh place called uh-uh-uh Shit-chin ... Chind-indra, Chindindra. Means: the Indra, the King of the Devas, was given Realization, made ... was made a hole in the head, chind Indra.<br>
+So, God knows how many years back it happened.<br>
+And it is said: that, "Once it happens, then you find the All-pervading Power, the Brahma." "<br>
+<font size="+0"><b>1982-0826 Public Program, Day 1, History of Spiritual Seeking, Casino de Montbenon, Lausanne, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Saptaśhṛiṅgī, that's the most powerful one. You see, I mean regarded Sītājī. <font color="red">Mārkaṇḍeya, you see, worshiped Her thousand years back.</font><br>
+She appeared in the stone to Me."<br>
+<font size="+0"><b>1982-0826 Conversation with Sahaja Yogis, Great Information about All These Horrible Sects (False Gurus, Scientology, Tantrism), Lausanne, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Fourteen thousand years back there was a great poet called Mārkaṇḍeya: He has described that every human being has to be born-again."</font><br>
+<font size="+0"><b>1982-0828 Public Program, These Are the Days of Confusion, Freiburg, Germany</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1982-0920 Public Program, Day 2, You Are to Be Born-again, Ghent, Belgium</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-0926 Śhrī Durgā Pūjā, Mind Is just like a Donkey, House of Grégoire de Kalbermatten, Sternwartestrasse 62, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-0927 Public Program, Day 2, Knowledge of the Roots, Urania Volkshochschulen, Volksbildungshaus, Uraniastraße 1, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-1126 Public Program, What You Can Do (Feel the Beauty of Thankfulness), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-1220 Talk to Sahaja Yogis, Instructions for Maharashtra Tour, Lonavala, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0104 Public Talk, Sholapur Brunch of Indian Medical Association, Sholapur, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0104 Public Talk (Marathi+English), Rotary Club, Sholapur, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0129 Public Program, Day 3, False Gurus and Conditionings, FICCI Auditorium, 1 Tansen Mārg, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0203 Public Program (English+Hindi+English), Day 5, The Āgñyā Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0302 Public Program, Day 1, Town Hall, Hay Street and Barrack Street, Perth, WA, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0303 Workshop, Garden, Āśhram, Dalkeith, Perth, WA, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0310 Public Program, Day 3, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0316 Public Program, Day 2, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0317 Quote (St. Patrick Day), Talk to Sahaja Yogis, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0525 Public Program, Within Us there Is a Power Which Can Fulfill Our Seeking, Lewes Town Council, High Street, Lewes, East Sussex, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0916 Public Program, Bertine Auditorium, C.G. Jung Institute, 28 East 39th Street, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0929 Public Program, Day 2, Auṃ̣, Cultural Integration Fellowship, 260 Fulton Street, San Francisco, CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-1001 Talk to Sahaja Yogis, Seminar, Day 1, Session 1, Kennolyn Campgrounds, 8400 Glen Haven Road, Soquel (10 kms ENE of Santa Cruz), CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-1010 Śhrī Gaṇeśha Pūjā (5th Day of Navarātri and Canadian Thanksgiving Day), Garden, 1386 Lincoln Avenue, Toronto, ON, Canada</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-1012 Public Program (7th Day of Navarātri), Day 2, Old Cambridge Baptist Church, 1151 Massachussetts Avenue, Cambridge, MA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1984-0219 Public Program (Marathi), An̄janerī (30 kms W of Nasik), Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1984-0317 Public Program, Day 5, Āgñyā Chakra, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1984-0507 Interview with Michel Sadashiva Cherney for the Sahaja Yoga Magazaine in French \textcolor{greeny}{\it L'Attention, Issue 4, Pages 32 to 37}, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1984-0726 Public Program, Day 2, Session 2 (evening), Hove Town Hall, Norton Road, Hove (next, W of Brighton), East Sussex, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1984-0905 Public Program, Day 1, Christian Tradition and Christ, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1984-1204 Public Program (Hindi), Day 1, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0215 Public Program (English+Hindi), Day 4, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0301 Workshop, Āśhram, Crawley (7 kms SW of Perth), WA, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0422 Public Program, Day 1, Université Paris Diderot Paris 7, 5 Rue Thomas Mann, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0424 Public Program, Day 2, CEDIAS-Musée Social, 5, Rue las Cases, Paris, France</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -445,13 +691,319 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 
 <div class="para-divider"></div>
 
-[<font color="orange">WARNING: Quotes for the period 1982-0823 to 2000-04 will follow in due time.</font>] 
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0704 Interview with a Gentleman Journalist for Het Binnenhof (Inner Court), Conferentieoord Overvoorde, van Vredenburchweg 170, Rijswijk (6 kms SSE of The Hague), Netherlands</b></font>
+</p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1985-0831 Talk to Sahaja Yogis, Spreading Sahaja Yoga, after the Public Program, Southlands College, University of Roehampton, Wimbledon, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"The first time somebody wrote about Kuṇḍalinī was actually, I should say in a real sense of the word, wrote properly, was Ādi Śhaṅkarāchārya Himself. And then our uh, what you call, Gyāneśhwara. Because that was the time. <font color="red">And before that, of course, Mārkaṇḍeya wrote it, thousands of years back, but who considered Mārkaṇḍeya as something? No one listened to Him.</font>"<br>
+<font size="+0"><b>1986-0125 Pūjā, Why We Have Failed in Our Pursuit of God (The Whole System Has to Be Changed), Chennai, Tamil Nadu, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1986-0218 Workshop (Hindi), Day 2, Session 1 (morning), Jaipur, Rajasthan, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1986-0219 Public Program (Hindi), Day 3, Session 1 (evening), A Sahaja Yogi Will Reflect on the Outside His Inner Quality, Jaipur, Rajasthan, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1986-1013 Public Program (Hindi), Ice Skating Ring, Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1987-1012 Public Program, Day 1, Auditorium Maximum, University, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1988-0509 Talk to Sahaja Yogis, Commentaries on Songs and Leadership Is a Myth, Rome, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1988-0609 Interview with Mr. Wadschwa for the Radio Network of Österreichischer Rundfunk (ORF), Āśhram, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1988-0609 Talk to Sahaja Yogis, Giving Names and the Story of Mārkaṇḍeya, Āśhram, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1988-1014 Talk to Sahaja Yogis, Navarātri Celebrations (4th Day), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1988-1018 Talk to Sahaja Yogis, Navarātri Celebrations (8th Day), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"The same knowledge I am going to give you in Sahaja Yoga. But just by telling it is not going to happen. This incident has to take place.<br>
+<font color="red">About this, several thousand years back, Mārkaṇḍeya had written.</font> After that Nāth Pānthis did a lot of work on this. After that, the work was in progress, in other countries also side by side. And you can see that from the time of Rāja Janak to the time of Guru Nāṇak this has been happening."<br>
+<font size="+0"><b>1989-0308 Public Program (Hindi), Iṃsāna kā Parivartana (Change of Human), Saraswati Vihar, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1989-0316 Public Program (Hindi), Kuṇḍalinī Ke Jāgran Ke Bād Lābh (Benefits after Awakening of Kuṇḍalinī) or The Power of Love and the Blessings of Kuṇḍalinī, Noida, Uttar Pradesh, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1989-0616 Talk to Sahaja Yogis, Āśhram, Keith Road, Ambleside, West Vancouver, BC, Canada</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1989-1018 Public Talk, 1st World Conference on Yoga Organized by the Soviet Ministry of Health, Moscow University, Moscow, Russia (other date 1019)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-0603 Public Program, Day 1, Miami, FL, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1991-0405 Public Program, Brisbane, Queensland, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1991-0802 Public Program, Day 2, The Liver, Its Problems and Treatment, Koningszaal, Artis (Natura Artis Magistra), Plantage Middenlaan 41 A, Amsterdam, Netherlands</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1991-1206 Public Program, Day 1, Narada Gana Sabha, 254 Mowbrays Road, Alwarpet, Chennai, Tamil Nadu, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0310 Public Program, YMCA Hotel, Satorn Road, Bangkok, Thailand (other date 0311)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0322 Talk to Sahaja Yogis, Birthday Felicitations Program, the day after Birthday Pūjā, Siri Fort Auditorium, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-0310 Press Conference (English and Hindi mixed), Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-0319 Press Conference (Medical and Scientific), Meridian Hotel, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-1203 Public Program (Hindi), Kidwai Nagar, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-1211 Śhrī Kṛiṣhṇa Pūjā, Yamunānagar, Haryana, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-0115 Public Program, Bengaluru, Karnataka, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-0118 Public Program, Chennai, Tamil Nadu, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-0408 Public Program, Civic Theatre, Canberra, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-0426 Public Program, PJ Civic Hall, Jalan Yong Shook Lin, Pj New Town, 46200 Petaling Jaya, Selangor, Kuala Lumpur, Malaysia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-0731 Public Program (Hindi+English), Natura Artis Magistra, Amsterdam, Netherlands</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-1002 Śhrī Yogeśhwara Pūjā, Śhrī Kṛiṣhṇa and the Enlightenment of the Brain, Camp Vacamas, 256 Macopin Road, West Milford, NJ, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-1128 Public Program (Hindi), Satya kī Khoj (Search of Truth), Faridabad, Haryana, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"I do not want you to believe that this great work has been done only by Me. Sahaja Yoga has been in our country since ancient times. Mārkaṇḍeya Swāmī who was born fourteen thousand years ago here spoke of the Kuṇḍalinī. There has been a discussion about Kuṇḍalinī everywhere."</font><br>
+<font size="+0"><b>1994-1129 Public Program (Hindi), Kuṇḍalinī Ek Mahan Śhakti, front of AIIMS, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<b>Variant 1:</b><br>
+"<font color="red">This thing that needs to be experienced has been told by Mārkaṇḍeya Swāmī, Ādi Śhaṅkarāchārya, since ancient times.</font> In foreign countries, many Saints and Seers have also said that this Truth you cannot know without experiencing it.<br>
+<b>Variant 2:</b><br>
+"<font color="red">About this experience, for thousands of years Mārkaṇḍeya Swāmī, Ādi Śhaṅkarāchārya, everyone and even in foreign countries, many Great Saints have told that without the experience you cannot know the Truth.</font>"<br>
+<font size="+0"><b>1994-1206 Public Program (Hindi+English+Hindi), Mehr Chand Mahajan D.A.V. College for Women, Chandigarh, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"What I am telling you isn't something new. It is all there in our Scriptures.<br>
+In the sixth century, Śhaṅkarāchārya spoke about it.<br>
+<font color="red">But thirteen thousand years ago, Mārkaṇḍeya also spoke about the Kuṇḍalinī, but it was all in Sanskrit.</font><br>
+And then, in the twelfth century, Gyāneśhwarjī spoke about it. When He wrote the Gyāneśhwarī, which is a commentary on the Gītā, in its sixth chapter, He clearly wrote that, "You get your Self-realization through the Kuṇḍalinī." "<br>
+<font size="+0"><b>1995-0412 Public Program (Hindi), What Is the Truth, Netaji Subhash Chandra Bose Indoor Stadium, Eden Gardens, Strand Road, Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"According to Me, in the twelfth century for the first time, Gyāneśhwarjī wrote about Kuṇḍalinī in His commentary about Gītā. In sixth chapter, He has openly said. As we should say, keeping in mind the conditions of that era, He had openly said in that period. But religion organizers said that, 'It is prohibited and so don't read it.'<br>
+<font color="red">Before that, Mārkaṇḍeya Swāmī, Ādi Śhaṅkarāchārya who had come in the sixth century, told about Kuṇḍalinī in Sanskrit language. But common man doesn't know anything about this.</font>"<br>
+<font size="+0"><b>1995-0422 TV Broadcast (Hindi), Sahaj Yog Se Lābh (Benefits of Sahaja Yoga), Part 4, Dūradarśhan Television Network, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1996-0119 Public Talk, Rotary Club of Central Pune, District 3130 (Currently District 3131), Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1996-0219 Public Address to Doctors, Inauguration, International Sahaja Yoga Research and Health Center, Plot No. 1, Sector 8, H.H. Śhrī Nirmalā Devī Mārg, C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1996-0924 Public Program, The Olympic Collection, Grand Ballroom, 3rd Floor, 11301 W. Olympic Boulevard, 204, Los Angeles, CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"In Australia, they also have the Mother Culture amongst the aboriginals as well as amongst the aboriginals of America and Canada. The Mayan culture of Mexico believed in the Mother and Mother Earth. The only thing is, they did not know how to awaken this Power which sleeps in the base of the spine known as sacrum. That means that the Greeks knew about the sacredness of this bone, but all of them knew about the Primordial Taboos relating to the body (in Sanskrit known as śharīra), and the Spirit or the Ātmā Tattwa.<br>
+<font color="red">All this has been described by great Seers and Saints like Mārkaṇḍeya, Ādi Śhaṅkarāchārya, Nāṇaka and Jñānadeva.</font>"<br>
+<font size="+0"><b>1997-0827 Written (Presented) Talk, Russian Folk Medicine Conference, Russia (other date 0901)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>2000-0417 Public Address to Income Tax Officers Meeting, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
