@@ -74,35 +74,23 @@ Please make me innocent, so that I am in Your attention.<br>
 
 <p>
 <font color="green"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-</p>
-
-<p>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<br>
 <font color="green"><b>Lavkar Yayi Śhrī Gaṇarāyā, Sakalanshi Bheti Dyaya</b> ((Bhajan in praise of Śhrī Mātājī before Śhrī Gaṇeśha Pūjā)</font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-</p>
- 
-<p>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<br>
 <font color="green"><b>Namami Śhrī Gaṇarāj Dayal</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-</p>
-
-<p>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<br>
 <font color="green"><b>Gaiye Gaṇapati Jagvandan</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
-</p>
-
-<p>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<br>
 <font color="green"><b>Auṃ Bhūr Bhuvaḥ</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
-</p>
-
-<p>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<br>
 <font color="green"><b>Eka Gaṇapati</b></font><br>
-<a href="https://youtu.be/Dg41OjGhrU8">video</a> 
-</p>
-
-<p>
+<a href="https://youtu.be/Dg41OjGhrU8">video</a><br>
+<br>
 <font color="green"><b>Jay Gaṇarāyā, Śhrī Gaṇarāyā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
