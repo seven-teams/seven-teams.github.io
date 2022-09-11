@@ -63,7 +63,7 @@ That’s how Śhrī Gaṇeśha is so important for all the Sahaja Yogis to be un
 <font color="DarkGreen"><b>"Śhrī Gaṇeśha, I am going to be worthy of Your attention.<br>
 Please make me innocent, so that I am in Your attention.<br>
 Śhrī Mother, You are Śhrī Gaṇeśha, please give me wisdom and discrimination."</b></font><br>
-<font size="+0"><b><900-0000 Prayer to Śhrī Gaṇeśha, Āśhram, Rome, Italy from the 2012 edition of Sahaja Yoga Mantra Book, Page 29</b></font>
+<font size="+0"><b>1900-0000 Prayer to Śhrī Gaṇeśha, Āśhram, Rome, Italy from the 2012 edition of Sahaja Yoga Mantra Book, Page 29</b></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
