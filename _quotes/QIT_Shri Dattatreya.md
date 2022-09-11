@@ -345,6 +345,21 @@ So we know that we have to educate ourself, first point, and secondly, we have t
 <div class="para-divider"></div>
 
 <p>
+"And since immemorial times She has been described by Dattātreya and so on. It is described in many books.<br>
+<font color="red">Mārkaṇḍeya existed fourteen thousand years back. Even He has described Kuṇḍalinī. In the Devī Mahātmyam and Devī Purāṇ that He has written He has described the Kuṇḍalinī.</font>"<br>
+<font size="+0"><b>1984-0219 Public Program (Marathi), An̄janerī (30 kms W of Nasik), Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"As I told you before, that: we had Ten Gurus who came on this Earth, and They represented the innocence of the three Brahma, Viṣhṇu, Maheśha of Dattātreya. And one of Them was Zoroaster, another was Muhammad Sāhab, and all these Gurus represent those qualities of innocence of these Three Personalities called as Dattātreya.<br>
 And also told you how by understanding these different Gurus we can produce the effects even on our physical health."</font><br>
 <font size="+0"><b>1984-0317 Public Program, Day 5, Āgñyā Chakra, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>

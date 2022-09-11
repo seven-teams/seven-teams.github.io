@@ -608,7 +608,8 @@ She appeared in the stone to Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"And since immemorial times She has been described by Dattātreya and so on. It is described in many books.<br>
+<font color="red">Mārkaṇḍeya existed fourteen thousand years back. Even He has described Kuṇḍalinī. In the Devī Mahātmyam and Devī Purāṇ that He has written He has described the Kuṇḍalinī.</font>"<br>
 <font size="+0"><b>1984-0219 Public Program (Marathi), An̄janerī (30 kms W of Nasik), Maharashtra, India</b></font>
 </p>
 
@@ -875,7 +876,7 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"This is in our country from ancient times. This is our heritage of our country. <font color="red">From where to where, how many years back, thirteen thousand years back Mārkaṇḍeya has talked about it in the Sanskrit language.</font>"<br>
 <font size="+0"><b>1993-1203 Public Program (Hindi), Kidwai Nagar, New Delhi, India</b></font>
 </p>
 
@@ -931,7 +932,8 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<b> Variant 1:</b><br>
+"Kabīr Sāhab and Nāṇak Sāhab, Rāmdās Swāmī have all written on Kuṇḍalinī. <font color="red">Śhrī Rāmdās Swāmī and even Mārkaṇḍeya Swāmī have also written on Kuṇḍalinī.</font>"<br>
 <font size="+0"><b>1994-1128 Public Program (Hindi), Satya kī Khoj (Search of Truth), Faridabad, Haryana, India</b></font>
 </p>
 
