@@ -9,12 +9,12 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<b>Gavin Brown:</b> Mother, today is said it's Anant Chaturdaśhī.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Huh?<br>
-<b>Gavin Brown:</b> Anant Chaturdaśhī.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Today? Aah-ha! That's great! Yes must be. I was wondering Anant Chaturdaśhī. Anant Chaturdaśhī is the day when we visarjan, dissolve Śhrī Gaṇeśha in the water. Gaṇeśhjī ko choṛate hai na pānī meṃ [it's that day we put Gaṇeśhjī in to the water]. Because He's established for ten days. And after ten days, He's born on the fourth, after ten days He's dissolved in the water so that everywhere His Power is spread through the water.<br>
-That's why no wonder there was a Pūjā. [Laughter.]<br>
-Gaṇeśha settled down into the water. [Laughs.] That is Ananta Chaturdaśhī. Ananta is the, is Śhrī Gaṇeśha. Ananta means which cannot be destroyed. Innocence cannot be destroyed. And that is why is the Gaṇeśh Chaturdaśhī, means the day when Gaṇeśha is dissolved in the water, in the ocean or He is created, worshiped for ten days and again given back. So it's a very great day today, I should say, like the Resurrection of Christ that you are, you had Christ here, He lived with you, and then went back to His Father. Father is the ocean and that's what in India they do, to establish Him on the fourth day and on the tenth day they put Him back to the ocean.<br>
+<b>Sahaja Yogi:</b> Mother, today is said it's Anant Chaturdaśhī.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Huh?</font><br>
+<b>Sahaja Yogi:</b> Anant Chaturdaśhī.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Today? Aah-ha! That's great! Yes must be. I was wondering Anant Chaturdaśhī. Anant Chaturdaśhī is the day when we visarjan, dissolve Śhrī Gaṇeśha in the water. Gaṇeśhjī ko choṛate hai na pānī meṃ [it's that day we put Gaṇeśhjī in to the water]. Because He's established for ten days. And after ten days, He's born on the fourth, after ten days He's dissolved in the water so that everywhere His Power is spread through the water.</font><br>
+T<font color="DarkRed">hat's why no wonder there was a Pūjā.</font> [Laughter.]<br>
+<font color="DarkRed"><b>Gaṇeśha settled down into the water. [Laughs.] That is Ananta Chaturdaśhī. Ananta is the, is Śhrī Gaṇeśha. Ananta means which cannot be destroyed. Innocence cannot be destroyed.</b> And that is why is the Gaṇeśh Chaturdaśhī, means the day when Gaṇeśha is dissolved in the water, in the ocean or He is created, worshiped for ten days and again given back. So it's a very great day today, I should say, like the Resurrection of Christ that you are, you had Christ here, He lived with you, and then went back to His Father. Father is the ocean and that's what in India they do, to establish Him on the fourth day and on the tenth day they put Him back to the ocean.</font><br>
 <font size="+0"><b>1983-0920 Guru Pūjā (Anant Chaturdaśhī Day), This Finger Is Nothing but the Sahaja Yogis of America and They Have to Help by Their Dynamic Behavior and by Their Proper Understanding, Responsibility as the People Belonging to this Great Nation of Fatherhood, Houston, TX, U.S.A.</b></font>
 </p>
 
@@ -63,7 +63,7 @@ That’s how Śhrī Gaṇeśha is so important for all the Sahaja Yogis to be un
 <font color="DarkGreen"><b>"Śhrī Gaṇeśha, I am going to be worthy of Your attention.<br>
 Please make me innocent, so that I am in Your attention.<br>
 Śhrī Mother, You are Śhrī Gaṇeśha, please give me wisdom and discrimination."</b></font><br>
-<font size="+0"><b><1900-0000 Prayer to Śhrī Gaṇeśha, Āśhram, Rome, Italy from the 2012 edition of Sahaja Yoga Mantra Book, Page 29/b></font>
+<font size="+0"><b><900-0000 Prayer to Śhrī Gaṇeśha, Āśhram, Rome, Italy from the 2012 edition of Sahaja Yoga Mantra Book, Page 29</b></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
