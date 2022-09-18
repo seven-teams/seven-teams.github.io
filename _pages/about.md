@@ -92,7 +92,7 @@ For other databases of transcripts please see:
 
     ii. <a href="https://library.sahajaworld.org/"> Sahaja Digital Library</a>
     
-7. **<font color="blue">The Photo Subteam.</font>** Maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
+7. **<font color="blue">Photo Subteam.</font>** Maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 For other websites of Photographs please see:
 
