@@ -42,21 +42,7 @@ E-mail: <b>festivityteam@gmail.com</b>
 2. **<font color="blue">Comprehensive Compilations Team.</font>** Scholarly researched database for all general purposes that is protocol-oriented, that emphasizes quality, accuracy, completeness, uniformity, comparisons, and that appreciates, credits, and complements all prior or ongoing works.<br>
 All quotes from Śhrī Mātājī's talks and writings pertaining to one single topic (of any possible nature), grouped in chronological order.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
-Originally thought of as a four-members team, it operates via subteams and it receives help from volunteers.<br>
-The Photo Subteam maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
-For other websites of Photographs please see:
-
-    i. <a href="https://imageevent.com/sahaja"> Sahaja Image Events</a> (albums by Pavan Burd) (created in 2004)
-
-    ii. <a href="https://www.divinecoolbreeze.org/PHOTOGRAPHS/"> The Divine Cool Breeze</a> (created around 2008)
-
-    iii. <a href="https://www.flickr.com/photos/colinheinsenalbionstudio/albums"> Albion Studio</a> (of Colin Heinsen) (created in 2008)
-
-    iv. <a href="https://www.flickr.com/people/74539343@N05/"> Photos of Shri Mataji</a> (taken by Matthew Fogarty) (created in 2012)
-
-    v. <a href="https://library.sahajaworld.org/photos"> Photos</a> (of Sahaja Digital Library) (created in 2017)
-    
-    vi. <a href="https://www.instagram.com/fotosofma/"> Fotos of Ma</a> (taken by Chris Patmore) (created in 2021)
+Originally thought of as a four-members team, it operates via multiple subteams and it receives help from volunteers. The multiple subteams have been counted altogether as a team and as such are listed below.<br>
 
 3. **<font color="blue">Quotes on Incarnations Team.</font>** All quotes from Śhrī Mātājī's talks and writings pertaining to one Incarnation in human form, grouped in chronological order.<br> 
 E-mail: <b>sakshat.avatar@gmail.com</b>
@@ -76,9 +62,6 @@ Its research activities are centered on demonstrating and documenting:
 
     The team hopes that the posts will delight readers who are Seekers of Truth, will bring more light, vision and meaning to their lives and will inspire them to meditate and communicate more deeply and to write articles and books that will benefit and uplift mankind.<br>
 E-mail: <b>shuddhvidya@gmail.com</b>
-
-5. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. <br>
-E-mail: <b>sahajagyaan@gmail.com</b>
 
 6. **<font color="blue">Yearly Topics Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.<br>
 E-mail: <b>yearlycelebrations@gmail.com</b>
@@ -101,11 +84,34 @@ E-mail: <b>yearlycelebrations@gmail.com</b>
 
     ix. **<font color="DarkGreen">2022 Celebrating 50 Years of Life Eternal Trust and its Objects</font>**
 
-
-7. **<font color="blue">Divine Message Subteam.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017.<br>
+6a. **<font color="blue">Divine Message Subteam.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 For other databases of transcripts please see:
 
     i. <a href="https://www.amruta.org/transcripts-and-translations/"> Nirmala Vidya Amruta</a>
 
     ii. <a href="https://library.sahajaworld.org/"> Sahaja Digital Library</a>
+    
+6b. **<font color="blue">The Photo Subteam.</font>** Maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
+For other websites of Photographs please see:
+
+    i. <a href="https://imageevent.com/sahaja"> Sahaja Image Events</a> (albums by Pavan Burd) (created in 2004)
+
+    ii. <a href="https://www.divinecoolbreeze.org/PHOTOGRAPHS/"> The Divine Cool Breeze</a> (created around 2008)
+
+    iii. <a href="https://www.flickr.com/photos/colinheinsenalbionstudio/albums"> Albion Studio</a> (of Colin Heinsen) (created in 2008)
+
+    iv. <a href="https://www.flickr.com/people/74539343@N05/"> Photos of Shri Mataji</a> (taken by Matthew Fogarty) (created in 2012, currently unavailable or on the move to some other website)
+
+    v. <a href="https://library.sahajaworld.org/photos"> Photos</a> (of Sahaja Digital Library) (created in 2017)
+    
+    vi. <a href="https://www.instagram.com/fotosofma/"> Fotos of Ma</a> (taken by Chris Patmore) (created in 2021)
+    
+6c. **<font color="blue">Archives Subteam.</font>**   
+
+6d. **<font color="blue">Divine Events Subteam.</font>**  
+
+6e. **<font color="blue">News Subteam.</font>** 
+    
+7. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. <br>
+E-mail: <b>sahajagyaan@gmail.com</b>    
