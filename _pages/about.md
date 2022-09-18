@@ -63,7 +63,7 @@ Its research activities are centered on demonstrating and documenting:
     The team hopes that the posts will delight readers who are Seekers of Truth, will bring more light, vision and meaning to their lives and will inspire them to meditate and communicate more deeply and to write articles and books that will benefit and uplift mankind.<br>
 E-mail: <b>shuddhvidya@gmail.com</b>
 
-6. **<font color="blue">Yearly Topics Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.<br>
+5. **<font color="blue">Yearly Topics Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to one or more countries (the same one or ones in a fixed calendar year in which a landmark in Sahaja Yoga has been reached in that  country or countries) together with Photographs and links to Video/Audio talks of Śhrī Mātājī.<br>
 E-mail: <b>yearlycelebrations@gmail.com</b>
 
     i. **<font color="DarkGreen">2014 Celebrating 40 years of Sahaja Yoga in UK</font>**
@@ -82,9 +82,9 @@ E-mail: <b>yearlycelebrations@gmail.com</b>
 
     viii. **<font color="DarkGreen">2021 Celebrating 40 Years of Sahaja Yoga in Australia, Canada, Italy and U.S.A. and its Culture</font>**
 
-    ix. **<font color="DarkGreen">2022 Celebrating 50 Years of Life Eternal Trust and its Objects</font>**
+    ix. **<font color="DarkGreen">2022 Celebrating 50 Years of Life Eternal Trust and its Objects</font>**         
 
-6a. **<font color="blue">Divine Message Subteam.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017.<br>
+6. **<font color="blue">Divine Message Subteam.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 For other databases of transcripts please see:
 
@@ -92,7 +92,7 @@ For other databases of transcripts please see:
 
     ii. <a href="https://library.sahajaworld.org/"> Sahaja Digital Library</a>
     
-6b. **<font color="blue">The Photo Subteam.</font>** Maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
+7. **<font color="blue">The Photo Subteam.</font>** Maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
 For other websites of Photographs please see:
 
     i. <a href="https://imageevent.com/sahaja"> Sahaja Image Events</a> (albums by Pavan Burd) (created in 2004)
@@ -107,11 +107,11 @@ For other websites of Photographs please see:
     
     vi. <a href="https://www.instagram.com/fotosofma/"> Fotos of Ma</a> (taken by Chris Patmore) (created in 2021)
     
-6c. **<font color="blue">Archives Subteam.</font>**   
+8. **<font color="blue">Archives Subteam.</font>**   
 
-6d. **<font color="blue">Divine Events Subteam.</font>**  
+9. **<font color="blue">Divine Events Subteam.</font>**  
 
-6e. **<font color="blue">News Subteam.</font>** 
-    
-7. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. <br>
+10. **<font color="blue">News Subteam.</font>** 
+
+11. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. <br>
 E-mail: <b>sahajagyaan@gmail.com</b>    
