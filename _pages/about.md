@@ -93,6 +93,7 @@ For other databases of transcripts please see:
     ii. <a href="https://library.sahajaworld.org/"> Sahaja Digital Library</a>
     
 7. **<font color="blue">The Photo Subteam.</font>** Maintains the website <a href="https://eternalmoments.smugmug.com/"> Eternal Moments</a> created in 2018<br>
+E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 For other websites of Photographs please see:
 
     i. <a href="https://imageevent.com/sahaja"> Sahaja Image Events</a> (albums by Pavan Burd) (created in 2004)
@@ -107,11 +108,14 @@ For other websites of Photographs please see:
     
     vi. <a href="https://www.instagram.com/fotosofma/"> Fotos of Ma</a> (taken by Chris Patmore) (created in 2021)
     
-8. **<font color="blue">Archives Subteam.</font>**   
+8. **<font color="blue">Archives Subteam.</font>** <br>
+E-mail: <b>sahajayoga.compilations@gmail.com</b>  
 
-9. **<font color="blue">Divine Events Subteam.</font>**  
+9. **<font color="blue">Divine Events Subteam.</font>** <br>
+E-mail: <b>sahajayoga.compilations@gmail.com</b>
 
-10. **<font color="blue">News Subteam.</font>** 
+10. **<font color="blue">News Subteam.</font>** <br>
+E-mail: <b>sahajayoga.compilations@gmail.com</b>
 
-11. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order. <br>
+11. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order.<br>
 E-mail: <b>sahajagyaan@gmail.com</b>    
