@@ -461,7 +461,8 @@ She appeared in the stone to Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So those people who have talked about Kuṇḍalinī, most of them, have done it by reading some books or I don't know how they got these ideas. And they are so confused, that I don't know what to do, how to answer [laughing:] them because they are absolutely confused people.<br>
+<font color="red">There are, of course, good books, like Mārkaṇḍeya, who was fourteen thousand years back, who has written about Kuṇḍalinī, Ādi Śhaṅkarāchārya, Kabīra, Nāṇaka, these are all sensible people. But these books are not so translated in English languages and all that.</font> And the ... they must have taken it from some other books, I don't know, from some tāntrik book or some sort of a thing."<br>
 <font size="+0"><b>1982-0920 Public Program, Day 2, You Are to Be Born-again, Ghent, Belgium</b></font>
 </p>
 
@@ -489,7 +490,9 @@ She appeared in the stone to Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So many of Them! So we discard Muhammad Sāhab, we discard everyone‽ That's how it is! Is Brahmanism! Is Brahmanism. Is ism again! We discard all the great people of the world by this.<br>
+They were not realized? Kahlil Gibran was he not realized? How will you know? Unless and until you are realized you will not know who was realized or not! You will live on these ideas only. You have to feel it. <font color="red">William Blake, was He not realized? He was Mārkaṇḍeya Himself!</font><br>
+We have forgotten so many things. Even in the Indian Scriptures we['ve] never seen, we don't want to see these things!"<br>
 <font size="+0"><b>1982-1126 Public Program, What You Can Do (Feel the Beauty of Thankfulness), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
@@ -510,7 +513,7 @@ She appeared in the stone to Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"This needs to be found out, hence everyone has [been] told that, 'Everybody should find their own Spirit.' If one of them has told, then it should be described (varṇana). But whoever has become great, they have told us that, 'You need to find your own Spirit within. You should find your God within yourself.' <font color="red">This has been told by all Seers and Saints: Rāmadās has told this, before Him Mārkaṇḍeya has told this, Ādi Śhaṅkarāchārya has told this, Christ has told this, Muhammad has told this, Buddha has told this, Mahāvīra has told this, everyone has told this, that, 'We need to find the Spirit within ourselves.'</font> "<br>
 <font size="+0"><b>1983-0104 Public Talk (Marathi+English), Rotary Club, Sholapur, Maharashtra, India</b></font>
 </p>
 
@@ -524,35 +527,58 @@ She appeared in the stone to Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Yes, it's surprising that a people will say ... he says that in Yoga Sūtra[s] of Patañjali ah it is not written about Kuṇḍalinī, and, also, about Gītā it's not written about Kuṇḍalinī. Is a fact!<br>
+Because, you see, it was a secret science. It was kept a secret science, in My first lecture only I said, till the sixth century. In the sixth century, Ādi Śhaṅkarāchārya, for the first time, opened His mouth about it.<br>
+It was a secret science with very Great Gurus like uh-uh-uh Janaka gave Realization to Nachiketa.<br>
+And in the same way, Śhrī Kṛiṣhṇa did not talk about it.<br>
+<font color="red">Because, you see, even when Mārkaṇḍeya talked about it, people did not know what He was talking. They never thought Him to be a sensible man.</font>"<br>
 <font size="+0"><b>1983-0203 Public Program (English+Hindi+English), Day 5, The Āgñyā Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"No kriyā is needed at all in Sahaja Yoga.<br>
+Actually it is not at all traditional. It is a very recent stuff that has come out.<br> 
+<font color="red">If you read from the past, if you read Ādi Śhaṅkarāchārya, in the sixth century, if you read other people, Mārkaṇḍeya like, the fourteenth century, you will be amazed that: They have said the same thing what I am saying. This is traditional.</font><br>
+But these new gurus came up and they started talking about this and that, but it is not so.<br>
+Nobody has achieved Realization by Kriyā Yoga. I have not met one. On the contrary they come to Me as patients.<br>
+I must say, I'm sorry to see [say], but it is so.<br>
+People have spent so much money, from India they have gone all the way to America to do Kriyā Yoga, and they are just suffering. Nobody has achieved anything."<br>
 <font size="+0"><b>1983-0302 Public Program, Day 1, Town Hall, Hay Street and Barrack Street, Perth, WA, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"You see, because they don't know the job. They don't know the job. [Laughing:] How can they claim they can raise the Kuṇḍalinī? They don't know the job!<br>
+Not only that, they are anti-God people.<br>
+How can they raise Kuṇḍalinī, you just tell Me? A person who has no authority from God, how can he raise the Kuṇḍalinī?<br>
+It's a very recent thing, all also this is about fifty years back only, people have started writing all this nonsense.<br>
+And ancient books nobody reads, that's the trouble is.<br>
+I<font color="red">f you read Mārkaṇḍeya, who wrote in fourteen thousand years back.</font><br>
+Of India, [laughing:] what's such a thing like that?<br>
+He said, "Mother can do it." Ādi Śhaṅkarāchārya in the sixth century said."<br>
 <font size="+0"><b>1983-0303 Workshop, Garden, Āśhram, Dalkeith, Perth, WA, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So, this Kuṇḍalinī has to rise to give you Realization, the Baptism, the Real Baptism, not an artificial one.<br>
+Now, how it can happen in a person is a problem.<br>
+It used to happen: what knowledge I am telling you is not the knowledge of today. Is the knowledge of very-very ancient times. <font color="red">Fourteen thousand years back, Mārkaṇḍeya, a great poet in India, has written about it.</font> After that there were many other poets who wrote about it, till, in the sixth century, Ādi Śhaṅkarāchārya very clearly wrote about the Kuṇḍalinī and Its awakening.<br> 
+<font color="red">Nobody has said so far, from those ancient writers, that Kuṇḍalinī gives you any problems, or She makes you dance, jump and all that: is all modern nonsense. Traditionally nobody has said so.</font><br> 
+Sixth century is the time when Ādi Śhaṅkarāchārya incarnated on this Earth. Buddha got His Realization without doing any dancing or anything. You know for definite."<br>
 <font size="+0"><b>1983-0310 Public Program, Day 3, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
+
 <p>
-<font color="red">""</font><br>
+"The knowledge that I'm telling you is not of today. <font color="red">But even fourteen thousand years back, Mārkaṇḍeya, a great poet in India, has written about it.</font> Of course, I have brought it to the modern standard to explain to you.<br> 
+<font color="red">But when you read Mārkaṇḍeya you will be amazed, after Realization, that from His book you will be getting vibrations.</font>"<br>
 <font size="+0"><b>1983-0316 Public Program, Day 2, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
 </p>
 
@@ -580,7 +606,9 @@ She appeared in the stone to Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"But in India when this meditation took place, these great Seers worked it out in such a way to find out what is the method of evolution.<br>
+<font color="red">You will be surprised, fourteen [thousands] years back we have a poet called Mārkaṇḍeya who has described the evolutionary process in human beings. He has described it clearly how the Kuṇḍalinī rises, how She gives you the Mokṣha, the Realization.<br>
+There nobody said that Kuṇḍalinī is a dangerous thing and you get burnings and you get all these things that you read about Kuṇḍalinī, such dangerous things about Her.</font>"<br>
 <font size="+0"><b>1983-0929 Public Program, Day 2, Auṃ̣, Cultural Integration Fellowship, 260 Fulton Street, San Francisco, CA, U.S.A.</b></font>
 </p>
 
@@ -601,7 +629,7 @@ She appeared in the stone to Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Now, this Great Incarnation was called as Mahāviṣhṇu and was, is described in the ancient books, about fourteen thousand years by [back], by Mārkaṇḍeya."</font><br>
 <font size="+0"><b>1983-1012 Public Program (7th Day of Navarātri), Day 2, Old Cambridge Baptist Church, 1151 Massachussetts Avenue, Cambridge, MA, U.S.A.</b></font>
 </p>
 
@@ -623,7 +651,9 @@ She appeared in the stone to Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Those two Incarnations, we will call them Principle of the Disciple. Not the Guru Principle, which also incarnates, but that one is fully of Divine Nature. So, these two incarnate as Disciple Principle. [Ces deux Incarnations, nous Les nommerons Le Principe du Disciple, pas de Principe du Gourou, lequel s'incarne aussi, mais celui-ci est entièrement de Nature Divine. Donc, ceux-là s'incarnent sur cette terre comme Principes du Disciple.]<br>
+First, they incarnated, as we say, as Lava and Kuśha, each one being specially assisted by Saint Gabriel and Saint Michel. [Tout d'abord ils s'incarnèrent, nous dirons, comme Lava and Kuśha, chacun est spécialement assisté par Saint Gabriel et Saint Michel.]<br>
+These two Incarnations incarnated later as Buddha and Mahāvīra, who came once again as Śhaṅkara [who had been Buddha] and Kabīr [who had been Mahāvīra]. Kahlil Gibran is part of their Incarnations. <font color="red">So was Mārkaṇḍeya, and we can say that our William Blake is part of it.</font> [Ces deux Incarnations s'incarnèrent plus tard comme Bouddha et Mahāvīra, lesquels revinrent à nouveau au sixième siècle de notre èrecomme Śhankara [c'était Bouddha], puis [c'était Mahāvīra]. Kahlil Gilran fait partie de Leurs Incarnations. Mārkaṇḍeya aussi, et on peut dire que notre Mister Blake en fait partie.]"<br>
 <font size="+0"><b>1984-0507 Interview with Michel Sadashiva Cherney for the Sahaja Yoga Magazaine in French \textcolor{greeny}{\it L'Attention, Issue 4, Pages 32 to 37}, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), France</b></font>
 </p>
 
@@ -644,14 +674,17 @@ She appeared in the stone to Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Sahaja Yoga is not today's thing. Thousands of years before, Lord Indra was given his Self-realization. Self-knowledge was granted then. <font color="red">Also, Sahaja Yoga existed, and after that you know Mārkaṇḍeya Swāmī was born fourteen thousand before [ago] in this world. He has also shared the importance of Sahaja Yoga, but this knowledge was never shared very openly.</font><br>
+After that, long long ago, we can say that Śhrī Ādi Śhaṅkarāchārya openly shared this knowledge with mankind.<br>
+In spite of this, it was never disclosed how this happens, because the time was not right then."<br>
 <font size="+0"><b>1984-1204 Public Program (Hindi), Day 1, Pune, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"But actually, there are only three castes: sāttvik, rājasik and tāmasik. <font color="red">Fourteen thousand years ago Mārkaṇḍeya Swāmī said, "Yā Devī sarvabhūteśhu, Jāti rūpeṇa saṃsthitā."</font> Three are only castes in Devī, Mahālakṣhmī, Mahāsaraswatī, Mahākālī, and no fourth caste.<br>
+{\textcolor{darklavender}{One is above [the] three Jātis, that is Paramātma. He has no caste."<br>
 <font size="+0"><b>1985-0215 Public Program (English+Hindi), Day 4, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
@@ -665,14 +698,16 @@ She appeared in the stone to Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So now, under these confused conditions, one has to talk about something that is very deep. This is the knowledge of the roots.<br>
+This we knew in India thousands of years back. <font color="red">Fourteen thousand year[s] back, Mārkaṇḍeya wrote about it, and many people, after that, elaborately explained it.</font>"<br>
 <font size="+0"><b>1985-0422 Public Program, Day 1, Université Paris Diderot Paris 7, 5 Rue Thomas Mann, Paris, France</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">Kuṇḍalinī has been described fourteen thousand years back by a great poet called Mārkaṇḍeya in our country.</font><br>
+I told you the other day that in Qur'ān It is described as 'Asas, and in Granth Sāhab as Surati, and in the Bible as the Holy Ghost."<br>
 <font size="+0"><b>1985-0424 Public Program, Day 2, CEDIAS-Musée Social, 5, Rue las Cases, Paris, France</b></font>
 </p>
 
@@ -707,7 +742,22 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"When I read Him, I am amazed at His s-s-sense of humor: how He openly comes out with such remarks. <font color="red">I feel He is like Mārkaṇḍeya in India, or Kabīr Dās in India, who slashed the whole society with their sword all the time to see that they are brought to the proper shape, without fear.</font> But so gentle. If you read the song of the '[Book of] Thel' [by Śhrī William Blake], is so gentle.<br>
+<font color="red">And all of Them, who were Him perhaps or are of the same style, [were] extremely open, straightforward, you can say even blatant and extremely gentle.</font> 
+......<br>
+Now we do not understand what is innocence is also.<br>
+<font color="red">Just like Mārkaṇḍeya describing His Mother, Her breast and everything. Like a little child!</font><br>
+A child doesn't see sex in a naked body, he does not see.<br>
+And the beauty of a Woman He describes.<br>
+That means all women are walking n-nude, everywhere, now. Are you exciting the innocence of people or you are exciting the baser self of the people? 'We have to be natural!', are you natural?<br>
+......<br> 
+Traditionally we have known for thousands of years!<br>
+<font color="red">I talk of Mārkaṇḍeya, who was there twelve thousand years back! Who incarnated here as William Blake. Twelve thousand years back He said the same thing which is said in England after twelve thousand years, because that time I don't know what was here!</font> Maybe only jungles, I think.<br>
+And that is also waste! Isn't it? Tell Me, isn't it?<br>
+......<br>
+There are certain things described, about Śhrī Mātājī.<br>
+<font color="red">If you have read any books, of Ādi Śhaṅkarāchārya, or of Mārkaṇḍeya Himself, then you will know.</font><br>
+And the qualities described there, of such a person, if they find it in someone, they call that person by that name. Isn't it?"<br>
 <font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
 </p>
 
@@ -721,21 +771,33 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"In our country, this ancient knowledge came in a secret way. 
+<font color="red">It should be said that Ādi Śhaṅkarāchārya was the first who talked about this knowledge, but Mārkaṇḍeya and others did talk about the Kuṇḍalinī a lot, but where we had Mārkaṇḍeya?</font><br>Śhaṅkarāchārya also we read it in one way, write it in other way, and describe it in another way.<br>
+That kind of situation I see in books. Nobody tried to understand Him or wrote about this knowledge in the right way.<br>
+They used it to make money but not to make [attain] Dharma or Supreme Being."<br>
 <font size="+0"><b>1986-0218 Workshop (Hindi), Day 2, Session 1 (morning), Jaipur, Rajasthan, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"The Āgñyā chakra is in the middle of our forehead. This is the place of Śhrī Mahāviṣhṇu. 
+<font color="red">This has been described in Devī Māhātmyam by Mārkaṇḍeya Swāmī, but who has time nowadays to read that?</font>
+This is Mahāviṣhṇu's place, and on the left side of Mahāviṣhṇu resides Buddha, and on the right resides Mahāvīra."<br>
 <font size="+0"><b>1986-0219 Public Program (Hindi), Day 3, Session 1 (evening), A Sahaja Yogi Will Reflect on the Outside His Inner Quality, Jaipur, Rajasthan, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
+
 <p>
-<font color="red">""</font><br>
+"This knowledge is the knowledge of the roots.<br>
+All the knowledge that is on the outside, Western knowledge, science, etc., all this is the knowledge is of the trees. But the knowledge of the trees increased, the trees increased and the roots were destroyed and slowly they are becoming unstable. Now they fear that they will be destroyed.<br>
+Its roots are in India.<br>
+Since ages, the Sadgurus and the Incarnations gave us this culture and talked about it openly.<br>
+When Ādi Śhaṅkarāchārya came, when Guru Nāṇak Sāhab, Kabīr Dāsjī, when such people came, They completely initiated talks about this.<br>
+In the South [India], Gyāneśhwarjī has spoken a lot about it.<br>
+<font color="red">I told you yesterday that Mārkaṇḍeya had spoken about it fourteen thousand years back.</font>"<br>
 <font size="+0"><b>1986-1013 Public Program (Hindi), Ice Skating Ring, Kolkata, West Bengal, India</b></font>
 </p>
 
@@ -749,7 +811,10 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"But those [writers] have the inner side, they see it so precisely, so clearly. I mean, these were written long time back. Of course, this one is written by Ādi Śhaṅkarāchārya. <font color="red">But thousands of years back they have written thing[s], like Mārkaṇḍeya. He has described My knees, can you imagine? He must have crawled up to My knees to see all this? [Laughter.] Is it exactly the same!</font><br>
+<font color="red">And here He says there are three folds, is [a] fact. All the time I have three folds, which human beings don't have: one on here, another here, another here. I have to have.</font><br>
+<font color="red">The eyebrows described, everything. Surprising.</font><br>
+<font color="red">They never saw Me, I think, otherwise I didn't exist before, as manifested on this Earth, but they saw Me all right, specially Mārkaṇḍeya.</font>"<br>
 <font size="+0"><b>1988-0509 Talk to Sahaja Yogis, Commentaries on Songs and Leadership Is a Myth, Rome, Italy</b></font>
 </p>
 
@@ -848,7 +913,9 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Fourteen thousand years back, ...</font><br>
+<b>Sahaja Yoginī translator:</b> Mārka ah ...<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">... Mārkaṇḍeya has written about it, in Sanskrit language.</font><br>
 <font size="+0"><b>1992-0310 Public Program, YMCA Hotel, Satorn Road, Bangkok, Thailand (other date 0311)</b></font>
 </p>
 
@@ -862,14 +929,16 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So first you have to take it as a hypotheses but keep your minds open if it exists, there is a power which has come to us, this knowledge has come to us from ancient times, from sears and great Saints: right from Mārkaṇḍeya, Ādi Śhaṅkarāchārya, then we had in the twelve century Gyāneśhwara who has described in the sixth century [chapter], then we had uh Kabīra, Nāṇaka, Nāmadeva, all of them. "</font><br>
 <font size="+0"><b>1993-0310 Press Conference (English and Hindi mixed), Pune, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now the Sahaj Knowledge, I wouldn't say is modern or is Mine. We have had this since long, in our country.<br>
+<font color="red">I would say, from Mārkaṇḍeya onward, we had Ādi Śhaṅkarāchārya.</font> Then we had Gyāneśhwara. Then we had  all these people like Guru Nāṇaka, Kabīra. All of them have described it.<br>
+But it was kept in such a manner, that people thought that, 'It was too much uh-uh-uh philosophic or spiritual that we cannot do it.' "<br>
 <font size="+0"><b>1993-0319 Press Conference (Medical and Scientific), Meridian Hotel, New Delhi, India</b></font>
 </p>
 
@@ -890,7 +959,7 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"I don't know if you have read about Mārkaṇḍeya, who is, see, was about fourteen thousand years back in history. And He has talked about Kuṇḍalinī. "</font><br>
 <font size="+0"><b>1994-0115 Public Program, Bengaluru, Karnataka, India</b></font>
 </p>
 
@@ -904,7 +973,9 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"In the twelfth century, one great poet called Gyāneśhwara, He asked permission from His Master, His own brother was His Master, that, "Allow Me to talk about It. And I will not do anything but I'll just talk about It in My book, Gyāneśhwarī." In the sixth chapter, He wrote very clearly about It.<br>
+<font color="red">In Sanskrit we had, fourteen thousand years back, a great Mārkaṇḍeya, who had written about It. Sixth century also Ādi Śhaṅkarāchārya wrote about It. But it was all in Sanskrit, was not available to common people.</font><br>
+After this, after the twelfth century, many wrote [about] It."<br>
 <font size="+0"><b>1994-0408 Public Program, Civic Theatre, Canberra, Australia</b></font>
 </p>
 
