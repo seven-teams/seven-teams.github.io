@@ -58,7 +58,7 @@ We will be first worshipping Śhrī Mātājī in Her Nine Forms of Śhrī Durgā
 </p>	
 
 <p>
-"<font color="DarkGreen"><b>Brahmadeva said;</b></font><br>
+"<font color="DarkGreen"><b>Brahmadeva said:</b></font><br>
 Brahmin, there is Devī Kavach which is most secret and useful to all beings.<br>
 Please listen to that, O Great Sage.<br>
 The following nine names have been told by the Great Soul Brahmadeva<br>
@@ -101,7 +101,7 @@ We can wash Her Holy Lotus Feet, decorate it with kumkum, offer fragrance, flowe
 </p>
 
 <p>
-<b>Perform Ghaṭasthāpanā:</b><br>
+<b>Performing Ghaṭasthāpanā:</b><br>
 Items listed above to be used in the following sequence:<br> 
 Keep the big plate on the left side of Śhrī Mātājī (our right side when we face towards Śhrī Mātājī) on the floor. A little amount of akshada (rice mixed with turmeric) is to be put on the floor below a big plate.<br>
 * Fill in the big plate 1/2 full with the soil.<br> 
@@ -111,9 +111,6 @@ Keep the big plate on the left side of Śhrī Mātājī (our right side when we 
 * Offer haldi and kumkum, akshada, flowers, and garland to the Kalash.<br>
 * Spread sowing the Wheat grains/ Nine grains in the big plate around the Kalash in the soil (earth element).<br>
 * Spread the soil in little quantity over the wheat grains and sprinkle some water over it.<br>
-</p>
-
-<p>
 Offer prasad and perform Āratī to Śhrī Mātājī. Then sit in meditation collectively.
 </p>	
 
