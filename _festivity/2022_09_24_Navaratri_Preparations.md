@@ -18,7 +18,7 @@ tags:
 <div style="text-align: center"><img src="/images/image1018.png" /></div>
 
 <p>
-"<font color="DarkGreen"><b>Brahmadeva said:</b><<br>
+"<font color="DarkGreen"><b>Brahmadeva said:</b><br>
 Brahmin, there is Devī Kavach which is most secret and useful to all beings.<br>
 Please listen to that, O Great Sage.<br>
 The following nine names have been told by the Great Soul Brahmadeva<br>
@@ -37,7 +37,7 @@ Himself. Durgā is known by these names:<br>
 </p>
 
 <p>
-<font color="DarkGreen"><font size="+0"><b>Navarātri Song (9 description of 9 Avatār of the gGddess and 10th is when She sits on the lion)</b></font></font>
+<font color="DarkGreen"><font size="+0"><b>Navarātri Song (9 description of 9 Avatār of the Goddess and 10th is when She sits on the lion)</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
