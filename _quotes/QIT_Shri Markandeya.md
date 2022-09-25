@@ -436,7 +436,7 @@ Also when they went there, to find the kind of Christ was represented was horrif
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">In India, there was a poet called Mārkaṇḍeya, eh ... about fourteen thousand years back, who has written about this happening.<br> 
+"<font color="red">In India, there was a poet called Mārkaṇḍeya, eh ... about fourteen thousand years back, who has written about this happening.</font><br> 
 In the South [India] there is a prayer uh pray uh place called uh-uh-uh Shit-chin ... Chind-indra, Chindindra. Means: the Indra, the King of the Devas, was given Realization, made ... was made a hole in the head, chind Indra.<br>
 So, God knows how many years back it happened.<br>
 And it is said: that, "Once it happens, then you find the All-pervading Power, the Brahma." "<br>
