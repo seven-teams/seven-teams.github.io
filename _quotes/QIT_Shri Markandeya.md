@@ -654,7 +654,7 @@ There nobody said that Kuṇḍalinī is a dangerous thing and you get burnings 
 "Those two Incarnations, we will call them Principle of the Disciple. Not the Guru Principle, which also incarnates, but that one is fully of Divine Nature. So, these two incarnate as Disciple Principle. [Ces deux Incarnations, nous Les nommerons Le Principe du Disciple, pas de Principe du Gourou, lequel s'incarne aussi, mais celui-ci est entièrement de Nature Divine. Donc, ceux-là s'incarnent sur cette terre comme Principes du Disciple.]<br>
 First, they incarnated, as we say, as Lava and Kuśha, each one being specially assisted by Saint Gabriel and Saint Michel. [Tout d'abord ils s'incarnèrent, nous dirons, comme Lava and Kuśha, chacun est spécialement assisté par Saint Gabriel et Saint Michel.]<br>
 These two Incarnations incarnated later as Buddha and Mahāvīra, who came once again as Śhaṅkara [who had been Buddha] and Kabīr [who had been Mahāvīra]. Kahlil Gibran is part of their Incarnations. <font color="red">So was Mārkaṇḍeya, and we can say that our William Blake is part of it.</font> [Ces deux Incarnations s'incarnèrent plus tard comme Bouddha et Mahāvīra, lesquels revinrent à nouveau au sixième siècle de notre èrecomme Śhankara [c'était Bouddha], puis [c'était Mahāvīra]. Kahlil Gilran fait partie de Leurs Incarnations. Mārkaṇḍeya aussi, et on peut dire que notre Mister Blake en fait partie.]"<br>
-<font size="+0"><b>1984-0507 Interview with Michel Sadashiva Cherney for the Sahaja Yoga Magazaine in French \textcolor{greeny}{\it L'Attention, Issue 4, Pages 32 to 37}, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), France</b></font>
+<font size="+0"><b>1984-0507 Interview with Michel Sadashiva Cherney for the Sahaja Yoga Magazaine in French L'Attention, Issue 4, Pages 32 to 37, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), France</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -684,7 +684,7 @@ In spite of this, it was never disclosed how this happens, because the time was 
 
 <p>
 "But actually, there are only three castes: sāttvik, rājasik and tāmasik. <font color="red">Fourteen thousand years ago Mārkaṇḍeya Swāmī said, "Yā Devī sarvabhūteśhu, Jāti rūpeṇa saṃsthitā."</font> Three are only castes in Devī, Mahālakṣhmī, Mahāsaraswatī, Mahākālī, and no fourth caste.<br>
-{\textcolor{darklavender}{One is above [the] three Jātis, that is Paramātma. He has no caste."<br>
+One is above [the] three Jātis, that is Paramātma. He has no caste."<br>
 <font size="+0"><b>1985-0215 Public Program (English+Hindi), Day 4, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
