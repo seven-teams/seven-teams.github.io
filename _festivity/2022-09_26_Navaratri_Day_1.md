@@ -18,16 +18,16 @@ He has never worshiped anybody else except Mother. Hence He is so great. All oth
 <div style="text-align: center"><img src="/images/image1019.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"Today we worship the Himalayas and the seven Goddesses whose blessings are here and pray to them to bless us with Devī Śhakti.<br>
+<font color="red">"Today we worship the Himalayas and the seven Goddesses whose blessings are here and pray to them to bless us with Devī Śhakti.<br>
 We have received the blessings of the Devī Śhakti from a Mother.<br>
-That is why, in the form of Mother, let us come to the feet (śharaṇāgat) of the Himalayas.
+That is why, in the form of Mother, let us come to the feet (śharaṇāgat) of the Himalayas.<br>
 <b>Keep your attention on yourself.</b>"</font><br>
 <font size="+0"><b>1985-0329 Śhrī Śhailaputrī Devī Pūjā (English+Hindi) (7th Day of Chaitra Navarātri), Exhibition Hall, Basement of the Puruṣhottam Hotel, Talnoo, Naddi (11 kms NNE of Dharmaśhālā), Himachal Pradesh, India</b></font>
 </p>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>"And even that there was Military, and there were jeeps passing when I was coming, they saw Me, they had to salute. And the gentleman in charge of the command, he came down, three times, just to see Me. He saw Me off at the station, I mean, all ... as if all of them knew. And they were singing the song, <br>'You, the person that belongs to our hills.' 'Paharoṃwālī Śheroṃwālī', the one who is of the tigress, the one who is the daughter of the mountains.<br>
-The first name of the Goddess is Śhailaputrī, as you know, that Śhailaputrī means the daughter of the mountains. So to them, I was just their own.</b> They were waiting for Me, they knew, I was to come, I came -- they got it. So that's the good conditioning. You are conditioned the other way, never recognize anyone."</b></font><br>
+<font color="DarkGreen">"And even that there was Military, and there were jeeps passing when I was coming, they saw Me, they had to salute. And the gentleman in charge of the command, he came down, three times, just to see Me. He saw Me off at the station, I mean, all ... as if all of them knew. And they were singing the song, <b>'You, the person that belongs to our hills.' 'Paharoṃwālī Śheroṃwālī', the one who is of the tigress, the one who is the daughter of the mountains.<br>
+The first name of the Goddess is Śhailaputrī, as you know, that Śhailaputrī means the daughter of the mountains. So to them, I was just their own.</b> They were waiting for Me, they knew, I was to come, I came -- they got it. So that's the good conditioning. You are conditioned the other way, never recognize anyone."</font><br>
 <font size="+0"><b>1985-0502 Talk to Sahaja Yogis, Nirānanda, Āśhram, Vienna, Austria</b></font>
 </p>
 
@@ -53,7 +53,7 @@ The Himalayas are the Sahasrāra that Mother Earth has created for you. This Sah
 
 <div style="text-align: center"><img src="/images/image1022.png" /></div>
 
-<p><font size="+0"><b>(Śhrī Mātājī wrote the poem 'Mountain' in Cabella)</b></font></p>
+<p style="text-align:center;"><font size="+0"><b>(Śhrī Mātājī wrote the poem 'Mountain' in Cabella)</b></font></p>
 
 <p>
 <font color="DarkRed">"<b>On this day Devī is worshiped as Śhailaputrī, means the daughter of Himalaya.</b> Devī has many other names also but first of all She incarnated as Śhailaputrī in the cold of Himalayas. She incarnated and whatever She was to do. She started there. Further story is known to you. [King] Dakṣha did not invite Lord Śhiva in the Havana that he performed and Śhailaputrī was the consort of Lord Śhiva. She is called Satī because She entered the Holy fire of Havana and ablated Herself. But by then Lord Śhiva reached there. He lifted her burnt up body from the fire. Burnt pieces of the body of Śhailaputrī fell at many places. All these places are considered to be Śhakti Pīṭhas, the places of worship, as there is in Vindhyāchala and many other places. Her power moves there and it is said that it Sanctifies everything. Her seventh power is considered to be the Power of Destruction. Śhakti manifested Itself on the right side as Sāvitrī and Gāyatrī but the destroying force was manifested in the center. In the form of Durgā and Her other forms manifested in Heart chakra. She is present there. If someone hurts you, confuses or disturbs you then this power will protect you and destroy your enemy."</font><br>
@@ -63,19 +63,14 @@ The Himalayas are the Sahasrāra that Mother Earth has created for you. This Sah
 <div style="text-align: center"><img src="/images/image1023.png" /></div>
 
 <p style="color:indigo; text-align:center;">
-<b>Auṃ Śhrī Mahāgaṇapati Devatā bhyo namaḥ padyaṃ samarpayāmi.!</b><br>
+<b>Auṃ Śhrī Mahāgaṇapati Devatā bhyo namaḥ padyaṃ samarpayāmi!</b><br>
 O Supreme Chief of the Gaṇas<br>
 We pay Homage to You,<br>
 We offer You this bath of Your Holy Feet, please accept it!<br>
 </p>
 
-<p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
-<font size="+0"><b></b></font>
-</p>
 
-<p>
-<font color="DarkRed">O Daughter of the King of the mountains!<br>
+<p style="color:red; text-align:center;">>O Daughter of the King of the mountains!<br>
 The sages say that the world has its dissolutions and Genesis<br>
 With the closing and opening of Thine Eyes,<br>
 Thine Eyes are bereft of winking,<br>
