@@ -18,7 +18,7 @@ tags:
 <div style="text-align: center"><img src="/images/image1018.png" /></div>
 
 <p>
-"<font color="DarkGreen"><b>Brahmadeva said:</b><br>
+<font color="DarkGreen"><b>"Brahmadeva said:</b><br>
 Brahmin, there is Devī Kavach which is most secret and useful to all beings.<br>
 Please listen to that, O Great Sage.<br>
 The following nine names have been told by the Great Soul Brahmadeva<br>
@@ -37,7 +37,7 @@ Himself. Durgā is known by these names:<br>
 </p>
 
 <p>
-<font color="DarkGreen"><font size="+0"><b>Navarātri Song (9 description of 9 Avatār of the Goddess and 10th is when She sits on the lion)</b></font></font><br>
+<font color="DarkGreen"><font size="+0"><b>Navarātri Song (9 descriptions of 9 Avatārs of the Goddess and 10th is when She sits on the lion)</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -55,26 +55,26 @@ The first day of Navarātri signifies God’s desire to create the universe whic
 </p>
 
 <p>
-<font size="+0"><b>Things required for Ghaṭasthāpanā:</b><br>
+<font color="DarkGreen"><font size="+0"><b>Things required for Ghaṭasthāpanā:</b><br>
 * Ghaṭa (kalash) made of earth/Copper/brass<br>
 * Coconut- decorated as we decorate for Pūjā Kalash<br>
 * A big plate filled with 1/2 soil- Plate can be made of earth/copper/brass<br>
 * 10 Mango or Betel (Pan) leaves<br>
 * One handful Nine Grains (Nava-dhanya) or Whole Wheat Grains (soaked in normal water, night before the first day of Navarātri)<br>
-* A big lamp (diya) which we can keep lit for 10 days uninterrupted in front of Mother</font><br>
+* A big lamp (diya) which we can keep lit for 10 days uninterrupted in front of Mother</font></font><br>
 </p>
 
 <p>
-<font size="+0"><b>On the first day of Navarātri: Ghaṭasthāpanā</b><br>
+<font color="DarkGreen"><font size="+0"><b>On the first day of Navarātri: Ghaṭasthāpanā</b><br>
 All the members of the family or collective can sit and meditate. All the things mentioned above should be kept ready in front of Śhrī Mātājī.<br>
 A small Pūjā can be offered at the Holy Lotus Feet of Śhrī Mātājī.<br>
 Collectively recite Mahāmantras and then Śhrī Gaṇeśh Mantra.<br>
 Collectively recite Śhrī Gaṇeśha Atharvashirsha.<br>
-We can wash Her Holy Lotus Feet, decorate it with kumkum, offer fragrance, flowers, etc., while singing Devī bhajans collectively.</font><br>
+We can wash Her Holy Lotus Feet, decorate it with kumkum, offer fragrance, flowers, etc., while singing Devī bhajans collectively.</font></font><br>
 </p>
 
 <p>
-<font size="+0"><b>Performing Ghaṭasthāpanā:</b><br>
+<font color="DarkGreen"><font size="+0"><b>Performing Ghaṭasthāpanā:</b><br>
 Items listed above to be used in the following sequence:<br> 
 Keep the big plate on the left side of Śhrī Mātājī (our right side when we face towards Śhrī Mātājī) on the floor. A little amount of akshada (rice mixed with turmeric) is to be put on the floor below a big plate.<br>
 * Fill in the big plate 1/2 full with the soil.<br> 
@@ -83,8 +83,8 @@ Keep the big plate on the left side of Śhrī Mātājī (our right side when we 
 * Keep the decorated Kalash in the center of the big plate already filled with soil.<br>
 * Offer haldi and kumkum, akshada, flowers, and garland to the Kalash.<br>
 * Spread sowing the Wheat grains/ Nine grains in the big plate around the Kalash in the soil (earth element).<br>
-* Spread the soil in little quantity over the wheat grains and sprinkle some water over it.</font><br>
-Offer prasad and perform Āratī to Śhrī Mātājī. Then sit in meditation collectively.
+* Spread the soil in little quantity over the wheat grains and sprinkle some water over it.<br>
+Offer prasad and perform Āratī to Śhrī Mātājī. Then sit in meditation collectively.</font></font>
 </p>  
 
 <p style="color:red; text-align:center;">
