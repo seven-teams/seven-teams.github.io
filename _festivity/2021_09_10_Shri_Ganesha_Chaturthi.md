@@ -1,5 +1,5 @@
 ---
-title: '2021 Celebrating Śhrī Gaṇeśha Chaturthī: "Chaturthi is the day He is established, Gaṇeśha is established on this Chaturthī" '
+title: '2021 Celebrating Śhrī Gaṇeśha Chaturthī: "Chaturthī is the day He is established, Gaṇeśha is established on this Chaturthī" '
 date: 2021-09-10
 permalink: /festivity/2021/09/10
 tags:

@@ -1,5 +1,5 @@
 ---
-title: '2019 Anant Chaturdashi: "The day when we visarjan, dissolve Shri Ganesha in the water"'
+title: '2019 Celebrating Anant Chaturdaśhī: "The day when we visarjan, dissolve Śhrī Gaṇeśha in the water"'
 date: 2019-09-12
 permalink: /festivity/2019/0912
 tags:
@@ -9,8 +9,7 @@ tags:
 ![PICTURE 1](/images/image1.png)
 
 <p>
-<font color="DarkRed">"Firstly, in every place, one has to establish Shri Ganesha. Shri Ganesha, as you know, is the source of auspiciousness, of holiness, of innocence and all these three things come from the wisdom of Shri Ganesha.<br>
-So first and foremost is the wisdom within you. With wisdom, you will know what is auspicious, what is holiness. This wisdom is not a worldly-wise wisdom but divine wisdom, which comes to us with our ascent. So the duty of every Sahaja Yogi is to establish this source of wisdom."</font><br>
+<font color="DarkRed">"Firstly, in every place one has to establish Śhrī Gaṇeśha. Śhrī Gaṇeśha, as you know, is the Source of Auspiciousness, of Holiness, of Innocence and all these three things come from the wisdom of Śhrī Gaṇeśha. So first and foremost is the wisdom within you. With wisdom, you will know what is auspicious, what is holiness. This wisdom is not a worldly-wise wisdom but Divine Wisdom, which comes to us with our ascent. So the duty of every Sahaja Yogi is to establish this Source of Wisdom."</font><br>
 <font size="+0"><b>1990-0213 Mahishasura Mardini Puja, House, Bangalore, Karnataka, India</b></font>
 </p>
 
@@ -64,19 +63,22 @@ You have a big belly and wear a yellow silk dhoti and the sacred thread,<br>
 <b>Saraḷ soṇḍa vakra tuṇḍa trinayanā,</b><br>
 Your unusual face has a curved trunk and three eyes,<br>
 <b>Dāas. Rāmāchā vāṭ pāhe sadanā,</b><br>
-The servant of Shri Rāma is waiting for You in this house (body),<br>
+The servant of Śhrī Rāma is waiting for You in this house (body),<br>
 <b>Sañkaṭi pāvāve, nirvāṇī rakṣhāve, suravar. vandanā,</b><br>
 At times of problems You save us, from calamities, You protect us,<br> 
 You who are worshipped as the Greatest of the Deities.<br>
 </p>
 
 <p>
-<font color="DarkRed">"Shri Ganesha's blessings are very important for all the people who are specially prone to some sort of a hurdle or 'sankata' as they call it. He is called as Sankata Vimochan, the One who takes you out of all the hurdles of life. So many of you have experienced how He has helped you in different troubles and hurdles, and also different type of very, very difficult times. It is His style that He manages things so well, because He's the Ganapati. "Ganapati" means the One who is the Lord of the Ganas. As I have told you, ganas exist within us, very nicely settled down as these bodies, small, small bodies who report; if there's any problem, they report to the brain that there's a problem."</font><br>
+<font color="DarkRed">"Śhrī Gaṇeśha's blessings are very important for all the people who are specially prone to some sort of a hurdle or saṅkaṭa as they call it. He's called as Saṅkaṭa Vimochan: the one who takes you out of all the hurdles of life. So many of you have experienced how He has helped you in different troubles and hurdles and also different type of very, very difficult times.<br>
+It is His style that He manages thing[s] so well because He is a Gaṇapati. Gaṇapati means: the One who is the Lord of the Gaṇas.<br>
+As I have told you, gaṇas exist within us, very nicely settled down as uh these bodies, small, small bodies who report: if there's any problem, they report to the brain that there's a problem."</font><br>
 <font size="+0"><b>1999-0925 Śhrī Gaṇeśha Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Italy</b></font>
 </p>
 
 <p>
-<font color="DarkRed">"So now, when we deal with our children, we should know that they are just like Shri Ganesh; they are very innocent, very simple - except in cases, sometimes, they are affected by some things and they lose their moorings. But Shri Ganesha's greatest contribution to Sahaja Yoga is that He makes you feel My vibrations. He makes you feel the beauty of purity and simplicity. Only possible if Shri Ganesha is awakened within you. Also, the Kundalini won't rise without the sanction of this Chancellor. He's the One sitting on Mooladhara, but you should know He's on every chakra. Innocence cures all the maladies - physical, mental, emotional, especially the spiritual one. But Shri Ganesha's quality, the most important is that He believes in emitting vibrations. He believes in projecting His vibrations to everyone - that is the quality now I feel all of you as Sahaja Yogis can use."</font><br>
+<font color="DarkRed">"So now, when we deal with our children, we should know that they are just like Śhrī Gaṇeśh: they are very innocent, very simple, except in cases sometimes they are affected by some things and they lose their moorin... moorings.<br>
+But Śhrī Gaṇeśha's greatest contribution to Sahaja Yoga is that He makes you feel My vibrations. He makes you feel the beauty of purity and simplicity. [It's] only possible if Śhrī Gaṇeśha is awakened within you. Also, the Kuṇḍalinī won't rise without the sanction of this Chancellor. He's the one sitting on Mūlādhāra. But you should know He is on every chakra. Innocence cures all the maladies: physical, mental, emotional, specially the spiritual one. But Śhrī Gaṇeśha's quality is the most important is: that He believes in emitting vibration[s], He believes in projecting His vibrations to everyone. That is the quality now I feel all of you, as Sahaja Yogis, can use."</font><br>
 <font size="+0"><b>1995-0910 Śhrī Gaṇeśha Pūjā, Hangar, Cabella Ligure, Italy</b></font>
 </p>
 
@@ -91,18 +93,18 @@ We came to know the pure knowledge in Your Lotus Feet<br>
 You are the giver of salvation, so please give us the moksha<br>
 <b>Tu Vināshinī bhava kalesha ki</b><br>
 You are the destroyer of fears and distresses<br> 
-<b>Jay Jay Janani Shri Ganesh. Ki</b><br>
+<b>Jay Jay Janani Śhrī Gaṇeśha Ki</b><br>
 <a href="https://www.youtube.com/watch?v=rao2-KuHLJE"> video</a><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0">1991-0915 Ganesha Puja Talk, Cabella, Italy</font>
+<font size="+0">1991-0915 Śhrī Gaṇeśha Pūjā, Cabella, Italy</font>
 <a href="https://www.youtube.com/watch?time_continue=1&v=1qfV6iYtsqI"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Shri Ganesha jai Shri Ganesh</b></font><br>
+<font color="green"><b>Śhrī Gaṇeśha jai Śhrī Gaṇeśha</b></font><br>
 <a href="https://www.youtube.com/watch?v=GCgN6qnmNiA">video</a><br>
 </p>
 
@@ -117,7 +119,7 @@ You are the destroyer of fears and distresses<br>
 </p>
 
 <p>
-<font color="green"><b>Jay Gan raya, Shri Gan raya</b></font><br>
+<font color="green"><b>Jay Gaṇarāyā, Śhrī Gaṇarāyā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
