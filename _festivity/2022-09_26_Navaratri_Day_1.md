@@ -70,12 +70,12 @@ We offer You this bath of Your Holy Feet, please accept it!<br>
 </p>
 
 
-<p style="color:red; text-align:center;">>O Daughter of the King of the mountains!<br>
+<p style="color:red; text-align:center;">O Daughter of the King of the mountains!<br>
 The sages say that the world has its dissolutions and Genesis<br>
 With the closing and opening of Thine Eyes,<br>
 Thine Eyes are bereft of winking,<br>
 With a view to saving from dissolution this entire universe,<br>
-Which has its origin in the opening of Thine Eyes.</font><br>
+Which has its origin in the opening of Thine Eyes.<br>
 <font size="+0">(Saundarya Lahiri by Śhrī Ādi Śhaṅkarāchārya)</font>
 </p>
 
