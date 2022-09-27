@@ -476,7 +476,7 @@ She appeared in the stone to Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"This knowledge has been a secret knowledge for thousands of years till it came in the sixth century the Ādi Śhaṅkarāchārya, who was a very great realized Soul, who came on this Earth, He started talking about it. <font color="red">About fourteen thousand years back, since then, we can see there were poets who wrote about Kuṇḍalinī, like Mārkaṇḍeya. But it is in the poetry form, and oh was only available to very few people who were capable of coming to the situation of Self-realization.</font>"<br>
 <font size="+0"><b>1982-0927 Public Program, Day 2, Knowledge of the Roots, Urania Volkshochschulen, Volksbildungshaus, Uraniastraße 1, Vienna, Austria</b></font>
 </p>
 
