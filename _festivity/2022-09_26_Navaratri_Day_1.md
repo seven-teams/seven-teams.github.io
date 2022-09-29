@@ -1,5 +1,5 @@
 ---
-title: '2022 Worshipping the Devī during Navarātri festival: "On this day Devī is worshiped as Śhailaputrī, means the daughter of Himalaya" '
+title: '2022 Worshipping the Devī during Navarātri Festival: "On this day Devī is worshiped as Śhailaputrī, means the daughter of Himalaya" '
 date: 2022-09-26
 permalink: /festivity/2022/09/26
 tags:

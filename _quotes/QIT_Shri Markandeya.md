@@ -1094,6 +1094,13 @@ And then, in the twelfth century, Gyāneśhwarjī spoke about it. When He wrote 
 <div class="para-divider"></div>
 
 <p>
+"Now you can understand that how far it is important to save our country and to stimulate the greatness of this country -- this is our duty. No one from outside will come and do this. We have to do it.<br>
+How can we do it? A very simple and easy method is to awaken the Kuṇḍalinī of people.<br>
+<font color="red">In Maharashtra, in the sixteenth century, so many Saints had talked about Kuṇḍalinī awakening -- just talked. And, Saint Gyānadeva told about this in the twelfth century. But Ādi Śhaṅkarāchārya told in the sixth century and fourteen thousand years back Mārkaṇḍeya told about it. All that these people have said, is it all in vain?</font>"<br>
+<font size="+0"><b>1999-0220 Public Program (Hindi+Marathi), Hamārī Sanskṛiti ki Viśheṣhatā (Specialty of Our Culture), Śhivajī Park, Dadar West, Dadar, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<p>
 <font color="red">""</font><br>
 <font size="+0"><b>2000-0417 Public Address to Income Tax Officers Meeting, New Delhi, India</b></font>
 </p>
