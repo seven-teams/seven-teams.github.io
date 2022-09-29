@@ -469,7 +469,9 @@ She appeared in the stone to Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Like, if you see Ādi Śhaṅkarāchārya's descriptions or that even Mārkaṇḍeya's descriptions about your Mother, it's remarkable: how little, little things He could see, from where, from what angle. And every little bit of Mother He could see, as a child would see, you see, absolutely close to the Mother. That means the innocence was complete and perfected in Them. Otherwise you can't see these points that They have seen, all the little things like the three folds of the Mother. How can anyone see? But a child can see that three folds of the Mother's are there, that She has three folds in Her body. Uh only a child can see that.<br>
+It's-ss tremendous. I tell you, it's tremendous: Their innocence, Their penetration, and Their cou-rage.</font><br>
+You need real courage to grow into that penetration."<br>
 <font size="+0"><b>1982-0926 Śhrī Durgā Pūjā, Mind Is just like a Donkey, House of Grégoire de Kalbermatten, Sternwartestrasse 62, Vienna, Austria</b></font>
 </p>
 
@@ -499,14 +501,18 @@ We have forgotten so many things. Even in the Indian Scriptures we['ve] never se
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"From Nasik you'll get ... go to see the ... this Chatturśhṛiṅgi, Temple of Mārkaṇḍeya, which is a very beautiful one, early in the morning. "</font><br>
 <font size="+0"><b>1982-1220 Talk to Sahaja Yogis, Instructions for Maharashtra Tour, Lonavala, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now this triangular bone is called as sacrum. Sacrum means sacred. In greek language, sacrum means sacred.<br>
+And when I went to Greece, I asked them, "Why do you call it sacrum?" So, they told Me: that they had a rapport with Indians, much ... much, much before ... Alexander came here. And the Indians told them that, 'There is a power in this triangular bone.'<br>
+Can you imagine? We have forgotten it, we have lost it. Because we have studied only the British or whatever is English or you can call it a Western medical science.<br>
+<font color="red">But in our science, you will be surprised, fourteen thousand years back, Mārkaṇḍeya has talked about it.</font><br>
+We Indians are best suited for this to understand."<br>
 <font size="+0"><b>1983-0104 Public Talk, Sholapur Brunch of Indian Medical Association, Sholapur, Maharashtra, India</b></font>
 </p>
 
@@ -520,7 +526,14 @@ We have forgotten so many things. Even in the Indian Scriptures we['ve] never se
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Hindu religion now we can take what even Ādi Śhaṅkarāchārya has said, that: "Na Yogen na Sāṅkhyen" [part of line 1 of Vivekachūḍāmaṇi 56]. "It's only through Mother's Grace you can get your Realization."<br>
+Everybody, intellectuals and all that fought with Him, and were arguing with Me. Like Mister Sh... there was a Sharma fellow who uh-uh quite argued.<br>
+And He got so fed up with all those arguments and, "Śhabda jālam," [laughing:] that He said, "[],"  He wrote the last, was Saundaryalaharī, praising the Mother. Describing all the waves of the different types of śhaktis that flow from Her and how they take their forms.<br>
+And every couplet that He has written is a Mantra! But who knows about it?<br>
+Everybody who were supposed to be intellectuals in those days said, "Ohh! What are you doing? Here You are writing like Vivekachūḍāmaṇi and all that, and today why are You writing like this? What is the need to write about this?" So, He said, "This is the way it is going to work out. This is the way it is. Not by all these arguments, śhabda jālam, by talking about it but by happening of the Kuṇḍalinī."<br>
+He is the one who first time opened this knowledge of Kuṇḍalinī, in His books.<br>
+<font color="red">Of course, it was talked long time back, fourteen thousand years back, by Mārkaṇḍeya.<br>
+But we Indians are so modern that we don't know who is Mārkaṇḍeya is. [Laughing:] I don't know if people who are not Sahaja Yogis have even heard the name of Mārkaṇḍeya, who is the basis of Sahaja Yoga.</font>"<br>
 <font size="+0"><b>1983-0129 Public Program, Day 3, False Gurus and Conditionings, FICCI Auditorium, 1 Tansen Mārg, New Delhi, India</b></font>
 </p>
 
@@ -585,8 +598,14 @@ Sixth century is the time when Ādi Śhaṅkarāchārya incarnated on this Earth
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b>1983-0317 Quote (St. Patrick Day), Talk to Sahaja Yogis, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
+"Even today there are people who do not believe in the Incarnation of Christ. Very 'nice', because that's the ego behind them. And those who pamper their ego like this, they like such people.<br>
+We do not understand what Christ has done for us.<br>
+Let Me tell you about His own subtle methods by which He came on this Earth.<br>
+<font color="red">In the Devī Purāṇ, which you people seldom read -- I think it is translated in English -- which was written fourteen thousand years back ...</font><br>
+As I told you, only fifty years back all these nonsensical people came and got all the perverted, useless literature printed and everybody is basing their analogies on those fifty years, which are nothing compared to the traditional thousands of years which were spent in India in seeking God.<br>
+<font color="red">Fourteen thousand years back, Mārkaṇḍeya, a great poet, has written about Kuṇḍalinī, has written about the Mother.<br>
+He has written about Christ. He called Him Mahāviṣhṇu, because He is ... He is the Son of Viṣhṇu. And He's described it in such a way that if you read it you will be amazed, you'll think all these-s special points of Christ are described in it. He was called as the Support, Ādhāra, of the Universe.</font>"<br>
+<font size="+0"><b>1983-0317 Public Program, Day 3, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
