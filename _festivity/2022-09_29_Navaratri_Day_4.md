@@ -28,7 +28,7 @@ You are the Destructive Power.<br>
 </p>
 
 <p>
-<font color="DarkRed">You see God’s creation. He has created you and He’s not the one who is going to destroy His own creation. You don’t do anything. You just don’t do anything.<br>
+<font color="DarkRed"><b>You see God’s creation.</b> He has created you and He’s not the one who is going to destroy His own creation. You don’t do anything. You just don’t do anything.<br>
 You see, this is the wrong impression human beings have got. What they do is a dead work. Now see, the flowers are dead so you have arranged them. The tree is dead so you have made the furniture, that is all.<br>
 Dead to the dead. Any living work can you do? Any living work? Nothing. Only after Realization, you can do it, by awakening the Kuṇḍalinī. Then you can do it. Then you are entitled to become the master.</font><br>
 <font size="+0"><b>1992-0306 Interview with a Lady for a Radio Station, Hong Kong, China</b></font>
@@ -79,11 +79,11 @@ Devī Kavach: <a href="https://youtu.be/AgWCcYR9gHU?list=PL439F7AE9D4C1E99A">vid
 <div style="text-align: center"><img src="/images/image1034.png" /></div>
 
 <p style="text-align:center;">
-<b>Sahaja Yogi [reads]:</b> "O Devī, we bow before You, who are Yourself good fortune in the dwellings of the virtuous, and ill-fortune in those of the vicious, intelligence in the hearts of the learned, faith in the hearts of the good, and modesty in the hearts of the high-born. May You protect the universe!" 
+<b>Sahaja Yogi [reads]:</b> "O Devī, we bow before You, who are Yourself good fortune in the dwellings of the virtuous, and ill-fortune in those of the vicious, intelligence in the hearts of the learned, faith in the hearts of the good, and modesty in the hearts of the high-born. May You protect the universe!"<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"><b>This is a prayer.</b></font><br>
 <font size="+0"><b>1980-0719 Comments on the Reading from Devī Māhātmyam, before the Talk on the Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font><br>
 <br>
-<font color="red"><b>Auṃ Twameva sākṣhāt Śhrī Kuṣhmāṇḍa sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
+<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Kuṣhmāṇḍa sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
 O Divine Mother, You are verily Shri Kush-manda, the one whose void contains the universe!<br>
 Salutations to You!</font>
 </p>
