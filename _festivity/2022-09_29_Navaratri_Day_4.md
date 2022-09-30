@@ -56,9 +56,9 @@ The whole universe is but your form</b><br>
 <div style="text-align: center"><img src="/images/image1033.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b></b></font><br>
-<b></b></font><br>
-<font color="DarkRed"><b></b></font><br>
+<font color="DarkRed"><b>Śhrī Mātāj</b></font>: Kavach – kavach is the cover, kavach is the cover.<br>
+<b>Sahaja Yogi:</b> Shield.<br>
+<font color="DarkRed"><b>Śhrī Mātāj</b></font>: Shield, shield, kavach. <b>Kavach is shield</b>, sorry kavach is shield!<br>
 <font size="+0"><b>1982-1009 Bestowing of Boons Pūjā, House of Maria Laventzi, Irchester (near Wellingborough), UK</b></font><br>
 Devī Kavach: <a href="https://youtu.be/AgWCcYR9gHU?list=PL439F7AE9D4C1E99A">video</a>
 </p>
@@ -103,7 +103,7 @@ Salutations to You!</font>
 </p>
  
 <p>
-<font color="FireBrick"><b>Ankhe band karu</b></font><br>
+<font color="green"><b>Ankhe band karu</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
