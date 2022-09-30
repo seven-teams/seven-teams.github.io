@@ -485,7 +485,7 @@ You need real courage to grow into that penetration."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">Now, it is described in the Purāṇas, if you read there's a book of Mārkaṇḍeya, which these people should know how Mahāviṣhṇu was created by Rādhā, who was the second Incarnation of this [principle].</font> First came Sītā, then came Rādhā, and then came uh-uh-uh Mary. These are the three human Incarnations of that force which is Mahālakṣhmī, on this Earth."<br>
 <font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
