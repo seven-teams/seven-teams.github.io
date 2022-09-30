@@ -38,9 +38,6 @@ Now, <b>just introspect if you have these qualities within you or not, because t
 <font size="+0"><font color="green"><b>Yā Devī sarvabhūteśhu (2000-1008 Navarātri Pūjā, Cabella)</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-</p>
-
-</p>
 
 <div style="text-align: center"><img src="/images/image1025.png" /></div>
 
@@ -63,7 +60,7 @@ As you know that, within our body, She is placed as Kuṇḍalinī. [It] means S
 </p>
 
 <p>
-<font color="DarkRed">"When we lose our Innocence and our Virginity, first thing happens to us is that we become ego-oriented, and we start thinking “what’s wrong?”<br>
+<font color="red">"When we lose our Innocence and our Virginity, first thing happens to us is that we become ego-oriented, and we start thinking “what’s wrong?”<br>
 <b>Your śhakti is your Kuṇḍalinī and She is Virginity. She is your power. She is your strength.</b> Your Innocence is your strength, the day you lost it that is the day we have committed the original sin."</font><br>
 <font size="+0"><b>1982-1017 Navarātri Pūjā (1st Day), Innocence and Virginity (Your Śhakti Is Your Kuṇḍalinī and She Is Virginity or A New Page Has Been Turn), Temple of All Faiths, Hampstead, London, UK</b></font>
 </p>
@@ -91,9 +88,8 @@ All moments of concerns and sorrows vanish<br>
 Nowhere else can my soul find peace except in the company (in union) with God Almighty<br>
 <font color="indigo">PRABHU MAZA SWAYE NĪTĪ, PRABHU MAZA SWAYE PRITĪ</font><br>
 My God himself is Truth and Love<br>
-<a href="https://youtu.be/_yoOiLcEL9U">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1982-1017 Navarātri Pūjā (1st Day), Innocence and Virginity (Your Śhakti Is Your Kuṇḍalinī and She Is Virginity or A New Page Has Been Turn), Temple of All Faiths, Hampstead, London, UK</b></font>
