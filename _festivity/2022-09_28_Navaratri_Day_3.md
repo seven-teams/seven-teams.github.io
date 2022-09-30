@@ -36,7 +36,7 @@ Like a tender, lovely spotless Lotus-petal the crescent Moon adorns Your forehea
 Your movements are like a graceful and playful group of Swans;<br>
 Like a swarm of bees to fragrant flowers, the stars adorn Your forehead. Victory to You<br>
 <br>
-<font color="DarkGreen"><font size="+0"><b></b></font>/font><br>
+<font color="DarkGreen"><font size="+0"><b></b></font></font><br>
 <a href="https://youtu.be/dSIEMZflZa0">video</a>
 </p>
 
