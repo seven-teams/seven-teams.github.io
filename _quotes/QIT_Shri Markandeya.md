@@ -618,7 +618,7 @@ He has written about Christ. He called Him Mahāviṣhṇu, because He is ... He
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"From fourteen thousand years back, you will be surprised, there was a great Seer called Mārkaṇḍeya, who has written all about Kuṇḍalinī, about the ascent of the Kuṇḍalinī and everything."</font><br>
 <font size="+0"><b>1983-0916 Public Program, Bertine Auditorium, C.G. Jung Institute, 28 East 39th Street, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -710,7 +710,14 @@ One is above [the] three Jātis, that is Paramātma. He has no caste."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"See, about, I think seventy or eighty years back there was one fellow, he came out, his name was Viṣhṇu Tīrth, and he wrote a very funny book, uh where he's talked of something aruṇo dāyen [aruṇopāyane] all sorts of things, you see, which is nowhere, has no connection with the traditions of India, nothing. And that, in that a person starts jumping.<br>
+Actually, there was a fellow sitting with his bo... both feet towards Me. And this people said, "You can't sit like this towards Mother." So he said, "No, because I ... my Kuṇḍalinī It's awakened, I'll jump like a .... uh-uh-uh ... jump like a frog." [Laughing:] So they said ...<br>
+Now,  I called him and I said: "How can you jump like a frog? Now you are a human being, you cannot become a frog." So he said, "No, I'll be jumping like a frog."<br>
+So he brought this book of Viṣhṇu Tīrth is. And I was amazed that in book was written in that ... written that, "When the Kuṇḍalinī It's awakens you jump like a frog."<br>
+And that's what the people are doing it, Muktananda's, it's another fellow, Gluruvāṇī [Guruvāṇī] Mahārat.<br>
+Actually, these are, I call them the karadeṃ kāris, the ... are the destroyers of people who have come. Those people, for your intellectuals, for them this gentleman is there. He talks intellectually, this, that and that, and this finishes them all. Is like that! They are the destroyers of these people!<br>
+Then there are some people who are born like we have the Brahmins in India, orthodox Brahmins, for them this Guruvāṇī has come. And he taught them all these things aruṇo [<font color="orange">unclear</font> duayeti], this, that, and all that.<br>
+And then, all of them are sick: they have got high blood pressure, they have got all kinds of troubles, they are horrible people, uh ...  and they came to see Me. And they said, "Mother, uh do you believe in this uh aruṇo dāyen, paruṇo dāyen, all that?" "But what it's all that?" They said, "Viṣhṇu Tīrth," but, "Who is that? Where is it written? We have Scriptures, thousands of years back. Where is it? <font color="red">Fourteen thousand years back, Mārkaṇḍeya wrote about it. Where is it?" </font>"<br>
 <font size="+0"><b>1985-0301 Workshop, Āśhram, Crawley (7 kms SW of Perth), WA, Australia</b></font>
 </p>
 
