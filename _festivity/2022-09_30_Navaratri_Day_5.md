@@ -38,7 +38,7 @@ So you have to do full justice to Sahaja Yoga, that’s very important."</font><
 <font color="indigo"><b>Salutations to You O Goddess Chāmuṇḍā Nārāyanī,<br>
 whose mouth was dreadful with its great teeth,<br>
 Who wore a garland of human skulls as an ornament and killed the demon Muṇḍa.</b></font><br>
-<font size="+0"><b><(Mahālakṣhmī Hymn, Chapter 11 of the Devī Mahātmyam)/b></font>
+<font size="+0"><b>(Mahālakṣhmī Hymn, Chapter 11 of the Devī Mahātmyam)</b></font>
 </p>
 
 <p>
