@@ -49,7 +49,7 @@ Nobody has the right to touch that fire because you cannot enlighten the fire.<b
 When you get Realization you will be surprised fire gets enlightened and you put your hands towards the fire you might get a black soot coming out of you. It’s all artificial."</font><br>
 <font size="+0"><b>1984-0314 Conversation with Sahaja Yogis, Evening Program, House of Yogi Mahajan, A 47 Friends Colony East, New Delhi, India</b></font><br>
 <br>
-<font size="+0"><b>As we perform the Havan we could recite the 108 names of Śhrī Durgā</b></font><br>
+<font size="+0">As we perform the Havan we could recite the <b>108 names of Śhrī Durgā</b></font><br>
 <a href="https://youtu.be/42XQqX3g96U">video</a>
 </p>
 
