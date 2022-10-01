@@ -62,7 +62,7 @@ But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart."</b
 <font size="+0"><b>1996-1221 Śhrī Kārttikeya Pūjā (Marathi+English), Śhrī Gyāneśhwara, Park (200 m from ISYRH Center), C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font><br>
 <br>
 <font color="indigo"><b>Kāla-rātrīm Brahma-stutām Vaishnavīm Skanda-mātaram<br>
-Saraswatīm Aditim Daksha-duhitaram namāmah pāvanām shivām </b><br>
+Saraswatīm Aditim Daksha-duhitaram namāmah pāvanām shivām</b></font><br>
 <font size="+0"><b>Salutations to the Goddess, Who is the darkest night, 
 Who is praised even by Brahmadeva himself, 
 Who is the Power of Śhrī Vishnu, The Mother of Śhrī Kartikeya, 
@@ -110,8 +110,12 @@ It fills My heart to see how since long the seekers have been asking for this Un
 </p>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b></b></font><br>
-<font size="+0"><b></b></font><br>
+<font color="DarkRed">"You understand the meaning: is the ... is the praise of the Dayānī uh ... the Bhavānī, the Goddess.<br>
+Is She so compassionate and She's the One who is uh described by all the human beings, and all the great Saints, and all the Gods.<br>
+And the second [thing] is that She Herself, She when She gets angry, She can become a volcano.<br>
+And when She's a Chaṇḍī, She's ... She's a volcano, and that is how She killed Mahiṣhāsura.<br>
+That is the song, is uh quite a powerful song. But My voice ......"</font><br>
+<font size="+0"><b>1985-0518 Talk to Sahaja Yogis, Evening Bhajans, the day before Śhrī Gaṇeśha Pūjā, Nirmala House, Sant'Angelo Romano (7 kms N of Guidonia), Italy</b></font><br>
 <a href="https://youtu.be/vqd4mzk44Qk">video</a>
 </p>
 
