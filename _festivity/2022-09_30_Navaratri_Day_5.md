@@ -95,7 +95,7 @@ It fills My heart to see how since long the seekers have been asking for this Un
 </p>
 
 <p>
-<font color="green"><b>Jagadambetza Jogwa</b></font><br>
+<font color="green"><b>Jagadambetza Jogawa</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
@@ -106,7 +106,7 @@ It fills My heart to see how since long the seekers have been asking for this Un
 
 <p>
 <font color="green"><b>Jago Hey Jagadambe</b></font><br>
-<a href="">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p style=" text-align:center;">

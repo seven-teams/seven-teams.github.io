@@ -19,7 +19,7 @@ To protect them, She incarnated. But they knew what was good, they knew what was
 <font size="+0"><b>1991-1013 Navarātri Pūjā (6th Day), False Religion and Recognize Me, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1037.png" /></div>
+<div style="text-align: center"><img src="/images/image1038.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Etathe vadanam saumyam</b></font><br>
@@ -40,7 +40,7 @@ Most important thing is, this Śhakti is so comforting, so nurturing, so generou
 <font size="+0"><b>1988-1016 Navarātri Pūjā (Hindi) (6th Day), Hamāre Jīvana kā Lakṣhya (The Aim of Our Lives), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1038.png" /></div>
+<div style="text-align: center"><img src="/images/image1039.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkGreen">"Actually, nobody has right even to do a Havana unless and until he is not a realized Soul.<br>
@@ -58,7 +58,7 @@ When you get Realization you will be surprised fire gets enlightened and you put
 <font size="+0"><b>1989-1008 Navarātri Pūjā (cusp between 8th Day and 9th Day), The Content Within (How Deeply You Have Touched the Feet of the Divine), Butlins Grand Hotel, Margate (123 kms ESE of London), UK (other day 1007)</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1039.png" /></div>
+<div style="text-align: center"><img src="/images/image1040.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>[Śhrī Mātājī explains that Kattyayeni (Kātyāyanī) killed the demon Kolhāsur and this is why Kolhapur is called as such].</b></font><br>
