@@ -1,0 +1,8 @@
+{
+  "Filters": { "filter": { "type": true } },
+  "More filters": { "filter": { "type": true } },
+  "Sorting": { "sorter": { "enable": true } },
+  "Links": { "format": "link" },
+  "Popups": { "popup": { "enable": true } },
+  "More Popups": { "popup": { "enable": true, "count": 3 } }
+}
