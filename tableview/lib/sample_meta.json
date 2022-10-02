@@ -7,7 +7,7 @@
   "Langauge": { "filter": { "type": true }, "sorter": { "enable": true } },
   "Published by and/or Author": { "filter": { "type": true }, "sorter": { "enable": true } },
   "Type of Publication": { "filter": { "type": true }, "sorter": { "enable": true } },
-  "Download": { "format": "link" },
+  "Download": { "format": "link", "formatParams": { "target": "_blank" } },
   "Share": { "format": "link" },
   "Publication place": { "filter": { "type": true }, "sorter": { "enable": true } },
   "Volume No": { "filter": { "type": true }, "sorter": { "enable": true } },
