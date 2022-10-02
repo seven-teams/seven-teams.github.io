@@ -1,6 +1,6 @@
 ---
 title: "Table Test Post"
-date: 2022-01-01
+date: 9999-12-31
 permalink: /archives/tabletest.html
 tags:
   - red @ archive
