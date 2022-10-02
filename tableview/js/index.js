@@ -50,6 +50,7 @@ try {
               .slice(0, cfgs?.popup?.count || 8)
               .join(cfgs?.popup?.delimiter || " ")
         : cfgs?.format,
+      formatterParams: cfgs?.formatParams,
     })),
     ajaxURL: params.data,
   });
