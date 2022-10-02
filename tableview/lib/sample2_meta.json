@@ -1,4 +1,5 @@
 {
+  "#": { "format": "rownum" },
   "Filters": { "filter": { "type": true } },
   "More filters": { "filter": { "type": true } },
   "Sorting": { "sorter": { "enable": true } },
