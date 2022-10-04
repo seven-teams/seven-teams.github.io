@@ -9,7 +9,7 @@ tags:
 <br>
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image1041_Photo_credit_Jo_Băjescu.jpg" /></div>
+<div style="text-align: center"><img src="/images/image1041_Photo_credit_Jo_Bajescu.jpg" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
