@@ -27,11 +27,11 @@ Himself. Durgā is known by these names:<br>
 2nd BRAHMACHĀRIṆĪ (One Who observes the state of Celibacy)<br>
 3rd CHANDRAGHAṆṬĀ (One Who use the Moon as Her bell)<br>
 4th KUṢHMĀṆDĀ (Mother's lap)<br>
-5th SKANDAMATA (Mother of Śhrī Kārttikeya)<br>
+5th SKANDAMĀTĀ (Mother of Śhrī Kārttikeya)<br>
 6th KATYAYANI (Who incarnated to help the Devas)<br>
-7th KALARATRI (Who is even the destroyer of Kali)<br>
-8th MAHAGAURI (Ādi Kuṇḍalinī)<br>
-9th SIDDHIDATRI (Giver of all Siddhis)<br>
+7th KĀLARĀTRĪ (Who is even the destroyer of Kali)<br>
+8th MAHĀGAURĪ (Ādi Kuṇḍalinī)<br>
+9th SIDDHIDATRĪ (Giver of all Siddhis)<br>
 10th ŚHRĪ ĀDI ŚHAKTI (Śhrī Mātājī Nirmalā Devī)"</font><br>
 (from the Kavach of the Devī: Navarātri Nights, Pune 1988-10) 
 </p>

@@ -3,7 +3,7 @@ title: '2022 Worshipping the Devī during Navarātri Festival: "introspect if yo
 date: 2022-09-27
 permalink: /festivity/2022/09/27
 tags:
-  - deeppink @ Shri Shailaputri
+  - deeppink @ Shri SBrahmacharini
   - green @ Navaratri
 ---
 

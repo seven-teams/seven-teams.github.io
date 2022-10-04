@@ -3,7 +3,7 @@ title: '2022  Worshipping the Devī during Navarātri Festival: "Kuṣhmāṇḍ
 date: 2022-09-29
 permalink: /festivity/2022/09/29
 tags:
-  - deeppink @ Shri Shailaputri
+  - deeppink @ Shri Kushmanda
   - green @ Navaratri
 ---
 

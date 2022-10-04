@@ -3,7 +3,7 @@ title: '2022 Worshipping the Devī during Navarātri Festival: "Goddess used to 
 date: 2022-10-01
 permalink: /festivity/2022/10/01
 tags:
-  - deeppink @ Shri Shailaputri
+  - deeppink @ Shri Katyayani
   - green @ Navaratri
 ---
 

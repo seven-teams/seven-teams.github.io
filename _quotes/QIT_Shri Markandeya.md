@@ -611,7 +611,21 @@ He has written about Christ. He called Him Mahāviṣhṇu, because He is ... He
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"William Blake calls them: the, "Men of God."<br>
+Men of God are the people who are seekers! Whatever mistakes they are doing, whatever they're doing, they are Men of God. They are special people, who are Seekers of God. And such Seekers of God are special people, a special category.<br>
+And what He says, He has described Sahaja Yoga hundred years back. He was a great Seer of England: a very great Seer. He said, that, "Men of God will become Prophets, and they will have power to make other Prophet."<br>
+And that's what exactly Sahaja Yoga is.<br> 
+I mean, He is so great! The amount of things He has seen about Sahaj Yog is so great that one can't understand such a Seer to see these things hundred years back.<br>
+<font color="red">We had one like that, Mārkaṇḍeya, about fourteen thousand years back. And I wonder it [He] was the same personality was born in England about hundred years back to see clearly, even the places and things they have described!</font><br>
+Is so wonderful, that one can't imagine how He has been able to talk about it. And what He said, ultimately, that: `One day, England has to become Jerusalem!' That's what it is! It has to become! <br>
+......<br>
+Oh, it is absolutely traditional! Is absolutely traditional, it is a... uh ... is so ancient, the Sahaja Yoga. Is as ancient as anything else.<br>
+<font color="red">It was fourteen thousand years back, also, there was this Mārkaṇḍeya was born, who's talked about it.</font><br>
+Sahaja Yoga is the most ancient thing.
+......<br>
+Is the most traditional thing!<br>
+But how it was kept a secret? Because there were very few realized Souls.<br>
+So, this third path, we call the central path of evolution, was not so much talked about. <font color="red">Though Mārkaṇḍeya, fourteen thousand years back, has talked about Kuṇḍalinī, about Self-realization, but how it works out, they did not talk. They kept it like a secret.</font>"<br>
 <font size="+0"><b>1983-0525 Public Program, Within Us there Is a Power Which Can Fulfill Our Seeking, Lewes Town Council, High Street, Lewes, East Sussex, UK</b></font>
 </p>
 
