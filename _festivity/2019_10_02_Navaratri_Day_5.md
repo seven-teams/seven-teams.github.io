@@ -3,7 +3,7 @@ title: '2019 Celebrating Navarātri (Day 5): Worshiping Śhrī Mātājī in the 
 date: 2019-10-02
 permalink: /festivity/2019/1002a
 tags:
-  - deeppink @ Shri Shandamata
+  - deeppink @ Shri Skandamata
   - green @ Navaratri
 ---
 
