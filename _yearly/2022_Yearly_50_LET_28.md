@@ -44,7 +44,7 @@ Links to suggested talk: <a href="https://vimeo.com/19916596"> vimeo</a>, <a hre
 <p>
 <b>Objectives:</b><br>
 5. To introduce the only one internal living religion lying dead and camouflaged under external practices and precepts of religion in all the human beings and for this to organize tours and hold spiritual meetings as per wishes of Mātājī.<br>
-To open, organize and run local centers of the Life Eternal Institution in various parts of India and in foreign countries, the centers being opened on the distinct understanding that meditation is the path of the entire human destiny, and that all barriers of states, nations and races are artificial and irrelevant to Life Eternal.<br>
+22. To open, organize and run local centers of the Life Eternal Institution in various parts of India and in foreign countries, the centers being opened on the distinct understanding that meditation is the path of the entire human destiny, and that all barriers of states, nations and races are artificial and irrelevant to Life Eternal.<br>
 </p>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
