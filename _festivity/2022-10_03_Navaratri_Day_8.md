@@ -43,7 +43,7 @@ May God bless you."</b></font><br>
 </p>
 
 <p>
-<font color="DarkRed">"So the second thing is, [which] today we do, is a very great Pūjā of Aṣhṭamī [eighth day]: is the day when the Goddess killed nine rākṣhasas together with Her eight hands. So today is a very special day for which a very special attention is needed.<br>
+<font color="DarkRed">"So the second thing is, [which] today we do, is a very great <b>Pūjā of Aṣhṭamī [eighth day]: is the day when the Goddess killed nine rākṣhasas together with Her eight hands. So today is a very special day for which a very special attention is needed</b>.<br>
 It’s only at the behest of the bhaktas that the Goddess took Her form and killed all these rākṣhasas.<br>
 Also with Her eight hands, She killed Mahiṣhāsura. That’s why She’s called as Mahiṣhāsura Mardini. She’s called as Nava Chaṇḍī, one who has killed nine Chandas, means nine rākṣhasas She has killed. So is a very important day and very vital and very deep."</font><br>
 <font size="+0"><b>1982-0201 Śhrī Durgā Pūjā (English+Marathi+English), House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
@@ -58,16 +58,17 @@ Please give us the spiritual personality, victory and glory and destroy our enem
 </p>
 
 <p>
-<font color="DarkRed">"In the `Mahālakṣhmī Strotum', why should we have all these. Because it is the Kuṇḍalinī. The Mahālakṣhmī is the channel of the Kuṇḍalinī, so there are Aṣhṭa Lakṣhmīs. Then Mahālakṣhmī and lastly the Dakṣha Lakṣhmī. We have got one after another these powers within us which are expressed on the Mahālakṣhmī channel. Now, in the Mahālakṣhmī channel we have to talk about Gaurī. Because Gaurī is the one which is the Kuṇḍalinī. So they have to talk that's why they say ``Uday, uday hey Ambe." They say in the Mahālakṣhmī temple. Why because, in the Mahālakṣhmī temple only they have to say that now you rise, we are ready, we are prepared, we have got the <b>Mahālakṣhmī Principle within us and now you can rise,' the Kuṇḍalinī and that's why the āvāhana</b>.<br>
+<font color="DarkRed">"In the 'Mahālakṣhmī Strotum', why should we have all these. Because it is the Kuṇḍalinī. The Mahālakṣhmī is the channel of the Kuṇḍalinī, so there are Aṣhṭa Lakṣhmīs. Then Mahālakṣhmī and lastly the Dakṣha Lakṣhmī. We have got one after another these powers within us which are expressed on the Mahālakṣhmī channel. Now, in the Mahālakṣhmī channel we have to talk about Gaurī. Because Gaurī is the one which is the Kuṇḍalinī. So they have to talk that's why they say, "Uday, uday hey Ambe." They say in the Mahālakṣhmī temple. Why because, in the Mahālakṣhmī temple only they have to say that now you rise, we are ready, we are prepared, we have got the <b>Mahālakṣhmī Principle within us and now you can rise,' the Kuṇḍalinī and that's why the āvāhana</b>.<br>
 'Pālan[a]' means mothering or looking after the child. She is the one who looks after the whole world like a mother."</font><br>
-<font size="+0"><b></b></font><br>
+<font size="+0"><b>1988-1018 Talk to Sahaja Yogis, Navarātri Celebrations (8th Day), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font><br>
 <font color="DarkGreen">"Uday, Uday Hey Ambe"</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Mahāgaurī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
+<p style="color:DarkRed; text-align:center;">
+<b>Auṃ Twameva sākṣhāt Śhrī Mahāgaurī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 O Divine Mother, You are verily the Ādi Kuṇḍalinī (the purest form)<br> 
-Salutations to You!<br>
+Salutations to You!<br></p>
 
 <div style="text-align: center"><img src="/images/image1047.png" /></div>
 
@@ -87,8 +88,8 @@ Salutations to You!<br>
 <font color="indigo"><b>Teri Jayjaykar. Ho</b></font><br>
 <font size="+0"><b>We pay our salutations to You!</b></font><br>
 <font color="green"><b>Durgati Harini Durgā Ambe</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-<font color="red"><b>We pray to the Supreme Goddess today<br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<font color="DarkRed"><b>We pray to the Supreme Goddess today<br>
 O Devi, O Mahadevi, please protect us.</b></font>
 </p>
 
