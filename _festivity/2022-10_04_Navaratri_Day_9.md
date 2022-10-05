@@ -30,7 +30,7 @@ In all incarnation of the Goddess there have been very much incarnated the satan
 <font size="+0"><b>1993-1024 Navarātri Pūjā (Dussehra Day), Reintrospect Yourself, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1049.png" /></div>
+<div style="text-align: center"><img src="/images/image1049.jpg" /></div>
 
 <p style="text-align:center;">
 <font color="purple"><b><br>
@@ -51,7 +51,7 @@ This is the last day, so you have to think like that, then tomorrow is the day o
 <font size="+0"><b>1988-1019 Navarātri Pūjā (9th Day), Raise above Āgñyā (Left Āgñyā and Right Āgñyā), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1050.png" /></div>
+<div style="text-align: center"><img src="/images/image1050.jpg" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"This Pūjā is very special, many will go deep and receive tremendous blessings.<br>
