@@ -1173,6 +1173,22 @@ So many religions have started, in the name of God, without going to the Truth, 
 <div class="para-divider"></div>
 
 <p>
+"Sahaja Yoga is not a new thing. In the tradition of spirituality, it is mentioned, about fourteen thousand years back, by Mārkaṇḍeya, that, 'Ultimately it is the force, within you, of the Holy Ghost, which is called as Kuṇḍalinī, residing in the triangular beau ... bone, has to give the Realization.'<br>
+But for that happening, human being had to be prepared. People had to be balanced.<br>
+<font color="red">And that is how many Prophets came on this Earth, after that, in the same tradition, to prepare people to have that balance. Right from Abraham, Moses, we see Them, follow Them up up ... up to Rāja Janaka, who was the father-in-law of Rāma, and later on we had so many others like Muhammad Sāhab, Nāṇak Sāhab, on this Earth, to tell us about having a balance in live. They taught us moderation, and not to go to extremes.</font>"<br>
+<font size="+0"><b>1984-0905 Public Program, Day 1, Christian Tradition and Christ, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "So, when we seek also the Truth, we try to get to a new method all the time. And I think the evil[s] that came uh in forms of wrong type of gurus are the product of this kind of demand.<br>
 Only seventy to hundred years back, I should say, in India, suddenly a new wave of some new ideas about the knowledge of the roots started.<br>
 <font color="red">Some things that they talk of are not written in the Vedas, nor in the Purāṇas, nor in any books of uh uh ori-ental knowledge, nor in any books that are uh written after Christ, like the Bible, or Qur'ān after Muhammad Sāhab, and also uh the writings of Zoroaster. It has no relationship whatsoever to the ancient findings about the roots.</font><br>

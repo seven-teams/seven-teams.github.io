@@ -617,7 +617,7 @@ And what He says, He has described Sahaja Yoga hundred years back. He was a grea
 And that's what exactly Sahaja Yoga is.<br> 
 I mean, He is so great! The amount of things He has seen about Sahaj Yog is so great that one can't understand such a Seer to see these things hundred years back.<br>
 <font color="red">We had one like that, Mārkaṇḍeya, about fourteen thousand years back. And I wonder it [He] was the same personality was born in England about hundred years back to see clearly, even the places and things they have described!</font><br>
-Is so wonderful, that one can't imagine how He has been able to talk about it. And what He said, ultimately, that: `One day, England has to become Jerusalem!' That's what it is! It has to become! <br>
+Is so wonderful, that one can't imagine how He has been able to talk about it. And what He said, ultimately, that: 'One day, England has to become Jerusalem!' That's what it is! It has to become! <br>
 ......<br>
 Oh, it is absolutely traditional! Is absolutely traditional, it is a... uh ... is so ancient, the Sahaja Yoga. Is as ancient as anything else.<br>
 <font color="red">It was fourteen thousand years back, also, there was this Mārkaṇḍeya was born, who's talked about it.</font><br>
@@ -677,7 +677,14 @@ There nobody said that Kuṇḍalinī is a dangerous thing and you get burnings 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"But how do you do it? Where do you get that eternal life which cannot be crushed? So somebody had to show what is that.<br>
+Kṛiṣhṇa has described it so clearly in His lifetime: that, 'You have to achieve that eternal life which I am telling you.'<br>
+So somebody had to come on this Earth, on this Āgñyā chakra, to work it out.<br>
+<font color="red">In that I would say that you should go and read some of these treaties about Mahāviṣhṇu which is described by Mārkaṇḍeya. Mārkaṇḍeya is the person who has very clearly described the origin of Mahāviṣhṇu.</font><br>
+Mahāviṣhṇu was created by Śhrī Rādhājī.<br>
+Śhrī Rādhājī is the Mahālakṣhmī, is the Suṣhumṇā, is the parasympathetic nervous system within ourselves.<br>
+She has created with Her own willpower, this Mahāviṣhṇu. And this one was like an egg. And half of it became active and became Mahāviṣhṇu.<br>
+And with that active uh Mahāviṣhṇu, we can uh cross through the Āgñyā chakra."<br>
 <font size="+0"><b>1984-0317 Public Program, Day 5, Āgñyā Chakra, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
@@ -693,14 +700,14 @@ These two Incarnations incarnated later as Buddha and Mahāvīra, who came once 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"The Kuṇḍalinī has been described by many people but specially I would mention Mārkaṇḍeya who lived about fourteen thousand years back. He described this Kuṇḍalinī, about which I told you yesterday, which resides in the triangular bone. "</font><br>
 <font size="+0"><b>1984-0726 Public Program, Day 2, Session 2 (evening), Hove Town Hall, Norton Road, Hove (next, W of Brighton), East Sussex, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Sahaja Yoga is not a new thing. <font color="red">In the tradition of spirituality, it is mentioned, about fourteen thousand years back, by Mārkaṇḍeya, that, 'Ultimately it is the force, within you, of the Holy Ghost, which is called as Kuṇḍalinī, residing in the triangular beau ... bone, has to give the Realization.'</font> "<br>
 <font size="+0"><b>1984-0905 Public Program, Day 1, Christian Tradition and Christ, Vienna, Austria</b></font>
 </p>
 
@@ -875,7 +882,8 @@ In the South [India], Gyāneśhwarjī has spoken a lot about it.<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">[Speaking again on the kavach:] "<font color="red">Which was promised long time back by Mārkaṇḍeya, now you have achieved it. This He had promised fourteen thousand years back that, 'When Mahāmāyā will come, She will do this work.'</font><br> 
+That it will happen. We must realize that we are getting all the promises fulfilled for us."</font><br>
 <font size="+0"><b>1988-1014 Talk to Sahaja Yogis, Navarātri Celebrations (4th Day), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
@@ -897,7 +905,9 @@ In the South [India], Gyāneśhwarjī has spoken a lot about it.<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"This is all written in our Scriptures.<br>
+<font color="red">Apart from that, we had great poets, the saint[ly] poets, like Mārkaṇḍeya Swāmī who, it is said, lived fourteen thousand years back.</font><br>
+After that, so many Saints wrote about Self-realization."<br>
 <font size="+0"><b>1989-0316 Public Program (Hindi), Kuṇḍalinī Ke Jāgran Ke Bād Lābh (Benefits after Awakening of Kuṇḍalinī) or The Power of Love and the Blessings of Kuṇḍalinī, Noida, Uttar Pradesh, India</b></font>
 </p>
 
@@ -911,7 +921,10 @@ In the South [India], Gyāneśhwarjī has spoken a lot about it.<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"[We had many Yogis who started work on the middle path of human ascent like Gorakhnāth, Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], Macchindranāth. They worked on the problem of human beings and how to make this ascent possible. They discovered in human beings in the triangular bone sacrum a residual power.]<br>
+<font color="red">[Over fourteen thousand years ago Mārkaṇḍeya talked about it.]</font><br> 
+[In eighth and ninth century A.D., Vasu Gupta wrote about it.]<br>
+[So the culmination or last achievement is to ascend into a new awareness of your Spirit.]"<br>
 <font size="+0"><b>1989-1018 Public Talk, 1st World Conference on Yoga Organized by the Soviet Ministry of Health, Moscow University, Moscow, Russia (other date 1019)</b></font>
 </p>
 
@@ -925,7 +938,17 @@ In the South [India], Gyāneśhwarjī has spoken a lot about it.<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now, it's not at all dangerous, how can it be? It's your mother! It's your mother.<br>
+When you were born, your mother took all the care, that you are not hurt, she took all the pains upon herself, she suffered.<br>
+So in the same way the Kuṇḍalinī is your mother, your individual mother. And She has recorded everything about you. Like a tape recorder, we can [laughing:] say, She's coiled up. And She knows everything about you. And She's so smoothly rises. You will be surprised how smoothly It does.<br>
+Of course, sometimes you do get little heat, because there's heat in the body and your eh this thing opens out, so the heat comes out, doesn't matter. But is nothing, uh nothing dangerous, nothing dangerous at all.<br>
+But those people talk of danger, have no authority to do it.<br>
+Supposing somebody wants you to put your hands in the plugs and you say that, 'Electricity is dangerous,' means this fellow doesn't know anything, he's a rustic fellow, has never seen electricity.<br>
+They have no authority. That's why they are talking like this and deviating people from getting their Realization.<br>
+But it is a very modern thing, you will be surprised. This is only last fifty years people have been talking like that. Some Germans went to India, they must have met some horrible people there, and they have written all these things. Then others started writing, others started doing this.<br>
+<font color="red">But in the olden books you read about, there's one Mārkaṇḍeya, they say He lived in the year fourteen thousand years back.</font><br>
+Then there was ... there were so many ... uh-uh-uh like, we can say Śhaṅkarāchārya was there, Gyānadeva was there, uh Nāṇaka was there, Kabīra, nobody said so!<br>
+It's a ... only this is a modern idea to frighten people that they shouldn't get their Realization. Is just a modern idea."<br>
 <font size="+0"><b>1990-0603 Public Program, Day 1, Miami, FL, U.S.A.</b></font>
 </p>
 
