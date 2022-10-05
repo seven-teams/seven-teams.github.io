@@ -1,5 +1,5 @@
 ---
-title: '2022 Worshipping the Devī during Navarātri Festival: "When I say Sahaj Yog, you know that is the Yoga of your attention with My Feet. That's what it is." '
+title: '2022 Worshipping the Devī during Navarātri Festival: "When I say Sahaj Yog, you know that is the Yoga of your attention with My Feet. That&#8217;s what it is." '
 date: 2022-10-05
 permalink: /festivity/2022/10/05
 tags:
