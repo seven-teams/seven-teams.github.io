@@ -25,7 +25,7 @@ Because I have been on this Earth many a times before – that you know. But we 
 </p>
 
 <p>
-<font color="DarkRed">"<b>Now you enter into the Kingdom of God. Then the Śhakti makes you sit on different beautiful positions, and some are sitting in the Heart of God, some are sitting in the Sahasrāra of God, in the Kingdom of God.<br>
+<font color="DarkRed">"<b>Now you enter into the Kingdom of God. Then the Śhakti makes you sit on different beautiful positions, and some are sitting in the Heart of God, some are sitting in the Sahasrāra of God, in the Kingdom of God.</b><br>
 Now you should assume your power. On Navarātri now, you should understand that it has now crossed the limit and now we are on the tenth position, where you must assume. I have told you many a times, now believe that you are Sahaja Yogis. Believe that you are, you have entered into the Kingdom of God. You cannot judge God, you cannot say why She does that, why She does that, why He does that. You cannot say that – that’s different. But when you sit there, then it is not an assembly, it is not like a politician fighting, no; it is that you have entered into the Kingdom of God, blessed by God, looked after, protected, nourished, and made knowledgeable.<br>
 ...... So Navarātri’s – <b>now, the tenth day of Navarātri, which is the most important for all of you, is where this Paramachaitanya has become active. And by its activity you should know it is become very powerful, and that now anybody who tries to be nasty with you, tries to trouble you – “I don’t have to worry at all.” It will take care of it</b>."</font><br>
 <font size="+0"><b>1992-0927 Navarātri Pūjā (1st Day), 10th Position or Divine Knowledge is the Reality, Tent, Cabella Ligure, Alessandria, Italy</b></font>
@@ -127,7 +127,7 @@ But if you are still moving with your egos, <b>and if you are still thinking on 
 </p>
 
 <p>
-<font size="+0"><b>Jay He Jay He Jay He Devī</b></font><br>
+<font color="green"><b>Jay He Jay He Jay He Devī</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
