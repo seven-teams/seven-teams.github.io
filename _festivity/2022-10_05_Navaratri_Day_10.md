@@ -34,8 +34,8 @@ Now you should assume your power. On Navarātri now, you should understand that 
 <div style="text-align: center"><img src="/images/image1052.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>On this day of this Pūjā, <b>it’s such a combination that it’s the Dussehra, I am here and also you can call it the last day of the Devī Pūjā.</b><br> 
-We have to see within ourselves, introspect ‘What have I done for Sahaja Yoga?</b></font><br>
+<font color="DarkRed">"On this day of this Pūjā, <b>it’s such a combination that it’s the Dussehra, I am here and also you can call it the last day of the Devī Pūjā.</b><br> 
+We have to see within ourselves, introspect ‘What have I done for Sahaja Yoga?"</b></font><br>
 <font size="+0"><b>1993-1024 Navarātri Pūjā (Dussehra Day), Reintrospect Yourself, Tent, Cabella Ligure, Alessandria, Italy</b></font><br>
 <br>
 <font color="indigo"><b>Jay jay Raghuvīra Samartha </b></font><br>
@@ -58,7 +58,7 @@ So this day is regarded as a very important day in India, and they make a big st
 <div style="text-align: center"><img src="/images/image1053.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">" You desire something, you'll be surprised, immediately you'll find it works out. You ask for something, immediately it works out.<br>
+<font color="DarkRed">"You desire something, you'll be surprised, immediately you'll find it works out. You ask for something, immediately it works out.<br>
 <b>But there should be a complete dedication in Sahaja Yoga.<br>
 When I say Sahaj Yog, you know that is the Yoga of your attention with My Feet. That's what it is.</b><br>
 But if you are still moving with your egos, <b>and if you are still thinking on those lines that, `We are something and the we can start our own Sahaj Yog</b>. We can work out this way and that way,' or 'My wife is like that, my child is like that, my husband is like that,' <b>you have to give up all these problems on one side, otherwise you will not ascend</b>."</font><br>
@@ -92,8 +92,8 @@ But if you are still moving with your egos, <b>and if you are still thinking on 
 </p>
 
 <p>
-<font color="green"><b>Ayi Giri Nandini:</b></font><br>
-<a href="">video</a>
+<font color="green"><b>Ayi Giri Nandini</b></font><br>
+<a href="https://www.youtube.com/watch?v=dSIEMZflZa0&ab_channel=SahajiBhai">video</a>
 </p>
 
 <p>
