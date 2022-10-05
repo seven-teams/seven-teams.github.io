@@ -19,7 +19,7 @@ The first thing is that Kuṇḍalinī is the Devī. She’s the reflection of t
 
 <p style="text-align:center;">
 <font color="indigo"><b>prakṛtistvaṃca sarvasya guṇatraya vibhāvinī<br>
-kāḷarātrirmahārātrirmoharātriśca dāruṇā</b>
+kāḷarātrirmahārātrirmoharātriśca dāruṇā</b><br>
 You are the primordial cause of everything<br>
 Bringing into force the three qualities (sattva, rajas and tamas)<br>
 You are the dark might of periodic dissolution<br>
@@ -44,7 +44,7 @@ And <b>the seventh day is for tremendous activity, tremendous ... uh ... creativ
 <div style="text-align: center"><img src="/images/image1042.png" /></div>
 
 <p>
-<font color="DarkRed">"So, today's victory of the Power of the Divine Mother, is doing one very great work: is to expose. And this exposure will be condemning publicly those people who are doing wrong. If you see from that point of view, you will understand how we are victorious now. "</font><br>
+<font color="red">"So, today's victory of the Power of the Divine Mother, is doing one very great work: is to expose. And this exposure will be condemning publicly those people who are doing wrong. If you see from that point of view, you will understand how we are victorious now."</font><br>
 <font size="+0"><b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -88,7 +88,7 @@ Salutations to You O Kālarātrī (the longest night)</b></font><br>
  
 <p>
 <font color="green"><b>Jay Durgā Mātā Bhavānī (Rāg Durgā by Ajit Kadkade)</b></font><br>
-<a href="">video</a> 
+<a href="https://youtu.be/HgN42YkSHkY">video</a> 
 </p>
 
 <p>
