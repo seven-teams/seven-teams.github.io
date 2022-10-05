@@ -67,7 +67,7 @@ But if you are still moving with your egos, <b>and if you are still thinking on 
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
-<a href=""> video</a><br>
+<a href="https://vimeo.com/76751298"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
