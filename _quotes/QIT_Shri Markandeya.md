@@ -955,21 +955,29 @@ It's a ... only this is a modern idea to frighten people that they shouldn't get
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"But in the twelfth century there was a great saint called Gyāneśhwara who broke this tradition and He asked His master, His own ... His elder brother was His master, that, "Just please allow Me to at least write it down. Let people know." 
+<font color="red">Though in the Sanskrit language we have many, many uh-uh-uh uh books and many, many treatise about it, fourteen thousand years back Mārkaṇḍeya wrote about Kuṇḍalinī.</font><br>
+But He [Śhrī Gyāneśhwara] wrote it in Marathi language, we see is a local language or you can say which is a vernacular language, in which He wrote that, "There is this Kuṇḍalinī which has to be awakened, otherwise you cannot get your Realization." "</font><br>
 <font size="+0"><b>1991-0405 Public Program, Brisbane, Queensland, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">Fourteen thousand years back Mārkaṇḍeya has writtten about Kuṇḍalinī, then also Ādi Śhaṅkarāchārya, everybody has talked about Kuṇḍalinī.</font><br>
+But the system was such that ah the ... tradition was to have one guru to one disciple only. One guru, one disciple. And it was all in the Sanskrit language.<br>
+So, only in the twelfth century, one great Saint, called Gyāneśhwara, wrote about it for public in a local language."<br>
 <font size="+0"><b>1991-0802 Public Program, Day 2, The Liver, Its Problems and Treatment, Koningszaal, Artis (Natura Artis Magistra), Plantage Middenlaan 41 A, Amsterdam, Netherlands</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Jains have Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], and a deviation started from that: ah ... one guru was supposed to give knowledge to only one person. Like Janaka had only Nachiketa. Till the time of Gyāneśhwara, that's in the twelfth century.<br>
+Gyāneśhwara was the disciple of His own brother, Nivṛuttināth. And they suffered a lot. And He asked Nivṛuttināth for one permission: that, "Let Me open the Truth to the public. Just I'll tell about it! I'll not do anything, I'll just tell about it."<br>
+<font color="red">Because thirteen, fourteen thousand years back Mārkaṇḍeya has described about Kuṇḍalinī.</font> Then came ... Ādi Śhaṅkarāchārya has described about Kuṇḍalinī.<br>
+But all in Sanskrit language. And Sanskrital knowledge was not available to the common public. And those who knew Sanskrit nalguage ... language didn't want to get into Self-knowledge.<br>
+Thus this knowledge was kept a secret all the time."<br>
 <font size="+0"><b>1991-1206 Public Program, Day 1, Narada Gana Sabha, 254 Mowbrays Road, Alwarpet, Chennai, Tamil Nadu, India</b></font>
 </p>
 
