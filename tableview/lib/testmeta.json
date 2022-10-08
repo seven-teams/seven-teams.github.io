@@ -1,0 +1,11 @@
+{
+  "link": {
+    "format": "link",
+    "formatParams": {
+      "labelField": "link_name",
+      "target": "_blank"
+    }
+  },
+  "link_name": { "visiblity": false },
+  "hides": { "menu": { "hideable": true } }
+}

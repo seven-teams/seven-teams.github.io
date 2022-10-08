@@ -6,9 +6,15 @@ import {
   SortModule,
   PopupModule,
   FormatModule,
+  MenuModule,
 } from "../lib/tabulator_esm.min.js";
 
 try {
+  const div = document.querySelector(".show");
+  function createShowButton(column) {
+    let showButton = document.createElement("button");
+  }
+
   Tabulator.registerModule([
     AjaxModule,
     FilterModule,
@@ -16,6 +22,7 @@ try {
     SortModule,
     FormatModule,
     PopupModule,
+    MenuModule,
   ]);
 
   const params = new Proxy(new URLSearchParams(window.location.search), {
@@ -23,7 +30,6 @@ try {
   });
 
   const columns = await (await fetch(params.columns)).json();
-  const r = await (await fetch(params.data)).json();
 
   new Tabulator(".table", {
     height: "100vw",
@@ -39,6 +45,8 @@ try {
       headerSort: cfgs?.sorter?.enable || false,
       headerSortTristate: true,
 
+      visible: cfgs?.visiblity,
+
       clickPopup: cfgs?.popup?.enable
         ? (event, component, onRendered) => component.getInitialValue()
         : undefined,
@@ -50,7 +58,28 @@ try {
               .slice(0, cfgs?.popup?.count || 8)
               .join(cfgs?.popup?.delimiter || " ")
         : cfgs?.format,
-      formatterParams: cfgs?.formatParams,
+      formatterParams:
+        cfgs?.format === "link"
+          ? {
+              ...cfgs?.formatParams,
+              label: (cell) =>
+                cell
+                  .getRow()
+                  .getCell(cfgs.formatParams.labelField)
+                  .getValue() || cell.getValue(),
+            }
+          : cfgs?.formatParams,
+
+      headerMenu: cfgs?.menu && [
+        cfgs?.menu?.hideable && {
+          label: "Hide Column",
+          action: (evt, column) => {
+            column.hide();
+            createShowButton(column);
+          },
+        },
+      ],
+      headerMenuIcon: cfgs?.menu && `<span style="line-height: 1em">☰</span>`,
     })),
     ajaxURL: params.data,
   });
