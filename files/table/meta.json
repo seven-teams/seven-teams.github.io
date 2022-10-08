@@ -1,0 +1,92 @@
+{
+  "Row": { "format": "rownum" },
+  "Year": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Date": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Date+": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Title": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Langauge": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Published by and/or Author": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Type of Publication": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Download": {
+    "filter": { "type": true },
+    "sorter": { "enable": true },
+    "format": "link",
+    "formatParams": {
+      "target": "_blank",
+      "labelField": "Download_Name"
+    }
+  },
+  "Download_Name": {
+    "visiblity": false
+  },
+  "Share": {
+    "filter": { "type": true },
+    "sorter": { "enable": true },
+    "format": "link"
+  },
+  "Publication place": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Volume No": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Issue No": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Pages": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Quality": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Versions' No": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Hard Copy": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Credit": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Remarks": {
+    "filter": { "type": true },
+    "popup": { "enable": true }
+  },
+  "Special Formats": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  },
+  "Collection Data": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
+  }
+}

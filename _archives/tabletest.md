@@ -1,5 +1,5 @@
 ---
-title: "Table Test Post"
+title: "Data Table"
 date: 9999-12-31
 permalink: /archives/tabletest.html
 tags:
@@ -7,5 +7,5 @@ tags:
 ---
 
 <div class="tableview">
-  <iframe class="tableview" src="/tableview/?data=/tableview/lib/sample.json&columns=/tableview/lib/sample_meta.json"></iframe>
+  <iframe class="tableview" src="/tableview/?data=/files/table/data.json&columns=/files/table/meta.json"></iframe>
 </p>
