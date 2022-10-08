@@ -993,7 +993,7 @@ Thus this knowledge was kept a secret all the time."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Of course, this is written in ... about, I think, fourteen thousand years back by Mārkaṇḍeya in Sanskrit, but a very difficult Sanskrit language."</font><br>
 <font size="+0"><b>1992-0322 Talk to Sahaja Yogis, Birthday Felicitations Program, the day after Birthday Pūjā, Siri Fort Auditorium, New Delhi, India</b></font>
 </p>
 
@@ -1037,7 +1037,9 @@ But it was kept in such a manner, that people thought that, 'It was too much uh-
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"[Today's Sahaj Yoga is only one advancement.]<br>
+<font color="red">[If you read Mārkaṇḍeya, who was thirteen thousand years ago, he was only sixteen years old when He wrote about the Kuṇḍalinī.]</font><br>
+[Macchindranāth, Gorakhnāth and Ādi Śhaṅkarāchārya have described it.]"<br>
 <font size="+0"><b>1994-0118 Public Program, Chennai, Tamil Nadu, India</b></font>
 </p>
 
@@ -1060,7 +1062,10 @@ After this, after the twelfth century, many wrote [about] It."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Uh-uh-uh ... but the problem is like this that, you see, this whole basis of our [Indian] traditions and our uh-uh-uh ... we can say the culture, is moral.<br>
+Culture is for morality. If there is no morality in culture, that culture is foreign to us. Because we are ancient people.<br>
+Uh-uh-uh and also the climate in India is so good, that you need not, sort of, worry about going out or anything. People live in, actually, forests just to find out: 'Why we are on this Earth?' To ... just to get an answer for this question.<br>
+And they discovered it. Long time back, ancient time, they discovered. <font color="red">Fourteen thousand years back, Mārkaṇḍeya has written about Kuṇḍalinī, can you imagine!</font>"<br>
 <font size="+0"><b>1994-0731 Public Program (Hindi+English), Natura Artis Magistra, Amsterdam, Netherlands</b></font>
 </p>
 
@@ -1131,7 +1136,15 @@ And then, in the twelfth century, Gyāneśhwarjī spoke about it. When He wrote 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"But I was surprised that in Kiev, which is the capital of Ukraine, I went to see the museum: is full of paintings of Kuṇḍalinī and of the chakras, different chakras. I was amazed: 'How could it be?'<br>
+And then they said that, :Two thousand before Christ [2000 B.C.], two S-Saints came from India," and they told Me the name and I was a... amazed how they knew the names of those people: Macchindranāth and Gorakhnāth.<br>
+That time I think America didn't exist, otherwise they would have come here also. [Laughter.]<br>
+And these two people went there. And they taught them all about Kuṇḍalinī, but they said, "We didn't know how to raise, we didn't know how to achieve it. So, we just knew it, but we didn't know how to do it."<br>
+Same in India: Gyāneśhwara has written about it.<br>
+<font color="red">But much before that, thirteen thousand years back, another Saint, Mārkaṇḍeya, has written about it.</font><br>
+Then in the sixth century, Ādi Śhaṅkarāchārya has written about it.<br>
+And it has been written by many people. In the sixteenth century, so many Saints have written about.<br>
+In the Bible also it is there, that, "I'll appear before you like tongues of flames," and these are the chakras that you see."<br>
 <font size="+0"><b>1996-0924 Public Program, The Olympic Collection, Grand Ballroom, 3rd Floor, 11301 W. Olympic Boulevard, 204, Los Angeles, CA, U.S.A.</b></font>
 </p>
 
@@ -1153,7 +1166,10 @@ How can we do it? A very simple and easy method is to awaken the Kuṇḍalinī 
 </p>
 
 <p>
-<font color="red">""</font><br>
+"This is not told only by Me. I tell you: is told by all the Saints of the world.<br>
+Long time back, I should say, Gyānadeva in the twelfth century, and all others who lived there. <font color="red">But even before that, Mārkaṇḍeya, He talked about it.</font><br>
+We don't know anything about these people.<br>
+Then also in the sixteenth century, we should say, Guru Nāṇak was there, Kabīra was there, all of Them have talked about it!"<br>
 <font size="+0"><b>2000-0417 Public Address to Income Tax Officers Meeting, New Delhi, India</b></font>
 </p>
 
