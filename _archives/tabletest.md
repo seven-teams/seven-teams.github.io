@@ -8,4 +8,4 @@ tags:
 
 <div class="tableview">
   <iframe class="tableview" src="/tableview/?data=/files/table/data.json&columns=/files/table/meta.json"></iframe>
-</p>
+</div>
