@@ -10,9 +10,15 @@ import {
 } from "../lib/tabulator_esm.min.js";
 
 try {
-  const div = document.querySelector(".show");
+  const showColDiv = document.querySelector(".show");
   function createShowButton(column) {
     let showButton = document.createElement("button");
+    showButton.innerText = column.getDefinition().title;
+    showButton.addEventListener("click", (evt) => {
+      column.show();
+      showButton.remove();
+    });
+    showColDiv.appendChild(showButton);
   }
 
   Tabulator.registerModule([
@@ -59,9 +65,10 @@ try {
               .join(cfgs?.popup?.delimiter || " ")
         : cfgs?.format,
       formatterParams:
-        cfgs?.format === "link"
+        cfgs?.format === "link" && cfgs?.formatParams?.labelField
           ? {
               ...cfgs?.formatParams,
+              labelField: undefined,
               label: (cell) =>
                 cell
                   .getRow()
