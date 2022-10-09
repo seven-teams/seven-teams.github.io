@@ -1055,7 +1055,10 @@ After this, after the twelfth century, many wrote [about] It."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Like Guru Nāṇaka said: ``Kāhe re bana khojan jāe, Sadā [Sarab] nivāsī sadā alepā tohī saṃga samāī." ``Kahe Nāṇak bin āpa chinhe mite na bhram ki kayi" [without knowing your Self, you cannot get rid of the moss (scum) of confusion].<br>
+But who does that? What He said, we just go on reading, reading, reading but do we do that?<br>
+We have to know ourselves, we have to have Self-knowledge.<br>
+<font color="red">In the ancient times, fourteen thousand years back in India, Mārkaṇḍeya wrote about it. That we have a Kuṇḍalinī within us, and She's to be awakened. But that was in Sanskrit language, so many people did not know.</font>"<br>
 <font size="+0"><b>1994-0426 Public Program, PJ Civic Hall, Jalan Yong Shook Lin, Pj New Town, 46200 Petaling Jaya, Selangor, Kuala Lumpur, Malaysia</b></font>
 </p>
 
@@ -1122,14 +1125,16 @@ And then, in the twelfth century, Gyāneśhwarjī spoke about it. When He wrote 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"See, it's not My discovery, I should say, in a way, because all people have talked about it. <font color="red">For thousands of years back Mārk... Mārkaṇḍeya talked about it, Ādi Śhaṅkara talked about it.</font> Then came, all other on the twelfth century, you see, Gyāneśhwara talked about it very much. Then came sixteenth century, all these Great Saints talked about it, and in Punjab, you know, uh-uh-uh Guru Nāṇak Sāhab, Guru Gobind Sāhab, all of Them have talked about Kuṇḍalinī, Kabīr and others who talked about it, all of Them."<br>
 <font size="+0"><b>1996-0119 Public Talk, Rotary Club of Central Pune, District 3130 (Currently District 3131), Pune, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">This knowledge has been there from ages and ages like Mārkaṇḍeya was fourteen thousand years has talked about it, Ādi Śhaṅkarāchārya has talked about it.</font><br>
+Many Saints abroad also I know have talked about Kuṇḍalinī, even in the Bible it is written, ``I'll appear before you like tongues of flames."<br>
+They have talked about the Tree of Life, like Kṛiṣhṇa has talked about also the Tree of Life which is upside down and the roots are in the brains."<br>
 <font size="+0"><b>1996-0219 Public Address to Doctors, Inauguration, International Sahaja Yoga Research and Health Center, Plot No. 1, Sector 8, H.H. Śhrī Nirmalā Devī Mārg, C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font>
 </p>
 
