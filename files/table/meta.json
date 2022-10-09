@@ -16,28 +16,28 @@
     "filter": { "type": true },
     "sorter": { "enable": true }
   },
-  "Langauge": {
+  "Language": {
     "filter": { "type": true },
     "sorter": { "enable": true }
   },
-  "Published by and/or Author": {
+  "Publisher/Author": {
     "filter": { "type": true },
     "sorter": { "enable": true }
   },
-  "Type of Publication": {
+  "Type": {
     "filter": { "type": true },
     "sorter": { "enable": true }
   },
-  "Download": {
+  "Link": {
     "filter": { "type": true },
     "sorter": { "enable": true },
     "format": "link",
     "formatParams": {
       "target": "_blank",
-      "labelField": "Download_Name"
+      "labelField": "Link_Name"
     }
   },
-  "Download_Name": {
+  "Link_Name": {
     "visiblity": false
   },
   "Share": {
@@ -45,11 +45,11 @@
     "sorter": { "enable": true },
     "format": "link"
   },
-  "Publication place": {
+  "Place": {
     "filter": { "type": true },
     "sorter": { "enable": true }
   },
-  "Volume No": {
+  "Vol No": {
     "filter": { "type": true },
     "sorter": { "enable": true }
   },
@@ -65,15 +65,15 @@
     "filter": { "type": true },
     "sorter": { "enable": true }
   },
-  "Versions' No": {
+  "Versions": {
     "filter": { "type": true },
     "sorter": { "enable": true }
   },
-  "Hard Copy": {
+  "Hard": {
     "filter": { "type": true },
     "sorter": { "enable": true }
   },
-  "Credit": {
+  "Credits": {
     "filter": { "type": true },
     "sorter": { "enable": true }
   },
@@ -81,7 +81,7 @@
     "filter": { "type": true },
     "popup": { "enable": true }
   },
-  "Special Formats": {
+  "Formats": {
     "filter": { "type": true },
     "sorter": { "enable": true }
   },
