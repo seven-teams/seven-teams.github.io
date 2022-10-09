@@ -1,7 +1,7 @@
 ---
 title: "Data Table"
 date: 9999-12-31
-permalink: /archives/tabletest.html
+permalink: /archives/table.html
 tags:
   - red @ archive
 ---
