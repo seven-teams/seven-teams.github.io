@@ -7,31 +7,14 @@
     <title>Document</title>
     <link
       rel="stylesheet"
-      href="https://cdn.jsdelivr.net/npm/tabulator-tables@5.3.2/dist/css/tabulator.min.css"
+      href="https://cdn.jsdelivr.net/npm/tabulator-tables/dist/css/tabulator.min.css"
     />
     <script type="module" src="./js/index.js"></script>
-    <style>
-      .error {
-        animation: blinker 2.5s linear infinite;
-        color: red;
-        font-family: "Courier New", Courier, monospace;
-        font-size: 3em;
-        left: 50%;
-        position: fixed;
-        top: 50%;
-        transform: translate(-50%, -50%);
-      }
-
-      @keyframes blinker {
-        50% {
-          opacity: 0;
-        }
-      }
-    </style>
+    <link rel="stylesheet" href="style.css" />
   </head>
   <body>
     <div class="show"></div>
-    <div class="table" style="height: 100vh"></div>
+    <div class="table"></div>
     <div class="error"></div>
   </body>
 </html>
