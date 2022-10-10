@@ -1023,7 +1023,9 @@ But it was kept in such a manner, that people thought that, 'It was too much uh-
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"The whole of Haryana has been a very, very historical, mythological place. You must have known about it, that Pāṇḍavas and Khauravas fought in Kurukṣhetra. And also, all this area has been used, since long, for meditation.<br>
+<font color="red">Mārkaṇḍeya, whose now ... name you have heard many a times, meditated in this area. First He was in Maharashtr[a], where you have seen the Saptaśhṛiṅgī. And after that, He came down here and meditated, and wrote His treatises.<br>
+Everywhere you find a-uh-uh place of a Pīr [Saint]. Also they are realized Souls who have been respected till today."</font><br>
 <font size="+0"><b>1993-1211 Śhrī Kṛiṣhṇa Pūjā, Yamunānagar, Haryana, India</b></font>
 </p>
 
@@ -1055,7 +1057,7 @@ After this, after the twelfth century, many wrote [about] It."<br>
 <div class="para-divider"></div>
 
 <p>
-"Like Guru Nāṇaka said: ``Kāhe re bana khojan jāe, Sadā [Sarab] nivāsī sadā alepā tohī saṃga samāī." ``Kahe Nāṇak bin āpa chinhe mite na bhram ki kayi" [without knowing your Self, you cannot get rid of the moss (scum) of confusion].<br>
+"Like Guru Nāṇaka said: "Kāhe re bana khojan jāe, Sadā [Sarab] nivāsī sadā alepā tohī saṃga samāī." "Kahe Nāṇak bin āpa chinhe mite na bhram ki kayi" [without knowing your Self, you cannot get rid of the moss (scum) of confusion].<br>
 But who does that? What He said, we just go on reading, reading, reading but do we do that?<br>
 We have to know ourselves, we have to have Self-knowledge.<br>
 <font color="red">In the ancient times, fourteen thousand years back in India, Mārkaṇḍeya wrote about it. That we have a Kuṇḍalinī within us, and She's to be awakened. But that was in Sanskrit language, so many people did not know.</font>"<br>
@@ -1075,7 +1077,8 @@ And they discovered it. Long time back, ancient time, they discovered. <font col
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">Of course, before that also, we have had people, like Ādi Śhaṅkarāchārya, the sixth century, and before that also Mārkaṇḍeya. But They talked about the Kuṇḍalinī, that's all. Praised the Kuṇḍalinī. But that She passes through six centers, how will It raise and all that. And not about the future, that this will happen one day.</font><br>
+So many have written, of course."<br>
 <font size="+0"><b>1994-1002 Śhrī Yogeśhwara Pūjā, Śhrī Kṛiṣhṇa and the Enlightenment of the Brain, Camp Vacamas, 256 Macopin Road, West Milford, NJ, U.S.A.</b></font>
 </p>
 
@@ -1133,7 +1136,7 @@ And then, in the twelfth century, Gyāneśhwarjī spoke about it. When He wrote 
 
 <p>
 "<font color="red">This knowledge has been there from ages and ages like Mārkaṇḍeya was fourteen thousand years has talked about it, Ādi Śhaṅkarāchārya has talked about it.</font><br>
-Many Saints abroad also I know have talked about Kuṇḍalinī, even in the Bible it is written, ``I'll appear before you like tongues of flames."<br>
+Many Saints abroad also I know have talked about Kuṇḍalinī, even in the Bible it is written, "I'll appear before you like tongues of flames."<br>
 They have talked about the Tree of Life, like Kṛiṣhṇa has talked about also the Tree of Life which is upside down and the roots are in the brains."<br>
 <font size="+0"><b>1996-0219 Public Address to Doctors, Inauguration, International Sahaja Yoga Research and Health Center, Plot No. 1, Sector 8, H.H. Śhrī Nirmalā Devī Mārg, C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font>
 </p>
