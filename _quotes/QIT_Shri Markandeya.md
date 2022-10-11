@@ -775,14 +775,29 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Blake said, uh-uh: "Men of God will become Prophets and they will have powers to make others Prophets.<br>
+.....<br>
+He was very precise, in everything. Even He's described My house. He has described the Āśhrams. It's so many things He has described, you can't imagine. <font color="red">He was a Seer! Like Mārkaṇḍeya!</font><br>
+Talking about Him, see the vibrations! Talking about Him, just see the vibration[s].<br>
+......<br>
+Just see, what a great! <font color="red">He was Mārkaṇḍeya!</font> [Rubbing the hands:] Great! Haah! Saint Michael!<br>
+......<br>
+<font color="red">He was Mārkaṇḍeya.</font>
+......<br>
+<font color="red">Mārkaṇḍeya."</font>
 <font size="+0"><b>1985-0704 Interview with a Gentleman Journalist for Het Binnenhof (Inner Court), Conferentieoord Overvoorde, van Vredenburchweg 170, Rijswijk (6 kms SSE of The Hague), Netherlands</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now third one is what Wakefield has done: is My description and devotion to Me. Come out very well, I must say.<br>
+I think that's the highest one can do. That's the best.<br>
+But still we need all this, we have to have, otherwise we cannot manage.<br>
+So, that's a part of it.<br>
+But the essence of it, the praise, where many great poets, many great writers, many Great Saints and Incarnations have aspired to sing the praise of the Mother. It's agreat aspirations.<br>
+<font color="red">Like Mārkaṇḍeya did that. Today also we read it after fourteen thousand years.</font><br>
+Then, Ādi Śhaṅkarāchārya did that."<br>
 <font size="+0"><b>1985-0831 Talk to Sahaja Yogis, Spreading Sahaja Yoga, after the Public Program, Southlands College, University of Roehampton, Wimbledon, London, UK</b></font>
 </p>
 
