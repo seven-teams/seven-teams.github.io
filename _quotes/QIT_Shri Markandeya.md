@@ -648,14 +648,23 @@ There nobody said that Kuṇḍalinī is a dangerous thing and you get burnings 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Even William Blake has prophesized that, "Men of God will become Prophets, and they will have power to make others Prophets." <font color="red">The amount of details William Blake has written I don't think even Mārkaṇḍeya has done that. He, of course, Mārkaṇḍeya has described even the shape of My knees [laughing:] and all that, but Mā... this One has described even the exact house where I will live, all the house. And even the Āśhram where we are going to live.</font> Imagine: to that extent this William Blake has written. So you can understand how far He has gone deep into the whole thing. And He was such a great Seer born in England, which is the heart of the universe."<br>
 <font size="+0"><b>1983-1001 Talk to Sahaja Yogis, Seminar, Day 1, Session 1, Kennolyn Campgrounds, 8400 Glen Haven Road, Soquel (10 kms ENE of Santa Cruz), CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> First is we have to establish the innocence.<br>
+And to establish the innocence, the Deity is called as Śhrī Gaṇeśh.<br>
+And you'll know about Him much more. But you know Him as Jesus Christ, because He incarnated on this Earth as Jesus Christ.<br>
+<font color="red">Now this prayer that he is going to read to you was written about fourteen thousand years back, and see how detailed it is described about Christ. And it is described in a book called Devī Purāṇ by Mārkaṇḍeya, is called as ...</font><br>
+<b>Dr. Warren Reeves [interrupts]:</b> Devī Bhāga...<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Devī Mahātmya.</font><br>
+<b>Dr. Warren Reeves:</b> Devī Bhāgavat[am].<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Devī Bhāgavat[am].</font><br>
+<font color="red">So you can see all these things written there.</font><br>
+So, to know about Christ, we cannot limit ourselves to Bible. Because He was such a great personality that you cannot contain Him in a little book like Bible, you see. So [laughing:] you have to go to other Scriptures also and keep your mid open about it.<br>
 <font size="+0"><b>1983-1010 Śhrī Gaṇeśha Pūjā (5th Day of Navarātri and Canadian Thanksgiving Day), Garden, 1386 Lincoln Avenue, Toronto, ON, Canada</b></font>
 </p>
 
@@ -866,7 +875,7 @@ In the South [India], Gyāneśhwarjī has spoken a lot about it.<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"This is not a new science in India. <font color="red">Fourteen thousand years back, somebody called Mārkaṇḍeya wrote about it.</font> But it was-s-s not available to every person. We can say that it was a secret science. And was only bestowed upon very, very few people at that time."<br>
 <font size="+0"><b>1987-1012 Public Program, Day 1, Auditorium Maximum, University, Vienna, Austria</b></font>
 </p>
 
@@ -883,14 +892,74 @@ In the South [India], Gyāneśhwarjī has spoken a lot about it.<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="Chocolate"><b>Interviewer:</b></font> But uhm ... yes, from, on this there is no founder or something, just some mythical person?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> No, no, no, nothing, no ph... mythical, ...<br>
+<font color="Chocolate"><b>Interviewer:</b></font> Yeah, I see.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> ... no, nothing mythical.<br>
+But Nāṇaka has talked about it, Kabīra has talked about it, Ādi Śhaṅkarāchārya has talked about it. <font color="red">Fourteen thousand years back Mārkaṇḍeya taught ... talked about it.</font><br>
 <font size="+0"><b>1988-0609 Interview with Mr. Wadschwa for the Radio Network of Österreichischer Rundfunk (ORF), Āśhram, Vienna, Austria</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<bf Version 1:><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You know the story of Mārkaṇḍeya, or not?</font><br>
+<b>Sahaja Yogi:</b> I just, we were seeing the Āśhram, Śhrī Mātājī -- I mean on the rocks, where it was once.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Yes, I tell you the story of Mārkaṇḍeya.<br>
+You see that he, this father had no children, and the father and mother were unhappy. So they prayed to Śhiva. And they said that, "We want to have a son." So They said that, "All right," Śhiva said, "I'll give you the son, but I'll have to take Him back after eight years. So He'll only exist till He is about eight years of age." So They gave that boon to him, plus this kind of a curse. So the parents were very upset that, "My child will die after eight years of age." Very upset!<br>
+But they found the child very bright, brilliant, and also shining. And very religious.<br>
+So one day He asked His father, "Why do you look always so worried? I mean, after all, I'm your son." So they said that, "It is said so," eight years or sixteen years, something like that, "So now I'll be loosing You very soon. Who can surpass Śhiva?" So he said it, "So I cannot think, that we can really ask anyone to neutralize that curse upon us. If You were not born to us we would not have been so attached to You. Now You are born to us, we are so much attached towards You."<br>
+He was a very wise person. He said, "No, I know someone, I know Ādi Śhakti."<br>
+And He went to this place in Vani, where you go to see these Saptaśhṛiṅgīs, and there He prayed to Her.</font><br>
+And nobody had prayed to Ādi Śhakti, they would pray to Jagadambā, they prayed to all other.<br>
+<font color="red">But Ādi Śhakti is the One, He prayed to Her.</font><br>
+And She appeared there. See, Her face is just like Me. And Saptaśhṛiṅgī, because She has seven chakras, you see, on Her head, śhṛiṅga means 'on the head'. Like, what you call, śhṛiṅga means the śhikhara, peak. Seven peaks, you see.<br>
+<font color="red">So, She was born with seven peaks, She came there, appeared, from the Mother Earth She just came out and She [He] prayed to Her, She prayed to Her, and then the whole place became so vibrated that Śhiva could not touch Him.<br>
+Then He wrote all these Mārkaṇḍeya's things, I mean, He was the first who wrote about Ādi Śhakti.<br>
+All these things that you read about Śhaṅkarāchārya and all that, He took it from Mārkaṇḍeya.<br>
+He was the first who wrote about Kuṇḍalinī, first about Realization, He was the first who did all that.</font><br>
+And even today they say that there is a gap between two hills, and people used to cross that gap on a bullock cart, and the bullock cart was carried over to the other side.<br>
+Now of course you got a place to go up but that time there was no things like that.<br>
+So they used to just go on the bullock cart and the bullock cart was carried over, without any bridge, by Ādi Śhakti.<br>
+And She is the complete, because we have got, as you know, Mahākālī, Mahālakṣhmī, Mahāsaraswatī, three of Them, in Maharashtra. Like, Mahākālī is [<font color="orange">unclear</font> Tuḷajāpūr], then, Mahālakṣhmī is, you know, in Kolhapur, and the third one is in Mahor [Mahur]. Mahor [Mahur], there is one mountain in Mahor [Mahur], is Mahāsaraswatī. And Ādi Śhakti is the Ardhamātrā, is on top of everyone. And this is it.<br>
+<font color="red">So Mārkaṇḍeya was actually the dearest son of Ādi Śhakti, because He is the one who incarnated there.</font><br>
+<br>
+<bf Version 2:><br>
+"<font color="red">You know the story of Mārkaṇḍeya or not? I tell you the story of Mārkaṇḍeya.<br> 
+You see, His father had no children and the father and mother were unhappy. So they prayed to Śhiva and they said that, "We want to have a son." Śhiva said: "I'll give you the son, but I will have to take Him back after eight years. So He'll only exist till He is about eight years of age." So They gave that boon to him plus this kind of a curse. The parents were very upset that, "Our child will die after eight years of age," very upset.<br>
+But they found the child very bright, brilliant and also shining and very religious.<br>
+One day He asked His father: "Why do you always so worry, I mean, after all I am your son?" So they said that it is said so, eight years or sixteen years, something like that. "Now I will be losing You very soon. Who can surpass Śhiva?" He said it, "So I cannot think we can really ask anyone to neutralize the curse upon us. If you are not born to us we would not have been so attached to You. Now you are born to us, we are so much attached to you."<br>
+He was a very wise person, He said: "No, I know someone, I know Ādi Śhakti."<br>
+And He went to this place where you got to see this Saptaśhṛiṅgī. There He prayed to Her.</font><br>
+Nobody had prayed to Ādi Śhakti. They would pray to Jagadambā, they would pray to all others.<br>
+To Ādi Śhakti, who is the God, He prayed to Her.<br>
+She appeared there and Her face is just like Me. It is Saptaśhṛiṅgī because She has seven chakras on Her head. Śhṛiṅga means 'on the head', like what you call the śhikhar, peak? Seven Peaks. She was born with seven peaks.<br>
+<font color="red">She came there, appeared from the Mother Earth, She just came out and He prayed to Her. He prayed to Her and then the whole place became so vibrated that Śhiva could not touch Him.<br>
+Then He wrote all this Mārkaṇḍeya things, I mean He was the first who wrote about Ādi Śhakti.<br>
+All these things that you read about Śhaṅkarāchārya, He took it from Mārkaṇḍeya.<br>
+He was the first who wrote about Kuṇḍalinī, the first about Realization, He was the first who did all that.</font><br>
+Even today they say that there is a gap between two hills and people used to cross that gap on a bullock cart and the bullock cart was carried over to the other side.<br>
+Now of course you got a place to go up, but at that time there was nothing like that.<br>
+So they used to go up on a bullock cart and the bullock cart was carried over without any tension by Ādi Śhakti.<br>
+And She is the complete, because we have got, as you know, Mahākālī, Mahālakṣhmī, Mahāsaraswatī, three of Yhem in Maharashtra. Mahākālī is in Tulsapur [Tuḷajāpūr], then Mahālakṣhmī is in Kolhapur and the third one is in Mahor [Mahur]. In Mahor [Mahur] there is one mountain where is Mahāsaraswatī. And Ādi Śhakti is Artha Mātā, on top of everything and this is it.<br>
+<font color="red">Mārkaṇḍeya was actually the dearest son of Ādi Śhakti, because He is the one who incarnated Her.<br>
+... He was like a little child, absolutely. Everything is described, My hands and everything, even My body in a way. Just like a little child grabbing on the Mother. The dedication and devotion was so great, I mean, that Ādi Śhakti had to take Him up. He is the one who brought Me in.</font><br>
+There was no idea of Ādi Śhakti taking birth or anything, nobody thought of It.<br>
+Only once She came in Gokul, She was created in Gokul.<br>
+Gokul is the one, now of course later on it was reflected in India, but Gokul is where Śhrī Kṛiṣhṇa played, in the Goloka, in the Vaikuṇṭha.<br>
+She was created as one cow with all the Deities sitting in Her, She never came on this Earth.<br>
+<font color="red">And He is the one who gave the Form, in what form She has to come. With thousand hands, the face like Mine and seven chakras.</font><br>
+In that way India is very much blessed, I should say, with these things, but the difference between the Saints and the public is so much, that they never understood. They know it is a very great place and Saptaśhṛiṅgī is there.<br>
+We have Saptaśhṛiṅgī also in Poona [Pune], but Saptaśhṛiṅgī is only there, where all you people go, near Nasik, that's the place.<br>
+<font color="red">So that's the great part of Mārkaṇḍeya.<br>
+He took His birth later on as Buddha, then He took His birth as Ādi Śhaṅkarāchārya, it's the same personality.<br>
+But He was actually the son of Rāma, to begin with. He was Lav and He went to Russia and that is why they are called as Slavs. He ruled in Russia, that's why they are called as Slavs.<br>
+Another son was Kuśh, who went to China, that is why they are called as Kuṣhāṇ.<br>
+Then They incarnated again and again, also as Hasan and Husayn, as Mahāvīra and Buddha, as Ādi Śhaṅkarāchārya and Gyāneśhwara, like that.</font><br>
+See, it is so peaceful. Cool Breeze.<br>
+<font color="red">I think the name Markus might be coming from Mārkaṇḍeya.<br>
+Mārkaṇḍeya is a very unique name, isn't it? Markanda means a powerful personality. Mārkaṇḍeya is Sun, of course, Mārkaṇḍeya is the name of the Sun. Mārkaṇḍeya is the Sun.</font>"<br>
 <font size="+0"><b>1988-0609 Talk to Sahaja Yogis, Giving Names and the Story of Mārkaṇḍeya, Āśhram, Vienna, Austria</b></font>
 </p>
 
@@ -905,8 +974,17 @@ That it will happen. We must realize that we are getting all the promises fulfil
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b>1988-1018 Talk to Sahaja Yogis, Navarātri Celebrations (8th Day), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
+"Now, those whom you have read now, this I have not told Them, this they had known Themselves. How did They know? Because they became pure, pure, pure within, of divine, and that's how They know it. So this purity has come.<br>
+<font color="red">All these people, say for example Mārkaṇḍeya used to live in a place in, He used to be prapared. He used to dedicate Himself. He lived there, very happily, with His father, in a very modest manner.<br>
+And then, you see, He was the richest man because He enjoyed the uh-uh-uh Grace of the Mother. And He saw all these things so well.<br> 
+He was cursed to be dead uh at a very young age. And then His father told Him that, "You have to die because Śhiva has given me the boon that I will give you the son but then He'll die." He said, "All right. I will find out the solution."<br>
+So He worshiped the Goddess. The Goddess gave Him the boon. See, Goddess Herself He saw in person. That's how this uh-uh-uh place is Saptaśhṛiṅgī is there, there, [].<br> 
+It's uh-uh-uh ... Saptaśhṛiṅgī is seven, seven chakras. Is the Ādi Śhakti's place. Is the Ādi Śhakti's place.<br>
+So, this is, when you are reading all these things, you are amazed, 'How do They?' For He's gone fourteen thousand years back.</font><br>
+How many know this thing [laughing:] about it, which tallies with your ... which tallies with your Sahaja Yoga, which shows what you are?<br>
+<font color="red">And then how could He be so precisely about it? Because He Himself had become a complete reflector. It's a complete reflector which has shown to the world what is the Goddess is.<br>
+Is a very great credit to Him. For without any ego!</font>"<br>
+<font size="+0"><b>1988-1019 Navarātri Pūjā (9th Day), Raise above Āgñyā (Left Āgñyā and Right Āgñyā), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -929,13 +1007,6 @@ After that, so many Saints wrote about Self-realization."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b>1989-0616 Talk to Sahaja Yogis, Āśhram, Keith Road, Ambleside, West Vancouver, BC, Canada</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
 "[We had many Yogis who started work on the middle path of human ascent like Gorakhnāth, Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], Macchindranāth. They worked on the problem of human beings and how to make this ascent possible. They discovered in human beings in the triangular bone sacrum a residual power.]<br>
 <font color="red">[Over fourteen thousand years ago Mārkaṇḍeya talked about it.]</font><br> 
 [In eighth and ninth century A.D., Vasu Gupta wrote about it.]<br>
@@ -946,7 +1017,9 @@ After that, so many Saints wrote about Self-realization."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So, nowhere in the ancient books.<br>
+<font color="red">We have Mārkaṇḍeya's, which we can say thousands of years back has written about Kuṇḍalinī, we have Ādi Śhaṅkarāchārya, all of Them, nobody has written anything like that.</font> In the twelfth century, Gyāneśhwara has written about Kuṇḍalinī, nobody has said this is dangerous.<br>
+This is a modern stuff, I think coming from Germany. Because Germans came here and somebody told them something, and they have written down. Is most unauthorized and wrong."<br>
 <font size="+0"><b>1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia</b></font>
 </p>
 
@@ -972,7 +1045,7 @@ It's a ... only this is a modern idea to frighten people that they shouldn't get
 <p>
 "But in the twelfth century there was a great saint called Gyāneśhwara who broke this tradition and He asked His master, His own ... His elder brother was His master, that, "Just please allow Me to at least write it down. Let people know." 
 <font color="red">Though in the Sanskrit language we have many, many uh-uh-uh uh books and many, many treatise about it, fourteen thousand years back Mārkaṇḍeya wrote about Kuṇḍalinī.</font><br>
-But He [Śhrī Gyāneśhwara] wrote it in Marathi language, we see is a local language or you can say which is a vernacular language, in which He wrote that, "There is this Kuṇḍalinī which has to be awakened, otherwise you cannot get your Realization." "</font><br>
+But He [Śhrī Gyāneśhwara] wrote it in Marathi language, we see is a local language or you can say which is a vernacular language, in which He wrote that, "There is this Kuṇḍalinī which has to be awakened, otherwise you cannot get your Realization." "<br>
 <font size="+0"><b>1991-0405 Public Program, Brisbane, Queensland, Australia</b></font>
 </p>
 
