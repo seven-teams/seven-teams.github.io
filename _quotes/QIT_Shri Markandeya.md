@@ -903,7 +903,7 @@ But Nāṇaka has talked about it, Kabīra has talked about it, Ādi Śhaṅkar�
 <div class="para-divider"></div>
 
 <p>
-<b>Version 1:></b><br>
+<b>Version 1:</b><br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You know the story of Mārkaṇḍeya, or not?</font><br>
 <b>Sahaja Yogi:</b> I just, we were seeing the Āśhram, Śhrī Mātājī -- I mean on the rocks, where it was once.<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Yes, I tell you the story of Mārkaṇḍeya.<br>
@@ -925,7 +925,7 @@ So they used to just go on the bullock cart and the bullock cart was carried ove
 And She is the complete, because we have got, as you know, Mahākālī, Mahālakṣhmī, Mahāsaraswatī, three of Them, in Maharashtra. Like, Mahākālī is [<font color="orange">unclear</font> Tuḷajāpūr], then, Mahālakṣhmī is, you know, in Kolhapur, and the third one is in Mahor [Mahur]. Mahor [Mahur], there is one mountain in Mahor [Mahur], is Mahāsaraswatī. And Ādi Śhakti is the Ardhamātrā, is on top of everyone. And this is it.<br>
 <font color="red">So Mārkaṇḍeya was actually the dearest son of Ādi Śhakti, because He is the one who incarnated there.</font><br>
 <br>
-<b>Version 2:></b><br>
+<b>Version 2:</b><br>
 "<font color="red">You know the story of Mārkaṇḍeya or not? I tell you the story of Mārkaṇḍeya.<br> 
 You see, His father had no children and the father and mother were unhappy. So they prayed to Śhiva and they said that, "We want to have a son." Śhiva said: "I'll give you the son, but I will have to take Him back after eight years. So He'll only exist till He is about eight years of age." So They gave that boon to him plus this kind of a curse. The parents were very upset that, "Our child will die after eight years of age," very upset.<br>
 But they found the child very bright, brilliant and also shining and very religious.<br>
