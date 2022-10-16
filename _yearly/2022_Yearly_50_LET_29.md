@@ -17,14 +17,16 @@ tags:
 </p>
 
 <p>
-"In your lives if people will see that you are very peaceful, good, helpful, collective people, then only, Sahaja Yoga will spread.<br>
+"In your lives, if people will see that you are very peaceful, good, helpful, collective people, then only Sahaja Yoga will spread. Not what I am saying, or what I am spreading, or what I am working out. It's a fact! That I always had a feeling that Sahaja Yogis should take to social work.<br>
 .......<br>
 And so I would request you, all of you, to be little generous. The generosity should be towards social side of our world, which is very important to be attended to.<br>
-I hope you understand that I have not changed the way. It's the path which is going now in a smooth way. We had to first climb a very hazardous mountain, and now we have come to a place where we understand.<br>
+I hope you will understand that I have not changed the way. It's the path which is going now in a smooth way. We had to first climbing a very hazardous [laughing:] mountain, and now we have come to a place where we understand.<br>
 ......<br>
-It will be very kind of you to understand that all these problems can be solved by you, I don't have to be there. I am there with you all the time, I am one with you all the time, so there is no need for you to come to Me for all these things which are absolutely under your control. If not, you give up your leadership, so-called. Because leadership means that you should be able to execute Sahaja Yoga principles in others and work it out. I hope you'll understand this.<br>
+It will be very kind of you to understand that all these problems can be solved by you, I don't have to be there. I am there with you all the time, I am one with you all the time, so there is no need for you to come to Me for all these things which are absolutely under your control.<br>
+If not, you give up your leadership, so-called. Because leadership means that you should be able to execute Sahaja Yoga Principles in others, and work it out.<br>
 .......<br>
-You have come here to get vibrations, to get more and more of that and not to wile away your time talking this, that. No! You have come here to grow."<br>
+You have to absorb, absorb vibrations.<br>
+You have come here to get vibrations, to get more and more of that, and not to wile away your time talking this, that. No! You have come here to grow!"<br>
 <font color="blue"><b>2000-1029 Talk to Sahaja Yogis (3rd day after Diwālī Day), after Diwālī Pūjā, Lake Piru Recreational Area Campground, 4780 Piru Canyon Rd, Piru (87 kms NW of Los Angeles), CA, U.S.A.</b></font><br>
 </p>
 
