@@ -16,7 +16,7 @@ We are pleased to let you know that the Archives Subteam has started to share it
 Please kindly have a look at the link <a href="https://seven-teams.github.io/archives/table.html"> <font color="blue"><b>Table</b></font></a><br>
 The first estimate is between 4,000 and 21,000 items. Gradually, it will be developed more and more.<br>
 First priority will be given to new materials received or scanned.<br>
-We thank you in advance for any help, support, feedback, any contribution through files and data. Please kindly write to us at sahajayoga.compilations@gmail.com<br>
+We thank you in advance for any help, support, feedback, or contribution of files and data. Please kindly write to us at sahajayoga.compilations@gmail.com<br>
 <br>
 The Archives Subteam of the Comprehensive Compilations Team<br>
 </p>
