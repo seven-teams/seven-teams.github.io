@@ -1,9 +1,10 @@
 ---
 title: 'Archive Post 1: CCT Scans of a few DCB (USA) Magazine issues'
 date: 2022-08-18
-permalink: /compilation/2022/0819
+permalink: /archives/2022/0819
 tags:
-  - darkblue @ Archive
+  - darkblue @ Magazines
+  - red @ Archive
 ---
 
 <p>
