@@ -3,7 +3,7 @@ title: 'Archive Post 2: Updates'
 date: 2022-08-18
 permalink: /archives/2022/0819
 tags:
-  - pink @ Updates
+  - deeppink @ Updates
   - red @ Archive
 ---
 
