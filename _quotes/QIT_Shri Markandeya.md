@@ -1017,6 +1017,16 @@ After that, so many Saints wrote about Self-realization."<br>
 <div class="para-divider"></div>
 
 <p>
+"It is very essential for us that we keep a clear head because this could be a [<font color="orange">unclear</font> novel] thing for you.<br>
+If someone had talked about Kuṇḍalinī two hundred years ago, it would not be a new thing.<br>
+In twelfth century A.D., Gyāneśhwara talked about it. <font color="red">Mārkaṇḍeya talked about it, thousands of years ago.</font> Kabīrdas talked about it, the Bible also talks about it, and Nāṇak Sāhab also talked about it.<br>
+But no one really thought about it that, `Is the Truth,' or that there should have been more attention to it."<br>
+<font size="+0"><b>1990-0206 Public Program (Hindi+English), Day 1, Paramātma ko Jānane ke Lie (To Know God), Hyderabad, Telangana, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "So, nowhere in the ancient books.<br>
 <font color="red">We have Mārkaṇḍeya's, which we can say thousands of years back has written about Kuṇḍalinī, we have Ādi Śhaṅkarāchārya, all of Them, nobody has written anything like that.</font> In the twelfth century, Gyāneśhwara has written about Kuṇḍalinī, nobody has said this is dangerous.<br>
 This is a modern stuff, I think coming from Germany. Because Germans came here and somebody told them something, and they have written down. Is most unauthorized and wrong."<br>

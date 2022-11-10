@@ -988,6 +988,23 @@ This is the only problem we have. That: we have all the ideals, we have all the 
 <div class="para-divider"></div>
 
 <p>
+"It is very essential for us that we keep a clear head because this could be a [<font color="orange">unclear</font> novel] thing for you.<br>
+If someone had talked about Kuṇḍalinī two hundred years ago, it would not be a new thing.<br>
+In twelfth century A.D., Gyāneśhwara talked about it. Mārkaṇḍeya talked about it, thousands of years ago. <font color="red">Kabīrdas talked about it, the Bible also talks about it, and Nāṇak Sāhab also talked about it.</font><br>
+But no one really thought about it that, `Is the Truth,' or that there should have been more attention to it."<br>
+<font size="+0"><b>1990-0206 Public Program (Hindi+English), Day 1, Paramātma ko Jānane ke Lie (To Know God), Hyderabad, Telangana, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "About Kuṇḍalinī, many people knew It long time back.<br>
 I must say, there was Mārkaṇḍeya, who was thirteen thousand years back, He has talked about Kuṇḍalinī.<br>
 Ādi Śhaṅkarāchārya has talked about Kuṇḍalinī.<br>
