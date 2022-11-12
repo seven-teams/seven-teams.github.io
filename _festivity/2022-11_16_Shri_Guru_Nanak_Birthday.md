@@ -133,7 +133,7 @@ Guru Nāṇak Dev has imagined the entire universe decorated as a prayer platter
 "Gagan mein thaal, rav chand deepak bane, taarka mandal janak moti dhoop malay aan lao, pawan chavro kare sagal ban raai phulant jyoti kaisi Āratī hoye, bhavkhandana teri Āratī.<br>
 anhat sabad bajant bheri kaisi Āratī hoye, bhavkhandana teri Āratī."<br>
 Means: "The sky is the prayer platter, the sun and the moon are the lamps, and the stars and the constellations are the pearls and jewels. The air coming from the sandal-laden Malay mountain is the incense, the air is the fan, and the entire flora of the earth are the flowers ..... oh ... what an Āratī is it! O Destroyer of Fear!"<br>
-(Wikipedia_
+(Wikipedia)
 </p>  
 
 
