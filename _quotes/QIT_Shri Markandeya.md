@@ -1082,6 +1082,13 @@ Thus this knowledge was kept a secret all the time."<br>
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"In a way, in sixth century Saints like Śhaṅkarāchārya, and fourteen thousand years back Mārkaṇḍeya, both have described about Kuṇḍalinī and have written a lot about Kuṇḍalinī."</font><br>
+<font size="+0"><b>1991-1216 Public Program (Hindi), Day 1, Kuṇḍalinī Eka Mahāna Śhakti (Kuṇḍalinī Is a Great Power), Grounds, New English School, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Fourteen thousand years back, ...</font><br>
 <b>Sahaja Yoginī translator:</b> Mārka ah ...<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">... Mārkaṇḍeya has written about it, in Sanskrit language.</font><br>
