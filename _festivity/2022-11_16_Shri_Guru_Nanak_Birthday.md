@@ -46,16 +46,17 @@ Islam is the name of that religion, is the religion of every Sahaja Yogi, of eve
 
 <p style="color:DarkRed; text-align:center;">
 <b>"See the brotherhood of all mankind as the highest order of yogis, conquer your own mind, and conquer the world."<br>
-"In the calm of Sahaj’s cave You can discover the True One, Sayeth Nanak, the True One loves the truthful."<br>"
+"In the calm of Sahaj’s cave You can discover the True One, Sayeth Nanak, the True One loves the truthful."<br>
 Śhrī Guru Nāṇak</b><br>
 </p>
 
 <p>
-<font color="DarkGreen">"Today is the birthday of Śhrī Guru Nāṇaka. It is being celebrated throughout the world with so much of zeal that I have not seen in India. For the first time it has been advertised in so many papers and by different means.<br>
+<font color="DarkGreen">"<b>Today is the birthday of Śhrī Guru Nāṇaka.</b> It is being celebrated throughout the world with so much of zeal that I have not seen in India. For the first time it has been advertised in so many papers and by different means.<br>
 Guru Nāṇaka always talked of Sahaja Yoga. ``Everything else," He said, ``is just showing off." About religion He said that, "Observing fasts, going on pilgrimage, etc., are just meant to show off. Now you have to discover the power that is within you and establish it." Guru Nāṇaka kept on repeating the same thing again and again.<br>
 ......<br>
 But Guru Nāṇaka always talked of the Spirit. He explained it very clearly, but no one heeded what he wrote. They will just put a finger on the couplet and read it out. Could we understand him this way? If we go through his writings properly and absorb it, then the whole śhabda jālam [web of words], in which most of the people are caught, will come to an end. See the condition of Sikhs!<br>
-Without looking within and experiencing the innate energy, how could one follow Sikh religion? Only this is the teaching of Guru Nāṇaka, this is what is called `Sikh' [learning]. All the Saints of that age had the discretion to know who is a Saint and who is not. All the gurus incorporated their poems and experiences in Guru Grantha and that is why Guru Grantha is revered so much. Only the renowned gurus contributed to it. They were so spiritual that they did churning of all the religious Scriptures and put the substance in Guru Grantha."</font><br>
+Without looking within and experiencing the innate energy, how could one follow Sikh religion? Only this is the teaching of Guru Nāṇaka, this is what is called `Sikh' [learning]. All the Saints of that age had the discretion to know who is a Saint and who is not. All the gurus incorporated their poems and experiences in Guru Grantha and that is why Guru Grantha is revered so much. Only the renowned gurus contributed to it. They were so spiritual that they did churning of all the religious Scriptures and put the substance in Guru Grantha.<br>
+That is what we do in Sahaja Yoga. <b>We do not follow any particular Saint or Incarnation; we respect all of them and strike a balance.</b>"</font><br>
 <font size="+0"><b>1999-1123 Śhrī Guru Nāṇaka Jayanti (Hindi), House, Noida, Uttar Pradesh, India</b></font>
 </p>
 
@@ -66,24 +67,24 @@ Without looking within and experiencing the innate energy, how could one follow 
 There is One and only One God who is transcendent as well as immanent.<br>
 True and Eternal Name. Creator and Person. Without Fear and without Enmity.<br>
 Timeless Form, Unborn, Self-existent.<br>
-Realized by Divine Grace.<br>"
+Realized by Divine Grace.<br>
 Śhrī Guru Nāṇak's Mool mantra</b><br>
 </p>
 
 <p>
-<font color="DarkGreen">"Muhammad Sāhib Himself was born [again] as our Great Guru, Guru Nāṇaka. Guru Nāṇak was not a human being, He was not only a Paigambar [Prophet] but He was the Reincarnation of Ādi Guru, the Primordial Master, He was a Divine Personality. Of course, the people who were there at His time were so useless and gross people that they actually tortured His life and nobody followed Him. After His death is a different point. He also has said that it is the Primordial Mother who has created the Universe."</font><br>
+<font color="DarkGreen">"<b>Muhammad Sāhib Himself was born [again] as our Great Guru, Guru Nāṇaka.</b> Guru Nāṇak was not a human being, He was not only a Paigambar [Prophet] but He was the Reincarnation of Ādi Guru, the Primordial Master, He was a Divine Personality. Of course, the people who were there at His time were so useless and gross people that they actually tortured His life and nobody followed Him. After His death is a different point. He also has said that it is the Primordial Mother who has created the Universe."</font><br>
 <font size="+0"><b>1982-0222 Public Program (English+Hindi) (Śhivarātri Day), Day 5, Lord Śhiva, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font>
 </p>
 
 <p>
-<font color="DarkRed">"Then came, you know Nāṇaka who preached that there should be no enmity between Hindus and Muslims, he preached that, because he saw the Muslims behaving in such a manner, they were such fanatics and they had become so funny that he could not understand how is it? These are the people whom I have made Muslims and what are they doing here? Actually Mussulman means the person who is realized and Pīr is a person whose Realization is established so much so that he said that those who have become Mussulman should be buried and not burnt, because he thought they are all realized Souls, but Realization finished off with his son-in-law and his daughter, after that he had two sons who were great Souls who are really the Reincarnation[s] of Lav and Kuśh. "</font><br>
+<font color="DarkRed">"Then came, you know Nāṇaka who preached that there should be no enmity between Hindus and Muslims, he preached that, because he saw the Muslims behaving in such a manner, they were such fanatics and they had become so funny that he could not understand how is it? These are the people whom I have made Muslims and what are they doing here? Actually Mussulman means the person who is realized and Pīr is a person whose Realization is established so much so that he said that those who have become Mussulman should be buried and not burnt, because he thought they are all realized Souls, but Realization finished off with his son-in-law and his daughter, after that he had two sons who were great Souls who are really the Reincarnation[s] of Lav and Kuśh."</font><br>
 <font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1081.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"This day, in the name of Nāṇaka, I bless you all with that great spirit of mastery, which you all should become the Great Prophets who are going to change all the men of God into Prophets.<br>
+<font color="DarkGreen"><b>"This day, in the name of Nāṇaka, I bless you all with that great spirit of mastery, which you all should become the Great Prophets who are going to change all the men of God into Prophets.<br>
 May God bless you."</b></font><br>
 <font size="+0"><b>1980-1123 Śhrī Guru Nāṇaka Jayanti Pūjā, You Are to Become Prophets, Temple of All Faiths, Hampstead, London, UK (perhaps Caxton Hall)</b></font>
 </p>
