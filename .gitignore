@@ -1,7 +1,9 @@
+# jekyll things
 _site/
-.DS_Store
 .sass-cache/
-.DS_Store
 serve.log
 .jekyll-metadata
+
+# some tidbits
+.files.json
 .DS_Store
