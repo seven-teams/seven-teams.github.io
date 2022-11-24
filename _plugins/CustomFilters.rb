@@ -21,7 +21,7 @@ module CustomFilters
   end
 
   def sort_by_date(input)
-    input.sort_by { |document| document.data["sort_date"].split("-").map(&:to_f) }
+    input.sort_by { |document| document.data["sort_date"].strip.split("-").map(&:to_f).reverse }
   end
 end
 

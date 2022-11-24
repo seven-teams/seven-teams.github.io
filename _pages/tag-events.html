@@ -27,24 +27,25 @@ title: Divine Events Tag
     {% for tag in tags %}
       {% assign curColor = tag | getColor %}
       {% unless lineColor == curColor %}
-        <br />
-        <br />
+        <br/>
+        <br/>
         {% assign lineColor = curColor %}
       {% endunless %}
-    
-      <a href="#{{ tag | slugify }}" class="codinfox-tag-mark">{{tag | colorize}}</a> &nbsp;&nbsp;
+
+      <a href="#{{ tag | slugify }}" class="codinfox-tag-mark">{{tag | colorize}}</a>
+      &nbsp;&nbsp;
     {% endfor %}
   </p>
 
   {% for tag in tags %}
     <h2 id="{{ tag | slugify }}">{{ tag | colorize }}</h2>
     <ul class="codinfox-category-list">
-      {% for post in site.events %}
+      {% for post in site.events | sort_by_date %}
         {% if post.tags contains tag %}
           <li>
             <h3>
               <a href="{{ post.url }}">
-                <small>{{ post.date | date_to_string }}</small>
+                <small>{{ post.display_date }}</small>
                 {{ post.title }}
               </a>
             </h3>
