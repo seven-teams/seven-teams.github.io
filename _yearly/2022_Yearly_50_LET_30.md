@@ -25,7 +25,7 @@ tags:
 "You can see from His poems that He was absolutely authoritative. He knew the authority, He had the authority. He talked like a man with complete authority. He had no doubt even. He has no doubts. He just said, ``This is going to happen!"<br>
 And, like a great warrior, that He knew ... He knew that one has to fight the negativity, one has to fight all these dark problems.<br>
 The Spirit has to fight all the time the matter.<br>
-And that's how He talked, spoke, wrote, [as] a warrior would do, because He started the fight when He was born here, hundred years back."
+And that's how He talked, spoke, wrote, [as] a warrior would do, because He started the fight when He was born here, hundred years back."<br>
 <font color="blue"><b>1981-1128 Public Program, You Are the Spirit, Friends Meeting House, 120 Heath Street, Hampstead, London NW3 1DR, UK</b></font><br>
 </p>
 
