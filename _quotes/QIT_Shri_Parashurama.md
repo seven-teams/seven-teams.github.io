@@ -44,6 +44,20 @@ And so it is the one-sided knowledge of the right-hand side, of the people who w
 <div class="para-divider"></div>
 
 <p>
+"All the evolution has taken place from the Nābhī chakra. The Daśhāvatāras started from the Nābhī chakra.<br>
+The sixth Incarnation was that of Śhrī Rāma. That took place here.<br>
+Then after that was the Avatār of Śhrī Kṛiṣhṇa.<br>
+<font color="red">Before Kṛiṣhṇa was the Avatār of Paraśhurāma.<br>
+His Incarnation was necessary too because it was needed for someone to come into the world and set people right using their might. Because the human mind isn't always straightforward.<br>
+So He used the strength of His might to prepare people first.<br>
+After that, He talked about Śhrī Rāma.<br>
+In this way, They both came together. Because Śhrī Rāma lived like a human, Paraśhurāma's Divine Incarnation came simultaneously to let Śhrī Rāma's Incarnation be known.</font>"<br>
+<font size="+0"><b>1979-0304 Public Program (Hindi), Day 2, Session 2 (evening), Town Hall, Dehradun, Uttarakhand, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"We had Vāman Avatār, then Paraśhurāmjī incarnated it, then Śhrī Rām incarnated."</font><br>
 <font size="+0"><b>1979-0322 Public Program (Hindi), Sahaja Yoga and the Subtle System, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India (other date 0321)</b></font>
 </p>

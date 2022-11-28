@@ -28,6 +28,13 @@ I said, "I am going to My parent's place."<br>
 <div class="para-divider"></div>
 
 <p>
+"The chakra above this one is very significant for human beings. It's at the back here and is called Viśhuddhi chakra. It has sixteen thousand sub-plexuses and is the chakra of Śhrī Kṛiṣhṇa. Śhrī Rādhā and Kṛiṣhṇa are placed here. <font color="red">On the left side is His sister, Viṣhṇumaya, or Ādi Māyā, and Śhrī Kṛiṣhṇa and Rukmiṇī are placed on the right.</font>"<br>
+<font size="+0"><b>1979-0304 Public Program (Hindi), Day 2, Session 2 (evening), Town Hall, Dehradun, Uttarakhand, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Right Viśhuddhi mantra is Auṃ Twameva sākṣhāt Viṭṭhala Rakhumāī [Rukmiṇī] sākṣhāt ...</font><br>
 <b>Sahaja Yogi:</b> Viṭṭhala?<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Viṭṭhala Rakhumāī [Rukmiṇī]!</font><br>
