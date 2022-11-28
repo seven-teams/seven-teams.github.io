@@ -12,6 +12,8 @@ tags:
 
 <div style="text-align: center"><img src="/images/image1083_Photo_credit_Ray_Harris.jpg" /></div>
 
+<br>
+
 <div style="text-align: center"><img src="/images/image1084_Photo_credit_Colin_Heinsen.png" /></div>
 
 <br>
