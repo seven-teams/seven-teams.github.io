@@ -24,7 +24,7 @@ So we have to give up our misidentifications with our previous styles of life, p
 So, once you understand that we are not to worry about these things, which the people worry. We are not to worry about things which ... for which people just uh give their lives.<br>
 We are here for joy! And joy will come to us, whatever it is! So we should seek joy, happiness, friendship.<br>
 .......<br>
-So the more you are in collectivity and in the blessing state, the better it could be always for you, in your other live, other thing also.<br>
+So the more you are in collectivity and in the blessing state, the better it could be always for you, in your other life, other thing also.<br>
 ......<br>
 And so you all have to prepare yourself: talk about it. So there should be no more silence. There should be no more silence.<br>
 ......<br>
