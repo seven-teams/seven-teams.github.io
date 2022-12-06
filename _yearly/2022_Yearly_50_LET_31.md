@@ -28,7 +28,7 @@ So the more you are in collectivity and in the blessing state, the better it cou
 ......<br>
 And so you all have to prepare yourself: talk about it. So there should be no more silence. There should be no more silence.<br>
 ......<br>
-You must speak, you must talk about it. You must give Realization. Move your hands, move your leg. You have to walk across. For God's work, even if you have to beg you have to do that. This is God's work. Our has to do that, God's work, with all dedication, with all surrendering, and with all love and enjoyment."<br>
+You must speak, you must talk about it. You must give Realization. Move your hands, move your legs. You have to walk across. For God's work, even if you have to beg you have to do that. This is God's work. Our has to do that, God's work, with all dedication, with all surrendering, and with all love and enjoyment."<br>
 <font color="blue"><b>1981-1207 House Warming Pūjā, House, 48 Brompton Square, Knightsbridge, London, UK</b></font><br>
 </p>
 
