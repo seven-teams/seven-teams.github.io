@@ -50,7 +50,7 @@ He is the same who incarnated on this earth: as Moses, as Abraham, and, say, inc
 ......<br>
 ...... the living religion is within us ...... So your religion automatically awakens and you just don't have to bother. Nobody has to tell you ......<br>
 So this is a religion that is within you which is enlightened through Kuṇḍalinī and then it works out. But it is an Absolute Religion in the sense that you all feel the same thing. If you feel one finger the other is also going to feel the same thing."</font><br>
-<font size="+0">1979-0507 Public Program, Sahaja Yoga and Christianity, Bharatiya Vidyā Bhavan, London, UK<b></b></font>
+<font size="+0"><b>1979-0507 Public Program, Sahaja Yoga and Christianity, Bharatiya Vidyā Bhavan, London, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1088.png" /></div>
