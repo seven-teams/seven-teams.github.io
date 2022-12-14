@@ -65,7 +65,7 @@ There are sixteen kalās or the phases of the Moon, and when the complete Pūr�
 <font color="DarkRed">"<b>Dattātreya is the innocence of all these Three Powers.<br>
 And this Guru uh was the One whose ... who then had a big tradition of Gurus.</b><br>
 In the same tradition we had many Gurus in our country and specially in the area near Bombay [Mumbai], which is called as Maharashtra.<br>
-They came as Nāth. They were called as Nāth. So the first one was Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], then Dattātreya, then Macchindranāth, then Gorakhnāth, like that a tradition of these Gurus came.<br>
+They came as Nāth. <b>They were called as Nāth.</b> So the first one was Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], then Dattātreya, then Macchindranāth, then Gorakhnāth, like that a tradition of these Gurus came.<br>
 But all their knowledge was kept as a guarded secret. It was a Gupta Vidyā, is absolutely guarded secret, a secret knowledge about Kuṇḍalinī. They never talked about it; they never told about it. Because they thought that, 'Just now let us experiment with it fully and then we will give some idea about it to people.'<br>
 But as you see everywhere it happens, even it happens with us here sometimes that we get people who do not get Realization or are half-baked and they cannot rise much higher. Then they get, sort of you see, very angry or sometimes they take this half-baked knowledge and start working on it and they go absolutely wrong on this side or that side."</font><br>
 <font size="+0"><b>1979-0530 Public Program, A Higher Life, A World of Bliss and Joy (The Three Paths of Evolution), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
@@ -88,7 +88,7 @@ Guru Aṣhṭakaṃ<br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1980-0727 Guru Pūjā (Guru Pūrṇimā Day), Statutes of the Lord (You Do Not Harm Anyone, The Testimony of the Truth, Develop Detachment, Lead a Moral Life) and Promise that You Will Be a Guru Worthy of Your Mother (Today I Authorize You to Be the Gurus and You Have a Very Supreme Guru), Temple of All Faiths, Hampstead, London, UK</b></font>
-<a href="https://youtu.be/zm8FLJxSaas"> aydio</a><br>
+<a href="https://youtu.be/zm8FLJxSaas"> audio</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
@@ -103,7 +103,7 @@ Guru Aṣhṭakaṃ<br>
 </p>
  
 <p>
-<font color="Maroon"><b>Guru kī Mahima</b></font><br>
+<font color="green"><b>Guru kī Mahima</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
