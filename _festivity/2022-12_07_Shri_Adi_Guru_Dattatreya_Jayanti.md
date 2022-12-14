@@ -84,6 +84,7 @@ What, indeed, will it all avail?</b></font><br>
 <font size="+0"><b>(In praise of the Guru, from Self-knowledge, by Śhrī Ādi Śhaṅkarāchārya)</b></font><br>
 Guru Aṣhṭakaṃ<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+</p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1980-0727 Guru Pūjā (Guru Pūrṇimā Day), Statutes of the Lord (You Do Not Harm Anyone, The Testimony of the Truth, Develop Detachment, Lead a Moral Life) and Promise that You Will Be a Guru Worthy of Your Mother (Today I Authorize You to Be the Gurus and You Have a Very Supreme Guru), Temple of All Faiths, Hampstead, London, UK</b></font>
