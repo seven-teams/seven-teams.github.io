@@ -34,8 +34,7 @@ Links to suggested talk: <a href="https://soundcloud.com/sahaja-library/1988-122
 
 <p>
 <b>Objectives:</b><br>
-.<br>
-.<br>
+1. To expedite the process of spiritual evolution by exciting the residual consciousness i.e. Kuṇḍalinī, to rise ultimately leading to Self-realization (Second Birth as defined in the Bible, the Koran, the Indian Scriptures and the great ancient Prophets and Sages all over the world).<br>
 </p>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
