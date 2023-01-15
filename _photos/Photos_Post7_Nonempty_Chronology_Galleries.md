@@ -13,7 +13,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-We are pleased to mentioned that all galleries of the Chronology Folder of the <font color="DarkGreen"><b>Eternal Moments</b></font> website of Photographs of Śhrī Mātājī are non-empty.<br>
+We are pleased to mention that all galleries of the Chronology Folder of the <font color="DarkGreen"><b>Eternal Moments</b></font> website of Photographs of Śhrī Mātājī are non-empty.<br>
 </p> 
 
 <p>The direct link to the Chronology Folder is:<a href="https://eternalmoments.smugmug.com/Chronology"> Chronology</a></p>
