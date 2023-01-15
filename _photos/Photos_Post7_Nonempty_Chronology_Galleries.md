@@ -1,5 +1,5 @@
 ---
-title: 'Photos Post 7: Noneempty Chronology Galleries'
+title: 'Photos Post 7: Nonempty Chronology Galleries'
 date: 2022-07-24
 permalink: /photos/2023/0115
 tags:
@@ -19,7 +19,7 @@ We are pleased to mentioned that all galleries of the Chronology Folder of the <
 <p>The direct link to the Chronology Folder is:<a href="https://eternalmoments.smugmug.com/Chronology"> Chronology</a></p>
 
 <p>
-Among the 47 years before the start of Sahaja Yoga (i.e., 1923 to 1969), the Chronology Folder has 10 nonempty galleries, and we pray that one day it will have 47 nonempty galleries.<br>
+Among the 47 years before the start of Sahaja Yoga (i.e., 1923 to 1969), the Chronology Folder has 10 nonempty galleries, and we hope and pray that one day it will have 47 nonempty galleries.<br>
 
 <br>
 We would be most happy to receive, enjoy, study, and share more Photos of our Divine Mother. We thank you in advance for any help, support, and feedback. Please write to us at sahajayoga.compilations@gmail.com<br>
