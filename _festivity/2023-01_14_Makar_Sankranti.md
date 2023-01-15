@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"Today we are celebrating here a special day called Makar Saṅkrānt. For the information of the foreign Sahaja Yogis, I will explain to you what it means.<br>
+<font color="DarkRed">"<b>Today we are celebrating here a special day called Makar Saṅkrānt.</b> For the information of the foreign Sahaja Yogis, I will explain to you what it means.<br>
 ......<br>
 It means the day, today is the day the Sun crosses over from the Tropic of Capricorn to the Tropic of Cancer. It is a very big day for us because, now during the summertime we have the harvest, and we look forward to the rain and so many things that happen in every country. The Sun falls at right angles in this country during the summer season and so we welcome the Sun. We eat something -- that you must have eaten already -- what we call as tīḷ and jaggery. It is to prepare your body and your mind to give it sufficiency to receive the Sun. Because if you are living in the cool season, then all your body, mind becomes lethargic and you become also sometimes very lazy about things in the sense, that the day is so small, that you cannot achieve many results. So the body has become cold as we call it. We take these things, which give us heat so body is prepared to receive the heat of the Sun to welcome."</font><br>
 <font size="+0"><b>1985-0114 Makar Saṅkrānti Pūjā (English+Marathi), We Are Going to Make Peace with Ourselves and with Others (We Will Take to Peaceful Methods), Suryavanshi Hall (near Śhivajī Park), Dadar, Mumbai, Maharashtra, India</b></font>
@@ -23,7 +23,7 @@ It means the day, today is the day the Sun crosses over from the Tropic of Capri
 <br>
 <font color="orange">"Now the Sun is so much respected in this country,<br>
 that in early morning time all the people get up and say namas-kārs to Sūrya with all His names<br>
-and do a particular type of exercise to show that they are completely surrendered to the will of the Sūrya."</font>
+and do a particular type of exercise to show that they are completely surrendered to the will of the Sūrya."</font><br>
 <font size="+0"><b>1985-0114 Makar Saṅkrānti Pūjā (English+Marathi), We Are Going to Make Peace with Ourselves and with Others (We Will Take to Peaceful Methods), Suryavanshi Hall (near Śhivajī Park), Dadar, Mumbai, Maharashtra, India</b></font><br>
 <font color="DarkGreen"><b>12 Names of Śhrī Sūrya</b></font><br>
 <a href="https://youtu.be/jqmPOEnU9tg">video</a>
@@ -32,7 +32,7 @@ and do a particular type of exercise to show that they are completely surrendere
 <p>
 <font color="DarkRed">"The meaning of Makar Saṅkrānti is saṅkramaṇ, that is, the day that brings about some change. <b>On this day the Sun starts its movement toward the Northern Hemisphere. In India, all the festivals are according to the position of the Moon. That’s why their dates are different in different years. Makar Saṅkrānti is based on the position of the Sun and that is the reason this festival is celebrated every year on fourteenth January.</b><br>
 Makar Saṅkrānti indicates the day when the Sun becomes warmer. The heat of the Sun is benevolent for the human race. It is because of this heat that we can walk, we can talk. The heat of the Sun makes a human being angry. This is the reason why we take jaggery on this day so that we talk sweetly. The heat of the Sun is responsible for all the vegetation and wealth of the Earth. On this day we offer fruits and vegetables to the Devī and receive Her blessings. With the blessings of Ādi Śhakti the earth element cools down and the human race progresses."</font><br>
-<font size="+0"><b>[2002-0114 Makar Saṅkrānti Pūjā (Marathi), Gain Self-confidence from the Light of the Sun and Become Radiant, House of Mrs. Kalpana Srivastava, Mumbai, Maharashtra, India</b></font>
+<font size="+0"><b>2002-0114 Makar Saṅkrānti Pūjā (Marathi), Gain Self-confidence from the Light of the Sun and Become Radiant, House of Mrs. Kalpana Srivastava, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1093.png" /></div>
@@ -62,11 +62,9 @@ or gain self-confidence from the light of the Sun and become radiant.<br>
 Eternal blessings to all of you."</b></font><br>
 <font size="+0"><b>2002-0114 Makar Saṅkrānti Pūjā (Marathi), Gain Self-confidence from the Light of the Sun and Become Radiant, House of Mrs. Kalpana Srivastava, Mumbai, Maharashtra, India</b></font><br>
 <br>
-<font color="DarkGreen"><b></b></font><br>
-<br>
-Your Face Shines like a thousand suns,<br>
+<font color="DarkGreen"><b>Your Face Shines like a thousand suns,<br>
 You have given us more than we have asked for,<br>
-Bliss and peace and Harmony<br>
+Bliss and peace and Harmony</b></font><br>
 </p>
 
 <p>
@@ -101,12 +99,12 @@ The Sun has come back in His own glory and we have to wish Him all success in th
 </p>
  
 <p>
-<font color="green"><b>Brahma Shodile (1988-0110 Music after Śhrī Sūrya Pūjā)</font><br>
+<font color="green"><b>Brahma Shodile</b> (1988-0110 Music after Śhrī Sūrya Pūjā)</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="OrangeRed"><b>Sarva Mangala Mangale</b> (1987-0114 Makar Saṅkrānti Pūjā)</font><br>
+<font color="green"><b>Sarva Mangala Mangale</b> (1987-0114 Makar Saṅkrānti Pūjā)</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
