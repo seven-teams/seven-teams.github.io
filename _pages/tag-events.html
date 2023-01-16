@@ -32,7 +32,7 @@ title: Divine Events Tag
         {% assign lineColor = curColor %}
       {% endunless %}
 
-      <a href="#{{ tag | slugify }}" class="codinfox-tag-mark">{{tag | colorize}}</a>
+      <a href="#{{ tag | slugify }}" class="codinfox-tag-mark">{{ tag | colorize }}</a>
       &nbsp;&nbsp;
     {% endfor %}
   </p>
@@ -40,7 +40,8 @@ title: Divine Events Tag
   {% for tag in tags %}
     <h2 id="{{ tag | slugify }}">{{ tag | colorize }}</h2>
     <ul class="codinfox-category-list">
-      {% for post in site.events | sort_by_date %}
+      {% assign temp = site.events | sort_by_date % %}
+      {% for post in temp %}
         {% if post.tags contains tag %}
           <li>
             <h3>
