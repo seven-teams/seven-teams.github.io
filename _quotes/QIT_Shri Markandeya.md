@@ -143,6 +143,15 @@ So much ignorance has come into people due to English education.<br>
 <div class="para-divider"></div>
 
 <p>
+"Now, this chakra is where there is sākṣhāt Christ.<br>
+Christ is none other, He is the incarnation of Śhrī Gaṇeśh.<br>
+How He was made? <font color="red">If you read Devī Bhāgavat[am] by Mārkaṇḍeya, you will understand. He was made as Mahāviṣhṇu first and was described as how He is the basis of this Universe and how Śhrī Kṛiṣhṇa who is the father of Christ, that is why He is called Christ.</font> They call Him Christ, like it is the surname. And Yaśhodājī's name is used and He is also called as Yeśhu. That is how Rādhāji Herself kept His name, and Rādhāji is His mother.<br>
+<font size="+0"><b>1979-0311 Public Program (English+Hindi), Day 2, Session 2 (evening), On Gāndhī and Collective Consciousness, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Kuṇḍalinī knowledge is very much known to us.<br>
 Actually we are so much anglicized, thanks to Lord [Thomas Babington] Macaulay, that a very few people who even know the word Kuṇḍalinī.<br>
 If you read Kabīr, the whole thing, Kabīr is nothing but Sahaja Yoga.<br>
