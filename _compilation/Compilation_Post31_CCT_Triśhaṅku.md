@@ -113,7 +113,7 @@ Not, it's no longer empire, it's a ... it's uh-uh-uh a collection of alliets [al
 <b>Dr. Rustom Burjorjee:</b> Āṭha hai [there are eight], Śhrī Mātājī.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Huh?<br>
 <b>Dr. Rustom Burjorjee:</b> They have eight.<br><br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Āṭha hai. [{\textcolor{darklavender}{Hindi}}]: eka, do, tīna, chāra, pāṃcha, cheha, sāta, āṭha.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Āṭha hai. [Hindi]: eka, do, tīna, chāra, pāṃcha, cheha, sāta, āṭha.<br>
 <b>Dr. Rustom Burjorjee:</b> Mhh.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Right.<br>
 <b>Sahaja Yogi:</b> There ... [<font color="orange">unclear</font>].<br>
@@ -129,7 +129,7 @@ This was two years back. Or, when did you have the Bordi marriages? Three years 
 <b>Sahaja Yogi:</b> Three years, yes.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Three years back.<br>
 <b>Sahaja Yogi:</b> Three and a half.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">And all the starts, there were twenty-eight marriages, twenty-seven marriages and twenty-seven Nakṣhatras, that's [{\textcolor{darklavender}{Hindi}}]?</font><br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">And all the starts, there were twenty-eight marriages, twenty-seven marriages and twenty-seven Nakṣhatras, that's [Hindi]?</font><br>
 <b>Dr. Rustom Burjorjee:</b> Constellations.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> [Simultaneously:] Constellations were there.<br>
 [Pointing to the insigne of Southern Cross:] <font color="DarkRed">One of them was this.</font><br>
@@ -160,7 +160,7 @@ So the land was brought down, to this point. He gave him the land, God, and He s
 And this star is called as ... this-ss Triśhaṅku, which is your Southern Cross. This Southern Cross is called as Triśhaṅku, as is men... mentioned in our Purāṇas as this-s Saint who became like that, and God made him into a-eh-eh ... star which is hanging, Triśhaṅku is hanging, on top of this land, and is working out the building up of this country.<br>
 He was told that: "You go there, and make a Heaven for the human beings."<br>
 This has so many mythological and historical backgrounds. </font><br>
-<font size="+0"><b>1994-0403 Easter Pūjā, Sydney, New South Wales, Australia}\label{1994-0403 Easter Pūjā, Sydney, New South Wales, Australia</b></font>
+<font size="+0"><b>1994-0403 Easter Pūjā, Sydney, New South Wales, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
