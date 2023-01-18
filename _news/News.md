@@ -1,5 +1,5 @@
 ---
-title: 'Chronological News in 2023'
+title: '2023 News'
 date: 2023-01-17
 permalink: /photos/2023/0117
 tags:
