@@ -7,7 +7,7 @@ tags:
 ---
 
 <p>
-<b> January 22, 2023</b>: First News posted.<br>
+<b> January 22, 2023</b>: News started.<br>
 <b> January 18, 2023</b>: First News posted.<br>
 <b> January 17, 2023</b>: First News posted.<br>
 <b> January 16, 2023</b>: Yearly Topics Team started the weakly Birthday Centenary Celebrations, link <a href="https://seven-teams.github.io/yearly/"> Yearly</a>.<br>
