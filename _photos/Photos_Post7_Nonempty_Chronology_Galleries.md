@@ -1,6 +1,6 @@
 ---
 title: 'Photos Post 7: Nonempty Chronology Galleries'
-date: 2022-07-24
+date: 2023-01-15
 permalink: /photos/2023/0115
 tags:
   - crimson @ Photographs of Shri Mataji
