@@ -1,7 +1,7 @@
 ---
 title: '2023 News'
 date: 2023-01-17
-permalink: /photos/2023/0117
+permalink: /news/2023/0117
 tags:
   - crimson @ 2023
 ---
