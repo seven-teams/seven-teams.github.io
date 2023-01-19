@@ -10,7 +10,7 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-<b>Gentleman:</b> I mean will ... s Australia blessed?<br>
+<b>Gentleman:</b> I mean will ... is Australia blessed?<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Very much!<br>
 <b>Gentleman:</b> With the upcoming wars and things?<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Very much blessed. It's a very much blessed place, specially created. Australia was the first continent to be created.<br>
