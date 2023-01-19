@@ -42,7 +42,7 @@ The names are like Paramātā. Paramātā means the Primordial Mother.<br>
 Is so many words are ... your ... uh this ... uh the Rock of Ayers is nothing but Gaṇeśha Himself! You see, this is the land of Mūlādhāra chakra.<br>
 You don't know what a land you are living in!<br>
 Whatever you may try, you cannot lose your innocence in this country. Is a country of innocence. You'll keep it a bit of it, because is a country of innocence! You'll see all that!<br>
-<b>Lady:</b> We ... [<font color="orange">unclear</font>] ...
+<b>Lady:</b> We ... [<font color="orange">unclear</font>] ...<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Is a very great country!<br>
 <font color="DarkRed">Is described in the Purāṇas, in the ancient times, that there was one Great Saint, whom committed some mistake, and he was thrown out in the sky, and God said, "All right, now I'll allow you to go away from here, but I give you a boon again, because you are a great man, that you'll create your own heavens here," and that's the seventh cross." It's called Triśhaṅku in Sanskrit language.</font><br>
 So you are great people, you don't know you are born on a very great soil.<br>
@@ -60,7 +60,7 @@ Uh we had it in uh, what you call this place?<br>
 <b>Sahaja Yoginī:</b> Switzerland.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Switzerland. Is very difficult, it was. We managed! We did it! Very difficult. And you don't get such nice presents. [Laughter, some applause.]<br>
 [As some laughter continues:] In India you got lot of nice things.<br>
-<b>Another Sahaja Yoginī</b> [laughing]: Yes.
+<b>Another Sahaja Yoginī</b> [laughing]: Yes.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> For a little amount that you pay, we can maneuver something very good.>br>
 You'll be happy to know that Indians also paid lot of money, substantiated in. Of course, you people also paid some money, there. And, actually, if you see that the people who paid, all together, we calculated that. for every couple, even the people who attended the weddings, paid uh-uh-uh two dollar[s] each. [Laughs.]<br>
 [Laughing:] [In the West] you cannot buy any present for two dollar[s] each.<br>
