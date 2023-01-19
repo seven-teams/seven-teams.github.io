@@ -29,7 +29,7 @@ Did you hear Me?<br>
 
 <p>
 "I went to Australia, and I was amazed the way miracles took place in that country.<br>
-<font color="DarkRed">It is said that, in the Purāṇa, there was a Saint called Triśhaṅku, who committed some mistake, little mistake, and he was sent as the Southern Cross, hanging in the air, and was told that, "You must create your own heaven!" And really Australia is heaven, no doubt, but it's Mūlādhāra! It is Mūlādhāra."<br>
+<font color="DarkRed">It is said that, in the Purāṇa, there was a Saint called Triśhaṅku, who committed some mistake, little mistake, and he was sent as the Southern Cross, hanging in the air, and was told that, "You must create your own heaven!" And really Australia is Heaven, no doubt, but it's Mūlādhāra! It is Mūlādhāra.</font>"<br>
 <font size="+0"><b>1981-0504 Sahasrāra Pūjā, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
