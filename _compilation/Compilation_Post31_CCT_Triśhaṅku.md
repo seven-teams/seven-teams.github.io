@@ -61,7 +61,7 @@ Uh we had it in uh, what you call this place?<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Switzerland. Is very difficult, it was. We managed! We did it! Very difficult. And you don't get such nice presents. [Laughter, some applause.]<br>
 [As some laughter continues:] In India you got lot of nice things.<br>
 <b>Another Sahaja Yoginī</b> [laughing]: Yes.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> For a little amount that you pay, we can maneuver something very good.>br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> For a little amount that you pay, we can maneuver something very good.<br>
 You'll be happy to know that Indians also paid lot of money, substantiated in. Of course, you people also paid some money, there. And, actually, if you see that the people who paid, all together, we calculated that. for every couple, even the people who attended the weddings, paid uh-uh-uh two dollar[s] each. [Laughs.]<br>
 [Laughing:] [In the West] you cannot buy any present for two dollar[s] each.<br>
 But in a collective way it [1985-0208 Marriages Ceremony, Bordi] was so beautiful. And worked out so well. It was such a time, I tell you, unforgettable. As if you were in the Vṛindāvan, beautiful time. <font color="DarkRed">And you saw Southern Cross coming down, both the times, Southern Cross. From Australia it came through that side. I mean, Southern Cross you'll never see in India. But we saw Southern Cross, in India, at the time of marriage. It's a miracle of miracles. All the stars, all the nakṣhatras were there.</font><br>
