@@ -24,7 +24,7 @@ The Comprehensive Compilations Team<br>
 L1. 1990-0424 Letter of Grégoire de Kalbermatten to President George Herbert Walker Bush of the U.S.A., Āśhram, 96 Shadow Lane  New Rochelle, NY, U.S.A. (Yogi Mahajan Collection) (3 pages, uploaded on 2023-0119)
 
 
-<iframe src="/pdf/?usedownload=true#/files/1990-0424_Letter_of_Grégoire_de_Kalbermatten_to_President_George_Herbert_Walker_Bush_of_the_U.S.A.,_Āśhram,_96_Shadow_Lane_ New_Rochelle,_NY,_U.S.A._(Yogi_Mahajan_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#/files/1990-0424_Letter_of_Grégoire_de_Kalbermatten_to_President_Bush,_96_Shadow_Lane,_ New_Rochelle,_NY,_U.S.A._(Yogi_Mahajan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
