@@ -12,9 +12,9 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-In this posts we will share letters and press released scanned by the Comprehensive Compilations Team.<br>
+This post will share letters and press releases scanned by the team.<br>
 <br>
-Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (mosulo replacements of underscore by space).<br>
+Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces).<br>
 <br>
 We thank you in advance for any help, support, and feedback. Please write to us at sahajayoga.compilations@gmail.com<br>
 <br>
