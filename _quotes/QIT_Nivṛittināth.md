@@ -67,6 +67,4 @@ When I read about them I'm really is ... feel very, extremely sad, that all thes
 
 <div class="para-divider"></div>
 
-[Download pdf here](http://seven-teams.github.io/files/Shri_Anasuya_V2.pdf)
-
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
