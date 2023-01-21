@@ -3,7 +3,7 @@ title: 'Post 10: TAO TE CHING'
 date: 2023-01-28
 permalink: /scriptures/2023/0128
 tags:
-  - crimson @ Lao Tzea
+  - crimson @ Lao Tze
   - green @ Shri Adi Guru
   - green @ Shri Vishnu
   - orange @ Tao Te Ching
@@ -11,13 +11,13 @@ tags:
 
 <p>
 <br>
-<font color="red"><b>Śhrī Mātājī's words on</b></font><br>
+<font color="red"><b>Śhrī Mātājī's words on Tao</b></font><br>
 <br>
-<font color="DarkGreen">Dr. D. C. Lau's translation of Tao Te Ching published in 1963 in Penguin Classics, ISBN 0-14-044131-X, and that divides the chapters into passages.<b></b></font><br>
+<font color="DarkGreen"><b>Dr. D. C. Lau's translation of Tao Te Ching published in 1963 in Penguin Classics, ISBN 0-14-044131-X, and that divides the chapters into passages.</b></font><br>
 <br>
-<font color="blue"><b>J. H. McDonald 1996 translation for public domain</b>, available as a pdf at <a href="https://www.unl.edu/prodmgr/NRT/Tao%20Te%20Ching%20-%20trans.%20by%20J.H..%20McDonald.pdf">pdf</a><br>
+<font color="blue"><b>J. H. McDonald 1996 translation for public domain</b></font>, available as a pdf at <a href="https://www.unl.edu/prodmgr/NRT/Tao%20Te%20Ching%20-%20trans.%20by%20J.H..%20McDonald.pdf">pdf</a><br>
 <br>
-<font color="Peru"><b>Stephen Mitchell's translation last updated on July 20, 1995</b>, available as a pdf at <a href="http://albanycomplementaryhealth.com/wp-content/uploads/2016/07/TaoTeChing-LaoTzu-StephenMitchellTranslation-33p.pdf">pdf</a><br>
+<font color="Peru"><b>Stephen Mitchell's translation last updated on July 20, 1995</b></font>, available as a pdf at <a href="http://albanycomplementaryhealth.com/wp-content/uploads/2016/07/TaoTeChing-LaoTzu-StephenMitchellTranslation-33p.pdf">pdf</a><br>
 </p>
 
 <div class="para-divider"></div>
@@ -398,5 +398,5 @@ The gateway of the manifold secrets.</font><br>
 
 <div class="para-divider"></div>
 
-<p><b>Jay Śhrī Mātājī!</b>
+<p><font color="red"><b>Jay Śhrī Mātājī!</b></font>
 </p>
