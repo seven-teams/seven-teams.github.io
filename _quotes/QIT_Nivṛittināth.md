@@ -62,14 +62,7 @@ I don't know why they had to do it but they did it.<br>
 They were all unmarried people and very strict with themselves and they had to lead a life very secluded from the society.<br>
 This was really a very difficult type of ascent they had.<br>
 When I read about them I'm really is ... feel very, extremely sad, that all these great people who were seeking had to go through such horrible strenuous turmoil for days together, and then s-s-some of them got Realization."<br>
-<font size="+0"><b><1996-0628 Public Program, Myths Are Unreal, Royal Albert Hall, Kensington Gore, London SW7, UK/b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1996-0628 Public Program, Myths Are Unreal, Royal Albert Hall, Kensington Gore, London SW7, UK/b></font>
 </p>
 
 <div class="para-divider"></div>
