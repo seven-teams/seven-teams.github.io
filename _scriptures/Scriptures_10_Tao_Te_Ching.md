@@ -24,6 +24,15 @@ tags:
 
 <p>
 <b>Quotes</b><br>
+<font color="red">This is Yin and Yang, is, if you see these two are Yin and Yeng [Yang]. And what is described in the martial arts is, is actually later on followed by it. But actually Zen is nothing, Zen means meditation. Zen, Zen means meditation. And, you see, the description even of Lao Tze of Tao is the same of the Kuṇḍalinī rising. You see, the Yangtze River, I've gone through that, you see, and it's really the description of the Kuṇḍalinī Itself how It raises, and Tao is nothing but the Kuṇḍalinī. He's describes that. The name is different. But Ta-o means the Kuṇḍalinī.<br>
+Now, these are the two things which are in our brain, you see, really placed like that, Yin and Yang. You see there, if you cut your heads transverse you will find these two things placed like that, this Yin and Yang. And this is what Zen was talking about. </font><br>
+<b>1985-0303 Public Program, Adelaide, SA, Australia</b><br>
+<br>
+<font color="red">You must know that whosoever talking to you, should traditionally talk about religion. He should integrate all the religions. He should integrate all the Incarnations, all the Saints who have come on this Earth. All the truth of the world should be brought it, like Tao should be there, Zen should be there, there should be Christ, there should be Muhammad, and there should be Kṛiṣhṇa and Rāma. All of Them are relations of each other. </font><br>
+<b>1985-0305 Public Program, Day 1, Hall, University, Auckland, New Zealand</b><br>
+<br>
+<font color="red">In all the Tao is nothing but the Kuṇḍalinī.</font><br>
+<b>1991-0405 Public Program, Brisbane, Queensland, Australia</b><br>
 </p>
 
 <p style="text-align:center;">
