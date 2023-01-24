@@ -9,7 +9,7 @@ tags:
 <br>
 <div style="text-align: left"><img src="/images/100Years.jpg" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/image1098_Asha_Peter_Brownscombe_Collection.png" /></div>
+<div style="text-align: center"><img src="/images/image1098_Asha_Peter_Brownscombe_Collection.png" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
