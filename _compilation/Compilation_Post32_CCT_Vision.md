@@ -12,8 +12,8 @@ tags:
 <font color="DarkRed">"This is the era of Enlightenment. One can see and feel the bubbling of new idioms in our creative world of art, music and all that is beautiful and joy-giving. Integration is the key note of this new regeneration of universal tones. These tones are ripples of the harmonic, dynamic undercurrent music of the Universal Divine Love.<br>
 <font color="DarkRed">Is there a possibility of this love expressed in the unity of human beings with God Almighty giving a new vision to the apparent diversities?</font><br>
 Is it possible that this unique happening is accessible to many, that they may see their own creative world revolving in the great universe of All-pervading Power?<br>
-My only answer is, `Yes.'<br>
-My only question is, `Why not?'"</font><br>
+My only answer is, 'Yes.'<br>
+My only question is, 'Why not?' "</font><br>
 <font size="+0"><b>1900-0000 Quote from The Life Eternal, 1980 Issue, Pages 46, 48 and 50, from a 1984 Pamphlet, Brighton, East Sussex, UK, and from the Back Cover of The Advent (2002 edition)</b></font>
 </p>
 
