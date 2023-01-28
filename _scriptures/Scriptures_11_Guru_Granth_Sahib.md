@@ -13,7 +13,7 @@ tags:
 <br>
 <font color="red"><b>Śhrī Mātājī's words on Guru Granth Sāhib</b></font><br>
 <br>
-<font color="DarkGreen">Dr. Ernest Trumpp translation of the Ādi Granth, Third Edition 1978 (first published in 1877), published by Munshiram Manoharlal Publishers Pvt. Ltd.<b></b></font><br>
+<font color="DarkGreen"><b>Dr. Ernest Trumpp translation of the Ādi Granth, Third Edition 1978 (first published in 1877), published by Munshiram Manoharlal Publishers Pvt. Ltd.<b></b></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -59,7 +59,7 @@ He's included so many of these poetry from all the realized Souls from Ma... Mah
 <p>
 <b>Japu Passage</b><br>
 <font color="DarkGreen">At the beginning is the True one, at the beginning of the Yug is the True one.<br>
-The True one is, O Nānak! and the True one also will be. </font><br>
+The True one is, O Nānak! and the True one also will be.</font><br>
 </p>
 
 <p>
