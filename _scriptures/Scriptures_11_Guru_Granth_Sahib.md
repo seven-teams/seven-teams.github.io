@@ -13,7 +13,7 @@ tags:
 <br>
 <font color="red"><b>Śhrī Mātājī's words on Guru Granth Sāhib</b></font><br>
 <br>
-<font color="DarkGreen"><b>Dr. Ernest Trumpp translation of the Ādi Granth, Third Edition 1978 (first published in 1877), published by Munshiram Manoharlal Publishers Pvt. Ltd.<b></b></font><br>
+<font color="DarkGreen"><b>Dr. Ernest Trumpp translation of the Ādi Granth, Third Edition 1978 (first published in 1877), published by Munshiram Manoharlal Publishers Pvt. Ltd.</b></font><br>
 </p>
 
 <div class="para-divider"></div>
