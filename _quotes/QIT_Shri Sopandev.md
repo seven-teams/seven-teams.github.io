@@ -3,7 +3,8 @@ title: 'Śhrī SOPĀNDEV in the Words of ŚHRĪ MĀTĀJĪ'
 date: 2023-01-27
 permalink: /quotes/2023/0127
 tags:
-  - Incarnations
+  - crimson @ Shri Sopandev
+  - hotpink @ Shri Brahmadeva
 ---
 
 <div class="para-divider"></div>
