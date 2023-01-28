@@ -1,7 +1,7 @@
 ---
-title: 'Post 10: '
-date: 2022-07-10
-permalink: /quotes/2022/0710
+title: 'Post 11: GURU GRANTH SĀHIB'
+date: 2023-01-28
+permalink: /quotes/2023/0128
 tags:
   - crimson @ Shri Guru Nanaka
   - green @ Shri Adi Guru
