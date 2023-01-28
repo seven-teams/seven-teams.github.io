@@ -73,7 +73,6 @@ But diverge in name as they issue forth.<br>
 Being the same they are called mysteries,<br>
 Mystery upon mystery -<br>
 The gateway of the manifold secrets.</font><br>
-<font color="blue"></font><br>
 </p>
 
 <p style="text-align:center;">
