@@ -397,5 +397,5 @@ The gateway of the manifold secrets.</font><br>
 
 <div class="para-divider"></div>
 
-<p><font color="red"><b>Jay Śhrī Mātājī!</b></font>
+<p><b>Jay Śhrī Mātājī!</b>
 </p>
