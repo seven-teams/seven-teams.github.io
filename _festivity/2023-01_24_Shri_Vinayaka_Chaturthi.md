@@ -156,7 +156,7 @@ they can be blown off with this wind which is there to torture the whole world, 
 If it is not all right, then the whole of Sahaja Yoga movement can collapse.<br>
 For ladies and for men, I have to make a humble request: that they should try to put their Śhrī Gaṇeśh in a very respectable position in their lifestyle.<br>
 That should be the highest, the most important, and also every day to be remembered that we are very much blessed by Śhrī Gaṇeśh to get your Self-realization.</b>"</font><br>
-<font size="+0">1993-0721 Śhrī Gaṇeśha Pūjā, Qualities of Śhrī Gaṇeśha (Giver of Wisdom), Berlin, Germany<b></b></font>
+<font size="+0"><b>1993-0721 Śhrī Gaṇeśha Pūjā, Qualities of Śhrī Gaṇeśha (Giver of Wisdom), Berlin, Germany</b></font>
 </p>
 
 <p>
