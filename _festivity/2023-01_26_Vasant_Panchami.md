@@ -152,6 +152,8 @@ Please take us under your protection as we are unknowledgeable</b></font><br>
 <a href="https://youtu.be/JgZ9Muu3qaA">video</a> 
 </p>
 
+<div style="text-align: center"><img src="/images/image1107.png" /></div>
+
 <p style="text-align:center;">
 <font color="DarkRed">"Now the second one is Mahāsaraswatī, is at Māhūragaḍ. We always sing Māhūragaḍ. Wari song, that is the one – is Mahāsaraswatī, which is also called as Reṇukā Devī, that’s the right-sided Mahāsaraswatī."</font><br>
 <font size="+0"><b>1990-1221 Śhrī Mahālakṣhmī Pūjā (Hindi+English), Hall, Kolhapur, Maharashtra, India</b></font><br>
@@ -168,10 +170,8 @@ Pitambarachi ga, pitambarachi Khowuni kas<br>
 Dressed with pitambaras (yellow dhotis)<br>
 <b>Bhakt. Yetil. Dar. Shanas.</b></font></font><br>
 Devotees all come to receive Your Darśhan<br>
-<font color="green"><font size="+0"><<b>Mahur gadavari:</b></font></font> <a href="https://www.youtube.com/watch?v=EWoUoau4BOw&ab_channel=SahajayogaCulture">video</a>
+<font color="green"><font size="+0"><b>Mahur gadavari:</b></font></font> <a href="https://www.youtube.com/watch?v=EWoUoau4BOw&ab_channel=SahajayogaCulture">video</a>
 </p>
-
-<div style="text-align: center"><img src="/images/image1107.png" /></div>
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>
