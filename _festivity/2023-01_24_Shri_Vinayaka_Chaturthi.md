@@ -55,8 +55,8 @@ By worshiping Śhrī Gaṇeśha, your joy increases, you become joyous, because 
 Because of this, both things are today, His birthday and His help.<br>
 We take His help in any work what we do. Such is our way. But we don’t see what we have to do to awaken Him.<br>
 In that direction our attention does not go. We do not feel that we should become like Him, that we should have a state in which Śhrī Gaṇeśha is awakened within us.<br>
- With which we may never venture on the wrong path.</font><br>
-<font size="+0"><b><2008-0210 Śhrī Gaṇeśha Jayanti Pūjā (Hindi), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India/b></font><br>
+ With which we may never venture on the wrong path."</font><br>
+<font size="+0"><b>2008-0210 Śhrī Gaṇeśha Jayanti Pūjā (Hindi), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font><br>
 <br>
 <font color="blue"><font size="+0"><b>Jay Gaṇeśha, Jay Gaṇeśha, Jay Gaṇeśha Deva</b><br>
 Jay Lord Gaṇeśh<br>
@@ -70,7 +70,7 @@ O God, You are single toothed with four hands,<br>
 the red sindoor suits Your forehead, and You are mounted on a humble mouse.<br>
 <b>O Gaṇapati Deva, Gaṇapati Deva</b><br>
 O Jay Jay Gaṇapati Deva, Gaṇapati Deva</font></font><br>
-<a href="">video</a> 
+<a href="https://youtu.be/LtqNdCxPQI0">video</a> 
 </p>
 
 <p>
