@@ -27,10 +27,10 @@ The earth element is special in this. The earth element has been placed in such 
 From this living work, slowly and gradually human beings have been generated.<br>
 But we should know our own great power.<br>
 That power is what we call creation power, it’s also called creativity.<br>
-This creation power is the blessing of Saraswatī by which many arts have been generated. The evolution of art is due to the blessings of Saraswatī.</font><br>
+This creation power is the blessing of Saraswatī by which many arts have been generated. The evolution of art is due to the blessings of Saraswatī."</font><br>
 <font size="+0"><b>1992-0403 Śhrī Saraswatī Pūjā, Emerlin College, Yamunānagar, Haryana, India</b></font><br>
 <br>
-<font color="purple"><b>Auṃ Twameva sākṣhāt Śhrī Mahāsaraswatī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
+<font color="MediumPurple"><b>Auṃ Twameva sākṣhāt Śhrī Mahāsaraswatī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 </p>
 
 <p>
@@ -40,7 +40,7 @@ This creation power is the blessing of Saraswatī by which many arts have been g
 
 <p>
 <font color="DarkRed">"Mahāsaraswatī Principle is on the right side as I’d ... you all know. First is the Brahmadeva’s Principle, which is the Saraswatī Principle, and then this Mahāsaraswatī takes you to the Principle of Mahābrahmadeva called as Hiraṇyagarbha.<br>
-Now, this Hiraṇyagarbha Principle is very important for Sahaja Yogis."</font><br>
+Now, <b>this Hiraṇyagarbha Principle is very important for Sahaja Yogis</b>."</font><br>
 <font size="+0"><b>1992-0223 Śhrī Mahāsaraswatī Pūjā, Modern Art and Literature, 24 Pukenui Road, Epsom, Auckland, New Zealand</b></font>
 </p>
 
@@ -53,9 +53,8 @@ So Saraswatī was born as the sister of Śhrī Kṛiṣhṇa.</b>"</font><br>
 <div style="text-align: center"><img src="/images/image1104.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">The second power, which He gave us, which He sent to us, was Mahāsaraswatī and to this Mahāsaraswatī Power,<br> 
-<b>He called Counselor, the one who will counsel you – that means, who helps us for Yoganirūpaṇ [to see the form of Yoga]</b>.<br>
-With the help of this second power, we will get Gyān [Knowledge], we will know the subtle knowledge.</font><br>
+<font color="DarkRed">"The second power, which He gave us, which He sent to us, was Mahāsaraswatī and to this Mahāsaraswatī Power, <b>He called Counselor, the one who will counsel you – that means, who helps us for Yoganirūpaṇ [to see the form of Yoga]</b>.<br>
+With the help of this second power, we will get Gyān [Knowledge], we will know the subtle knowledge."</font><br>
 <font size="+0"><b>1996-0414 Easter Pūjā (Hindi), Kolkata, West Bengal, India</b></font><br>
 </p>
 
@@ -75,12 +74,12 @@ May God bless you."</font><br>
 
 <div style="text-align: center"><img src="/images/image1105.png" /></div>
 
-<p>
+<p style="text-align:center;">
 <font color="DarkRed"><b>"Only for hymns to be sung in the praise of God. All music should be in the praise of God. 
 All ragas should be in the praise of God."</b></font><br>
 <font size="+0"><b>1983-0202 Public Program (English+Hindi), Day 4, The Viśhuddhi Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font><br>
 <br>
-<font color="DarkGreen"><b>Tu swar ki devi, ye sangeet, tujh se,</b><br>
+<font color="DarkGreen"><b>Tu swar ki Devī, ye sangīt, tujh se,</b><br>
 You are the goddess of music, and this song,<br>
 <b>Har Shabd tera hai har geet tujh se,</b><br>
 all its words and the tune, comes from You.<br>
