@@ -148,7 +148,7 @@ Please direct us to the village that is the Kingdom of God (kingdom within/in my
 <div style="text-align: center"><img src="/images/image1102.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"For Sahaj Yogis, it is very important, because if say, there’s a cloth or a sāṛī which is blown off by the wind, even if you can hold it on one corner, you can hold it, and after some time the whole thing can subside.<br>
+<font color="DarkRed">"For Sahaj Yogis, it is very important, because if say, there’s a cloth or a sāṛī which is blown off by the wind, even if you can hold it on one corner, you can hold it, and after some time the whole thing can subside.<br>
 And this is what has to happen actually to the world, when Sahaj Yogis will hold the sāṛī, we can call, or this Universe with their wisdom and firm faith in Sahaja Yoga.
 Otherwise, they can be blown off also. If they are not rightly placed, if they are not grounded, if they are not fixed to their own enlightened faith of Sahaja Yoga,<br>
 they can be blown off with this wind which is there to torture the whole world, to destroy the whole world.<br>
