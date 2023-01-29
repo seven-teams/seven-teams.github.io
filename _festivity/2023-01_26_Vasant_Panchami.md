@@ -76,7 +76,7 @@ May God bless you."</font><br>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Only for hymns to be sung in the praise of God. All music should be in the praise of God. 
-All ragas should be in the praise of God."</b></font><br>
+All rāgas should be in the praise of God."</b></font><br>
 <font size="+0"><b>1983-0202 Public Program (English+Hindi), Day 4, The Viśhuddhi Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font><br>
 <br>
 <font color="DarkGreen"><b>Tu swar ki Devī, ye sangīt, tujh se,</b><br>
