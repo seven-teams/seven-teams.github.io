@@ -25,7 +25,7 @@ tags:
 
 <p>
 <font color="DarkRed">"Today, at this place in Bordi, you all take an oath in your mind that, 'This is our aim that each person will save at least thousand more people.' "</font><br>
-<font size="+0">1979-0325 Pūjā (Hindi+English), Chit ke Gaharai (Depth of Your Attention), Seminar, Day 2, Camp, Bordi, Maharashtra, India<b></b></font>
+<font size="+0"><b>1979-0325 Pūjā (Hindi+English), Chit ke Gaharai (Depth of Your Attention), Seminar, Day 2, Camp, Bordi, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
