@@ -13,10 +13,10 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-<b>Version 1:</b>
+<b>Version 1:</b><br>
 <font color="DarkRed">"A couple of days ago, I asked people to promise that they would no longer consume alcohol, and half of them got up and left. Just a promise -- it was not like I asked them to make any payments!"</font><br>
 <br>
-<b>Version 2:</b>
+<b>Version 2:</b><br>
 <font color="DarkRed">"A couple of days ago, I asked people to promise that they would no longer consume alcohol, and half of them got up and left. I then said that, "Just take the oath," I did not say that you will have to pay for that. But the moment I said this, half the people got up and left."</font><br>
 <font size="+0"><b>1979-0223 Public Program (Marathi), Kuṇḍalinī Śhakti ani Sat Chakra (Kuṇḍalinī Śhakti and the Seven Chakras), Ahmednagar, Maharashtra, India</b></font>
 </p>
@@ -90,10 +90,10 @@ Because you do not meditate, you do not have the depth to show that you are grea
 <div class="para-divider"></div>
 
 <p>
-<b>Version 1:</b>
+<b>Version 1:</b><br>
 <font color="DarkRed">"So on this Day of Resurrection you have to take a vow that you will transform into a very high level and become very deep Sahaja Yogis."</font>
 <br>
-<b>Version 2:</b>
+<b>Version 2:</b><br>
 <font color="DarkRed">"That is why, today on the Day of Resurrection take an oath in your mind that, 'We will become deep Sahaja Yogis of the highest order, Sahaja Yogis who have depth.' "</font><br>
 <font size="+0"><b>1995-0414 Easter Pūjā (English+Hindi), You have to Crucify Your Ego, Kolkata, West Bengal, India</b></font>
 </p>
