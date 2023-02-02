@@ -33,7 +33,7 @@ tags:
 <p>
 "Now we have got, astrologically there are three and a half auspicious days where you don't have to consultant any uh ... any books of astrology, which are called as Pañchāṅg, to find out whether it is an auspicious time or not. For any Pūjā, for any [<font color="orange">unclear</font>] good work you have to do, people consultant, in India, the Pañchāṅg, is the book to find out which date is auspicious [and] which is not.<br>
 One of them is today. Is a day you can do anything good, you decide anything good. <font color="DarkRed">Today is the day to take an oath, to think of something great, to visualize something big, to ask a boon, to do a big Pūjā, is one of the greatest uh day.</font> One of the, we call them muhūrtas, which where you do not consultant these books.<br>
-And that's why rājyābhiṣhek of, I mean the crowning ceremony of Śhrī Rāma took place on this day."</font><br>
+And that's why rājyābhiṣhek of, I mean the crowning ceremony of Śhrī Rāma took place on this day."<br>
 <font size="+0"><b>1979-1020 Diwālī Pūjā (Diwālī Day), Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
