@@ -18,9 +18,9 @@ tags:
 
 <p>
 <b>Sahaja Yogi:</b> The Goddess Kuan Yen [Guānyīn], Śhrī Mātājī, ...<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Yes.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Yes.<br>
 <b>Sahaja Yogi:</b> ... can You tell us something about it [Her]?<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> Kuan Yin [Guānyīn]?<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> Kuan Yin [Guānyīn]?</font><br>
 <b>Another Sahaja Yogi:</b> Kuan Yin [Guānyīn]!<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Yes? You want to know about Her?<br>
 That's an Incarnation of one of the ... yuh ... I mean in the Chinese mythology you find the Incarnation described of Kuan Yin [Guānyīn]. And actually, She is the One, who is the Vṛuddhā, is described as Vṛuddhā, She is the One, is the Aged One. Uh-uh-uh because uh Kuan Yin [Guānyīn] was born to a king. She was the daughter of a king. And She was the Virgin Form of the Goddess, and She would not marry. So Her father got very angry with Her, that She is not marrying. And he threatened Her, because he had arranged Her ... His marri... uh marriage with some great king, you see. And when the marriage took pla... mariage did not take place, father was so angry and annoyed and felt very humiliated. So, he-ee took Her to a hillside and got ... said ... threatened [Her] that, "I will throw You down." And actually She was thrown down from the hillside into a valley, and he thought, 'She must have been dead.'<br>
@@ -39,9 +39,9 @@ And the uh-uh-uh ... the Buddhist felt that, 'People wouldn't give Her up, becau
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> We have Chinese also who are very wise. And the ... they are known to be people of deep understanding. But they are not like Indians.<br>
 So, what is lacking in all these people is: the depth of awareness. Because-ss, though in China also Mother of Mercy came, and She really uh-uh-uh bestowed blessings upon them, and China rose also, afterwards, into her own glory and became quite a good industrial, I mean developed country, we can say, very powerful, but still, that kind of regimentation could not be borne. <font color="DarkRed">Because, after all, Mother Mercy was there.</font><br>
 <font color="DarkRed">Do you know last -- you have one Mother Mercy to give ... you have given Me ...</font><br>
-<b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Ahh?
-<b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].
+<b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Ahh?<br>
+<b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Or Kuan Yin [Guānyīn], same thing. Kuan Yin [Guānyīn] -- and She's the same thing, called as Mother of Mercy.<br>
 And the second one was given by Grégoire recently.<br>
 And you see what's happening in China now.<br>
@@ -100,8 +100,8 @@ Who, Her own father wanted to throw Her away. And a tiger came and saved Her. An
 <p>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">But even before Buddha you had a tradition of the Mother Mercy. I do not know how far the Japanese accepted this, but in the eastern part of China and other places they worshiped Mother Mercy, Quānyīn [Guānyīn].<br>
 I don't know if even Japanese worshiped Her or not. They did?</font><br>
-<b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> So, this is come from ancient times."<br>
+<b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> So, this is [has] come from ancient times."<br>
 <font size="+0"><b>1995-0301 Talk to Sahaja Yogis, Zen System or Sahaja Yoga is also Zen, before Public Program, Four Seasons Hotel, Tokyo, Japan</b></font>
 </p>
 
