@@ -37,12 +37,12 @@ And the uh-uh-uh ... the Buddhist felt that, 'People wouldn't give Her up, becau
 
 <p>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> We have Chinese also who are very wise. And the ... they are known to be people of deep understanding. But they are not like Indians.<br>
-So, what is lacking in all these people is: the depth of awareness. Because-ss, though in China also Mother of Mercy came, and She really uh-uh-uh bestowed blessings upon them, and China rose also, afterwards, into her own glory and became quite a good industrial, I mean developed country, we can say, very powerful, but still, that kind of regimentation could not be borne. <font color="DarkRed">Because, after all, Mother Mercy was there.</font><br>
-<font color="DarkRed">Do you know last -- you have one Mother Mercy to give ... you have given Me ...</font><br>
+So, what is lacking in all these people is: the depth of awareness. <font color="DarkRed">Because-ss, though in China also Mother of Mercy came, and She really uh-uh-uh bestowed blessings upon them, and China rose also, afterwards, into her own glory and became quite a good industrial, I mean developed country, we can say, very powerful, but still, that kind of regimentation could not be borne. Because, after all, Mother Mercy was there.</font><br>
+<font color="DarkRed"><font color="DarkRed">Do you know last -- you have one Mother Mercy to give ... you have given Me ...</font><br>
 <b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Ahh?<br>
 <b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Or Kuan Yin [Guānyīn], same thing. Kuan Yin [Guānyīn] -- and She's the same thing, called as Mother of Mercy.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Or Kuan Yin [Guānyīn], same thing. Kuan Yin [Guānyīn] -- and She's the same thing, called as Mother of Mercy.</font><br>
 And the second one was given by Grégoire recently.<br>
 And you see what's happening in China now.<br>
 So the effects of these Deities which existed in different countries at different times, are felt only in Kali Yuga in the best way.<br>
@@ -108,7 +108,7 @@ I don't know if even Japanese worshiped Her or not. They did?</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"After Her Incarnation as Sītā She was born and lived in China as Kuan Yin [Guānyīn], the Mother of Mercy, as a virgin. "</font><br>
+<font color="DarkRed">"After Her Incarnation as Sītā She was born and lived in China as Kuan Yin [Guānyīn], the Mother of Mercy, as a virgin."</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God</b></font>
 </p>
 
