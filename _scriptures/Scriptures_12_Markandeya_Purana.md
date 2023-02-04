@@ -16,10 +16,6 @@ tags:
 <font color="red"><b>Śhrī Mātājī's words on Mārkaṇḍeya Purāṇa</b></font><br>
 <br>
 <font color="DarkGreen"><b>Mārkaṇḍeya Purāṇa translated with notes by F. Eden Pargiter and published by Shamher Bahadur Singh (Ideological Book House)  in 1995</b></font><br>
-<br>
-<font color="blue"><b></b></font><br>
-<br>
-<font color="Peru"><b></b></font><br>
 </p>
 
 <div class="para-divider"></div>
