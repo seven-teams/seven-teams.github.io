@@ -65,13 +65,13 @@ Of existence, ......<br>
 Whose steps the earth, the sky, and heaven o'erpassed,<br>
 To sight appearing, purify your souls!</font><br>
 <br>
-May He protect you, who is skilled to save<br>
+<font color="DarkGreen">May He protect you, who is skilled to save<br>
 In every kind of sin impure; whose form<br>
 Within the bosom of the sea of milk<br>
 Upon the hooded snake reclines; and at<br>
 Whose touch the sea grows mountainous, its spray<br>
 Up-tossing from its waters by his breath<br>
-Disturbed, and into seeming dancing breaks!<br>
+Disturbed, and into seeming dancing breaks!</font><br>
 </p>
 
 <div class="para-divider"></div>
