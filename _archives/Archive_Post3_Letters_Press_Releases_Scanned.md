@@ -32,7 +32,7 @@ The Comprehensive Compilations Team<br>
 
 <iframe src="/pdf/?usedownload=true#/files/1990-1029_Letter_of_Dr._B._Khan_from_Kolkata_to_Rajiv_Gandhi_taken_care_of_by_Don_Glover,_New_Delhi,_India_(Yogi_Mahajan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
-<font color="DarkGreen"><b>PR1.</b></font> <b>1988-0126 Press Release, Interview with Foreign Correspondents (29 Republic Day), On the Controversy of Dr. Bhimrao Ramji Ambedkar and His Role in the Framing of the Indian Constitution, Pratiṣhṭhān, NDA Road, Warje, Pune (Yogi Mahajan Collection)</b> (2 pages, uploaded on 2023-0201)
+<font color="DarkGreen"><b>PR1.</b></font> <b>1988-0126 Press Release, Interview with Foreign Correspondents (29 Republic Day), On the Controversy of Dr. Bhimrao Ramji Ambedkar and His Role in the Framing of the Indian Constitution, Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India (Yogi Mahajan Collection)</b> (2 pages, uploaded on 2023-0201)
 
 <iframe src="/pdf/?usedownload=true#/files/1988-0126_Press_Release,_Interview,_On_the_Controversy_of_Dr._Ambedkar,_Pratiṣhṭhān,_Pune,_MH,_India,_(Yogi_Mahajan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
