@@ -7,6 +7,7 @@ tags:
   - green @ Shri Adi Guru
   - green @ Shri Vishnu
   - orange @ Guru Granth Sāhib
+  - peru @ Sikhism
 ---
 
 <p>
