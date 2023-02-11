@@ -1,7 +1,7 @@
 ---
 title: 'Post 12: MĀRKAṆḌEYA PURĀṆA'
 date: 2023-02-04
-permalink: /quotes/2023/0204
+permalink: /scriptures/2023/0204
 tags:
   - crimson @ Shri Markandeya
   - crimson @ Shri Dattatreya

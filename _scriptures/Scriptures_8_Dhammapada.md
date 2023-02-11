@@ -130,7 +130,7 @@ ye taṁ na upanayhanti veraṁ tesūpasammati.</font>
 <font color="blue">"Look how he abused me and hurt me,<br> 
 How he threw me down and robbed me."<br>
 Abandon such thoughts, and live in love.</font><br>
-<font color="DarkGreen">"He abused me, he struck at me,<br> 
+<font color="peru">"He abused me, he struck at me,<br> 
 he overcame me, he robbed me,"<br> 
 those who bear not ill-will to others<br> 
 their hatred is surely appeased.</font>
