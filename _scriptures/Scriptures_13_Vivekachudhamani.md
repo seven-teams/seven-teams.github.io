@@ -1,5 +1,5 @@
 ---
-title: 'Post 13: Vivekachūḍāmaṇi'
+title: 'Post 13: VIVEKACHŪḌĀMAṆI'
 date: 2023-02-11
 permalink: /scriptures/2023/0710
 tags:
@@ -18,6 +18,7 @@ tags:
 <font color="blue"><b>Translation of Vivekachūḍāmaṇi of Śhrī Ādi Śhaṅkarāchārya by Swami Prabhavananda and Christopher Isherwood, Vedanta Press, California</b></font><br>
 <br>
 <font color="Peru"><b>Translation of Vivekachūḍāmaṇi of Śhrī Ādi Śhaṅkarāchārya by Pranipata Chaitanya, available as a pdf at </b> <a href="https://realization.org/down/sankara.vivekachudamani.chaitanya.pdf">pdf</a> </font><br>
+<br>
 <font color="purple"><b>Transliterations</b> <a href="https://www.wisdomlib.org/hinduism/book/vivekachudamani">link</a> </font><br>
 </p>
 
@@ -724,8 +725,7 @@ brahmātmaikatvabodhena mokṣaḥ sidhyati nānyathā</font>
 
 <p>
 <b>56 Translations</b><br>
-<font color="DarkGreen">Neither by Yoga, nor by Sāṅkhya, nor by work, nor by learning, but by realization of one's identity with Brahman is liberation possible, and by no other means/font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">Neither by Yoga, nor by Sāṅkhya, nor by work, nor by learning, but by realization of one's identity with Brahman is liberation possible, and by no other means</font><br>
 <font color="Peru">Neither by Yoga, nor by Sankhya, nor by action, nor by learning, is liberation possible. Only by the realization of the oneness of the Brahman (Absolute) and the Atman (Self) is liberation possible, and in no other way.</font><br>
 </p>
 
