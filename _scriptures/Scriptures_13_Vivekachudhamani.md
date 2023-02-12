@@ -730,7 +730,7 @@ brahmātmaikatvabodhena mokṣaḥ sidhyati nānyathā</font>
 </p>
 
 <p>
-<b>56 Comemntaries</b><br>
+<b>56 Quotes</b><br>
 <font color="red">Now we will talk about Ādi Śhaṅkarāchārya.<br>
 Hindus have not done anything except ridiculing great people.<br>
 He said, "Na Yogen na Sāṅkhyen": "You will not get it in any other way, you will get it only through Mother's grace."<br>
