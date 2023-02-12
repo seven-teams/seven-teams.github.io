@@ -1,5 +1,5 @@
 ---
-title: 'ŚHRĪ NĀṆAKĪ in the Words of ŚHRĪ MĀTĀJĪ''
+title: 'ŚHRĪ NĀṆAKĪ in the Words of ŚHRĪ MĀTĀJĪ'
 date: 2023-02-12
 permalink: /quotes/2023/0212
 tags:
