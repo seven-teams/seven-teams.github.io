@@ -1,7 +1,7 @@
 ---
 title: 'Post 13: VIVEKACHŪḌĀMAṆI'
 date: 2023-02-11
-permalink: /scriptures/2023/0710
+permalink: /scriptures/2023/0211
 tags:
   - crimson @ Shri Adi Shankaracharya
   - green @ Disciple Principle
