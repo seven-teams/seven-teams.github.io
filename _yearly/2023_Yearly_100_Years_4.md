@@ -26,7 +26,7 @@ What a tremendous task it was!<br>
 So, I said, at Sahasrāra I had to be Mahāmāyā. I had to be Mahāmāyā. I had to be something that people cannot recognize Me easily. But Deities? No. This Māyā ... Mahāmāyā had to come on this Earth, not the Ādi Śhakti in Her purest form, is too much. So, She was covered with this Mahāmāyā.<br> 
 ......<br>
 And is already predicted that the whole world will come down at the Lotus Feet of your Mother and that you will decide the future of this world. Is written, already, fourteen thousand years back, and there's another one who is prophesizing the same."<br>
-<font color="blue"><b></b></font><br>
+<font color="blue"><b>1988-0508 Sahasrāra Pūjā, How it Was Decided (Nothing Is More Important Than Your Ascent or Our Ascent Is the Only Concern, Tent, Finanziari Colonia Marina, Fregene (40 kms E of Rome), Italy</b></font><br>
 </p>
 
 Link to suggested talk: <a href="https://vimeo.com/568853318"> vimeo </a><br>
