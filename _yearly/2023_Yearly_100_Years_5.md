@@ -24,7 +24,7 @@ Count your blessings one by one. Count your blessings one by one, I'll say again
 But in wise projection we can see that you are what you have to be. You are Saints. You were born to be Saints in this great country. You are specially blessed people in the Heavens, and [you] are sent on this Earth to do this Mahā Yoga, to spread it. You have achieved that state. And if you are Saints, you should not be bothered as to few things like uh, 'Oh! I haven't got a suit,' or somethings like that, which you have never felt very nice on this.<br>
 ......<br>
 Look at the little ones: how they came forward to give Me flowers, every step, every movement was so joyous, was creating such a beautiful delicate ripple in My heart. And it's written as history for Me to see these little, little sweet, innocent Gaṇeśhas coming forward.<br>
-That in wisdom becomes so [unclear] that you know the Source of Love as Gaṇeśha [unclear]. For He did not know anything else but one that which is the Source of Love. Never questioned. Never argued, no alternative. No new ideas came into head, He's just steadying in."<br>
+That in wisdom becomes so [<font color="orange">unclear</font>] that you know the Source of Love as Gaṇeśha [<font color="orange">unclear</font>]. For He did not know anything else but one that which is the Source of Love. Never questioned. Never argued, no alternative. No new ideas came into head, He's just steadying in."<br>
 <font color="blue"><b>1981-0321 Birthday Pūjā, Wisdom, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font><br>
 </p>
 
