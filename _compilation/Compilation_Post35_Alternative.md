@@ -137,7 +137,6 @@ And we just cannot exist by our only growth because then we become malignant, yo
 If you have a machinery, you have to eat other! Because you produce so much, you must find markets for them, you must supply them, you must send over. Then you must have other countries to exploit them!"<br>
 <font size="+0"><b>1982-0607 Talk to Sahaja Yogis, Ego and Humility or You Must Improve Yourself, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>
-%do
 
 <div class="para-divider"></div>
 
