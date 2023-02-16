@@ -1,5 +1,5 @@
 ---
-title: 'Post 34: Alternative'
+title: 'Post 35: Alternative'
 date: 2023-02-15
 permalink: /compilation/2023/0215
 tags:
