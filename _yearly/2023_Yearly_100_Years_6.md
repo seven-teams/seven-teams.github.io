@@ -13,7 +13,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b>I declare that I am the One</b><br></font>
+<font size="+2"><b>I Declare That I Am The One</b><br></font>
 </p>
 
 <p>
