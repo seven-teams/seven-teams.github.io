@@ -173,7 +173,7 @@ As I realized that worship can only exist through selfless surrender to the Lotu
 </p>
 
 <p>
-<font color="MediumVioletRed"><b>Mother, we adore you</b></font><br>
+<font color="MediumVioletRed"><b>Mother, we adore You</b></font><br>
 <a href="https://youtu.be/LsWaC7NktHA?list=PLuAVZW42aaCnQ3JW90xymBbcyS-gt6SE1">video</a>
 </p>
 
