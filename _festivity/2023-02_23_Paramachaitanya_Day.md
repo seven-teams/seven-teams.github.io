@@ -50,7 +50,7 @@ Thank You for revealing to us the meaning of creation and evolution.<br>
 Thank You for revealing to us the actual existence of God.<br>
 Thank You for giving divine meaning to human existence.</font><br>
 <br>
-<font color="MediumVioletRed"><b>Ap.Ne Dil Me</b>/<br>
+<font color="MediumVioletRed"><b>Ap.Ne Dil Me</b><br>
 Ap.Ne Dil Me Sahaj. Ko Basaya Karo</font><br>
 Let the Sahaj settle in your heart<br>
 <font color="MediumVioletRed">Rachaita Ki Tum. Rach.Na Rachaya Karo</font><br>
