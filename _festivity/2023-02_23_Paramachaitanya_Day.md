@@ -10,14 +10,19 @@ tags:
 
 <p>
 <font color="DarkRed">"Many Sahaj Yogis are sitting here. I am telling something new for them. If you are Sahaja Yogis, then it should be expressed in your behavior. Every one should know that you are Sahaja Yogis. We should know that a person is either a Sahaja Yogi or a non-Sahaja Yogi. We should know the art of integrating all. With this Sahaj Swabhāv you should conquer the whole world.<br>
-Register in your heart what I have said. This is My vision. You people could fulfill and relieve Me of My heartache."</font><br>
+Register in your heart what I have said.<br>
+<b>This is My vision. You people could fulfill and relieve Me of My heartache.</b>"</font><br>
 <font size="+0"><b>2000-0407 Śhrī Bhūmī Devī Pūjā (Hindi), Inauguration of the H.H. Śhrī Mātājī Nirmalā Devī Foundation, Nirmal Dham, Behind BSF Camp Chhawala, New Delhi, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1118.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b></b></font><br>
+<font color="DarkGreen">Thank You for revealing to us within the human body the reflection of the Vishwa-rupa (universal form).<br>
+Thank You for revealing to us the primordial principles of creation.<br>
+Thank You for revealing to us the reality of human nature.<br>
+Thank You for revealing to us the meaning of true religion.<br>
+Thank You for teaching us the divine knowledge of Sahaja Yoga.</font><br>
 <br>
 <font color="MediumVioletRed"><b>MAVENA NAYANI ANAND  
 MAVENA NAYANI ANAND, HRUDAYAT SATCHITANAND</b></font><br>
@@ -45,7 +50,7 @@ Thank You for revealing to us the meaning of creation and evolution.<br>
 Thank You for revealing to us the actual existence of God.<br>
 Thank You for giving divine meaning to human existence.</font><br>
 <br>
-<font color="MediumVioletRed"><b>Ap.Ne Dil Me >/<br>
+<font color="MediumVioletRed"><b>Ap.Ne Dil Me</b>/<br>
 Ap.Ne Dil Me Sahaj. Ko Basaya Karo</font><br>
 Let the Sahaj settle in your heart<br>
 <font color="MediumVioletRed">Rachaita Ki Tum. Rach.Na Rachaya Karo</font><br>
