@@ -39,10 +39,10 @@ tags:
 
 <p>
 <b>Variant 1:</b><br>
-<font color="DarkRed">"Rāmadās Swāmī has told that, "In this world there are some people whose name is paḍhat mūrkh [reading fool/stupid]." Padhat mūrkh means who keeps reading and reading and becomes great fool (mahāmūrkh), who Kabīr Dāsjī has called, "Padhī, padhī paṇḍit mūrkha bhaye" [by reading and reading a learned man can become stupid]."</font<br>
+<font color="DarkRed">"Rāmadās Swāmī has told that, "In this world there are some people whose name is paḍhat mūrkh [reading fool/stupid]." Padhat mūrkh means who keeps reading and reading and becomes great fool (mahāmūrkh), who Kabīr Dāsjī has called, "Padhī, padhī paṇḍit mūrkha bhaye" [by reading and reading a learned man can become stupid]."</font><br>
 <br>
 <b>Variant 2:</b><br>
-<font color="DarkRed">"Ramadas Swami said, "There are some people in this world who are called paḍhat mūrkh," those who read a lot and become idiots. The same thing poet Kabīr Dās said, "Padhī, padhī paṇḍit mūrkha bhaye" (a scholar who reads a lot becomes an idiot)."</font<br>
+<font color="DarkRed">"Ramadas Swami said, "There are some people in this world who are called paḍhat mūrkh," those who read a lot and become idiots. The same thing poet Kabīr Dās said, "Padhī, padhī paṇḍit mūrkha bhaye" (a scholar who reads a lot becomes an idiot)."</font><br>
 <font size="+0"><b>1977-0323 Public Program (Hindi), Prem Dharma (Dharma of Love), Mumbai, Maharashtra, India</b></font>
 </p>
 
