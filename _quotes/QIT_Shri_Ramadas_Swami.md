@@ -135,7 +135,7 @@ To say you are a Saint, you cannot get angry. [<font color="orange">unclear</fon
 <div class="para-divider"></div>
 
 <p>
-"Only Swāmī Rāmadāsa did not do Prapañcha. But in [His Marathi book] Dāsbodha, Prapañcha is flowing in every page. "Leaving Prapañcha, you cannot find God." He said this many times.</font><br>
+"<font color="DarkRed">Only Swāmī Rāmadāsa did not do Prapañcha. But in [His Marathi book] Dāsbodha, Prapañcha is flowing in every page. "Leaving Prapañcha, you cannot find God." He said this many times.</font><br>
 To find God by leaving Prapañcha has been the imagination of people of our country since ancient times.<br>
 ......<br>
 But I tell you that Maharashtra's background is very great.<br>
