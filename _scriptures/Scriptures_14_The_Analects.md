@@ -24,16 +24,11 @@ tags:
 
 <p>
 <b>Quotes</b><br>
-<font color="red">They had two great philosophers, but the greatest was Lao Tze, who talked about Kuṇḍalinī, Realization, everything. Confucius talked about humanity. So they believe in Confucius because [it] suits communism.</font>br>
+<font color="red">They had two great philosophers, but the greatest was Lao Tze, who talked about Kuṇḍalinī, Realization, everything. Confucius talked about humanity. So they believe in Confucius because [it] suits communism.</font><br>
 <font size="+0"><b>1995-0919 Public Talk, International Scientific Conference `Morality, Health and the World', Day 1, Session 1 (11:00 to 14:30), Part 1, Petrovskaya Academy of Sciences and Arts, Saint Petersburg, Russia</b></font><br>
 <br>
 <font color="red">Confucius first talked about humanity, but then came Tao of Lao Tze who tried to bring the subtle side of humanity.</font> This Tao is something like the Kuṇḍalinī of Sahaja Yoga.
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 8: World Peace</b></font><br>
-</p>
-
-<p style="text-align:center;">
-<b>Book 1</b><br>
-
 </p>
 
 <p style="text-align:center;">
