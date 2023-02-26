@@ -125,7 +125,7 @@ So, with this, I ask Śhiva to give you blessings, complete blessings, so that y
 May God bless you all."</font><br>
 <font size="+0"><b>2002-0317 Śhivarātri Pūjā, The Power of Love, Śhrī Śhiv Chhatrapati Sports Complex Stadium, Balewadi, Mahalunge, Pune, Maharashtra, India</b></font><br>
 <br>
-<font color="DarkGreen">...... <b>we will give Him what He likes the most: is the belapatra, which is at ... leaf which has got three leaves on one stem. 
+<font color="DarkGreen">"...... <b>we will give Him what He likes the most: is the belapatra, which is at ... leaf which has got three leaves on one stem. 
 Which means: His Three Powers, Triguṇātmika, Threesh Powers.<br>
 So, with our Three Powers, our Triguṇās, our Three Powers, we surrender ourselves to Śhiva.<br>
 And, by that, we show that: ‘We give our triguṇas to You so that we become Guṇātīt.’<br>
