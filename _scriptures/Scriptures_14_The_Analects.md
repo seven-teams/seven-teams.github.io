@@ -1,7 +1,7 @@
 ---
 title: 'Post 14: The Analects'
 date: 2023-02-0226
-permalink: /quotes/2023/0226
+permalink: /scriptures/2023/0226
 tags:
   - crimson @ Shri Confucius
   - green @ Shri Adi Guru
