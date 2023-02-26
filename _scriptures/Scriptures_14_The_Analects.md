@@ -39,8 +39,7 @@ tags:
 <b>I:1 Translations</b><br>
 <font color="DarkGreen">The Master said, 'Is it not a pleasure, having learned something, to try it out at due intervals? Is it not a joy to have friends come from afar? Is it not gentlemanly not to take offense when others fail to appreciate your abilities?'</font><br>
 <font color="blue">The Master said: "Is it not indeed a pleasure to acquire knowledge and constantly to exercise oneself therein? And is it not delightful to have men of kindred spirit come to one from afar? But is not he a true philosopher who, though he be unrecognized of men, cherishes no resentment?"</font><br>
-<font color="peru">The Master said: To study and at due times practice what one has studied, is this not a pleasure? When friends come from distant places, is this not joy? To remain unsoured when his talents are unrecognized, is this not a junzi [originally 'a prince', used by the Analects to
-denote an ideal moral actor].</font><br>
+<font color="peru">The Master said: To study and at due times practice what one has studied, is this not a pleasure? When friends come from distant places, is this not joy? To remain unsoured when his talents are unrecognized, is this not a junzi [originally 'a prince', used by the Analects to denote an ideal moral actor].</font><br>
 <font color="purple">The Master said, "Is it not pleasant to learn with a constant perseverance and application? Is it not delightful to have friends coming from distant quarters? Is he not a man of complete virtue, who
 feels no discomposure though men may take no note of him?"</font>
 </p>
