@@ -16,7 +16,7 @@ tags:
 <font color="DarkGreen"><b>Translation by Dr. D.C. Lau, Penguin Classics 1979</b>, see also the pdf file <a href="https://antilogicalism.files.wordpress.com/2017/07/the-analects.pdf">pdf</a></font><br>
 <br>
 <font color="blue"><b>Translation and Notes by William Edward Soothill</b>, pdf file at the link <a href="https://ia800302.us.archive.org/19/items/theanalectsofcon00sootuoft/theanalectsofcon00sootuoft.pdf">pdf</a></font><br>
-<font color="peru"><b>Translation by R. Eno, Version 2.21</b>,  pdf file at the link <a href="https://chinatxt.sitehost.iu.edu/Analects_of_Confucius_(Eno-2015).pdf">pdf</a> </font><br>
+<font color="Peru"><b>Translation by R. Eno, Version 2.21</b>,  pdf file at the link <a href="https://chinatxt.sitehost.iu.edu/Analects_of_Confucius_(Eno-2015).pdf">pdf</a> </font><br>
 <font color="purple"><b>Translation by James Legge</b>, pdf file at the link <a href="http://camcc.org/_media/reading-group/lunyu/lunyu-en.pdf">pdf</a> </font><br>
 </p>
 
@@ -39,7 +39,7 @@ tags:
 <b>I:1 Translations</b><br>
 <font color="DarkGreen">The Master said, 'Is it not a pleasure, having learned something, to try it out at due intervals? Is it not a joy to have friends come from afar? Is it not gentlemanly not to take offense when others fail to appreciate your abilities?'</font><br>
 <font color="blue">The Master said: "Is it not indeed a pleasure to acquire knowledge and constantly to exercise oneself therein? And is it not delightful to have men of kindred spirit come to one from afar? But is not he a true philosopher who, though he be unrecognized of men, cherishes no resentment?"</font><br>
-<font color="peru">The Master said: To study and at due times practice what one has studied, is this not a pleasure? When friends come from distant places, is this not joy? To remain unsoured when his talents are unrecognized, is this not a junzi [originally 'a prince', used by the Analects to denote an ideal moral actor].</font><br>
+<font color="Peru">The Master said: To study and at due times practice what one has studied, is this not a pleasure? When friends come from distant places, is this not joy? To remain unsoured when his talents are unrecognized, is this not a junzi [originally 'a prince', used by the Analects to denote an ideal moral actor].</font><br>
 <font color="purple">The Master said, "Is it not pleasant to learn with a constant perseverance and application? Is it not delightful to have friends coming from distant quarters? Is he not a man of complete virtue, who
 feels no discomposure though men may take no note of him?"</font>
 </p>
