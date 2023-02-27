@@ -44,6 +44,126 @@ tags:
 feels no discomposure though men may take no note of him?"</font>
 </p>
 
+<p>
+<b>I:2 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:3 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:4 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:5 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:6 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:7 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:8 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:9 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:10 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:11 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:12 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:13 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:14 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:15 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>I:16 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="peru"></font><br>
+<font color="purple"></font>
+</p>
+
 <p style="text-align:center;">
 <b>Book II</b><br>
 </p>
