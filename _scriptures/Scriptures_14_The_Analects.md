@@ -16,7 +16,9 @@ tags:
 <font color="DarkGreen"><b>Translation by Dr. D.C. Lau, Penguin Classics 1979</b>, see also the pdf file <a href="https://antilogicalism.files.wordpress.com/2017/07/the-analects.pdf">pdf</a></font><br>
 <br>
 <font color="blue"><b>Translation and Notes by William Edward Soothill</b>, pdf file at the link <a href="https://ia800302.us.archive.org/19/items/theanalectsofcon00sootuoft/theanalectsofcon00sootuoft.pdf">pdf</a></font><br>
+<br>
 <font color="Peru"><b>Translation by R. Eno, Version 2.21</b>,  pdf file at the link <a href="https://chinatxt.sitehost.iu.edu/Analects_of_Confucius_(Eno-2015).pdf">pdf</a> </font><br>
+<br>
 <font color="purple"><b>Translation by James Legge</b>, pdf file at the link <a href="http://camcc.org/_media/reading-group/lunyu/lunyu-en.pdf">pdf</a> </font><br>
 </p>
 
@@ -164,77 +166,115 @@ feels no discomposure though men may take no note of him?"</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Book II</b><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Book III</b><br>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Book IV</b><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Book V</b><br>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Book VI</b><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Book VII</b><br>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Book VIII</b><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Book IX</b><br>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Book X</b><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Book XI</b><br>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Book XII</b><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Book XIII</b><br>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Book XIV</b><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Book XV</b><br>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Book XVI</b><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Book XVII</b><br>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Book XVIII</b><br>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Book XIX</b><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Book XX</b><br>
