@@ -18,8 +18,8 @@ tags:
 
 <p>
 "Today, it's a great day for all of us, the seekers, that the last work of the Divine, of opening the last center in the Great Primordial Being, was done on the fifth of May nineteen seventy [1970].<br>
-It is the greatest event of all the spiritual happenings of the Universe. It was done with very great care and great adjustments.
-It is not in the limits of human understanding, how things are worked in the Heavens. 
+It is the greatest event of all the spiritual happenings of the Universe. It was done with very great care and great adjustments.<br>
+It is not in the limits of human understanding, how things are worked in the Heavens.<br>
 ......<br>
 Without this happening, there could not have been a possibility to give [en] masse Realization to people. One could have done it for one or two persons here and there, but to give such a masse awakening could not have been possible.<br>
 As you know, in the Sahasrāra there are the Seats of the seven main chakras. There are one thousand nāḍīs or, as they call it, flames, and they all have each Sixteen Thousand Powers. Every nāḍī deals with a particular type of a person, and, with the permutations and combinations of all these nāḍīs, human beings are looked after.<br>
