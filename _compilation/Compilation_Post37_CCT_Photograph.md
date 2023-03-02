@@ -113,7 +113,7 @@ You people have found many ways of protection. These people can tell you about s
 ......<br>
 You have to do no business whatsoever.<br>
 You have not to collect money in any way. For nothing at all.<br>
-One person said to Me that he will sell My Photos and then that money he will give to the Āśhram. I said, "Which Āśhram? What money? Who said so? Why do you listen to others?" "<br>
+<font color="DarkRed">One person said to Me that he will sell My Photos and then that money he will give to the Āśhram. I said, "Which Āśhram? What money? Who said so? Why do you listen to others?"</font> "<br>
 <font size="+0"><b>1973-0903 Pūjā (Hindi), Ātma-sākṣhātkār ka Arth (Meaning of Self-realization), Mumbai, Maharashtra, India</b></font>
 </p>
 
