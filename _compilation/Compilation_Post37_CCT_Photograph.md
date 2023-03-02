@@ -1,5 +1,5 @@
 ---
-title: 'Post 34: Photograph'
+title: 'Post 37: Photograph'
 date: 2023-03-01
 permalink: /compilation/2023/0301
 tags:
