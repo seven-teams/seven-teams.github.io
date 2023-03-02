@@ -12,7 +12,7 @@ tags:
 <font color="DarkRed">"This Photo was taken after I opened the Collective Sahasrāra Chakra. I even look a bit sad.<br>
 I look very serious in this Photo. At that time I even stopped eating and became a little thin.<br>
 From birth I knew I was the Goddess, and My job was to save and raise up this doomed humanity."</font><br>
-<font size="+0">1900-0000 Quote on a Photo Taken in 1970 on the Terrace, Flat with View towards the Sea, A1 Jeevan Jyot, Nepean Sea Road (now Lady Laxmibai Jagmohandas Mārg), Setalvad Lane, Breach Candy, Cumballa Hill, Mumbai, Maharashtra, India<b></b></font>
+<font size="+0"><b>1900-0000 Quote on a Photo Taken in 1970 on the Terrace, Flat with View towards the Sea, A1 Jeevan Jyot, Nepean Sea Road (now Lady Laxmibai Jagmohandas Mārg), Setalvad Lane, Breach Candy, Cumballa Hill, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
