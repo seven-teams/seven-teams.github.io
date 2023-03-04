@@ -250,6 +250,22 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <div class="para-divider"></div>
 
 <p>
+"Now when this center is illumined, around it is illumined your sustainance [sustenance]. That's your Inner Religion.<br>
+The ... we call it Ten Incarnations of the Primordial Master. There are many who came, but the Ones who came in India was called as Brahmadeva uh ... was called as Dattātreya, Janaka, Rāja Janaka, the father of Sītā. In China, Lao Tze, Confucius. <font color="red">In uh, in the Bible, Abraham and Moses.</font> And later on, in the uh form of uh Muhammad Sāhab. And then Janaka. No, no, Nāṇaka, I'm sorry, Nāṇaka. Nāṇak Sāhab. And in Greece, it was Socrates. They took birth on all these places. In the end, about fifty years back, or hundred years back, was born Great Primordial Master, in India, in Śhirḍī.<br>
+[Helping with the translation:] In Śhirḍī."<br>
+<font size="+0"><b>1983-0831 Public Program, Day 3, Geneva, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Sahaja Yoga is not a new thing. In the tradition of spirituality, it is mentioned, about fourteen thousand years back, by Mārkaṇḍeya, that, 'Ultimately it is the force, within you, of the Holy Ghost, which is called as Kuṇḍalinī, residing in the triangular beau ... bone, has to give the Realization.'<br>
 But for that happening, human being had to be prepared. People had to be balanced.<br>
 <font color="red">And that is how many Prophets came on this Earth, after that, in the same tradition, to prepare people to have that balance. Right from Abraham, Moses, we see Them, follow Them up up ... up to Rāja Janaka, who was the father-in-law of Rāma, and later on we had so many others like Muhammad Sāhab, Nāṇak Sāhab, on this Earth, to tell us about having a balance in live. They taught us moderation, and not to go to extremes.</font>"<br>
@@ -260,6 +276,40 @@ But for that happening, human being had to be prepared. People had to be balance
 
 <p>
 <font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Then we have people, in other countries, like Abraham, like Moses, we have Confucius, Lao Tze, we have Kṛiṣhṇa, Rāma, all of Them have said one thing, and one thing: that, "You seek your Spirit." "</font><br>
+<font size="+0"><b>1985-0419 Public Program, The Seeking of the Spirit, Hall, Bull Street, Birmingham, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"They have described that, 'Through the ascent of the Kuṇḍalinī only you can reach your Spirit.' All the Upaniṣhadas, which are the second part of the Vedas, all of them have described the Kuṇḍalinī. Only thing, the difference is: that some said, 'By doing this, by doing that,' 'By uh abstinence,' some said, 'By accepting uh the right part, the central part,' 'By building up your balance,' all these different, different style of things to modulate a human being to lead a moderate life, they have built up their own literature.<br>
+But every one of them exist: exist because they want to talk about your ascent to be the Spirit. There's nothing else but that! That's the basic point!<br>
+And Kuṇḍalinī is the Fundamental Power which has to be awakened: all of them have the same.<br>
+But it happens: that a person who is more extrovert, always tries to go to something new. [Drinks water.] And when he tries to go to something new, he forgets that: 'There has been a tradition of that for ages! And why should we suddenly accept a new idea?'<br>
+<font color="red">Confucius, Socrates, Abraham, Moses, later on Christ, all of Them have talked about the Spirit.</font><br>
+Muhammad Sāhab has talked about the Kuṇḍalinī, calling It a 'Asas.<br>
+And the word Kuṇḍalinī also is ... has a meaning that it is a coiled-up energy."<br>
+<font size="+0"><b>1985-0508 Public Program, Day 1, This Is the Knowledge of the Roots, Deutsches Museum, Münich, Germany</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
 <font size="+0"><b></b></font>
 </p>
 

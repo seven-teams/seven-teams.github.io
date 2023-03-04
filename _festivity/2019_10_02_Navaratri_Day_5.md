@@ -49,7 +49,7 @@ the Daughter of Dakṣha, and the Consort of Śhrī Śhiva.</font><br>
 Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namah</b></font><br>
 <i>O Divine Mother, You are verily The mother of Śhrī Kārttikeya<br> 
 Salutations to You!</i><br>
-</p>>
+</p>
 
 <p>
 <font color="DarkRed">"Śhrī Kārttikeya Himself has taken birth here! Śhrī Saraswatī is known as Skandamātā, She was not His mother and was virgin.<br>

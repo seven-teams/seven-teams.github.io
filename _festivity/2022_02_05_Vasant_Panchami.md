@@ -167,7 +167,7 @@ We always sing Māhūragaḍ. Wari song, that is the one – is Mahāsaraswatī,
 <font color="DarkGreen"><font size="+0"><b>Yā shubhra vastrā vṛutā</b></font></font><br>
 <font size="+0"><b>She who is covered with white garments; </b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Yā vīnā vara danda mandita karā </b></font></font><br>
-<font size="+0"><b>She whose hands are decorated with the vina’s slender neck;</b></font>><br>
+<font size="+0"><b>She whose hands are decorated with the vina’s slender neck;</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Yā shweta padm’āsanā </b></font></font><br>
 <font size="+0"><b>She who resides in a white lotus;</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Yā Brahm’āchyuta Shaṅkara Prabhṛutibhir</b></font></font><br>

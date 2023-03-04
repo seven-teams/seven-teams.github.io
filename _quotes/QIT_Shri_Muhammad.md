@@ -1126,6 +1126,22 @@ In Sahaja Yoga lung... language we call it Mahākālī, Mahālakṣhmī, Mahāsa
 <div class="para-divider"></div>
 
 <p>
+"Now when this center is illumined, around it is illumined your sustainance [sustenance]. That's your Inner Religion.<br>
+The ... we call it Ten Incarnations of the Primordial Master. There are many who came, but the Ones who came in India was called as Brahmadeva uh ... was called as Dattātreya, Janaka, Rāja Janaka, the father of Sītā. In China, Lao Tze, Confucius. In uh, in the Bible, Abraham and Moses. <font color="red">And later on, in the uh form of uh Muhammad Sāhab.</font> And then Janaka. No, no, Nāṇaka, I'm sorry, Nāṇaka. Nāṇak Sāhab. And in Greece, it was Socrates. They took birth on all these places. In the end, about fifty years back, or hundred years back, was born Great Primordial Master, in India, in Śhirḍī.<br>
+[Helping with the translation:] In Śhirḍī."<br>
+<font size="+0"><b>1983-0831 Public Program, Day 3, Geneva, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"As I told you before, that: we had Ten Gurus who came on this Earth, and They represented the innocence of the three Brahma, Viṣhṇu, Maheśha of Dattātreya. And one of Them was Zoroaster, another was Muhammad Sāhab, and all these Gurus represent those qualities of innocence of these Three Personalities called as Dattātreya.<br>
 And also told you how by understanding these different Gurus we can produce the effects even on our physical health."</font><br>
 <font size="+0"><b>1984-0317 Public Program, Day 5, Āgñyā Chakra, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
@@ -1177,6 +1193,20 @@ So many religions have started, in the name of God, without going to the Truth, 
 But for that happening, human being had to be prepared. People had to be balanced.<br>
 <font color="red">And that is how many Prophets came on this Earth, after that, in the same tradition, to prepare people to have that balance. Right from Abraham, Moses, we see Them, follow Them up up ... up to Rāja Janaka, who was the father-in-law of Rāma, and later on we had so many others like Muhammad Sāhab, Nāṇak Sāhab, on this Earth, to tell us about having a balance in live. They taught us moderation, and not to go to extremes.</font>"<br>
 <font size="+0"><b>1984-0905 Public Program, Day 1, Christian Tradition and Christ, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"So the ascent of the Kuṇḍalinī is a living process within you, which works out the Self-realization, the Second Birth as Christ has said, as Muhammad Sāhab has said, "You have to be a Walī," as Lao Tze has said, and Confucius has described. We have Nāṇaka and Janaka who have talked about it. That it is within us, and we have to achieve it within ourselves.</font>"<br>
+<font size="+0"><b>1985-0509 Public Program, Day 2, Habit Comes to You from Matter, Münich, Germany</b></font>
 </p>
 
 <div class="para-divider"></div>

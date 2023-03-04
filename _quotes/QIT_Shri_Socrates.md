@@ -210,6 +210,73 @@ So we know that we have to educate ourself, first point, and secondly, we have t
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">But Socrates and Confucius, who were such ancient people, have talked about these Gods. That, 'We have to keep Them pleased,' and you have to keep Them all right. But those realized Souls, perhaps did not know, that's not easy to convince human beings, who are not realized Souls, about these Deities being within you.</font><br>
+And They are all just waiting there.<br>
+As soon as the Kuṇḍalinī rises, you start manifesting your grandeur, your great personality that awaits you. This is something not fantastic to Me, because I have seen thousands of people getting Realization, thousands of them feeling the Cool Breeze, thousands of them transforming."<br>
+<font size="+0"><b>1983-0302 Public Program, Day 1, Town Hall, Hay Street and Barrack Street, Perth, WA, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now when this center is illumined, around it is illumined your sustainance [sustenance]. That's your Inner Religion.<br>
+The ... we call it Ten Incarnations of the Primordial Master. There are many who came, but the Ones who came in India was called as Brahmadeva uh ... was called as Dattātreya, Janaka, Rāja Janaka, the father of Sītā. In China, Lao Tze, Confucius. In uh, in the Bible, Abraham and Moses. And later on, in the uh form of uh Muhammad Sāhab. And then Janaka. No, no, Nāṇaka, I'm sorry, Nāṇaka. Nāṇak Sāhab. <font color="red">And in Greece, it was Socrates.</font> They took birth on all these places. In the end, about fifty years back, or hundred years back, was born Great Primordial Master, in India, in Śhirḍī.<br>
+[Helping with the translation:] In Śhirḍī."<br>
+<font size="+0"><b>1983-0831 Public Program, Day 3, Geneva, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"They have described that, 'Through the ascent of the Kuṇḍalinī only you can reach your Spirit.' All the Upaniṣhadas, which are the second part of the Vedas, all of them have described the Kuṇḍalinī. Only thing, the difference is: that some said, 'By doing this, by doing that,' 'By uh abstinence,' some said, 'By accepting uh the right part, the central part,' 'By building up your balance,' all these different, different style of things to modulate a human being to lead a moderate life, they have built up their own literature.<br>
+But every one of them exist: exist because they want to talk about your ascent to be the Spirit. There's nothing else but that! That's the basic point!<br>
+And Kuṇḍalinī is the Fundamental Power which has to be awakened: all of them have the same.<br>
+But it happens: that a person who is more extrovert, always tries to go to something new. [Drinks water.] And when he tries to go to something new, he forgets that: 'There has been a tradition of that for ages! And why should we suddenly accept a new idea?'<br>
+<font color="red">Confucius, Socrates, Abraham, Moses, later on Christ, all of Them have talked about the Spirit.</font><br>
+Muhammad Sāhab has talked about the Kuṇḍalinī, calling It a 'Asas.<br>
+And the word Kuṇḍalinī also is ... has a meaning that it is a coiled-up energy."<br>
+<font size="+0"><b>1985-0508 Public Program, Day 1, This Is the Knowledge of the Roots, Deutsches Museum, Münich, Germany</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="DarkRed">When they talked, say, about the flowers, say, they talked that they are Gods, like Socrates talked about Gods, like Confucius talked about Gods. When they talked, 'We have to please our Gods,' we started doubting. 'What Gods He's talking about?' Whatever They saw we could not see. All right.<br>
+Then they thought, "No use talking about Gods. If you talk about Gods, then it becomes a, sort of a worship of something that is a flower. We talk about flower, then we think, 'We have become God.' And we talk about flower all the time!" "</font><br>
+<font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. <font color="red">In China He was born as Confucius and as Lao Tze, and in Greece as Socrates.</font> He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."<br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 33</b></font>
 </p>

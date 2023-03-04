@@ -66,21 +66,43 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+"<font color="red">But Socrates and Confucius, who were such ancient people, have talked about these Gods. That, 'We have to keep Them pleased,' and you have to keep Them all right. But those realized Souls, perhaps did not know, that's not easy to convince human beings, who are not realized Souls, about these Deities being within you.</font><br>
+And They are all just waiting there.<br>
+As soon as the Kuṇḍalinī rises, you start manifesting your grandeur, your great personality that awaits you. This is something not fantastic to Me, because I have seen thousands of people getting Realization, thousands of them feeling the Cool Breeze, thousands of them transforming."<br>
+<font size="+0"><b>1983-0302 Public Program, Day 1, Town Hall, Hay Street and Barrack Street, Perth, WA, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+"Now when this center is illumined, around it is illumined your sustainance [sustenance]. That's your Inner Religion.<br>
+The ... we call it Ten Incarnations of the Primordial Master. There are many who came, but the Ones who came in India was called as Brahmadeva uh ... was called as Dattātreya, Janaka, Rāja Janaka, the father of Sītā. <font color="red">In China, Lao Tze, Confucius.</font> In uh, in the Bible, Abraham and Moses. And later on, in the uh form of uh Muhammad Sāhab. And then Janaka. No, no, Nāṇaka, I'm sorry, Nāṇaka. Nāṇak Sāhab. And in Greece, it was Socrates. They took birth on all these places. In the end, about fifty years back, or hundred years back, was born Great Primordial Master, in India, in Śhirḍī.<br>
+[Helping with the translation:] In Śhirḍī."<br>
+<font size="+0"><b>1983-0831 Public Program, Day 3, Geneva, Switzerland</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-"And that is what is dharma: is the ten valences within us. <font color="red">These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.</font><br>
+"Now, since long, from ancient times, we have been hearing about the Spirit: that, 'We are the Spirit,' 'We have to become the Spirit.' <font color="red">Whether you take Confucius, or you have Lao Tze, or you have any Indian philosopher, or you may be having any one of the others in the West where Christ has said many a times that, 'We have to be the Spirit.'</font><br>
+......<br>
+So, first of all forget about your mental processes.<br>
+<font color="red">For example, a person who is a very highly person uh realizable Soul, whom Confucius calls as a Superior Man -- He call him a Superior Man, imagine! According to Confucius, a man who is rich, who is well-educated is not superior. He is a primitive person. [Laughing:] Compared to a person who is a developed, evolved personality, according to be superior, all others are primitive people, at a lower level. That's how He describes them: Superior Men. You see, to Him: only the Superior Men can understand humanity.<br>
+He talks, because He was of that level, so He talked on that level, on the Superior Man.</font><br>
+So the Superior Man, who is within us, who has to manifest itself, is the personality which resides, which has to express itself when we ... our attention reaches that state. Attention has to reach that state and not our mental process and all the yarn that comes out of it.<br>
+So, first of all, the thinking has to be stopped."<br>
+<font size="+0"><b>1984-1122 Public Program, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now, in the beginning, I am going to tell you: how medically we suffer with this kind of a treatment that we have.<br>
+I am not to, in any way, uh-uhh cast any how, anything wrong about the doctors. I have also done medicine Myself and I know what one has to do about it.<br>
+<font color="red">But there should be an open-mindedness of a doctor, that he should see that, 'There could be a better way of understanding this medicine, from a higher point of view, if you can become a superior personality,' what Confucius had said.</font><br>
+To achieve that superior personality, one need not have to go to medical college or do his uh other higher studies, but just it is something he has to find within himself.<br>
+......<br>
+And that is what is dharma: is the ten valences within us. <font color="red">These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.</font><br>
 But despite all that, we do not know: we'll worship Dattātreya, and we will not follow Him.<br>
 This is the only problem we have. That: we have all the ideals, we have all the capacity to understand that this is something great, but we have no power to follow it. Because we are not Samartha, we are not equal to the meaning of a human being."<br>
 <font size="+0"><b>1984-1205 Public Program (English+Marathi), Day 2, Pune, Maharashtra, India</b></font>
@@ -89,8 +111,61 @@ This is the only problem we have. That: we have all the ideals, we have all the 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+"For example, now you are walking, and you are blind, supposing. Now I will say, 'All right. You take your first step first.' This is the first step. And He said, "First step was Self-realization." He [Lord Buddha] said, "First you get your Self-realization."<br>
+<font color="red">Confucius, on the contrary of that, He said, "All right. Let us start seeing in the communities." You see, He believed in the communities, how it works out in the society, in the people, in the collective. Because He Himself was a realized Soul and He could see that it will work out more on the collective.</font><br>
+But Buddha said, "First you get your Realization." There's no way out."<br>
+<font size="+0"><b>1985-0303 Public Program, Adelaide, SA, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Then we have people, in other countries, like Abraham, like Moses, we have Confucius, Lao Tze, we have Kṛiṣhṇa, Rāma, all of Them have said one thing, and one thing: that, "You seek your Spirit." "</font><br>
+<font size="+0"><b>1985-0419 Public Program, The Seeking of the Spirit, Hall, Bull Street, Birmingham, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"So you have to feel the capitalism within you, you have to feel the communism within you. <font color="red">You have to feel the humanism of Confucius within you.</font> Whatever has been talked about, the theories, all that we had of a sublime nature, all are to be felt! The sublimity is to be felt within us, giving us joy. Even the virtue, the righteousness, the goodness, the sweetness, has to be felt within us giving us joy! We should enjoy our virtue!"<br>
+<font size="+0"><b>1985-0507 Public Program, Day 2, Śhraddhā is Faith after Enlightenment, Technische Hochschule, Gusshausstraße 25, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"They have described that, 'Through the ascent of the Kuṇḍalinī only you can reach your Spirit.' All the Upaniṣhadas, which are the second part of the Vedas, all of them have described the Kuṇḍalinī. Only thing, the difference is: that some said, 'By doing this, by doing that,' 'By uh abstinence,' some said, 'By accepting uh the right part, the central part,' 'By building up your balance,' all these different, different style of things to modulate a human being to lead a moderate life, they have built up their own literature.<br>
+But every one of them exist: exist because they want to talk about your ascent to be the Spirit. There's nothing else but that! That's the basic point!<br>
+And Kuṇḍalinī is the Fundamental Power which has to be awakened: all of them have the same.<br>
+But it happens: that a person who is more extrovert, always tries to go to something new. [Drinks water.] And when he tries to go to something new, he forgets that: 'There has been a tradition of that for ages! And why should we suddenly accept a new idea?'<br>
+<font color="red">Confucius, Socrates, Abraham, Moses, later on Christ, all of Them have talked about the Spirit.</font><br>
+Muhammad Sāhab has talked about the Kuṇḍalinī, calling It a 'Asas.<br>
+And the word Kuṇḍalinī also is ... has a meaning that it is a coiled-up energy."<br>
+<font size="+0"><b>1985-0508 Public Program, Day 1, This Is the Knowledge of the Roots, Deutsches Museum, Münich, Germany</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">So the ascent of the Kuṇḍalinī is a living process within you, which works out the Self-realization, the Second Birth as Christ has said, as Muhammad Sāhab has said, "You have to be a Walī," as Lao Tze has said, and Confucius has described. We have Nāṇaka and Janaka who have talked about it. That it is within us, and we have to achieve it within ourselves.</font><br>
+......<br>
+For the first time you start enjoying another person without lust or greed.<br>
+Once in Calcutta [Kolkata], I was staying in a hotel, and we had about three, four Sahaja Yogis in another room. And the owner of the hotel came to Me: "Mother, please give me Realization." And when he got his Realization, all of them from their rooms came running! "What has happened, we are feeling so joyous?" I said, "See, the vibrations of this man! Feel the vibrations!" And they stood there, for at least half an hour, enjoying him and he enjoying them. No thought passed. They did not know he was the owner of the hotel, or he ... they ... he did not know who they were, from what part of the country! <font color="red">Pure joy of humanity which Confucius has described. You could feel: real, true friendship of purity.</font>"<br>
+<font size="+0"><b>1985-0509 Public Program, Day 2, Habit Comes to You from Matter, Münich, Germany</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Like in China, Confucius said that, "You must become very virtuous, righteous," because the Chinese were lethargic farmers, "and you must work," humanism He started. But now they found out that now they are going too much towards it. So Lao Tze came. You see, They had to work it out, because some people move like a pendulum on one side, then They have to move them on the other side. Lao Tze came, He talked about Tao."</font><br>
+<font size="+0"><b>1985-0627 Public Program, Day 2, Chakras, Elements and Their Qualities, Colegio Mayor Chaminade, Paseo de Juan XXIII, No. 9, Madrid, Spain</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Even when Confucius talked of humanism, it was needed at that time when people were lethargic."</font><br>
+<font size="+0"><b>1985-0701 Press Conference, Room, Résidence Palace - International Press Center (IPC), Wetstraat 155 -- Blok C, Brussels, Belgium</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -107,13 +182,21 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <font size="+0"><b>1985-0703 Public Program, Day 1, Nederlands Congresgebouw (now World Forum), Churchillplein 10, The Hague, Netherlands</b></font>
 </p>
 
-[<font color="orange">WARNING: Quotes for the period 1983-03 to 1996-03 will follow in due time.</font>]
+<div class="para-divider"></div>
+
+<p>
+"<font color="DarkRed">When they talked, say, about the flowers, say, they talked that they are Gods, like Socrates talked about Gods, like Confucius talked about Gods. When they talked, 'We have to please our Gods,' we started doubting. 'What Gods He's talking about?' Whatever They saw we could not see. All right.<br>
+Then they thought, "No use talking about Gods. If you talk about Gods, then it becomes a, sort of a worship of something that is a flower. We talk about flower, then we think, 'We have become God.' And we talk about flower all the time!" "</font><br>
+<font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, UK</b></font>
+</p>
+
+[<font color="orange">WARNING: Quotes for the period 1986-04 to 1996-03 will follow in due time.</font>]
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">"They had two great philosophers, but the greatest was Lao Tze, who talked about Kuṇḍalinī, Realization, everything. Confucius talked about humanity. So they believe in Confucius because [it] suits communism."</font><br>
-<font size="+0"><b>>1995-0919 Public Talk, International Scientific Conference 'Morality, Health and the World', Day 1, Session 1 (11:00 to 14:30), Part 1, Petrovskaya Academy of Sciences and Arts, Saint Petersburg, Russia</b></font>
+<font size="+0"><b>1995-0919 Public Talk, International Scientific Conference 'Morality, Health and the World', Day 1, Session 1 (11:00 to 14:30), Part 1, Petrovskaya Academy of Sciences and Arts, Saint Petersburg, Russia</b></font>
 </p>
 
 <div class="para-divider"></div>

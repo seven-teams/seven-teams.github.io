@@ -109,6 +109,34 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <div class="para-divider"></div>
 
 <p>
+"Now when this center is illumined, around it is illumined your sustainance [sustenance]. That's your Inner Religion.<br>
+The ... we call it Ten Incarnations of the Primordial Master. There are many who came, but the Ones who came in India was called as Brahmadeva uh ... was called as Dattātreya, Janaka, Rāja Janaka, the father of Sītā. <font color="red">In China, Lao Tze, Confucius.</font> In uh, in the Bible, Abraham and Moses. And later on, in the uh form of uh Muhammad Sāhab. And then Janaka. No, no, Nāṇaka, I'm sorry, Nāṇaka. Nāṇak Sāhab. And in Greece, it was Socrates. They took birth on all these places. In the end, about fifty years back, or hundred years back, was born Great Primordial Master, in India, in Śhirḍī.<br>
+[Helping with the translation:] In Śhirḍī."<br>
+<font size="+0"><b>1983-0831 Public Program, Day 3, Geneva, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now, since long, from ancient times, we have been hearing about the Spirit: that, 'We are the Spirit,' 'We have to become the Spirit.' <font color="red">Whether you take Confucius, or you have Lao Tze, or you have any Indian philosopher, or you may be having any one of the others in the West where Christ has said many a times that, 'We have to be the Spirit.'</font> "<br>
+<font size="+0"><b>1984-1122 Public Program, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font>
+</p>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "And that is what is dharma: is the ten valences within us. <font color="red">These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.</font><br>
 But despite all that, we do not know: we'll worship Dattātreya, and we will not follow Him.<br>
 This is the only problem we have. That: we have all the ideals, we have all the capacity to understand that this is something great, but we have no power to follow it. Because we are not Samartha, we are not equal to the meaning of a human being."<br>
@@ -141,6 +169,46 @@ So many religions have started, in the name of God, without going to the Truth, 
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"Then we have people, in other countries, like Abraham, like Moses, we have Confucius, Lao Tze, we have Kṛiṣhṇa, Rāma, all of Them have said one thing, and one thing: that, "You seek your Spirit." "</font><br>
+<font size="+0"><b>1985-0419 Public Program, The Seeking of the Spirit, Hall, Bull Street, Birmingham, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"So the ascent of the Kuṇḍalinī is a living process within you, which works out the Self-realization, the Second Birth as Christ has said, as Muhammad Sāhab has said, "You have to be a Walī," as Lao Tze has said, and Confucius has described. We have Nāṇaka and Janaka who have talked about it. That it is within us, and we have to achieve it within ourselves.</font>"<br>
+<font size="+0"><b>1985-0509 Public Program, Day 2, Habit Comes to You from Matter, Münich, Germany</b></font>
+</p>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Like in China, Confucius said that, "You must become very virtuous, righteous," because the Chinese were lethargic farmers, "and you must work," humanism He started. But now they found out that now they are going too much towards it. So Lao Tze came. You see, They had to work it out, because some people move like a pendulum on one side, then They have to move them on the other side. Lao Tze came, He talked about Tao."</font><br>
+<font size="+0"><b>1985-0627 Public Program, Day 2, Chakras, Elements and Their Qualities, Colegio Mayor Chaminade, Paseo de Juan XXIII, No. 9, Madrid, Spain</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now when I'm talking to you about the mechanism that is built within us for our last breakthrough, you need not believe Me. <br>
 In our country also, this knowledge was kept a secret for thousands of years. Though we can say people like Mārkaṇḍeya, whose dates could be fourteen thousand [years ago], or later on, up to Ādi Śhaṅkarāchārya, people did write about the Kuṇḍalinī.<br>
 And at the time of Ādi Śhaṅkarāchārya, He very clearly talked about it. That was the tradition of evolution described in all these great Scriptures.<br>
@@ -158,7 +226,7 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 
 <p>
 <font color="red">"They had two great philosophers, but the greatest was Lao Tze, who talked about Kuṇḍalinī, Realization, everything. Confucius talked about humanity. So they believe in Confucius because [it] suits communism."</font><br>
-<font size="+0"><b>>1995-0919 Public Talk, International Scientific Conference 'Morality, Health and the World', Day 1, Session 1 (11:00 to 14:30), Part 1, Petrovskaya Academy of Sciences and Arts, Saint Petersburg, Russia</b></font>
+<font size="+0"><b>1995-0919 Public Talk, International Scientific Conference 'Morality, Health and the World', Day 1, Session 1 (11:00 to 14:30), Part 1, Petrovskaya Academy of Sciences and Arts, Saint Petersburg, Russia</b></font>
 </p>
 
 <div class="para-divider"></div>
