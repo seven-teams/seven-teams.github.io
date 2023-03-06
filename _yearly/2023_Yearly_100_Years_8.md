@@ -25,7 +25,7 @@ But if you have to get something out of it, you have to work it out."<br>
 <font color="blue"><b>1990-0321 Birthday Pūjā, Ballroom, Curzon Hall, Sydney, New South Wales, Australia</b></font><br>
 </p>
 
-Links to suggested talk: <a href="https://vimeo.com/577933944"> video </a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1990-0321-birthday-puja-talk"> audio </a><br>
+Links to suggested talk: <a href="https://vimeo.com/577933944"> video</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1990-0321-birthday-puja-talk"> audio </a><br>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 

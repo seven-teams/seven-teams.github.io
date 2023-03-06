@@ -1,5 +1,5 @@
 ---
-title: 'Post 14: The Analects'
+title: 'Post 14: THE ANALECTS'
 date: 2023-02-26
 permalink: /scriptures/2023/0226
 tags:
