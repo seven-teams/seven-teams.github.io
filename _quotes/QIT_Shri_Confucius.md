@@ -190,7 +190,31 @@ Then they thought, "No use talking about Gods. If you talk about Gods, then it b
 <font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, UK</b></font>
 </p>
 
-[<font color="orange">WARNING: Quotes for the period 1986-04 to 1996-03 will follow in due time.</font>]
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">You may read the books written by famous personalities like Socrates, Lao Tze, Confucius, who have said, "One should get one's Self-realization.</font><br>
+Mostly, people say that, ``We are doing meditation." Meditation is a state of mind, it is not done, it just happens."<br>
+<font size="+0"><b>1986-0401 Public Program (Hindi), Day 2, Ghanaśhyām das Birla Sabhaghar, 29 Ashutosh Choudhry Avenue, Near Birla Mandir, Ballygunge, Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"It's so heartening, that I find it difficult to express it in human words the way I envisage the vision that your founder must have thought of. I'm sure, he must have been a realized Soul himself.<br>
+<font color="red">Apart from that, he looks like Confucius to Me. As Confucius has talked of humanism, in the same manner, he has organized this beautiful organization of Lions here.</font><br>
+......<br>
+In the same way, this-s Lion word makes Me understand, that the gentleman who has-s founded this -- what's the name is, so Mister?
+......<br>
+... Mister Melvin Jones, must have been a great personality. And in his vision, he perhaps has seen that one day you might come to Sahaja Yoga to understand the working of this organization.<br>
+Just like Confucius. Confucius wanted to establish a quality of people, a category of people, who would have a feeling for others. As we say in sāmājikata [sociality], or the public-minded people. 
+<font color="red">Just like Confucius. Confucius wanted to establish a quality of people, a category of people, who would have a feeling for others. As we say in sāmājikata [sociality], or the public-minded people.</font>"<br>
+<font size="+0"><b>1986-1009 Public Program (6th Day of Navarātri), Lions Club International, G.D. Birla Sabahghar, 29, Ashutosh Choudhry Avenue, Ballygunge, Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+[<font color="orange">WARNING: Quotes for the period 1986-1011 to 1996-03 will follow in due time.</font>]
 
 <div class="para-divider"></div>
 

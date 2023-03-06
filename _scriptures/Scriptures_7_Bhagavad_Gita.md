@@ -143,14 +143,13 @@ Once you know that in your Āgñyā, then all the fears and domination disappear
 <font color="red">He had to die to show that the body though [it] dies, can be saved. That's why He had to be crucified. Otherwise He could not have shown you.<br>
 But it's actually it was experimented in the Vaikuṇṭha, as you call it, that He died and then resurrected to show that this does not die.<br>
 Kṛiṣhṇa has said, "Nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ." "It is not killed by any weapon, neither it is burned by any fires, nor it is blown by any wind." "Na chainaṃ kledayanty āpo, na śhoṣhayati mārutaḥ." "Neither, nothing can suck in." That Spirit is He.</font><br>
-<b>1980-0406 Easter Pūjā, Significance of Christ (Easter Is a Special Day Because in Our Lives the Death has Died and We Are Resurrected), Āśhram, 8, Hamilton Road, Dollis <b>Hill, London NW10 1NX, UK</b><br>
-<br>
+<b>1980-0406 Easter Pūjā, Significance of Christ (Easter Is a Special Day Because in Our Lives the Death has Died and We Are Resurrected), Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b><br>
 <font color="red">Moses and other people like Him, the Primordial Masters all over the world incarnated in this area and established your sustainance [sustenance]. This was to prepare you for your ascent.<br>
 Then came Kṛiṣhṇa, who said that, "It's a Spirit, cannot be destroyed." I'll say it in Sanskrit because it's a mantra. "Nainaṃ chindanti śhastrāṇi, nainaṃ dahati pāvakaḥ. Na chainaṃ kledayanty āpo, na śhoṣhayati mārutaḥ." It cannot be destroyed by anything. True. So the prove He's saying Christ was to be resurrected.</font><br>
 <b>1980-0917 Public Program, Day 3, Paris, France</b><br>
 ......<br>
 <br>
-<font color="red">Uh [laughing:] only trouble with Sahaja Yogis is that they take things [a] little lightly. Of course, that is their character. But not Sahaja Yoga. Other things you can take lightly: if somebody shouts at you, somebody gets angry with you, somebody even slaps you, take it lightly. Doesn't matter. Makes no difference to you. Because you are the Spirit: nothing can destroy the Spirit. "Nainaṃ chindanti śhastrāṇi" ["Weapons do not cut It": first part of the first verse of Bhagavad Gītā 2.23].<br>
+<font color="red">Uh [laughing:] only trouble with Sahaja Yogis is that they take things [a] little lightly. Of course, that is their character. But not Sahaja Yoga. Other things you can take lightly: if somebody shouts at you, somebody gets angry with you, somebody even slaps you, take it lightly. Doesn't matter. Makes no difference to you. Because you are the Spirit: nothing can destroy the Spirit. "Nainaṃ chindanti śhastrāṇi."<br>
 But when it comes to Sahaja Yoga, your attitude should be different. If you are relaxing on one side, another side you have to be dynamic. And that side is: where you have to put forward the theories of Sahaja Yoga, and you have to talk to people, you have to organize a press conference, or whatever sort of things you want to do.</font><br>
 <b>1993-0321 Birthday Pūjā, Satya Yuga, New Delhi, India</b><br>
 ......

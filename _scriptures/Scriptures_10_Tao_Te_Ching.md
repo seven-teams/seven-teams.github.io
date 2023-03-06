@@ -3,7 +3,7 @@ title: 'Post 10: TAO TE CHING'
 date: 2023-01-28
 permalink: /scriptures/2023/0128
 tags:
-  - crimson @ Lao Tze
+  - crimson @ Shri Lao Tze
   - green @ Shri Adi Guru
   - green @ Shri Vishnu
   - orange @ Tao Te Ching
