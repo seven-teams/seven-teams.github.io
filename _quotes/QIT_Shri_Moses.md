@@ -448,6 +448,35 @@ And the word Kuṇḍalinī also is ... has a meaning that it is a coiled-up ene
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"As we had very great people ... uh ... on this Earth, I have given you the names, as we said there are, there have been Ten Gurus, uh ... starting from Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had Confucius, we had Socrates, and later on we had Abraham, Moses and also up to Śhirḍī Sāī Nāth, we had about Ten Great Gurus, now we have so many here sitting down. They are all gurus, and they have to behave like gurus and they have to the ... do the job of great gurus."</font><br>
+<font size="+0"><b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"So that's how we have the people who have been doing something for the country, for their uh own generation, talking about it.<br>
+<font color="red">In the same way we had very great Saints also, from Confucius, and also we have seen Moses, Abraham, how They tried to uh remove poverty and the slavery from people and to bring them to uh a free country, They worked very hard.</font>"<br>
+<font size="+0"><b>1988-1220 Pūjā (English+Marathi), Garden, little House, Brahmapuri, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"For example, in the Arabic countries, Zoroaster took birth five times, and later many Ādi Gurus took birth, like Abraham, Moses, and last of all Śhrī Muhammad Sāhib also took birth there. Because it was very necessary, and that is why these Gurus took birth to accomplish some definite work."</font><br>
 <font size="+0"><b>1991-0101 New Year Pūjā (Hindi+English), Mukand Steel Factory, Kalwa, Thane, Maharashtra, India</b></font>
 </p>

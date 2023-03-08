@@ -1257,6 +1257,24 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
+"If you go to a temple, every temple has got uh-uh-uh nice uh arrangement for you to get possessed. [Laughter.]<br>
+Or even a church, or a mosque, where God has to reside, you find suddenly you get attacked. and you come out absolutely puzzled about yourself, ending up into lunatic asylums.<br>
+So what sort of worshiping places are these, where you go to find God and you get the horrible satanic forces acting on you?<br>
+<font color="red">That's why in the modern times, people have become so very confused. We do not find truth in anything: in any ideologies, any philosophies, anything that started, say, Confucius started humanism, Socrates started another thing, Muhammad Sāhab started another thing.<br>
+Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Him in the Nirākāra," in the Formless God.</font>"<br>
+<font size="+0"><b>1987-0712 Guru Pūjā, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"Sahaja Yoga is your own religion. Within yourself you have a Kuṇḍalinī: you have this Power within yourself which is to be awakened. About which even Saint Thomas has said, about which Muhammad Sāheb has said, about which Zoroaster has said, about which Christ has said, about which of course, Śhrī Kṛiṣhṇa has said, in a way."</font><br>
 <font size="+0"><b>1988-0000 Public Program, Mumbai, Maharashtra, India</b></font>
 </p>

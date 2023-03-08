@@ -277,6 +277,45 @@ Then they thought, "No use talking about Gods. If you talk about Gods, then it b
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"If you go to a temple, every temple has got uh-uh-uh nice uh arrangement for you to get possessed. [Laughter.]<br>
+Or even a church, or a mosque, where God has to reside, you find suddenly you get attacked. and you come out absolutely puzzled about yourself, ending up into lunatic asylums.<br>
+So what sort of worshiping places are these, where you go to find God and you get the horrible satanic forces acting on you?<br>
+<font color="red">That's why in the modern times, people have become so very confused. We do not find truth in anything: in any ideologies, any philosophies, anything that started, say, Confucius started humanism, Socrates started another thing, Muhammad Sāhab started another thing.</font><br>
+Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Him in the Nirākāra," in the Formless God."<br>
+<font size="+0"><b>1987-0712 Guru Pūjā, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"As we had very great people ... uh ... on this Earth, I have given you the names, as we said there are, there have been Ten Gurus, uh ... starting from Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had Confucius, we had Socrates, and later on we had Abraham, Moses and also up to Śhirḍī Sāī Nāth, we had about Ten Great Gurus, now we have so many here sitting down. They are all gurus, and they have to behave like gurus and they have to the ... do the job of great gurus."</font><br>
+<font size="+0"><b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. <font color="red">In China He was born as Confucius and as Lao Tze, and in Greece as Socrates.</font> He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."<br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 33</b></font>
 </p>

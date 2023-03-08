@@ -220,6 +220,22 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <font size="+0"><b>1985-0703 Public Program, Day 1, Nederlands Congresgebouw (now World Forum), Churchillplein 10, The Hague, Netherlands</b></font>
 </p>
 
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"If you read Lao Tze, Confucius and all the great philosophers, they all have talked about achieving Self-realization.}"</font><br>
+<font size="+0"><b>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
 [<font color="orange">WARNING: Quotes for the period 1981-09 to 2001-05 will follow in due time.</font>]
 
 <div class="para-divider"></div>

@@ -194,7 +194,7 @@ Then they thought, "No use talking about Gods. If you talk about Gods, then it b
 
 <p>
 "<font color="red">You may read the books written by famous personalities like Socrates, Lao Tze, Confucius, who have said, "One should get one's Self-realization.</font><br>
-Mostly, people say that, ``We are doing meditation." Meditation is a state of mind, it is not done, it just happens."<br>
+Mostly, people say that, "We are doing meditation." Meditation is a state of mind, it is not done, it just happens."<br>
 <font size="+0"><b>1986-0401 Public Program (Hindi), Day 2, Ghanaśhyām das Birla Sabhaghar, 29 Ashutosh Choudhry Avenue, Near Birla Mandir, Ballygunge, Kolkata, West Bengal, India</b></font>
 </p>
 
@@ -214,7 +214,134 @@ Just like Confucius. Confucius wanted to establish a quality of people, a catego
 
 <div class="para-divider"></div>
 
-[<font color="orange">WARNING: Quotes for the period 1986-1011 to 1996-03 will follow in due time.</font>]
+<p>
+<font color="red">"If you read Lao Tze, Confucius and all the great philosophers, they all have talked about achieving Self-realization.}"</font><br>
+<font size="+0"><b>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Those who have understood Sahaja Yoga have understood that all these barriers of religion has [have] no meaning. It‘s all integrated, well-woven, and worked out beautifully, by sending all these Incarnations, all these Great Prophets, on this Earth, to create the humanities which is described by Confucius, to create valenc[y], our valencies, which are ten valencies that we call dharma, of a Human Dharma, which is described by Confucius. It is described in different, different ways, no doubt, but, still, He says the same thing, same tone. "</font><br>
+<font size="+0"><b>1987-0322 Public Program, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"If you go to a temple, every temple has got uh-uh-uh nice uh arrangement for you to get possessed. [Laughter.]<br>
+Or even a church, or a mosque, where God has to reside, you find suddenly you get attacked. and you come out absolutely puzzled about yourself, ending up into lunatic asylums.<br>
+So what sort of worshiping places are these, where you go to find God and you get the horrible satanic forces acting on you?<br>
+<font color="red">That's why in the modern times, people have become so very confused. We do not find truth in anything: in any ideologies, any philosophies, anything that started, say, Confucius started humanism, Socrates started another thing, Muhammad Sāhab started another thing.</font><br>
+Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Him in the Nirākāra," in the Formless God."<br>
+<font size="+0"><b>1987-0712 Guru Pūjā, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"As we had very great people ... uh ... on this Earth, I have given you the names, as we said there are, there have been Ten Gurus, uh ... starting from Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had Confucius, we had Socrates, and later on we had Abraham, Moses and also up to Śhirḍī Sāī Nāth, we had about Ten Great Gurus, now we have so many here sitting down. They are all gurus, and they have to behave like gurus and they have to the ... do the job of great gurus."</font><br>
+<font size="+0"><b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"So that's how we have the people who have been doing something for the country, for their uh own generation, talking about it.<br>
+<font color="red">In the same way we had very great Saints also, from Confucius, and also we have seen Moses, Abraham, how They tried to uh remove poverty and the slavery from people and to bring them to uh a free country, They worked very hard.</font>"<br>
+<font size="+0"><b>1988-1220 Pūjā (English+Marathi), Garden, little House, Brahmapuri, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">And now the Chinese Government said they were following what you call, Confucius, Confucius because He talked about humanity. He said that humanity's important and the collective.</font><br>
+But without Realization how do you understand collectivity? Otherwise how could they kill their own people? If they were realized Souls they would not have killed these young [<font color="orange">unclear</font>] there.<br>
+So there's a big reaction, when I went to China there's a very big reaction, and so many Chinese came to My program saying, 'This is happening, in America, because there's a reaction against Chinese style of suppression.' "<br>
+<font size="+0"><b>1990-0228 Talk to Sahaja Yogis, in Transit, Changi Airport, Singapore</b></font>
+</p>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-0306 Public Program, Day 1, Camberwell Civic Center, 340 Camberwell Road, Camberwell, Melbourne, Victoria, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-0314 Public Program, Day 2, Auckland, New Zealand</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-1101 Public Program, Day 1, Girls Guide Hall, Brickfields, Kuala Lumpur, Malaysia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1991-0416 Public Program, Day 1, State Theatre, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0211 Talk to Sahaja Yogis, We Are So Powerful, in Transit, Airport, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0226 Public Program, Christchurch Town Hall (now Christchurch Town Hall of the Performing Arts), 86 Kilmore Street, Christchurch Central City, Christchurch, New Zealand</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-1113 Interview with Prof. Yuriy A. Voronov, Moscow, Russia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-0424 Talk to Sahaja Yogis, Attention Should Be on Collective Things, Peninsular Hotel, Hong Kong, China</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1995-0301 Talk to Sahaja Yogis, Zen System or Sahaja Yoga is also Zen, before Public Program, Four Seasons Hotel, Tokyo, Japan</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1995-0913 Written (Prepared) Talk, On the Global Problems Facing Women, Inter-Regional Round Table, Fourth World Conference on Women: Action for Equality, Development and Peace, Guanjunyuan Hotel, Beijing, China</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1995-0913 Public Program, Function Room, Jingguang New World Hotel-Manfulou, 1 Chaoyangmen Outer St, Guomao, Chaoyang, Beijing, China</b></font>
+</p>
 
 <div class="para-divider"></div>
 
@@ -227,7 +354,7 @@ Just like Confucius. Confucius wanted to establish a quality of people, a catego
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1996-0304 Public Program, Convention Center, Darling Harbor, Sydney, New South Wales, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
