@@ -318,7 +318,25 @@ So there's a big reaction, when I went to China there's a very big reaction, and
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> [Holding the red statue:] <font color="red">This is the one for what?</font><br>
+<b>Sahaja Yogi:</b> Confucius.<br>
+<b>Sahaja Yoginī:</b> Confucius.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Huh?<br>
+<b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>
+<b>Sahaja Yogis:</b> Confucius.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Oh, ...</font><br>
+<b>Another Sahaja Yogi:</b> Guru!<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">... is Confucius!</font><br>
+<font color="red">He too has</font> [gesturing beating with a stick]. [Touching it:] <font color="red">You see?</font> [Some soft laughter.]<br>
+<b>Sahaja Yogi:</b> The stick.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> [Touches the statue.] <font color="red">Why such an expensive one?</font><br>
+<font color="red">Great. It's very well done. [Inclining the statue and looking at its base:] Is it written here Confucius?</font><br>
+<b>Sahaja Yogi:</b> Yes.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">All right. Thank you very much. But you have to bring it to India when you come.</font><br>
+<b>Sahaja Yogi:</b> Yes, I will.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Hāṃ [yes].</font><br>
+<font color="red">Such expensive thing you should not have bought.</font><br>
+<b>Sahaja Yogi:</b> Very ... very good price, Mother.<br>
 <font size="+0"><b>1994-0424 Talk to Sahaja Yogis, Attention Should Be on Collective Things, Peninsular Hotel, Hong Kong, China</b></font>
 </p>
 
@@ -332,14 +350,17 @@ So there's a big reaction, when I went to China there's a very big reaction, and
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Confucius has taught the humanity how we can improve our relations with other human beings."</font><br>
 <font size="+0"><b>1995-0913 Written (Prepared) Talk, On the Global Problems Facing Women, Inter-Regional Round Table, Fourth World Conference on Women: Action for Equality, Development and Peace, Guanjunyuan Hotel, Beijing, China</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">Confucius is all right, 'But for what we should become good?,' is the point, people will ask. 'Why should we be good people?' People can ask such a question, 'What is the need to be good, to be balanced?'</font><br>
+We too had many, like this, who talked that, 'We have to be in balance, we have to be moral. And we have to be righteous people.'<br>
+But, 'For what is this balance?',' we have to find out.<br>
+This balance is for the ultimate ascent. And unless and until we achieve that ascent, nothing can satisfy us."<br>
 <font size="+0"><b>1995-0913 Public Program, Function Room, Jingguang New World Hotel-Manfulou, 1 Chaoyangmen Outer St, Guomao, Chaoyang, Beijing, China</b></font>
 </p>
 
@@ -353,7 +374,13 @@ So there's a big reaction, when I went to China there's a very big reaction, and
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now this, special thing as called as Kuṇḍalinī, is not to be discarded because It's coming from India.<br>
+It has been described in every Scripture. Even in the Bible is described, that, "I'll appear before you like tongues of flames."<br>
+[Pointing to the Chakra Chart:] These are the tongues of flames you see, along the path of the Kuṇḍalinī.<br>
+Also Muhammad Sāhab has said very clearly, in His Qur'ān, that: "If you want to know God, you must know your Self."<br>
+Christ has said: "Know thy Self."<br>
+All of Them had said the same thing!<br>
+<font color="red">If you see Zen system, or Lao Tze, Confucius, any one of Them, They all said that, "Unless and until you-know ... you know your Self, you are not there. You have no identity.</font>"<br>
 <font size="+0"><b>1996-0304 Public Program, Convention Center, Darling Harbor, Sydney, New South Wales, Australia</b></font>
 </p>
 
