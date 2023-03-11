@@ -477,6 +477,21 @@ And the word Kuṇḍalinī also is ... has a meaning that it is a coiled-up ene
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">In the early days-s-s, thousands of years back, all over the world there were realized Souls. You can start right from Abraham, to Moses, to Confucius.</font> In India there were many great Saints: Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], from that, Nāth Pānthis they were called as.<br>
+Their job was just to give awakening to people."<br>
+<font size="+0"><b>1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"For example, in the Arabic countries, Zoroaster took birth five times, and later many Ādi Gurus took birth, like Abraham, Moses, and last of all Śhrī Muhammad Sāhib also took birth there. Because it was very necessary, and that is why these Gurus took birth to accomplish some definite work."</font><br>
 <font size="+0"><b>1991-0101 New Year Pūjā (Hindi+English), Mukand Steel Factory, Kalwa, Thane, Maharashtra, India</b></font>
 </p>

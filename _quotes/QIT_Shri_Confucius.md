@@ -261,22 +261,37 @@ So there's a big reaction, when I went to China there's a very big reaction, and
 <font size="+0"><b>1990-0228 Talk to Sahaja Yogis, in Transit, Changi Airport, Singapore</b></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
-<font color="red">""</font><br>
+"This is all absolutely traditional but is not a dead tradition.<br>
+It's like the Tree of Spirituality, which had very few flowers. Now the tree has evolved, and there are many flowers. So, it is not hanging in the air or something new. But, supposing, you see a flower on the tree, it's a new thing you feel, but it's built in.<br>
+Is all built in, coming through all the traditions of the world.<br>
+Everyone has said that, "You must seek your Self"! Everyone has said. There's no .... no Scripture that has not said so. That's what it is!<br>
+But, how to achieve it, is rarely described, and one step forward is that: you can achieve it en mass. That's what is, we can say, the evolution in this spiritual method has reached.<br>
+All of them were born on the Tree of Life. All of them: one [Tree of Life], at different times.<br>
+But people plucked the flowers, and said that, 'This is my flower,' 'This is my flower,' and are fighting with the dead flowers.<br>
+<font color="red">Lao Tze said the same thing, if you say, start from Confucius to Lao Tze, to this side you go ... to the other side of it uh ... uh Christ has said the same thing.</font> I mean, endless people. Muhammad said the same thing, Abraham said the same thing, then Rāma, Kṛiṣhṇa, all of them have said the same thing. All the Saints, the real Saints of the world has [have] said the same thing. Because they knew that people are still not at that level."<br>
 <font size="+0"><b>1990-0306 Public Program, Day 1, Camberwell Civic Center, 340 Camberwell Road, Camberwell, Melbourne, Victoria, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<b>Sahaja Yogi:</b> [Summarizes a gentleman:] "Is Kuṇḍalinī the only force in this particular time, that will do this particular job?"<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> No, all the time this was the force, all the time. Is all the time, this was the force. It's called, also, in the Bible it is said, that, about the Tree of Life, is this mechanism. Also said that, "I'll p... appear before you as tongues of flames," is the Kuṇḍal... the ... when the Kuṇḍalinī rises, then your centers look like that. So many things there are even in the Bible. In everything, in Qur'ān it is called as 'Asas. The names are different, but it is so.<br>
+Like Tao is the Kuṇḍalinī. Tao as described, is also Kuṇḍalinī.<br> 
+Zen system, Zen also means the same, Dhyāna, is the same thing.<br> 
+<font color="red">Confucius talked of the same thing, Socrates talked of the same thing.</font><br>
+But only thing it was not so said so clearly. Because there were not people intelligent as you are today, to understand [laughing:] it, I think, that it was not said so clearly.<br>  
 <font size="+0"><b>1990-0314 Public Program, Day 2, Auckland, New Zealand</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">In the early days-s-s, thousands of years back, all over the world there were realized Souls. You can start right from Abraham, to Moses, to Confucius.</font> In India there were many great Saints: Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], from that, Nāth Pānthis they were called as.<br>
+Their job was just to give awakening to people."<br>
 <font size="+0"><b>1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia</b></font>
 </p>
 

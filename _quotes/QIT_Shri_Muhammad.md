@@ -1289,6 +1289,27 @@ Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Hi
 <div class="para-divider"></div>
 
 <p>
+"This is all absolutely traditional but is not a dead tradition.<br>
+It's like the Tree of Spirituality, which had very few flowers. Now the tree has evolved, and there are many flowers. So, it is not hanging in the air or something new. But, supposing, you see a flower on the tree, it's a new thing you feel, but it's built in.<br>
+Is all built in, coming through all the traditions of the world.<br>
+Everyone has said that, "You must seek your Self"! Everyone has said. There's no .... no Scripture that has not said so. That's what it is!<br>
+But, how to achieve it, is rarely described, and one step forward is that: you can achieve it en mass. That's what is, we can say, the evolution in this spiritual method has reached.<br>
+All of them were born on the Tree of Life. All of them: one [Tree of Life], at different times.<br>
+But people plucked the flowers, and said that, 'This is my flower,' 'This is my flower,' and are fighting with the dead flowers.<br>
+Lao Tze said the same thing, if you say, start from Confucius to Lao Tze, to this side you go ... to the other side of it uh ... uh Christ has said the same thing. I mean, endless people. <font color="red">Muhammad said the same thing, Abraham said the same thing, then Rāma, Kṛiṣhṇa, all of them have said the same thing.</font> All the Saints, the real Saints of the world has [have] said the same thing. Because they knew that people are still not at that level."<br>
+<font size="+0"><b>1990-0306 Public Program, Day 1, Camberwell Civic Center, 340 Camberwell Road, Camberwell, Melbourne, Victoria, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"For example, in the Arabic countries, Zoroaster took birth five times, and later many Ādi Gurus took birth, like Abraham, Moses, and last of all Śhrī Muhammad Sāhib also took birth there. Because it was very necessary, and that is why these Gurus took birth to accomplish some definite work."</font><br>
 <font size="+0"><b>1991-0101 New Year Pūjā (Hindi+English), Mukand Steel Factory, Kalwa, Thane, Maharashtra, India</b></font>
 </p>
