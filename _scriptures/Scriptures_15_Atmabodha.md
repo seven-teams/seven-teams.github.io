@@ -30,6 +30,7 @@ tags:
 This is Self-knowledge, this is Ātmabodha.<br>
 Bodha means to know. To know, to feel that Power.</font><br>
 <font size="+0"><b>1981-0929 Public Program (1st Day and 2nd Day of Navarātri), Self and Heart Chakra, Day 6, East West Center, 141 5th Avenue, Manhattan, New York City, NY, U.S.A.</b></font><br>
+<br>
 <font color="red">Wherever Nāṇaka has used it or wherever Gyaneshwara has used it, it means 'The Knowledge', is the Knowledge of the Self: Ātma-bo-dha-ḥ. Ātmabodha.<br>
 If you read Śhaṅkarāchārya, His book Ātmabodh, very important it is, and you will know that He has described that, "When you get the Knowledge," is the Self-knowledge, "then only you will know about God." Clearly He says! I mean, so clearly you can't [dispute] it, crystal clear.</font><br>
 <font size="+0"><b>1981-1013 Public Program, Day 2, John Muir Elementary School, 1721 Ocean Park Boulevard, Santa Monica (23 kms W of Los Angeles), CA, U.S.A.</b><br>
