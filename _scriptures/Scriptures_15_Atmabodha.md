@@ -18,6 +18,7 @@ tags:
 
 <div class="para-divider"></div>
 
+<p>
 <b>Quotes</b><br>
 <font color="red">Śhrī Ādi Śhaṅkarāchārya lived in sixth century A.D. He wrote many texts: Saundaryalaharī, Upadeśhasāhasri, Vivekachūḍāmaṇi, Ātmabodh, etc. In most of these texts, there are various references to Kuṇḍalinī awakening, as some of the following stanzas [10 and 9 from Saundaryalaharī] will illustrate:<br>
 [Having in-filled in the pathway of the nāḍīs with the streaming shower of Nectar flowing from Thy pair of Feet (Lotus Feet), having resumed Thine own position from out of resplendent lunar regions, and Thyself assuming the form of a serpent of three and a half coils, sleepest Thou in the hollow of the Kulakuṇḍa.] [Kulakuṇḍa=the hollow of the Mūlādhāra -- sacrum bone.]<br>
