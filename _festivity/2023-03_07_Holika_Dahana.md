@@ -105,21 +105,18 @@ And that's why She then started this festival of Holī."</b></font><br>
 
 <p>
 <font color="Red"><b>Holi Khelat</b></font><br>
-<a href="https://youtu.be/nnbVgjyEyp4"> video</a><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="MediumPurple"><b>Shri Maa Hain Rang Raij Chunar Mori Rang</b></font><br>
-<a href="https://youtu.be/RWtxxyvWe7E">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="DarkGreen"><b>Shri Mataji Playing with Dandiya Sticks (1990-0819 Śhrī Kṛiṣhṇa Pūjā, Ipswich, UK)</b></font><br>
-<a href="https://youtu.be/KoGB78ZNEWA">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
  
 <p>
 <font color="orange"><b> Aaj Rang Hai Sahaj Ka</b></font><br>
@@ -128,9 +125,8 @@ And that's why She then started this festival of Holī."</b></font><br>
 
 <p>
 <font color="blue"><b>Kṛiṣhṇa Govinda</b></font><br>
-<a href="https://youtu.be/H_-4d_cwBjE">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>
