@@ -33,7 +33,7 @@ Bodha means to know. To know, to feel that Power.</font><br>
 <br>
 <font color="red">Wherever Nāṇaka has used it or wherever Gyaneshwara has used it, it means 'The Knowledge', is the Knowledge of the Self: Ātma-bo-dha-ḥ. Ātmabodha.<br>
 If you read Śhaṅkarāchārya, His book Ātmabodh, very important it is, and you will know that He has described that, "When you get the Knowledge," is the Self-knowledge, "then only you will know about God." Clearly He says! I mean, so clearly you can't [dispute] it, crystal clear.</font><br>
-<font size="+0"><b>1981-1013 Public Program, Day 2, John Muir Elementary School, 1721 Ocean Park Boulevard, Santa Monica (23 kms W of Los Angeles), CA, U.S.A.</b><br>
+<font size="+0"><b>1981-1013 Public Program, Day 2, John Muir Elementary School, 1721 Ocean Park Boulevard, Santa Monica (23 kms W of Los Angeles), CA, U.S.A.</b></font><br>
 <br>
 <font color="red">But in any case, I will try to describe because so many of you have felt the Realization, have got Ātmabodha, the awareness of the Spirit and that's why I wanted to speak about it [Truth] today.</font><br>
 <font size="+0"><b>1981-1014 Public Program, Day 3, John Muir Elementary School, 1721 Ocean Park Boulevard, Santa Monica (23 kms W of Los Angeles), CA, U.S.A.</b></font><br>
