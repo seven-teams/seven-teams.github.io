@@ -1,7 +1,7 @@
 ---
 title: 'Post 15: Ātmabodha'
 date: 2023-03-11
-permalink: /quotes/2023/0311
+permalink: /scriptures/2023/0311
 tags:
   - crimson @ Shri Adi Shankaracharya
   - green @ Disciple Principle
