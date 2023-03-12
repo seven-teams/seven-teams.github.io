@@ -67,7 +67,7 @@ Put all the colors of the chakras onto you! play with joy, enthusiasm, and happi
 </p>
 
 <p>
-<font color="MediumPurple">"Then the</font> <b>colors</b> are, the <font color="brown">colors</font> <font color="MediumPurple"><b>are all representing your chakras</b>. These are all the chakras as you know. Every chakra has</font> got <font color="MediumPurple">a</font> different color. <font color="MediumPurple">So what happens? These colors just get distributed in the air, in the atmosphere. During Holi time you [Unclear know you] are representing those colors which are completely permeating into the atmosphere. So this is another thing when you play colors. When you color another person, you are just expressing that these, your chakras will be blessed.</font> <font color="DarkRed"><b>Red color is of the Mūlādhāra.</b></font> <font color="MediumPurple">All those colors that you use here are of different chakras. So just you are making the whole expression of your love that let it be you become completely filled with red color, means innocence, means innocence. Because as a child in the womb of the mother just sees the red color of the mother, color of the blood.</font><br>
+<font color="MediumPurple">"Then the</font> <b>colors</b> <font color="MediumPurple">are, the</font> <font color="brown">colors</font> <font color="MediumPurple"><b>are all representing your chakras</b>. These are all the chakras as you know. Every chakra has</font> got <font color="MediumPurple">a</font> different color. <font color="MediumPurple">So what happens? These colors just get distributed in the air, in the atmosphere. During Holi time you [Unclear know you] are representing those colors which are completely permeating into the atmosphere. So this is another thing when you play colors. When you color another person, you are just expressing that these, your chakras will be blessed.</font> <font color="DarkRed"><b>Red color is of the Mūlādhāra.</b></font> <font color="MediumPurple">All those colors that you use here are of different chakras. So just you are making the whole expression of your love that let it be you become completely filled with red color, means innocence, means innocence. Because as a child in the womb of the mother just sees the red color of the mother, color of the blood.</font><br>
 <font color="MediumPurple">So like that, you see different colors are spread on the face. And</font> <font color="DarkGreen"><b>abhira is the green color of the Guru Tattwa</b>.</font> <font color="MediumPurple">Like that all these colors have got significance that they are the colors of your chakras which you are spreading all over to your friends, to your other brothers and sisters who are Sahaja Yogis. So it has that symbolic expression that you are spreading your – actually the essence of your chakra, the basis of your chakra,</font> <font color="bluee">the colors of your chakra, the fragrance of those chakras to other Sahaja Yogis.</font><br>
 <font color="MediumPurple">You just permeate, permeating. I don’t know in Hindi language if there is a better word like in Marathi ‘ud-har’, udahr. ‘Udhar’ means just ... [Hindi.]<br>
 ...</font> <font color="DarkRed">red color, is the sign of innocence.</font> <font color="MediumPurple">So Kabīra</font> says that, <font color="MediumPurple">“You put me into such a color. Oh, the one who is going to color me is the One.” Rangaraj is the one who colors things. So He says, “Oh Rangaraj, make me so that the whole thing becomes red – innocence, fills me up with complete innocence.” And innocence is the one he has asked for to be filled in. And same is with Shrī Kṛiṣhṇa that He played with all these different colors to show that there are different</font> chakras <font color="MediumPurple">within us apart from the red and the others that are there. All of them play a part to create a beautiful joyful personality."</font><br>
@@ -88,7 +88,7 @@ And that's why She then started this festival of Holī."</b></font><br>
 <font size="+0"><b>No other color will reflect through us, We are unable to see anything but You</b></font><br>
 <font color="DarkCyan">Jala ko sthala ko sāre jagata,Rangā ranga banāyā</font><br> 
 <font size="+0"><b>Through these eyes, You have made not only water and land But the whole universe very colorful</b></font><br>
-<font color="DarkRed">Ranga de jhini Hari, Mā ke ranga me kāyā,</font><font color="MediumPurple">(kāyā)</font><br> 
+<font color="DarkRed">Ranga de jhini Hari, Mā ke ranga me kāyā,</font> <font color="MediumPurple">(kāyā)</font><br> 
 <font size="+0"><b>God (Hari) please color my body (kaya) in the color of my Holy Mother</b></font><br>
 <font color="DarkOrange">Ranga nā de ise, chanchala mana ko, Apne ranga me māyā</font><br> 
 <font size="+0"><b>Let my body not be adorned, By the hideous color of materialism</b></font><br>
@@ -109,17 +109,17 @@ And that's why She then started this festival of Holī."</b></font><br>
 </p>
 
 <p>
-<font color="MediumPurple"><b>Shri Maa Hain Rang Raij Chunar Mori Rang</b></font><br>
+<font color="MediumPurple"><b>Śhrī Mā Hain Rang Raij Chunar Mori Rang</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="DarkGreen"><b>Shri Mataji Playing with Dandiya Sticks (1990-0819 Śhrī Kṛiṣhṇa Pūjā, Ipswich, UK)</b></font><br>
+<font color="DarkGreen"><b>Śhrī Mātājī Playing with Dandiya Sticks (1990-0819 Śhrī Kṛiṣhṇa Pūjā, Ipswich, UK)</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
-<font color="orange"><b> Aaj Rang Hai Sahaj Ka</b></font><br>
+<font color="orange"><b> Āj Rang Hai Sahaj Ka</b></font><br>
 <a href="https://youtu.be/kAeQs-Xga_Q">video</a> 
 </p>
 
