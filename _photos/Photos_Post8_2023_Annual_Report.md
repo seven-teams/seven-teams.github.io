@@ -13,7 +13,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-The website <a href="https://eternalmoments.smugmug.com/"> <font color="blue"><b>Eternal Moments</b></font></a> has now 23,214 Photographs of Śhrī Mātājī, including versions and details (an increment of 2,150 since last annual report), and 7,207 photos Moments of Joy (an increment of 3,724 since last annual report). There are 26 Collections with 21,753 Photographs of Śhrī Mātājī and 7,138 photos Moments of Joy.<br>
+The website <a href="https://eternalmoments.smugmug.com/"> <font color="DarkGreen"><b>Eternal Moments</b></font></a> has now 23,214 Photographs of Śhrī Mātājī, including versions and details (an increment of 2,150 since last annual report), and 7,207 photos Moments of Joy (an increment of 3,724 since last annual report). There are 26 Collections with 21,753 Photographs of Śhrī Mātājī and 7,138 photos Moments of Joy.<br>
 The XYZ Folder of the Collections shall be completed by May 5, 2023.<br>
 So, there are more than 30.4K Photos and photos Moments of Joy uploaded to the website. When essentially completed, it is projected that the website will have between 60K and 5 millions Photos and photos Moments of Joy, and each year we will reestimate these bounds.<br>
 We will start having short posts announcing new events for which Photos have been just uploaded. They will be grouped under two number posts: one on early Photos (before 1976-0101) and one on special or less known events.<br>
