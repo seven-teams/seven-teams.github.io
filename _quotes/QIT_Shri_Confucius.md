@@ -298,14 +298,16 @@ Their job was just to give awakening to people."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"All the Saints have said that, "You have to know your Self." Unless and until you know your Self, the illusion and the ignorance won't go.<br>
+<font color="red">If you see in the Chinese, right from Confucius, Lao Tze, all of them have talked about it.</font> For Christians, Christ has said the same thing. For Sikhs, Guru Nāṇaka has the said the same thing, that, "You must seek the Truth." "<br>
 <font size="+0"><b>1990-1101 Public Program, Day 1, Girls Guide Hall, Brickfields, Kuala Lumpur, Malaysia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So what we need is a transformation.<br>
+<font color="red">And the time has come for us to achieve the transformation, which is described in all the Scriptures: in the Bible it is dexcribed [described] as the Second Birth, even in the Hindu Scripture is described as the Brahmagyān, or you can call it again the Second Birth, dvijaḥ, it is described in the Bib... in the Qur'ān, is described in all the Buddha's teachings, described by Mahāvīra, is described by Nāṇaka, by all the religious people, even Confucius has talked about it, Lao Tze has talked about it.</font>"<br>
 <font size="+0"><b>1991-0416 Public Program, Day 1, State Theatre, Sydney, New South Wales, Australia</b></font>
 </p>
 
@@ -319,7 +321,8 @@ Their job was just to give awakening to people."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"This-s old science is not only from India. It comes from everywhere. <font color="red">As I told you Confucius knew this, Socrates knew this, and, also, many people like William Blake and C.S. Lewis, all these people knew about it.</font><br>
+But nobody could put it through to people because, I think, people did not want to accept it."<br>
 <font size="+0"><b>1992-0226 Public Program, Christchurch Town Hall (now Christchurch Town Hall of the Performing Arts), 86 Kilmore Street, Christchurch Central City, Christchurch, New Zealand</b></font>
 </p>
 
