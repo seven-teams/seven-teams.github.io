@@ -314,7 +314,7 @@ Their job was just to give awakening to people."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">We had Confucius there. They follow more Confucius now. Our Confucius who has talked about general well-being and all that, [].</font> But uh not so much about Ta-o: that they don't talk."</font><br>
+"<font color="red">We had Confucius there. They follow more Confucius now. Our Confucius who has talked about general well-being and all that,</font> [<font color="orange">unclear</font>]. But uh not so much about Ta-o: that they don't talk."<br>
 <font size="+0"><b>1992-0211 Talk to Sahaja Yogis, We Are So Powerful, in Transit, Airport, Sydney, New South Wales, Australia</b></font>
 </p>
 
