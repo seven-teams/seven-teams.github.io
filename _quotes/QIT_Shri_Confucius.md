@@ -314,7 +314,7 @@ Their job was just to give awakening to people."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">We had Confucius there. They follow more Confucius now. Our Confucius who has talked about general well-being and all that, [].</font> But uh not so much about Ta-o: that they don't talk."</font><br>
 <font size="+0"><b>1992-0211 Talk to Sahaja Yogis, We Are So Powerful, in Transit, Airport, Sydney, New South Wales, Australia</b></font>
 </p>
 
@@ -329,7 +329,7 @@ But nobody could put it through to people because, I think, people did not want 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">[Talking about Confucius and Lao Tze, She said that all these Masters talked to people, in the language suitable for the times. Whereas Confucius came to teach about humanity, Lao Tze talked of Tao, which is nothing but Kuṇḍalinī.]</font><br>
 <font size="+0"><b>1993-1113 Interview with Prof. Yuriy A. Voronov, Moscow, Russia</b></font>
 </p>
 
@@ -361,7 +361,7 @@ But nobody could put it through to people because, I think, people did not want 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"But already, I must say, Japan is blessed. Also China has this Ta-o. And some Japanese used to follows [follow] Tao. <font color="red">Now [in China] they believe in Confucius.</font>"<br>
 <font size="+0"><b>1995-0301 Talk to Sahaja Yogis, Zen System or Sahaja Yoga is also Zen, before Public Program, Four Seasons Hotel, Tokyo, Japan</b></font>
 </p>
 
