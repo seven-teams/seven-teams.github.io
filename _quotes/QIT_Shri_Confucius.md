@@ -215,7 +215,7 @@ Just like Confucius. Confucius wanted to establish a quality of people, a catego
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"If you read Lao Tze, Confucius and all the great philosophers, they all have talked about achieving Self-realization.}"</font><br>
+<font color="red">"If you read Lao Tze, Confucius and all the great philosophers, they all have talked about achieving Self-realization."</font><br>
 <font size="+0"><b>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)</b></font>
 </p>
 
@@ -324,6 +324,18 @@ Their job was just to give awakening to people."<br>
 "This-s old science is not only from India. It comes from everywhere. <font color="red">As I told you Confucius knew this, Socrates knew this, and, also, many people like William Blake and C.S. Lewis, all these people knew about it.</font><br>
 But nobody could put it through to people because, I think, people did not want to accept it."<br>
 <font size="+0"><b>1992-0226 Public Program, Christchurch Town Hall (now Christchurch Town Hall of the Performing Arts), 86 Kilmore Street, Christchurch Central City, Christchurch, New Zealand</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">[It is] as if the Mahālakṣhmī Principle holds the reins. And you cannot cross the limits: you cannot go too much to the left or to the right.<br>
+By this Principle you realize what is wrong with the outside religions. You realize also that inside all the religions are born like flowers on the same of Tree of Spirituality. And automatically you start worshiping all the Prophets, right from Abraham, Moses, Confucius, Lao Tze, Muhammad Sāhab, Nāṇak.</font><br>
+<b>Sahaja Yogi translator:</b> Mh-hm?
+<b>Guido Lanza:</b> Confucius, Lao Tze, Nāṇak.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You worship Them! It is not that you have respect, but you worship.<br>
+And thus you lose the barriers of fundamentalism.</font><br>
+<font size="+0"><b>1993-0908 Śhrī Mahālakṣhmī Pūjā, National Palace of Culture (NDK), Boulevard Bulgaria, 1463 NDK, Sofia, Bulgaria</b></font>
 </p>
 
 <div class="para-divider"></div>
