@@ -329,12 +329,12 @@ But nobody could put it through to people because, I think, people did not want 
 <div class="para-divider"></div>
 
 <p>
-<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">[It is] as if the Mahālakṣhmī Principle holds the reins. And you cannot cross the limits: you cannot go too much to the left or to the right.<br>
-By this Principle you realize what is wrong with the outside religions. You realize also that inside all the religions are born like flowers on the same of Tree of Spirituality. And automatically you start worshiping all the Prophets, right from Abraham, Moses, Confucius, Lao Tze, Muhammad Sāhab, Nāṇak.</font><br>
-<b>Sahaja Yogi translator:</b> Mh-hm?
+<font color="red"><b>Śhrī Mātājī:</b></font> [It is] as if the Mahālakṣhmī Principle holds the reins. And you cannot cross the limits: you cannot go too much to the left or to the right.<br>
+By this Principle you realize what is wrong with the outside religions. You realize also that inside all the religions are born like flowers on the same of Tree of Spirituality. <font color="red">And automatically you start worshiping all the Prophets, right from Abraham, Moses, Confucius, Lao Tze, Muhammad Sāhab, Nāṇak.</font><br>
+<b>Sahaja Yogi translator:</b> Mh-hm?<br>
 <b>Guido Lanza:</b> Confucius, Lao Tze, Nāṇak.<br>
-<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You worship Them! It is not that you have respect, but you worship.<br>
-And thus you lose the barriers of fundamentalism.</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You worship Them! It is not that you have respect, but you worship.</font><br>
+And thus you lose the barriers of fundamentalism.<br>
 <font size="+0"><b>1993-0908 Śhrī Mahālakṣhmī Pūjā, National Palace of Culture (NDK), Boulevard Bulgaria, 1463 NDK, Sofia, Bulgaria</b></font>
 </p>
 
