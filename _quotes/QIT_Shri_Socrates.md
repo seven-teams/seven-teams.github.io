@@ -219,7 +219,7 @@ As soon as the Kuṇḍalinī rises, you start manifesting your grandeur, your g
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
 
@@ -235,7 +235,7 @@ The ... we call it Ten Incarnations of the Primordial Master. There are many who
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
 
@@ -255,14 +255,14 @@ And the word Kuṇḍalinī also is ... has a meaning that it is a coiled-up ene
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-"<font color="DarkRed">When they talked, say, about the flowers, say, they talked that they are Gods, like Socrates talked about Gods, like Confucius talked about Gods. When they talked, 'We have to please our Gods,' we started doubting. 'What Gods He's talking about?' Whatever They saw we could not see. All right.<br>
+"<font color="red">When they talked, say, about the flowers, say, they talked that they are Gods, like Socrates talked about Gods, like Confucius talked about Gods. When they talked, 'We have to please our Gods,' we started doubting. 'What Gods He's talking about?' Whatever They saw we could not see. All right.<br>
 Then they thought, "No use talking about Gods. If you talk about Gods, then it becomes a, sort of a worship of something that is a flower. We talk about flower, then we think, 'We have become God.' And we talk about flower all the time!" "</font><br>
 <font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, UK</b></font>
 </p>
@@ -270,14 +270,14 @@ Then they thought, "No use talking about Gods. If you talk about Gods, then it b
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-"Here [turning and pointing towards the Chakra Chart:] the Guru Tattwa is expressed in the Void, there, where the Ten Gurus actually incarnated basically and they re-incarnated. Say we can start uh-uh from Ādināth. Then we can come to ... other ones, uh-uh-uh ... like Nāṇaka, Janaka. Janaka was-ss much earlier. Then we can say Abraham, Moses-s-s. <font color="DarkRed">All these were Guru Tattwa, Socrates.</font> All these were Guru Tattwa people: the people who came as Prophets. The ones who came on this Earth to teach us balance, to teach us the Code of Life.<br>
+"Here [turning and pointing towards the Chakra Chart:] the Guru Tattwa is expressed in the Void, there, where the Ten Gurus actually incarnated basically and they re-incarnated. Say we can start uh-uh from Ādināth. Then we can come to ... other ones, uh-uh-uh ... like Nāṇaka, Janaka. Janaka was-ss much earlier. Then we can say Abraham, Moses-s-s. <font color="red">All these were Guru Tattwa, Socrates.</font> All these were Guru Tattwa people: the people who came as Prophets. The ones who came on this Earth to teach us balance, to teach us the Code of Life.<br>
 That was also important part. But that was forgot[ten]!<br> 
 'Why? Why the code? Why the religion?' Religion is for the ascent, to build you up."<br>
 <font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
@@ -286,7 +286,7 @@ That was also important part. But that was forgot[ten]!<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
 
@@ -304,7 +304,7 @@ Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Hi
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
 
@@ -318,7 +318,7 @@ Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Hi
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
 

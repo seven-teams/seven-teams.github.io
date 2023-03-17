@@ -441,7 +441,7 @@ And the word Kuṇḍalinī also is ... has a meaning that it is a coiled-up ene
 <div class="para-divider"></div>
 
 <p>
-"Here [turning and pointing towards the Chakra Chart:] the Guru Tattwa is expressed in the Void, there, where the Ten Gurus actually incarnated basically and they re-incarnated. Say we can start uh-uh from Ādināth. Then we can come to ... other ones, uh-uh-uh ... like Nāṇaka, Janaka. Janaka was-ss much earlier. <font color="DarkRed">Then we can say Abraham, Moses-s-s.</font> All these were Guru Tattwa, Socrates. All these were Guru Tattwa people: the people who came as Prophets. The ones who came on this Earth to teach us balance, to teach us the Code of Life.<br>
+"Here [turning and pointing towards the Chakra Chart:] the Guru Tattwa is expressed in the Void, there, where the Ten Gurus actually incarnated basically and they re-incarnated. Say we can start uh-uh from Ādināth. Then we can come to ... other ones, uh-uh-uh ... like Nāṇaka, Janaka. Janaka was-ss much earlier. <font color="red">Then we can say Abraham, Moses-s-s.</font> All these were Guru Tattwa, Socrates. All these were Guru Tattwa people: the people who came as Prophets. The ones who came on this Earth to teach us balance, to teach us the Code of Life.<br>
 That was also important part. But that was forgot[ten]!<br> 
 'Why? Why the code? Why the religion?' Religion is for the ascent, to build you up."<br>
 <font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
@@ -450,7 +450,7 @@ That was also important part. But that was forgot[ten]!<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
 
