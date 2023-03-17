@@ -420,8 +420,8 @@ The Primordial Master was also born as Macchindranāth, and again as Zoroaster w
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"In this Void is placed the Primordial Master (Ādi Guru) formed from Brahmā, Viṣhṇu and Maheśha (Śhiva). This Primordial Master is also known as Dattātreya. He has taken many human births as a Prophet and teacher, such as Rāja Janaka, Ādināth, Macchindranāth, Zoroaster, Guru Nāṇaka, and Sāī Nāth of Śhirḍī.</font> This Deity helps human beings to seek their salvation by crossing the Void or Ocean of Illusion within themselves."</font><br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 9: The Creation of Kuṇḍalinī in Human Beings</b></font>
+<font color="red">"In this Void is placed the Primordial Master (Ādi Guru) formed from Brahmā, Viṣhṇu and Maheśha (Śhiva). This Primordial Master is also known as Dattātreya. He has taken many human births as a Prophet and teacher, such as Rāja Janaka, Ādināth, Macchindranāth, Zoroaster, Guru Nāṇaka, and Sāī Nāth of Śhirḍī.</font> This Deity helps human beings to seek their salvation by crossing the Void or Ocean of Illusion within themselves."</font><br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 9: The Creation of Kuṇḍalinī in Human Beings, Pages 124 and 125</b></font>
 </p>
 
 <div class="para-divider"></div>
