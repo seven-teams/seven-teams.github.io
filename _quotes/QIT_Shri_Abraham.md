@@ -316,6 +316,15 @@ And the word Kuṇḍalinī also is ... has a meaning that it is a coiled-up ene
 <div class="para-divider"></div>
 
 <p>
+"Here [turning and pointing towards the Chakra Chart:] the Guru Tattwa is expressed in the Void, there, where the Ten Gurus actually incarnated basically and they re-incarnated. Say we can start uh-uh from Ādināth. Then we can come to ... other ones, uh-uh-uh ... like Nāṇaka, Janaka. Janaka was-ss much earlier. <font color="DarkRed">Then we can say Abraham, Moses-s-s.</font> All these were Guru Tattwa, Socrates. All these were Guru Tattwa people: the people who came as Prophets. The ones who came on this Earth to teach us balance, to teach us the Code of Life.<br>
+That was also important part. But that was forgot[ten]!<br> 
+'Why? Why the code? Why the religion?' Religion is for the ascent, to build you up."<br>
+<font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"As we had very great people ... uh ... on this Earth, I have given you the names, as we said there are, there have been Ten Gurus, uh ... starting from Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had Confucius, we had Socrates, and later on we had Abraham, Moses and also up to Śhirḍī Sāī Nāth, we had about Ten Great Gurus, now we have so many here sitting down. They are all gurus, and they have to behave like gurus and they have to the ... do the job of great gurus."</font><br>
 <font size="+0"><b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font>
 </p>

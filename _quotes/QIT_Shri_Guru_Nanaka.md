@@ -1016,6 +1016,22 @@ This is the only problem we have. That: we have all the ideals, we have all the 
 <div class="para-divider"></div>
 
 <p>
+"Here [turning and pointing towards the Chakra Chart:] the Guru Tattwa is expressed in the Void, there, where the Ten Gurus actually incarnated basically and they re-incarnated. Say we can start uh-uh from Ādināth. <font color="DarkRed">Then we can come to ... other ones, uh-uh-uh ... like Nāṇaka, Janaka.</font> Janaka was-ss much earlier. Then we can say Abraham, Moses-s-s. All these were Guru Tattwa, Socrates. All these were Guru Tattwa people: the people who came as Prophets. The ones who came on this Earth to teach us balance, to teach us the Code of Life.<br>
+That was also important part. But that was forgot[ten]!<br> 
+'Why? Why the code? Why the religion?' Religion is for the ascent, to build you up."<br>
+<font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "It is very essential for us that we keep a clear head because this could be a [<font color="orange">unclear</font> novel] thing for you.<br>
 If someone had talked about Kuṇḍalinī two hundred years ago, it would not be a new thing.<br>
 In twelfth century A.D., Gyāneśhwara talked about it. Mārkaṇḍeya talked about it, thousands of years ago. <font color="red">Kabīrdas talked about it, the Bible also talks about it, and Nāṇak Sāhab also talked about it.</font><br>
