@@ -14,6 +14,7 @@ tags:
 <font color="red"><b>Śhrī Mātājī's words on Saundaryalaharī</b></font><br>
 <br>
 <font color="DarkGreen"><b>Translation by Pandit S. Subrahmanya Sastri and T. R. Srinivasa Ayyangar, published by The Theosophical Publishing House, Madras India, sixth printing 1985</b></font><br>
+<br>
 <font color="purple"><b>Transliteration</b> <a href="https://vignanam.org/english/soundarya-lahari.html">link</a> </font><br>
 </p>
 
