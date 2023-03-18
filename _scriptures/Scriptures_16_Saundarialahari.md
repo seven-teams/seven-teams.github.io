@@ -50,6 +50,8 @@ Everybody people are talking of vibrations but they do not know what they're tal
 <br>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>1 Transliteration</b><br>
 <font color="purple">bhumauskhalita pādānāṃ bhūmirēvā valambanam ।<br>
@@ -66,6 +68,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>2 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -75,6 +79,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>3 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>3 Translation</b><br>
@@ -86,6 +92,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>4 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -95,6 +103,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>5 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>5 Translation</b><br>
@@ -106,6 +116,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>6 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -115,6 +127,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>7 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>7 Translation</b><br>
@@ -126,6 +140,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>8 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -135,6 +151,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>9 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>9 Translation</b><br>
@@ -146,6 +164,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>10 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -155,6 +175,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>11 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>11 Translation</b><br>
@@ -166,6 +188,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>12 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -175,6 +199,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>13 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>13 Translation</b><br>
@@ -186,6 +212,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>14 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -195,6 +223,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>15 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>15 Translation</b><br>
@@ -206,6 +236,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>16 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -215,6 +247,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>17 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>17 Translation</b><br>
@@ -226,6 +260,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>18 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -235,6 +271,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>19 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>19 Translation</b><br>
@@ -246,6 +284,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>20 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -255,6 +295,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>21 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>21 Translation</b><br>
@@ -266,6 +308,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>22 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -275,6 +319,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>23 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>23 Translation</b><br>
@@ -286,6 +332,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>24 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -295,6 +343,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>25 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>25 Translation</b><br>
@@ -306,6 +356,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>26 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -315,6 +367,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>27 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>27 Translation</b><br>
@@ -326,6 +380,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>28 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -335,6 +391,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>29 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>29 Translation</b><br>
@@ -346,6 +404,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>30 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -355,6 +415,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>31 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>31 Translation</b><br>
@@ -366,6 +428,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>32 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -375,6 +439,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>33 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>33 Translation</b><br>
@@ -386,6 +452,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>34 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -395,6 +463,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>35 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>35 Translation</b><br>
@@ -406,6 +476,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>36 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -415,6 +487,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>37 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>37 Translation</b><br>
@@ -426,6 +500,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>38 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -435,6 +511,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>39 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>39 Translation</b><br>
@@ -446,6 +524,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>40 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -455,6 +535,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>41 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>1 Translation</b><br>
@@ -466,6 +548,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>42 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -475,6 +559,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>43 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>43 Translation</b><br>
@@ -486,6 +572,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>4 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -495,6 +583,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>45 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>45 Translation</b><br>
@@ -506,6 +596,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>46 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -515,6 +607,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>47 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>47 Translation</b><br>
@@ -526,6 +620,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>48 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -535,6 +631,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>49 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>49 Translation</b><br>
@@ -546,6 +644,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>50 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -555,6 +655,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>51 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>51 Translation</b><br>
@@ -566,6 +668,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>52 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -575,6 +679,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>53 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>53 Translation</b><br>
@@ -586,6 +692,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>54 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -595,6 +703,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>55 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>55 Translation</b><br>
@@ -606,6 +716,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>56 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -615,6 +727,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>57 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>57 Translation</b><br>
@@ -626,6 +740,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>58 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -635,6 +751,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>59 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>59 Translation</b><br>
@@ -646,6 +764,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>60 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -655,6 +775,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>61 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>61 Translation</b><br>
@@ -666,6 +788,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>62 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -675,6 +799,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>63 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>63 Translation</b><br>
@@ -686,6 +812,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>64 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -695,6 +823,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>65 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>65 Translation</b><br>
@@ -706,6 +836,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>66 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -715,6 +847,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>67 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>67 Translation</b><br>
@@ -726,6 +860,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>68 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -735,6 +871,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>69 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>69 Translation</b><br>
@@ -746,6 +884,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>70 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -755,6 +895,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>71 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>71 Translation</b><br>
@@ -766,6 +908,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>72 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -775,6 +919,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>73 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>73 Translation</b><br>
@@ -786,6 +932,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>74 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -795,6 +943,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>75 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>75 Translation</b><br>
@@ -806,6 +956,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>76 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -815,6 +967,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>77 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>77 Translation</b><br>
@@ -826,6 +980,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>78 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -835,6 +991,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>79 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>79 Translation</b><br>
@@ -846,6 +1004,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>80 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -855,6 +1015,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>81 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>81 Translation</b><br>
@@ -866,6 +1028,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>82 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -875,6 +1039,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>83 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>83 Translation</b><br>
@@ -886,6 +1052,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>84 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -895,6 +1063,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>85 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>85 Translation</b><br>
@@ -906,6 +1076,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>86 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -915,6 +1087,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>87 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>87 Translation</b><br>
@@ -926,6 +1100,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>88 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -935,6 +1111,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>89 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>89 Translation</b><br>
@@ -946,6 +1124,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>90 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -955,6 +1135,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>91 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>91 Translation</b><br>
@@ -966,6 +1148,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>92 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -975,6 +1159,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>93 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>93 Translation</b><br>
@@ -986,6 +1172,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>94 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -995,6 +1183,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>95 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>95 Translation</b><br>
@@ -1006,6 +1196,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>96 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -1015,6 +1207,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>97 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>97 Translation</b><br>
@@ -1026,6 +1220,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>98 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -1035,6 +1231,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>99 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>99 Translation</b><br>
@@ -1046,6 +1244,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>100 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -1055,6 +1255,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>101 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>101 Translation</b><br>
@@ -1066,6 +1268,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <font color="purple"></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>102 Translation</b><br>
 <font color="DarkGreen"></font><br>
@@ -1075,6 +1279,8 @@ tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
 <b>103 Transliteration</b><br>
 <font color="purple"></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>103 Translation</b><br>
