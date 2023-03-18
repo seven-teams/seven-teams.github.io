@@ -1,5 +1,5 @@
 ---
-title: 'Post 15: Ātmabodha'
+title: 'Post 15: ĀTMABODHA'
 date: 2023-03-11
 permalink: /scriptures/2023/0311
 tags:

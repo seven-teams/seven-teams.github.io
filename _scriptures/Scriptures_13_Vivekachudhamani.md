@@ -19,7 +19,7 @@ tags:
 <br>
 <font color="Peru"><b>Translation of Vivekachūḍāmaṇi of Śhrī Ādi Śhaṅkarāchārya by Pranipata Chaitanya, available as a pdf at </b> <a href="https://realization.org/down/sankara.vivekachudamani.chaitanya.pdf">pdf</a> </font><br>
 <br>
-<font color="purple"><b>Transliterations</b> <a href="https://www.wisdomlib.org/hinduism/book/vivekachudamani">link</a> </font><br>
+<font color="purple"><b>Transliteration</b> <a href="https://www.wisdomlib.org/hinduism/book/vivekachudamani">link</a> </font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -29,7 +29,7 @@ tags:
 <font color="red">Śhrī Ādi Śhaṅkarāchārya lived in sixth century A.D. He wrote many texts: Saundaryalaharī, Upadeśhasāhasri, Vivekachūḍāmaṇi, Ātmabodh, etc. In most of these texts, there are various references to Kuṇḍalinī awakening, as some of the following stanzas [10 and 9 from Saundaryalaharī] will illustrate:<br>
 [Having in-filled in the pathway of the nāḍīs with the streaming shower of Nectar flowing from Thy pair of Feet (Lotus Feet), having resumed Thine own position from out of resplendent lunar regions, and Thyself assuming the form of a serpent of three and a half coils, sleepest Thou in the hollow of the Kulakuṇḍa.] [Kulakuṇḍa=the hollow of the Mūlādhāra -- sacrum bone.]<br>
 [Thou art diverting (residing) in secrecy with Thy Lord (the Spirit) in the thousand-petalled Lotus, having pierced through the Earth situated in Mūlādhāra, the Water in the Maṇipūra, the Fire abiding in the Swādhiṣhṭhāna, the Air in the Heart (Anāhata), the Ether above (the Viśhuddhi) and Manas between the eyebrows (Āgñyā) and thus broken the entire Kula path.]<br>
-Śhrī Ādi Śhaṅkarāchārya propounded that it is the Kuṇḍalinī who has to be awakened and unless and until you get your Realization you are nowhere near religion. Śhrī Ādi Śhaṅkarāchārya also had given a very befitting answer to the so-called proponents of Haṭha Yoga, Gyān Yoga, Karma Yoga or Rāj Yoga. "Neither by Yoga, nor philosophy, nor by work, nor by learning but by the Realization of one's identity with the Brahman is liberation possible and by no other means. </font><br>
+Śhrī Ādi Śhaṅkarāchārya propounded that it is the Kuṇḍalinī who has to be awakened and unless and until you get your Realization you are nowhere near religion. Śhrī Ādi Śhaṅkarāchārya also had given a very befitting answer to the so-called proponents of Haṭha Yoga, Gyān Yoga, Karma Yoga or Rāj Yoga. "Neither by Yoga, nor philosophy, nor by work, nor by learning but by the Realization of one's identity with the Brahman is liberation possible and by no other means.</font><br>
 <b>1900-0000 Two Quotes from the book Divine Knowledge through Vibrations (1992) by P.T. Rajasekharan and R. Venkatesan, Pages 75 and 76</b><br>
 <br>
 <font color="red">What you have to get? Is Collective Consciousness, which is called in the Sanskrit language Sāmūhik Chetanā.<br>

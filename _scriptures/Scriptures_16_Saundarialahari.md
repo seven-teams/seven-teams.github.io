@@ -1,0 +1,1087 @@
+---
+title: 'Post 16: SAUNDARYALAHARĪ'
+date: 2023-03-18
+permalink: /scriptures/2023/0318
+tags:
+  - crimson @ Shri Adi Shankaracharya
+  - green @ Disciple Principle
+  - orange @ Saundaryalahari
+  - peru @ Advaita
+---
+
+<p>
+<br>
+<font color="red"><b>Śhrī Mātājī's words on Saundaryalaharī</b></font><br>
+<br>
+<font color="DarkGreen"><b>Translation by Pandit S. Subrahmanya Sastri and T. R. Srinivasa Ayyangar, published by The Theosophical Publishing House, Madras India, sixth printing 1985</b></font><br>
+<font color="purple"><b>Transliteration</b> <a href="https://vignanam.org/english/soundarya-lahari.html">link</a> </font><br>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<b>Quotes</b><br>
+<font color="red">References to Kuṇḍalinī awakening abound in many of the Indian Scriptures. Some of these are Vāsiṣhṭha Yoga, Ṛigveda, Puruṣha Sūkta, Upaniṣhads of Atharvaveda, Yogopanishad, Yogaśhikhā Upaniṣhad, Kaṭhopaniṣhad and Yoga Kuṇḍalinī Upaniṣhad. In the Purāṇas are Devī Bhāgavat[am] Purāṇa, Mārkaṇḍeya Purāṇa, Śhrī Bhāgavat[a] Purāṇa, etc. In Sanhitas: Haṭh[a] Yoga Sanhita, Laya Yoga Sanhita, Rāj Yoga Sanhita, Śhiv Sanhita. In the Yoga tests: Haṭha Yoga Pradīpikā, Saundaryalaharī, Śhubhodayam, Lalitā Sahasrānam, and by Saints such as Bhakt Kabīr, Nāṇak, Gyāneśhwar, etc.</font><br>
+<b>1900-0000 Quote from the book Divine Knowledge through Vibrations (1992) by P.T. Rajasekharan and R. Venkatesan, Pages 73 and 74</b><br>
+<br>
+<font color="red">Śhrī Ādi Śhaṅkarāchārya lived in sixth century A.D. He wrote many texts: Saundaryalaharī, Upadeśhasāhasri, Vivekachūḍāmaṇi, Ātmabodh, etc. In most of these texts, there are various references to Kuṇḍalinī awakening, as some of the following stanzas [10 and 9 from Saundaryalaharī] will illustrate:<br>
+[Having in-filled in the pathway of the nāḍīs with the streaming shower of Nectar flowing from Thy pair of Feet (Lotus Feet), having resumed Thine own position from out of resplendent lunar regions, and Thyself assuming the form of a serpent of three and a half coils, sleepest Thou in the hollow of the Kulakuṇḍa.] [Kulakuṇḍa=the hollow of the Mūlādhāra -- sacrum bone.]<br>
+[Thou art diverting (residing) in secrecy with Thy Lord (the Spirit) in the thousand-petalled Lotus, having pierced through the Earth situated in Mūlādhāra, the Water in the Maṇipūra, the Fire abiding in the Swādhiṣhṭhāna, the Air in the Heart (Anāhata), the Ether above (the Viśhuddhi) and Manas between the eyebrows (Āgñyā) and thus broken the entire Kula path.]<br>
+Śhrī Ādi Śhaṅkarāchārya propounded that it is the Kuṇḍalinī who has to be awakened and unless and until you get your Realization you are nowhere near religion. Śhrī Ādi Śhaṅkarāchārya also had given a very befitting answer to the so-called proponents of Haṭha Yoga, Gyān Yoga, Karma Yoga or Rāj Yoga. "Neither by Yoga, nor philosophy, nor by work, nor by learning but by the Realization of one's identity with the Brahman is liberation possible and by no other means.</font><br>
+<font size="+0"><b>1900-0000 Two Quotes from the book Divine Knowledge through Vibrations (1992) by P.T. Rajasekharan and R. Venkatesan, Pages 75 and 76</b></font><br>
+<br>
+<font color="red">[Śhrī Mātājī looks similar in every Incarnation. This is why the description of Her in the Saundaryalaharī is so accurate.]</font><br>
+<b>1908-0000 Advices from the book Eternally Inspired Recollections of our Divine Mother, Volume 1, Pages 295--297</b><br>
+<br>
+<font color="red">When this thing enters through this into that subtle form you start feeling from your hands a Cool Breeze flowing. This is described in our Scriptures. If you read even Christ has said, ``Something passed out of My body when somebody touched Me." [Luke 8.46.] But in our Scriptures it's given very, very clearly. Here, in some of them, for example I would say Śhaṅkara -- Śhaṅkarāchārya described that as Saundaryalaharī. He called it as Saundaryalaharī this force somewhere. He called as vibrations. So many people are talking of vibrations but they don't know what they're talking.</font><br>
+<b>1977-1121 Public Program, Tantrism, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b><br>
+<br>
+<font color="red">When this thing enters through this into that subtle form, you start feeling from your hands a Cool Breeze flowing. This is described in our Scriptures.<br>
+If you read, even Christ has said [Luke 8.46]: "Something passed out of My body when somebody touched Me."<br>
+But in our Scriptures is given very-very clearly. In some of them, for example I would say Śhaṅkara: Śhaṅkarāchārya has described that as Saundaryalaharī. He calls it as Saundaryalaharī, the force somewhere else. He called them vibrations.<br>
+Everybody people are talking of vibrations but they do not know what they're talking!</font><br>
+<b>1979-0227 Public Program (Marathi), Dhule, Maharashtra, India</b><br>
+<br>
+<font color="red">The fourth thing that you get is that you have Cool Vibrations coming out of your hands. It is called Saundaryalaharī by Ādi Śhaṅkarāchārya. In the Bible, it has been described as a Cool Breeze. When you get it, if you get, you feel something cool, the breeze coming out from your hands in form of Cosmic Breeze.</font><br>
+<b>1979-0322 Public Program (Hindi), Sahaja Yoga and the Subtle System, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India (other date 0321)</b><br>
+<br>
+<font color="red">We had a Saint called Mārkaṇḍeya, who they say lived fourteen thousand years ago. He has written about this fourth dimension and has described it as the blessing of the Primordial Mother.</font> The second person who was very well equipped with this knowledge, was Ādi Śhaṅkarāchārya who has written many books. The first book he wrote was Vivekachūḍāmaṇi, in which he describes this fourth dimension and explains why we should try to attain this fourth dimension. An intellectual, one Mister Sharma, challenged him and told him that he could not do anything as an ascetic and win over my intellect. Thus he felt that for the common people all this discussion might just seem to be mental acrobatics. So he decided to write books just praising the Primordial Mother, especially in Saundaryalaharī, where he described all the Divine Vibrations as the vibrations of the loving beauty of the Primordial Mother. At that time all this was written in the Sanskrit language but the common people did not understand this language, except for a very few learned people, who also did not want to go into the details of this exposition.</font><br>
+<b>1995-0929 Meta Modern Era, Chapter 9: Evolution</b><br>
+<br>
+</p>
+
+<p>
+<b>1 Transliteration</b><br>
+<font color="purple">bhumauskhalita pādānāṃ bhūmirēvā valambanam ।<br>
+tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
+</p>
+
+<p>
+<b>1 Translation</b><br>
+<font color="DarkGreen">Only if conjoint with the Śhakti (Thyself), would Śhiva earn the privilege to become Overlord; otherwise the God is not able even to stir.</font><br>
+</p>
+
+<p>
+<b>2 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>2 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>3 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>3 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>4 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>4 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>5 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>5 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>6 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>6 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>7 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>7 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>8 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>8 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>9 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>9 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>10 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>10 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>11 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>11 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>12 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>12 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>13 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>13 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>14 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>14 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>15 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>15 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>16 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>16 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>17 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>17 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>18 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>18 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>19 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>19 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>20 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>20 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>21 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>21 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>22 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>22 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>23 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>23 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>24 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>24 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>25 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>25 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>6 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>26 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>27 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>27 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>28 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>28 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>29 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>29 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>30 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>30 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>31 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>31 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>32 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>32 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>33 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>33 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>34 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>34 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>35 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>35 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>36 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>36 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>37 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>37 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>38 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>38 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>39 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>39 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>40 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>40 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>41 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>1 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>42 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>42 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>43 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>43 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>44 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>4 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>45 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>45 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>46 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>46 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>47 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>47 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>48 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>48 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>49 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>49 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>50 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>50 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>51 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>51 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>52 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>52 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>53 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>53 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>54 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>54 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>55 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>55 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>56 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>56 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>57 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>57 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>58 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>58 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>59 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>59 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>60 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>60 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>61 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>61 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>62 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>62 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>63 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>63 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>64 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>64 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>65 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>65 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>66 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>66 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>67 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>67 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>68 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>68 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>69 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>69 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>70 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>70 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>71 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>71 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>72 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>72 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>73 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>73 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>74 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>74 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>75 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>75 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>76 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>76 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>77 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>77 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>78 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>78 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>79 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>79 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>80 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>80 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>81 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>81 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>82 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>82 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>83 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>83 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>84 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>84 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>85 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>85 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>86 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>86 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>87 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>87 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>88 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>88 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>89 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>89 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>90 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>90 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>91 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>91 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>92 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>92 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>93 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>93 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>94 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>94 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>95 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>95 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>96 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>96 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>97 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>97 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>98 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>98 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>99 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>99 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>100 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>100 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>101 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>101 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>102 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>102 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<p>
+<b>103 Transliteration</b><br>
+<font color="purple"></font>
+</p>
+
+<p>
+<b>103 Translation</b><br>
+<font color="DarkGreen"></font><br>
+</p>
+
+<div class="para-divider"></div>
+
+<p><b>Jay Śhrī Mātājī!</b>
+</p>
