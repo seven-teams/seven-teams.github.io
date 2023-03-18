@@ -56,7 +56,7 @@ Everybody people are talking of vibrations but they do not know what they're tal
 <p>
 <b>1 Transliteration</b><br>
 <font color="purple">bhumauskhalita pādānāṃ bhūmirēvā valambanam ।<br>
-tvayī jātā parādhānāṃ tvamēva śaraṇaṃ śivē ॥</font>
+tvayī jātā parādhānāṃ tvamēva śharaṇaṃ śhivē ॥</font>
 </p>
 
 <p>
