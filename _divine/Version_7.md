@@ -44,7 +44,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 </p>
 
 <p>
-<font color="DarkGreen">IV. Older and current database versions (the older versions ought to be used only for getting ideas how to correct the new versions or for comparisons)</font><br>
+<font color="DarkGreen">IV. Older and current database versions (the older versions ought to be used only for getting ideas how to correct the current versions or for comparisons)</font><br>
 <font color="blue">Divine Message</font><br>
 00. <a href="https://bit.ly/3ooisDZ">current, Version 7 (2022-0723)</a> <br>
 01. <a href="https://bit.ly/3Ny3vtB">Version 6.1 (2022-0424)</a> <br>
