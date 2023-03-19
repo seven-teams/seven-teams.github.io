@@ -12,6 +12,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We would like to share with you all the up-dated <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been studying-researching since Divine Message, Version 7.2 was posted on December 9, 2022. The pdf file <font color="blue">Divine Message, Version 8</font> can be viewed and then downloaded at the link
 <a href="https://bit.ly/Divine_Message_V8">Version 8</a><br>
+<br>
 Please kindly share the link with all our brothers and sisters. 
 <br>
 If you are part of some project which has a public platform (such as a web-site) and some Sahaja Yogis or Sahaja Yoginīs involved in that project would like to use parts of the Divine Message (any version), please kindly consider finding a way to refer on that public platform to<br>
