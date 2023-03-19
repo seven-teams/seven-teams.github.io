@@ -47,7 +47,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 <font color="DarkGreen">IV. Older and current database versions (the older versions ought to be used only for getting ideas how to correct the new versions or for comparisons)</font><br>
 <font color="blue">Divine Message</font><br>
 00. <a href="https://bit.ly/3ooisDZ">current, Version 7 (2022-0723)</a> <br>
-01. <a href="https://bit.ly/3Ny3vtB">current, Version 6.1 (2022-0424)</a> <br>
+01. <a href="https://bit.ly/3Ny3vtB">Version 6.1 (2022-0424)</a> <br>
 02. <a href="https://drive.google.com/file/d/1ICDGHOovfbfWiTUDeRnWpAc90vFoYA-1/view?usp=sharing">older, Version 6 (2022-0211)</a> <br>
 03. <a href="https://drive.google.com/file/d/1-pKA800IxqnzkEfsm6GpQ-fO9bn3otwy/view">older, Version 5.2 (2021-1213)</a> <br>
 04. <a href="https://drive.google.com/file/d/1YNxqTV-nrpJqJAZsoNRLuTufVrRhe6iL/view?usp=sharing">older, Version 5.1 (2021-1014)</a> <br>
@@ -92,7 +92,7 @@ Your kind support for the other teams (Quotes on Incarnations Team, Scriptures T
 1. Intensive work on about 1,097 events with transcripts started.<br>
 2. Gradual work on the other 3,489 events with transcripts started.<br>
 3. Queued work on additional 7,781 events among which many hundreds will become events with transcripts.<br>
-In the last 6 years, the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew by about 3.5 pages a day (as an average). In particular, for the period 2020-0718 to 2022-0802 the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew by exactly 3.5 pages a day (as an average). aWould be very desirable that this growth will continue for the period 2022-0803 to 2027-0718. Gradually, the file will grow to a number of pages between <font color="mediumvioletred">26,000 (an increment of 1,000 from Version 3) and 108,000.</font>
+In the last 6 years, the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew by about 3.5 pages a day (as an average). In particular, for the period 2020-0718 to 2022-0802 the <font color="mediumvioletred">Database of Transcripts/Quotes</font> grew by exactly 3.5 pages a day (as an average). Would be very desirable that this growth will continue for the period 2022-0803 to 2027-0718. Gradually, the file will grow to a number of pages between <font color="mediumvioletred">26,000 (an increment of 1,000 from Version 3) and 108,000.</font>
 </p>
 
 Jay Śhrī Mātājī!
