@@ -89,7 +89,7 @@ Your kind support for the other teams (Quotes on Incarnations Team, Scriptures T
 <font color="DarkGreen">VI. Current study-research flow.</font><br>
 1. Intensive on about 1,391 events with transcripts started.<br>
 2. Gradual on the other 3,326 events with transcripts started.<br>
-3. Queued on additional 7,834 events among which many hundreds will become events with transcripts.</font>
+3. Queued on additional 7,834 events among which many hundreds will become events with transcripts.
 </p>
 
 Jay Śhrī Mātājī!
