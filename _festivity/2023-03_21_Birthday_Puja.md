@@ -21,19 +21,19 @@ But now it is you people who have to prove it, that I am that."</b></font><br>
 <font color="DarkRed"><b>O Param-pūjya Śhrī Mātājī Nirmalā Devī,<br>
 Out of the Highest Realm of Divinity, You have come on this Earth only because of Your infinite love, compassion and benevolence.<br>
 Your powers, which created all the universes, are insurmountable. Your completeness is such that everything that exists, that has existed and shall ever exist is contained within Your Indescribable Being.<br>
-Despite that, O Supreme Mother, out of Your immeasurable love, You assumed a form similar to ours, to give us guidance, protection, and salvation. </b></font><br>
+Despite that, O Supreme Mother, out of Your immeasurable love, You assumed a form similar to ours, to give us guidance, protection, and salvation.</b></font><br>
 <br>
 <font color="DarkGreen"><b>MAVENA NAYANI ANAND <br>
 MAVENA NAYANI ANAND, HRUDAYAT SATCHITANAND</b><br>
 I am unable to contain the Joy in my eyes when in my heart resides the Joy of the Spirit<br>
-<b>ANAND KITI HA MOTHA, SAUKHYAS KHADHI NA TOTA =</b><br>
+<b>ANAND KITI HA MOTHA, SAUKHYAS KHADHI NA TOTA</b><br>
 How great this joy is, which brings limitless bliss<br>
 <b>KANA— KANAT NIRMALANAND HRUDAYAT SATCHITANAND</b><br>
 For every particle is manifesting Sheer Joy, when in my heart resides the Joy of the Spirit<br>
 <b>SAGUNAT MAULI AALI, NIRGUNAT JANEEV DIDHALI</b><br>
 Mother incarnated to raise our awareness to feel the formless,<br>
 <b>NIJARUPI RANGALE DHYAN, JADATET MATE CHAITANYA</b><br>
-As we meditate upon Her, we discovered the chaitanya in this mundane world<br>
+As we meditate upon Her, we discovered the chaitanya in this mundane world</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
