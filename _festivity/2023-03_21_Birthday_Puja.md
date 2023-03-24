@@ -54,7 +54,7 @@ The whole universe is dearer than our lives<br>
 You are my Mother and brother, You are the Mother of the universe<br>
 <b>SAKAL JAGAT MEIN YAH TERA PASARA</b><br>
 The whole universe is but your form</font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <br>
 <font color="DarkRed"><b>Thank You for introducing us to a relationship with the Divine.<br>
 Thank You for finding us worthy.<br>
@@ -210,6 +210,8 @@ In our hearts all the time.<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 Australians presented this bhajan on the occasion of the 70th Birthday of Śhrī Mātājī.<br>
 (*these lines are to be sung on Śhrī Mātājī's Birthday)<br>
+<br>
+<br>
 <font color="DarkRed"><b>Happy Birthday, Śhrī Mātājī!</b></font><br>
 </p>
 
