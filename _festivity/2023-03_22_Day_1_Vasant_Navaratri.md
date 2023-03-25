@@ -40,7 +40,7 @@ All those who follow Kuṇḍalinī put up a guḍhī in their houses and also p
 <div style="text-align: center"><img src="/images/image1139.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen">"<b>Chaitra is the month.</b> And this is the time when – [Marathi] – <b>Gaurī is the Chaitra</b>. 
+<font color="DarkGreen">"<b>Chaitra is the month.</b> And this is the time when – [Marathi] – <b>Gaurī is the Chaitra</b>.<br> 
 So the establishment of the Gaurī is taken place during these nine days.<br>
 But Gaṇeśha has to be established before anything else.<br>
 Though first Gaurī had to come, you can see that. Gaurī had to come first to establish Gaṇeśha."</font><br>
@@ -58,14 +58,15 @@ The importance of this day is that this is the beginning, creating Śhrī Gaṇe
 <div style="text-align: center"><img src="/images/image1140.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen">"<b>So this New Year’s Day is the first day of advent of Goddess</b> – the nine days there are.<br> 
-..So today is the day to mark absolutely the first day when She incarnated on this Earth.<br>
+<font color="DarkGreen">"<b>So this New Year’s Day is the first day of advent of Goddess</b> – the nine days there are.<br>
+......<br>  
+So today is the day to mark absolutely the first day when She incarnated on this Earth.<br>
 That’s the day also of the Gaurī, because Virgin is the first form of the Goddess."</font><br>
 <font size="+0"><b>1981-0404 Śhrī Gaṇeśha Gaurī Pūjā, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
 </p>
 
 <p>
-<font color="DarkRed">"<b>We have known about the importance of this day.</b> Today we have to be determined that we shall meditate and introspect daily. We shall introspect about ourselves, not about others and lead our lives very sweetly. We should express and behave in a very sweet manner so that we do not hurt others. If at all we have to lay emphasis on some thing that should also be done very lovingly. You have to think as to how to speak with others. It’s a routine for Me. Such and such person is coming, how shall I talk to him and make him understand? When we see this love all around, it fills our heart. Exchange this love with others and talk to them sweetly. Sahaja Yogis should not be angry with anyone. Meet people very affectionately. You should be pure within and this purity of heart should be visible. There should be no anger and hatred. Only then people will appreciate you. Now you are all self-realized and I am telling you, how your personality should become magnetic. I hope you follow this advice and look within with love, not with hatred. You will be able to see your powers and you will become a sāttvik [pure] person and Sahaja Yoga will spread all around. It’s My vision that the whole world is transformed and every human being becomes Sahaja Yogi.<br>
+<font color="DarkRed">"<b>We have known about the importance of this day. Today we have to be determined that we shall meditate and introspect daily.</b> We shall introspect about ourselves, not about others and lead our lives very sweetly. We should express and behave in a very sweet manner so that we do not hurt others. If at all we have to lay emphasis on some thing that should also be done very lovingly. You have to think as to how to speak with others. It’s a routine for Me. Such and such person is coming, how shall I talk to him and make him understand? When we see this love all around, it fills our heart. Exchange this love with others and talk to them sweetly. Sahaja Yogis should not be angry with anyone. Meet people very affectionately. You should be pure within and this purity of heart should be visible. There should be no anger and hatred. Only then people will appreciate you. Now you are all self-realized and I am telling you, how your personality should become magnetic. I hope you follow this advice and look within with love, not with hatred. You will be able to see your powers and you will become a sāttvik [pure] person and Sahaja Yoga will spread all around. It’s My vision that the whole world is transformed and every human being becomes Sahaja Yogi.<br>
 My blessing to you all."</font><br>
 <font size="+0"><b>2000-0405 Guḍhī Pāḍavā Pūjā (Hindi), Noida Bhavan, New Delhi, India</b></font>
 </p>
@@ -78,7 +79,7 @@ mama apyaetou Matah sirasi dayayā dhehi charanou,<br>
 yayoh pādyam pāthah Paśhupati jata joota tatinee<br>
 yayorlakshā Lakshmīr aruna Hari Chūdamani ruchih.</font><br>
 <br>
-<font size="+0"><b>O Jagan Mātā! Thy two Feet are adored as the crowns on the peaks (Upanishads) of the Vedas.<br>
+<font size="+0"><b>O Jagan Mātā! Thy two Feet are adored as the crowns on the Peaks (Upaniṣhads) of the Vedas.<br>
 The water that washes your feet is the celestial river Ganga in the matted hair locks of Lord Paśhupati.<br>
 The lustre of the lac dye used on your Feet imparts red colour to the ruby that glorifies the diadem of Śhrī Hari.<br>
 O Mother, please place them on my head too, taking mercy on me<br>
@@ -116,7 +117,7 @@ O Mother, please place them on my head too, taking mercy on me<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image142.png" /></div>
+<div style="text-align: center"><img src="/images/image1142.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"Today is the day, as you know, My forefathers called it the first day of the year.<br>
