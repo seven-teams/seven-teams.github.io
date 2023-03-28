@@ -18,7 +18,7 @@ tags:
 
 <p>
 "When I say Sahaj Yog, you know that is the Yoga of your attention with My Feet. That's what it is.<br>
-But if you are still moving with your egos, and if you are still thinking on those lines, that: `We are something and the we can start our own Sahaj Yog. We can work out this way and that way,' or `My wife is like that, my child is like that, my husband is like that.'<br>
+But if you are still moving with your egos, and if you are still thinking on those lines, that: 'We are something and the we can start our own Sahaj Yog. We can work out this way and that way,' or, 'My wife is like that, my child is like that, my husband is like that.'<br>
 You have to give up all these problems, on one side! Otherwise, you will not ascend.<br>
 ......<br>
 My attention is always on your Kuṇḍalinī.<br>
