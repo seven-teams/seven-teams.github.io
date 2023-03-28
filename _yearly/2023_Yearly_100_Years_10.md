@@ -28,7 +28,7 @@ But whatever you are doing, keep attention in your connection."<br>
 <font color="blue"><b>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font><br>
 </p>
 
-Links to suggested talk: <a href="https://vimeo.com/76751298"> video </a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1990-0923-navaratri-puja-talk"> audio </a>,<br>
+Links to suggested talk: <a href="https://vimeo.com/76751298"> video </a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1990-0923-navaratri-puja-talk"> audio </a><br>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
