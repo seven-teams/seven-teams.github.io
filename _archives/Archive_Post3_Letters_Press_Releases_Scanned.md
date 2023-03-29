@@ -34,6 +34,12 @@ The Comprehensive Compilations Team<br>
 
 <br>
 
+<font color="DarkGreen"><b>L3.</b></font> <b>1981-1222 Letter (Marathi) of Ramesh Modi to Raul Bāī (Mahipalsingh Jaisingh Raul Collection, scanned by Ankit Khare).</b> (1 page from jpg, uploaded on 2023-0329)
+
+<iframe src="/pdf/?usedownload=true#/files/1981-1222_Letter_(Marathi)_of_Ramesh_Modi_to_Raul_Bāī_(Mahipalsingh_Jaisingh_Raul_Collection,_scanned_by_Ankit_Khare).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
 <font color="DarkGreen"><b>PR1.</b></font> <b>1988-0126 Press Release, Interview with Foreign Correspondents (29 Republic Day), On the Controversy of Dr. Bhimrao Ramji Ambedkar and His Role in the Framing of the Indian Constitution, Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India (Yogi Mahajan Collection)</b> (2 pages, uploaded on 2023-0201)
 
 <iframe src="/pdf/?usedownload=true#/files/1988-0126_Press_Release,_Interview,_On_the_Controversy_of_Dr._Ambedkar,_Pratishthan,_Pune,_MH,_India,_(Yogi_Mahajan_Collection).pdf" width="1000px" height="1000px"></iframe>
