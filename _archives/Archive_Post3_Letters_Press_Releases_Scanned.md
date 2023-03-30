@@ -36,6 +36,8 @@ The Comprehensive Compilations Team<br>
 
 <font color="DarkGreen"><b>L3.</b></font> <b>1981-1222 Letter (Marathi) of Ramesh Modi to Raul Bāī (Mahipalsingh Jaisingh Raul Collection, scanned by Ankit Khare)</b> (1 page from jpg, uploaded on 2023-0329)
 
+<div style="text-align: center"><img src="/images/1981-1222_Letter_(Marathi)_of_Ramesh_Modi_to_Raul_Bai_(Mahipalsingh_Jaisingh_Raul_Collection,_scanned_by_Ankit_Khare).jpg" /></div>
+
 <iframe src="/pdf/?usedownload=true#/files/1981-1222_Letter_(Marathi)_of_Ramesh_Modi_to_Raul_Bai_(Mahipalsingh_Jaisingh_Raul_Collection,_scanned_by_Ankit_Khare).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
