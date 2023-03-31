@@ -54,7 +54,7 @@ both the manifest and the unmanifest are Your forms.<br>
 </p>
 
 <p>
-<font color="DarkRed">"<b>We are the worshipers of Śhakti.</b> Here we are Śhakti Dharmi [religiously devoted to Śhakti] and many kings have been worshiping Ādi Śhakti. Everyone has different Deities and the names of each Deity is different. <b>The name of the Deity of this place is also different, it is Gangaur.</b> But Ādi Śhakti was once born in Rajasthan state whose name was ‘Satī Devī’. It is Her Grace that we find our culture the dharma of wife, dharma of husband, dharma of ruling, etc. which are nourished by Her Śhakti.
+<font color="DarkRed">"<b>We are the worshipers of Śhakti.</b> Here we are Śhakti Dharmi [religiously devoted to Śhakti] and many kings have been worshiping Ādi Śhakti. Everyone has different Deities and the names of each Deity is different. <b>The name of the Deity of this place is also different, it is Gangaur.</b> But Ādi Śhakti was once born in Rajasthan state whose name was Satī Devī. It is Her Grace that we find our culture the dharma of wife, dharma of husband, dharma of ruling, etc. which are nourished by Her Śhakti.<br>
 You all know the story of Satī Devī, I don’t have to tell you in new way but she was Gangaur. She was married and while She was returning after marriage with Her husband some of the bad elements surrounded them and killed Her husband. She came out of the bride’s carriage, took the Rudra Form and destroyed all of them who attacked Her husband and then She finished Herself also. We should see in this that since childhood till marriage She did not disclose that She was Mahāmāyā in any condition."</font><br>
 <font size="+0"><b>Version 1: 1994-1211 Śhrī Ādi Śhakti Pūjā (Hindi), Mahāmāyā, Mahākālī, Śhāradā Devī, Mahālakṣhmī, Jaipur, Rajasthan, India</b></font>
 </p>
@@ -62,12 +62,12 @@ You all know the story of Satī Devī, I don’t have to tell you in new way but
 <div style="text-align: center"><img src="/images/image1145.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>The Mahārāṇī adorned Śhrī Mātājī in a traditional Rajasthani ghagra (skirt) of vibrant colors. The Rajput women worshipped Her with flowers and Āratī.</b></font><br>
+he Mahārāṇī adorned Śhrī Mātājī in a traditional Rajasthani ghagra (skirt) of vibrant colors. The Rajput women worshipped Her with flowers and Āratī.<br>
 <font size="+0"><b>From "The Tenth Incarnation", Volume 1 Chapter 40, Page 178, by Yogi Mahajan.</b></font>
 </p>
 
 <p>
-<font color="DarkRed">"<b>They have one festival called Gangaur: that is a thing where they uh uh worship Gaurī.</b> That's the biggest festival where the Queen ... Mahārāṇī has to worship the Gangaurī: is a statue, which goes round the whole of Jaipur state and everybody celebrates it. Is regarded as the biggest festival. So she, in the morning she came and touched My Feet. And she said, ``Mother, can I'p worship You?" I said, ``Why?" ``Because You are my Gangaur, really. That's just a statue." She made Me stand the same way, she did everything, she made Me eat betel. Uh I don't eat all that, but he, she said, ``You have to, You are Gangaur, so You have to eat it." [Smiles, laughter.] And she worshiped Me and all her whole rituals she did for about f... forty-five minutes, and the ... then she said, ``Now I'll go and worship that statue."</font><br>
+<font color="DarkGreen">"<b>They have one festival called Gangaur: that is a thing where they uh uh worship Gaurī.</b> That's the biggest festival where the Queen ... Mahārāṇī has to worship the Gangaurī: is a statue, which goes round the whole of Jaipur state and everybody celebrates it. Is regarded as the biggest festival. So she, in the morning she came and touched My Feet. And she said, ``Mother, can I'p worship You?" I said, ``Why?" ``Because You are my Gangaur, really. That's just a statue." She made Me stand the same way, she did everything, she made Me eat betel. Uh I don't eat all that, but he, she said, ``You have to, You are Gangaur, so You have to eat it." [Smiles, laughter.] And she worshiped Me and all her whole rituals she did for about f... forty-five minutes, and the ... then she said, ``Now I'll go and worship that statue."</font><br>
 <font size="+0"><b>1990-0421 Talk to Sahaja Yogis, Vertical Ascent, the day before Easter Pūjā, Before Dinner, The Burlington Hotel, Eastbourne, UK</b></font>
 </p>
 
