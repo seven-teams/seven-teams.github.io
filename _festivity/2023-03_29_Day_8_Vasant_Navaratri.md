@@ -11,7 +11,8 @@ tags:
 
 <p>
 <font color="DarkRed">"<b>It's an individual journey towards God when you meditate. And when you reach there, then you become collective.</b> Before that it's an absolute individual journey within, absolutely individual journey.<br>
-You should be able to see this that, in this journey, nobody is your relation, nobody is your brother, nobody is your friend. You're absolutely alone, absolutely alone. You have to move alone within yourself. Don't hate anyone, don't be responsible. But in meditative mood you are alone. No one exists there, you alone. And once you enter into that Ocean, then the whole world becomes your family, the whole world is your own manifestation, all the children become your children and you treat all people with equal understanding.<br>
+You should be able to see this that, in this journey, nobody is your relation, nobody is your brother, nobody is your friend. You're absolutely alone, absolutely alone. You have to move alone within yourself.<br>
+Don't hate anyone, don't be responsible. But in meditative mood you are alone. No one exists there, you alone. And once you enter into that Ocean, then the whole world becomes your family, the whole world is your own manifestation, all the children become your children and you treat all people with equal understanding.<br>
 The whole expansion takes place when you enter inside your Spirit and see through the eyes of the Spirit. There's such calm, such peace, such bliss exists within you.<br>
 You have to be ready for that journey. That journey is alone in your meditativeness. And the more you find something in your meditation the more you want to go and distribute it to others."</font><br>
 <font size="+0"><b>1983-0314 Śhrī Devī Pūjā, The Individual Journey towards Collectivity and Bliss, Sydney, New South Wales, Australia</b></font>
@@ -52,7 +53,7 @@ Now, this desire to be one with the Divine is the purest and the highest. And to
 <div style="text-align: center"><img src="/images/image1148.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Kul’angana Kul’anta-stha, Kaulinı Kula-yoginı,<br>
+<font color="DarkGreen"><b>Kul’angana Kul’anta-stha, Kaulinı Kula-yoginı,<br>
 Akula Samayanta-stha, Samayachara-tatpara.</b><br>
 O Chaste Lady, residing in the Sacrum bone, whose creation is the chakras, and who knows all the secret techniques of the path to Self-realisation;<br>
 You are beyond all categories and reside in the Sahasrara, and are to be found through inner worship You are devoted to those who worship You internally.</font><br>
@@ -97,7 +98,7 @@ Rise O Mother Kuṇḍalinī, rise<br>
 <p style=" text-align:center;">
 <b>Sahaja Yogi:</b> <font color="DarkRed"><b>Shrī Mātājī, we all the Sahaja Yogis here, we pray to You and we promise You that we will be one, just one flower so that when You can see us, 
 You will see only one flower, one color, one perfume, and one flower offered at Your Divine Lotus Feet. 
-And we pray Shrī Mātājī in our heart that Your Divine Lotus Feet will dwell forever in our being. Amen. 
+And we pray Shrī Mātājī in our heart that Your Divine Lotus Feet will dwell forever in our being. Amen.<br> 
 Jai Shrī Mātājī!</b></font><br>
 <font size="+0"><b>1985-0614 Small Pūjā, Farewell, Āśhram, Route de Courte Raye, Founex (19 kms N of Geneva), Switzerland</b></font><br>
 <br>
@@ -132,7 +133,7 @@ Ai Ude G’ambe Ude!<br>
 Mother we ask for Self Realization,<br>
 So you rise, O Mother Kuṇḍalinī, You rise<br>
 Ude, Ude, Ude, Ude, Ude, Ude, Wo!<br>
-Rise, rise, rise, rise, rise,rise, ho!</font>
+Rise, rise, rise, rise, rise,rise, ho!</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
