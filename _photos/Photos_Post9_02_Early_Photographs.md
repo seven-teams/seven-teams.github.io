@@ -12,8 +12,8 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 16 Photos from the <font color="Crimson"><b>1968-1222 Engagement</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 5 good or high resolutions from the Named Collections and 2 low resolutions received from facebook sources.<br>
-One direct link to all 7 Photos: <a href="https://eternalmoments.smugmug.com/Chronology/1973"> Chronology 1973</a>.<br>
+We are pleased to let you know that 16 Photos from the <font color="Crimson"><b>1968-1222 Engagement, Mumbai, Maharashtra, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 13 new high resolutions and 3 lower resolutions details from Named Collections.<br>
+One direct link to all 16 Photos: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1968/">1968 Collection</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>
