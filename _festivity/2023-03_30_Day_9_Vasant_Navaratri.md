@@ -19,7 +19,7 @@ But the modern kings are not like that, they have no relation with God. On the c
 <div style="text-align: center"><img src="/images/image1151.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"<b>Today I said that Śhrī Rāma was born at twelve o’clock</b> hence the Pūjā should be at time as such it is not long Pūjā but we have to understand 
+<font color="DarkGreen">"<b>Today I said that Śhrī Rāma was born at twelve o’clock</b> hence the Pūjā should be at time as such it is not long Pūjā but we have to understand 
 that the human form within us in form of humanity in which we understand and make changes in our mind, curiosity and thoughts.<br>
 Through the medium of Śhrī Rāma can bring change in our thoughts, he can bring change in our behavior because he is ideal for us, reaching this ideal we can reach other ideals since he is ideal of human being.<br>
 <b>This is big thing that the God Himself came on this Earth and become ideal.<br>
@@ -43,7 +43,7 @@ You all know his childhood life and you have already heard about his qualities, 
 </p>
 
 <p>
-<font color="DarkRed">"Śhrī Rāma was born at midnight so let’s have Pūjā late. Śhrī Rāma Pūjā is not a specially long one. As He is in a human form He is humanity within us by which we understand our intellect and our thoughts get changed. Śhrī Rāma is that through Him we can change our thoughts. Our nature can change because He is our ideal.<br>
+<font color="DarkGreen">"Śhrī Rāma was born at midnight so let’s have Pūjā late. Śhrī Rāma Pūjā is not a specially long one. As He is in a human form He is humanity within us by which we understand our intellect and our thoughts get changed. Śhrī Rāma is that through Him we can change our thoughts. Our nature can change because He is our ideal.<br>
 After achieving His ideals, we reach another because He was human ideal. <b>It is great that God came to this world in a human form to became our ideal. He has gone through all the hardships to show us strength to keep dharma. That is Viśhwa Dharma and the State of Yoga.</b>"</font><br>
 <font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi) (the day after Rāma Navamī Day), If You Believe in Śhrī Rāma Follow His Ideal (Our Nature Can Change because He Is Our Ideal and You All Become Ideals for this World), Kolkata, West Bengal, India</b></font>
 </p>
