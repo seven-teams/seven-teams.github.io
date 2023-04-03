@@ -27,7 +27,7 @@ Is the Christ within you has to arise, Christ within you has to guide, it is Chr
 <font color="blue"><b>1998-0419 Easter Pūjā, The Message of Resurrection and Be All the Time Prepared to Sacrifice Whatever Is Possible for the Emancipation of Humanity (What We Want Now: to Give Whatever We Have Achieved to Others), Istanbul, Turkey</b></font><br>
 </p>
 
-Link to suggested talk: <a href=""> </a><br>
+Links to suggested talk: <a href="https://vimeo.com/22432415"> video</a>, <a href="https://soundcloud.com/nirmala-vidya-portal/1998-04-19-easter-puja-m4a"> audio</a><br>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
