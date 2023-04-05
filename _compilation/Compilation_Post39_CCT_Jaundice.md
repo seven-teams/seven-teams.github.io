@@ -64,8 +64,8 @@ Moreover, one has to know how to give balance to oneself, ah-ah ... when the Sw�
 <div class="para-divider"></div>
 
 <p>
-<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Now, this kind of a hand, if you see, yellowish color, all right, ...</font>
-<b>Dr. Warren Reeves:</b> It's liver!
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Now, this kind of a hand, if you see, yellowish color, all right, ...</font><br>
+<b>Dr. Warren Reeves:</b> It's liver!<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">... itself, it means liver. This is a liver patient: definitely a liver patient, this one.<br>
 Now, for such a hand, what should you do: is to take uh-uh-uh the water that I've given you, and boil it with radish leaves. And take radish leaves and sugar with it. That water you have to take for some time.<br>
 Specially when you have this flood water. After that you should be careful, because people can get jaundice.</font><br>
@@ -76,7 +76,7 @@ Because that's one thing one has to be careful: when such a flood comes in, the 
 ......<br>
 <font color="red"><b>Śhrī Mātājī</b></font>  [Taping on the palm of the lady with jaundice:] <font color="red">Jaundice!<br>
 Do you get jaundice in this country?</font><br>
-<b>Dr. Warren Reeves:</b> Oh, yes!
+<b>Dr. Warren Reeves:</b> Oh, yes!<br>
 <b>Gentleman:</b> Yes.<br>
 <font color="red"><b>Śhrī Mātājī</b></font> <font color="red">Do you get jaundice in this country?</font><br>
 <b>Dr. Warren Reeves:</b> Very much.<br>
@@ -160,7 +160,7 @@ Anand, you see, had some allergies -- My grandson.<br>
 <b>Sahaja Yogi doctor:</b> Jī.<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> So I told him, "Anand, put some ice on her [it]." Finished!<br>
 <b>Sahaja Yogi doctor:</b> Mh-hm.<br>
-<font color="red"><b>Śhrī Mātājī:</b></font> He has no allergies left.
+<font color="red"><b>Śhrī Mātājī:</b></font> He has no allergies left.<br>
 <font size="+0"><b>2000-092x Conversation with Sahaja Yogis Doctors, Questions and Answers, Āśhram, Montpellier Road, Ealing, London, UK (other month 10)</b></font>
 </p>
 
