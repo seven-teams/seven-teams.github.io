@@ -96,7 +96,7 @@ For other databases of transcripts please see:
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
 For other websites of Photographs please see:
 
-    i. <a href="https://imageevent.com/sahaja"> Sahaja Image Events</a> (albums by Pavan Burd) (created in 2004)
+    i. <a href="https://imageevent.com/sahaja"> Sahaja Image Events</a> (albums by Pavan Burd and CCT) (created in 2004, managing by CCT since 2021)
 
     ii. <a href="https://www.divinecoolbreeze.org/PHOTOGRAPHS/"> The Divine Cool Breeze</a> (created around 2008)
 

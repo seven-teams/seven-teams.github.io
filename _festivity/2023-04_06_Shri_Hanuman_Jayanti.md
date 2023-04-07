@@ -9,11 +9,10 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"<b>Today we are celebrating Hanumāna’s Jayanti</b> [birthday].
-What to say about Hanumāna? The more powerful and wise, he was equally devoted and dedicated.
-Generally, such a powerful person becomes right-sided and considers himself so high that he would not listen to anyone else. But <b>Hanumāna is a special Deity, a typical Deity full of qualities. There was a perfect balance between his devotion and power.</b> How could he achieve this balance is a thing to be understood.<br>
+<font color="DarkRed">"What to say about Hanumāna? <b>The more powerful and wise, he was equally devoted and dedicated.</b> Generally, such a powerful person becomes right-sided and considers himself so high that he would not listen to anyone else. But <b>Hanumāna is a special Deity, a typical Deity full of qualities. There was a perfect balance between his devotion and power.</b> How could he achieve this balance is a thing to be understood.<br>
 In Sahaja Yoga, when we are enlightened, we get many powers. Then we have to keep balance. We love others and with the power of the love, we keep on doing our duties.<br>
-Śhrī Hanumāna was very powerful. He had many Divine Powers in Him Navadhā, that is Garima, Laghima, etc. He could be as big as he wanted to be and as small as an atom. He had achieved all these powers."</font><br>
+Śhrī Hanumāna was very powerful. He had many Divine Powers in Him Navadhā, that is Garima, Laghima, etc. He could be as big as he wanted to be and as small as an atom. He had achieved all these powers. Without attaining balance and coming to the central path. Such a powerful person generally goes crazy.<br>
+<b>Each cell of Śhrī Hanumāna’s body was filled with power and devotion.</b> Because of this specialty today we worship Śhrī Hanumāna all over the world."</font><br>
 <font size="+0"><b>1999-0331 Śhrī Hanumāna Pūjā (Hindi), Krishna Sundar Garden, Amit Gaikwad Mala, Erandwane, Mhatre Bridge, Pune, Maharashtra, India</b></font>
 </p>
 
@@ -33,14 +32,6 @@ Through Your bhakti (ocean of love) we may use Your fire.
 In this way, we may act without heating up our right side.</b></font><br>
 <font size="+0"><b> The 108 holy qualities of Shrī Hanumāna 
 (Nirmal Vidya: Sahaja Yoga Mantra Book)</b></font>
-</p>
-
-<p>
-<font color="DarkRed">"What to say about Hanumāna? <b>The more powerful and wise, he was equally devoted and dedicated.</b> Generally, such a powerful person becomes right-sided and considers himself so high that he would not listen to anyone else. But Hanumāna is a special Deity, a typical Deity full of qualities. There was a perfect balance between his devotion and power. How could he achieve this balance is a thing to be understood.<br>
-In Sahaja Yoga, when we are enlightened, we get many powers. Then we have to keep balance. We love others and with the power of the love, we keep on doing our duties.<br>
-Śhrī Hanumāna was very powerful. He had many Divine Powers in Him Navadhā, that is Garima, Laghima, etc. He could be as big as he wanted to be and as small as an atom. He had achieved all these powers. Without attaining balance and coming to the central path. Such a powerful person generally goes crazy.<br>
-<b>Each cell of Śhrī Hanumāna’s body was filled with power and devotion.</b> Because of this specialty today we worship Śhrī Hanumāna all over the world."</font><br>
-<font size="+0"><b>1999-0331 Śhrī Hanumāna Pūjā (Hindi), Krishna Sundar Garden, Amit Gaikwad Mala, Erandwane, Mhatre Bridge, Pune, Maharashtra, India</b></font>
 </p>
 
 <p>
