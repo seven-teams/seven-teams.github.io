@@ -9,7 +9,8 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"What to say about Hanumāna? <b>The more powerful and wise, he was equally devoted and dedicated.</b> Generally, such a powerful person becomes right-sided and considers himself so high that he would not listen to anyone else. But <b>Hanumāna is a special Deity, a typical Deity full of qualities. There was a perfect balance between his devotion and power.</b> How could he achieve this balance is a thing to be understood.<br>
+<font color="DarkRed">"<b>Today we are celebrating Hanumāna's Jayanti [birthday].</b><br>
+What to say about Hanumāna? <b>The more powerful and wise, he was equally devoted and dedicated.</b> Generally, such a powerful person becomes right-sided and considers himself so high that he would not listen to anyone else. But <b>Hanumāna is a special Deity, a typical Deity full of qualities. There was a perfect balance between his devotion and power.</b> How could he achieve this balance is a thing to be understood.<br>
 In Sahaja Yoga, when we are enlightened, we get many powers. Then we have to keep balance. We love others and with the power of the love, we keep on doing our duties.<br>
 Śhrī Hanumāna was very powerful. He had many Divine Powers in Him Navadhā, that is Garima, Laghima, etc. He could be as big as he wanted to be and as small as an atom. He had achieved all these powers. Without attaining balance and coming to the central path. Such a powerful person generally goes crazy.<br>
 <b>Each cell of Śhrī Hanumāna’s body was filled with power and devotion.</b> Because of this specialty today we worship Śhrī Hanumāna all over the world."</font><br>
@@ -35,11 +36,11 @@ In this way, we may act without heating up our right side.</b></font><br>
 </p>
 
 <p>
-<font color="blue">"<b>"What we have to learn from Śhrī Hanumāna is this devotion (bhakti) and the power that he has given to you. If your devotion is real, then no one dares touch you. No one could touch.</b><br>
+<font color="blue">"<b>What we have to learn from Śhrī Hanumāna is this devotion (bhakti) and the power that he has given to you. If your devotion is real, then no one dares touch you. No one could touch.</b><br>
 There are thousands of examples in Sahaja Yoga. People call them miracles. But I say that it is no miracle, it is the blessing of Śhrī Hanumāna.<br> 
 <b>So My blessings and Love to you all. Love yourself, also love others.</b><br> 
 Do not confine your love to “my son, my this, my that.” No! Love means selfless love (Nirvāja Pyār) love that expects no return, love that is not confined to relations only. You have been blessed with such unfathomable Power of Love. Use it.<br>
-Infinite blessings.</font><br>
+Infinite blessings."</font><br>
 <font size="+0"><b>1999-0331 Śhrī Hanumāna Pūjā (Hindi), Krishna Sundar Garden, Amit Gaikwad Mala, Erandwane, Mhatre Bridge, Pune, Maharashtra, India</b></font>
 </p>
 
@@ -176,9 +177,9 @@ and only after Self-realization you can have Ananya Bhakti, means the Devotion, 
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Pavan Tanay Sankat Haran</b><br>
-<br>
+O Son of the Wind God, remover of misfortunes,<br>
 <b>Mangal Murati Rūp</b><br>
-<br>
+Most auspicious figure,<br>
 <b>Rām Lakhan Sītā Sahit</b><br>
 With Śhrī Rāma, Śhrī Lakṣhmaṇa and Śhrī Sītā,<br>
 <b>Hridaya Basahu Sur Bhūp.<br>
