@@ -309,7 +309,7 @@ They have all talked about the Second Birth. What we call the Baptism is also th
 You have to find your Self.<br>
 ......<br>
 That doesn't mean that I'm preaching anything Hinduism or anything like that. All the Saints, I will tell you. I will also tell you about Christ where He exists. <font color="red">I'll also tell you about Muhammad Sāhab where He exists, about all of Them.</font><br>
-So, it is no question of one religion or anything. But these are different things which came in the evolutionary process of man, and all the evolution that took place in every human being is within himself.Is recorded, and he's standing on that.<br>
+So, it is no question of one religion or anything. But these are different things which came in the evolutionary process of man, and all the evolution that took place in every human being is within himself. Is recorded, and he's standing on that.<br>
 ......<br>
 <font color="red">Muhammad Sāhib has clearly said, "No intoxications. Nothing! Nothing at all!"</font><br>
 Nāṇak has said the same.<br>
