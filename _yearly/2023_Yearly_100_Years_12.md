@@ -38,7 +38,7 @@ All that was against Him is done now today, as the Indians have done all that wh
 <font color="blue"><b>1977-0222 Public Program, Day 1, About Different Chakras and Their Deities, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font><br>
 </p>
 
-Link to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/19770222-differrent-chakras-1"> </a><br>
+Link to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/19770222-differrent-chakras-1"> audio</a><br>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
