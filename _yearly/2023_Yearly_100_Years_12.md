@@ -17,7 +17,7 @@ tags:
 </p>
 
 <p>
-"And in the Vaikuṇṭha Stage it is described very clearly how Śhrī Kṛiṣhṇa Himself came to bless Him and told Him. that, ``You will be placed even higher than Me, because Your body will be made out of Chaitanya."<br>
+"And in the Vaikuṇṭha Stage it is described very clearly how Śhrī Kṛiṣhṇa Himself came to bless Him and told Him, that, "You will be placed even higher than Me, because Your body will be made out of Chaitanya."<br>
 Chaitanya, what is the English word for Chaitanya?<br> 
 ......<br>
 Divine Awareness! Of the Divine Awareness. You can say is the Divine Awareness Itself, is the Divine Vibrations are shown in us.<br>
