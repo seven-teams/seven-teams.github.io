@@ -13,7 +13,7 @@ tags:
 <font color="DarkRed">"<b>Today we are celebrating the Resurrection of Christ. With ... with it we also have to celebrate the Resurrection of human beings, of Sahaja Yogis who have been resurrected as realized Souls.</b><br>
 With that we have to understand that we enter into a new awareness. There was no need for Christ to enter into any new awareness, He had to come down and again to show to this world that you are the eternal life, that you ml ... lead a life that is spiritual, which never perishes. You have to rise into that new realm, which is the Realm of God Almighty, what you call the Kingdom of God.<br>
 And He said it very clearly to Nicodemus that, "You have to be born-again." And when he asked: "Am I to enter back into my mother's womb to be born again?" And He said it so clearly! It's so clear! Those who don't want to see can remain blind! But he said it very-very clearly that, "No! That is, whatever is born of the flesh is the flesh, but whatever is born of the Spirit is the Spirit."<br>
-I mean, nothing could be more clear than that, that it has to be born of the Spirit. "</font><br>
+I mean, nothing could be more clear than that, that it has to be born of the Spirit."</font><br>
 <font size="+0"><b>1984-0422 Easter Pūjā, The Way of Our Full Spiritual Growth and Sahaja Penance, Temple of All Faiths, Hampstead, London, UK</b></font>
 </p>
 
@@ -56,7 +56,7 @@ All other bodies were human bodies. All the Incarnations, even that of Kṛiṣh
 
 <div style="text-align: center"><img src="/images/image1167.png" /></div>
 
-<p style="color:purple; text-align:center;">
+<p style="color:MediumPurple; text-align:center;">
 You were crucified and resurrected in pure Spirit.<br>
 You rose after three days.<br>
 You are peace.<br>
@@ -100,7 +100,7 @@ Christ rose out of the matter, came out of the tomb which symbolizes the matter 
 
 <p>
 <font color="DarkRed">"The other day at the Āśhram I spoke to you about Easter, about the birth of Christ and His Resurrection, and the message of Christianity, that is Resurrection.<br>
-An egg is a very significant thing and it is written in one of the ancient Scriptures in India [as to] why Easter should be celebrated with an egg -- is most surprising. It's clear, it's very clear there, if one can see, how Christ is symbolized as an egg.<br>
+<b>An egg is a very significant thing and it is written in one of the ancient Scriptures in India [as to] why Easter should be celebrated with an egg -- is most surprising. It's clear, it's very clear there, if one can see, how Christ is symbolized as an egg.</b><br>
 Now what is an egg?<br>
 In Sanskrit language, a Brahmin is called as dvijaḥ. Dvīji jayati: means the one who is born twice. And a bird is also called, any bird, is called as a dvijaḥ. Means twice-born. Because first the bird is born as an egg, and then reborn as a bird.<br>
 In the same way, a human being is born as an egg, and then is born as a realized Soul."</font><br>
@@ -108,8 +108,10 @@ In the same way, a human being is born as an egg, and then is born as a realized
 </p>
 
 <p>
-<font color="DarkRed">"Christ came on this Earth to say that we have to seek our Spirit. The message of His life is His Resurrection. On the Easter Day we give eggs to each other. It is very symbolic. In Indian language a bird is called as khaga -- kha-ga -- and also dvijaḥ. The first one means the one which goes in the sky, flies in the sky. The second one means the twice-born. And a realized Soul is also called as dvijaḥ.<br>
-Christ has talked about your Second Birth throughout. He has said, "You are to be born-again." "</font><br>
+<font color="DarkRed">"Christ came on this Earth to say that we have to seek our Spirit. <b>The message of His life is His Resurrection.<br> 
+On the Easter Day we give eggs to each other. It is very symbolic.</b><br> 
+In Indian language a bird is called as khaga -- kha-ga -- and also dvijaḥ. The first one means the one which goes in the sky, flies in the sky. The second one means the twice-born. And a realized Soul is also called as dvijaḥ.<br>
+<b>Christ has talked about your Second Birth throughout. He has said, "You are to be born-again."</b> "</font><br>
 <font size="+0"><b>1980-1002 Public Program, Day 1, Geneva, Switzerland</b></font>
 </p>
 
