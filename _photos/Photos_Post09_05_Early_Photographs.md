@@ -3,7 +3,7 @@ title: 'Photos Post 9: Early Photographs (before 1976), Part 05'
 date: 2023-04-15
 permalink: /photos/2023/0415
 tags:
-  - blue @ Early Photographs
+  - blue @ Personal Items
   - crimson @ Photographs of Shri Mataji
   - green @ Updates
 ---
