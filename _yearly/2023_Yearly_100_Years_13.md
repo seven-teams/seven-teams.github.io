@@ -30,7 +30,7 @@ So, you have to work in such a way that you get complete integration. And the dr
 And then sincerity itself is rewarding. This principle must be written down in your hearts: that sincerity itself is rewarding. You don't have to go to anybody else to ask first the reward of sincerity, sincerity itself rewards you. And that's why you start enjoying your own sincerity.<br>
 ......<br>
 Try to become sincere and sincere and sincere and enjoy your sincerity.<br>
-I bless you all with your sincerity.<br>"<br>
+I bless you all with your sincerity."<br>
 <font color="blue"><b>1980-0505 Sahasrāra Pūjā, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font><br>
 </p>
 
