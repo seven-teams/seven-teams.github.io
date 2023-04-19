@@ -19,7 +19,7 @@ Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-The Photo Subteam
+The Photo Subteam<br>
 sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
