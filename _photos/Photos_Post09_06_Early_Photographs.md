@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 1 new Photo of the event <font color="Crimson"><b>1973-1200 Passport Photos</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 medium resolution from the Named Collections. This is different from the multiple versions of a Photo from the same event, including three priorly uploaded, that have been shared over the years.<br>
-One direct link to all 4 Photos: <a href="https://eternalmoments.smugmug.com/Chronology/1973">  Chronology 1973</a>.<br>
+One direct link to all 4 Photos: <a href="https://eternalmoments.smugmug.com/Chronology/1973"> Chronology 1973</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>
