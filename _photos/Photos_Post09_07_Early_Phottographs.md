@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 6 new Photo of the event <font color="Crimson"><b>1975-1112 Hosting, IMCO Reception</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 6 high resolutions from the Named Collections. They represent the earliest Photos from UK so far on our records.<br>
+We are pleased to let you know that 6 new Photos of the event <font color="Crimson"><b>1975-1112 Hosting, IMCO Reception</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 6 high resolutions from the Named Collections. They represent the earliest Photos from UK so far on our records.<br>
 One direct link to all 6 Photos: <a href="https://eternalmoments.smugmug.com/Countries/UK/1975/"> UK 1975</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
