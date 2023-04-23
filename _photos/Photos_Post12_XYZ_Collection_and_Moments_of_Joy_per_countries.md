@@ -19,5 +19,5 @@ Please kindly share the news and the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-The Comprehensive Compilations Team
+The Photo Subteam
 </p>
