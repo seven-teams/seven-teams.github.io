@@ -1,5 +1,5 @@
 ---
-title: 'Photos Post 12: XYZ Collection and Moments of Joy for Countries'
+title: 'Photos Post 12: XYZ Collection and Moments of Joy per Countries'
 date: 2023-04-23
 permalink: /photos/2023/0423
 tags:
