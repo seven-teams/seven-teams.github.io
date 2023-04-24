@@ -35,7 +35,7 @@ Now, for you, it is important to see that you have something so unique with you.
 <font color="blue"><b>1990-0506 Sahasrāra Pūjā (Twenty-first Sahasrāra Pūjā), You Have All Become Mahāyogis Now and Sahaja Yoga is a Commitment and a Complete Involvement (Now You Have to Count Your Powers and Go Full Ahead with All the Maryādās of Sahaja Yoga), Teatro Comunale, Fiuggi (87 kms E-SE of Rome), Italy</b></font><br>
 </p>
 
-Link to suggested talk: <a href="https://vimeo.com/583199838"> </a><br>
+Link to suggested talk: <a href="https://vimeo.com/583199838"> video</a><br>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
