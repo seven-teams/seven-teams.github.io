@@ -56,19 +56,19 @@ I’ve told you before also that Kuṇḍalinī, which is in three and a half co
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Āratī Nirmalā Mā</b></font><br>
-<font size="+0">Āratī ofNirmalā Mā</font><br>
+Āratī of Nirmalā Mā<br>
 <font color="DarkRed"><b>Charani Thevila Me Matha  </b></font><br>
-<font size="+0">I bow my head at Your Feet</font><br>
+I bow my head at Your Feet<br>
 <font color="DarkRed"><b>Āratī Nirmalā Mā<</b></font><br>
 <br>
 <font color="DarkRed"><b>Ādi Śhakti Kuṇḍalinī</b></font><br>
-<font size="+0">Primordial Energy Kuṇḍalinī</font><br>
+Primordial Energy Kuṇḍalinī<br>
 <font color="DarkRed"><b>Sarva Vishwachi Jananī</b></font><br>
-<font size="+0">Mother of the entire Universe</font><br>
+Mother of the entire Universe<br>
 <font color="DarkRed"><b>Nirguna He Rupa Tuzhe</b></font><br>
-<font size="+0">Your Form is Formless,</font><br>
+Your Form is Formless,<br>
 <font color="DarkRed"><b>Zahli Saguna Tu Ata</b></font><br>
-<font size="+0">Now You are in form.</font><br>
+Now You are in form.<br>
 <a href="https://youtu.be/2btBuq4VYL4">video</a>
 </p>
 
@@ -89,7 +89,7 @@ I’ve told you before also that Kuṇḍalinī, which is in three and a half co
 </p>
 
 <p>
-<font color="blue"><b>Kuṇḍalinī Chadi Badhi Jai Mori Nirmalā Mātā</b></font><br>
+<font color="blue"><b>Kuṇḍalinī Chadi Badhi Jay Mori Nirmalā Mātā</b></font><br>
 <a href="https://youtu.be/KOKeT0HOmXU?list=RDKOKeT0HOmXU">video</a> 
 </p>
 
@@ -101,14 +101,14 @@ I’ve told you before also that Kuṇḍalinī, which is in three and a half co
 <div style="text-align: center"><img src="/images/image1175.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">And I [unclear] also, I just explained to you, <b>today is a day where, whatever you want to know of eternal nature, you can ask Me. And we'll ask for eternity.<br>
+<font color="DarkRed">"And I [unclear] also, I just explained to you, <b>today is a day where, whatever you want to know of eternal nature, you can ask Me. And we'll ask for eternity.<br>
 But many people think that today is a day when, whatever you ask, God has to give you. Is true.</b> Whatever you ask, you'll get it. But [is] just a temptation.<br>
 Beyond that, is eternity. So whatever you have to ask, you should ask for something that is eternal, is indust ... indestructible. That higher state, we should call the Permanent State of Joy and Bliss, is to be asked today. Because all other askings are useless. And you again go back to the position where you were.<br>
 Is important to understand, that this time, today, you have to ask something eternal for yourself, something eternal for your family, something eternal for your country, and something eternal for this world and universe.<br>
 <b>You all are Sahaja Yogis, and of a very high level, and I'm happy that the all of you have come here for that Eternal State of Devī.<br>
 And, if it works out, you should get that Eternal State [with]in yourself. You should get that state where you don't want anything anymore. and reside in that beautiful condition of complete peace and bliss.</b> That's what is available to you, but I ... you can easily achieve it.<br>
 I cannot say this to people who are not Sahaja Yogis. But I can definitely say this to people who are Sahaja Yogis and who have achieved already Self-realization.<br>
-So, today I hope, you all .. of you will pray and ask for that Eternal Love of God. It should flow to you all, all the time.<br>
+So, today I hope, you all .. of you will pray and ask for that Eternal Love of God. It should flow to you all, all the time."<br>
 May God bless you all.</font><br>
 <font size="+0"><b>1988-0419 Akṣhaya Tṛitīya Pūjā (Hindi + English), Pune, Maharashtra, India</b></font>
 </p>
