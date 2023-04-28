@@ -14,16 +14,16 @@ tags:
 <font size="+0"><b>1987-0502 Talk to Sahaja Yogis, On Arrival before the Evening Program, the day before Sahasrāra Pūjā, Thredbo Village, Kosciuszko National Park, New South Wales, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/imageimage1172.png" /></div>
+<div style="text-align: center"><img src="/images/image1172.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Akṣhay Tṛitīya Pūjā.<br>
-That's the day, when, I mean it is regarded as the most auspicious day to start anything.</b></font><br>
+That's the day, when, I mean it is regarded as the most auspicious day to start anything."</b></font><br>
 <font size="+0"><b>1988-0610 Conversation with Sahaja Yogis, About Music, Photographs and False Gurus, Lunch before the evening Public Program in Graz, Gleißenfeld (75 kms S of Vienna), Austria</b></font>
 </p>
 
 <p>
-<font color="DarkRed">"<b>She knows you very well and that is the reason why today we are here to worship our Kuṇḍalinī, to give Her all the credit, that ‘Oh, Mother, You have given us these great powers.</b><br>
+<font color="DarkGreen">"<b>She knows you very well and that is the reason why today we are here to worship our Kuṇḍalinī, to give Her all the credit, that ‘Oh, Mother, You have given us these great powers.</b><br>
 You have given us this subtle knowledge within ourselves. You have given us the love which encompasses the whole world.’ And the more and the more you become aware of her connections – very, very delicate connections – then you’ll be amazed."</font><br>
 <font size="+0"><b>1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b></font>
 </p>
@@ -34,11 +34,11 @@ You have given us this subtle knowledge within ourselves. You have given us the 
 </p>
 
 <p>
-<font color="DarkRed">"So what we should ask for is that beautiful, soft, compassionate nature, and then the Kuṇḍalinī will supply because She only has that. Kuṇḍalinī doesn’t have anything else. <b>All Her Power is of love, nothing but love.</b> So how can She give you something She doesn’t have? Supposing you hate someone, what can She do? She can’t do anything because She cannot give you powers to hate. So what She says, ‘You hate someone. Hold or forgive.’ She gives you the power to forgive."</font><br>
+<font color="DarkGreen">"So what we should ask for is that beautiful, soft, compassionate nature, and then the Kuṇḍalinī will supply because She only has that. Kuṇḍalinī doesn’t have anything else. <b>All Her Power is of love, nothing but love.</b> So how can She give you something She doesn’t have? Supposing you hate someone, what can She do? She can’t do anything because She cannot give you powers to hate. So what She says, ‘You hate someone. Hold or forgive.’ She gives you the power to forgive."</font><br>
 <font size="+0"><b>1991-0811 Śhrī Ādi Kuṇḍalinī Pūjā, The Power of Pure Desire, Weilburg, Germany</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/imageimage1173.png" /></div>
+<div style="text-align: center"><img src="/images/image1173.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"Today we have assembled here to do the Pūjā of the Mother Earth. We call it as the Bhūmī Pūjā, Śhrī Dharā Pūjā. She’s called as Dharā. As you know, ‘dhā’ means ‘sustain’. Rā-dhā. 
@@ -98,7 +98,7 @@ I’ve told you before also that Kuṇḍalinī, which is in three and a half co
 <a href="https://youtu.be/7dqX2ZNiG5I">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/imageimage1175.png" /></div>
+<div style="text-align: center"><img src="/images/image1175.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">And I [unclear] also, I just explained to you, <b>today is a day where, whatever you want to know of eternal nature, you can ask Me. And we'll ask for eternity.<br>
