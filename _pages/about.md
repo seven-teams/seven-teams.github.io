@@ -107,6 +107,8 @@ For other websites of Photographs please see:
     v. <a href="https://library.sahajaworld.org/photos"> Photos</a> (of Sahaja Digital Library) (created in 2017)
     
     vi. <a href="https://www.instagram.com/fotosofma/"> Fotos of Ma</a> (taken by Chris Patmore) (created in 2021)
+
+    vii. <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> Šrí Mátadží v ČR 2</a> (David Burša Collection of Czech Republic, created in 2023 as a Google Photos website, with the ČR 1 first created in 2002)
     
 8. **<font color="blue">Archives Subteam.</font>** <br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b>  
