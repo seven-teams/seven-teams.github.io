@@ -59,7 +59,7 @@ I’ve told you before also that Kuṇḍalinī, which is in three and a half co
 Āratī of Nirmalā Mā<br>
 <font color="DarkRed"><b>Charani Thevila Me Matha  </b></font><br>
 I bow my head at Your Feet<br>
-<font color="DarkRed"><b>Āratī Nirmalā Mā<</b></font><br>
+<font color="DarkRed"><b>Āratī Nirmalā Mā</b></font><br>
 <br>
 <font color="DarkRed"><b>Ādi Śhakti Kuṇḍalinī</b></font><br>
 Primordial Energy Kuṇḍalinī<br>
@@ -108,8 +108,8 @@ Is important to understand, that this time, today, you have to ask something ete
 <b>You all are Sahaja Yogis, and of a very high level, and I'm happy that the all of you have come here for that Eternal State of Devī.<br>
 And, if it works out, you should get that Eternal State [with]in yourself. You should get that state where you don't want anything anymore. and reside in that beautiful condition of complete peace and bliss.</b> That's what is available to you, but I ... you can easily achieve it.<br>
 I cannot say this to people who are not Sahaja Yogis. But I can definitely say this to people who are Sahaja Yogis and who have achieved already Self-realization.<br>
-So, today I hope, you all .. of you will pray and ask for that Eternal Love of God. It should flow to you all, all the time."<br>
-May God bless you all.</font><br>
+So, today I hope, you all .. of you will pray and ask for that Eternal Love of God. It should flow to you all, all the time.<br>
+May God bless you all."</font><br>
 <font size="+0"><b>1988-0419 Akṣhaya Tṛitīya Pūjā (Hindi + English), Pune, Maharashtra, India</b></font>
 </p>
 
