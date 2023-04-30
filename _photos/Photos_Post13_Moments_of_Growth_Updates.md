@@ -16,5 +16,7 @@ Please kindly share the news and the links with all our brothers and sisters.<br
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-The Comprehensive Compilations Team
+The Photo Subteam
+sahajayoga.compilations@gmail.com<br>
+https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
