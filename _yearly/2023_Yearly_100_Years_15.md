@@ -1,7 +1,7 @@
 ---
 title: '2023 Birthday Centenary of H. H. Shri Mataji Nirmala Devi, Post 15'
-date: 2023-01-30
-permalink: /yearly/2023/0130
+date: 2023-05-02
+permalink: /yearly/2023/0502
 tags:
   - crimson @ Birthday Centenary
 ---
