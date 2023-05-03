@@ -16,7 +16,7 @@ Please enjoy and kindly share with all our brothers and sisters. If files are do
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-The Archives Subteam
+The Archives Subteam<br>
 sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
