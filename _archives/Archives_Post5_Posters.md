@@ -35,6 +35,6 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>P3.</b></font> <b>1997-1100 Poster for Public Program on 1118, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0502)
 
-<div style="text-align: center"><img src="/images/1997-1100_Poster_for_Public_Program_on_1118,_Prague,_Czech_Republic_(David_Burša_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="/images/1997-1100_Poster_for_Public_Program_on_1118,_Prague,_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
 
 <br>
