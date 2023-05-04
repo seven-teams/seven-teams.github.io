@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 2 Photos from the special event <font color="Crimson"><b>1982-0700 Visit, Museum-Reserve Gorki Leninskiye, Moscow Oblast, Russia</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 highs resolution from the Named Collections.<br>
-The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1982/"> 1982 Collection</a>.<br>
+The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Russia/1982/"> Russia 1982</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>
