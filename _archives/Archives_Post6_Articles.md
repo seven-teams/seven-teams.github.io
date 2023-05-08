@@ -75,7 +75,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A9.</b></font> <b>2013-0321 Article Celebrating the Birth Day of Shri Mataji Nirmala Devi 'Sahaja Yoga - A Silent Move Towards Transformation', Free Press Journal, Page 3, Mumbai, Maharashtra, India (M. B. Ratnannvar Collection)</b> (1 page, uploaded on 2023-0508)
 
-<iframe src="/pdf/?usedownload=true#/files/2013-0321_Article_'Sahaja_Yoga_-_A_Silent_Move_Towards_Transformation',_FPJ,_Page_3,_Mumbai,_Maharashtra,_India_(M._B._Ratnannvar_Collection)_pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#/files/2013-0321_Article_'Sahaja_Yoga_-_A_Silent_Move_Towards_Transformation',_FPJ,_Page_3,_Mumbai,_Maharashtra,_India_(M._B._Ratnannvar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
