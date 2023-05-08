@@ -222,7 +222,7 @@ O Divine Mother, Your unbounded love is the bliss of liberation</font><br>
 <div style="text-align: center"><img src="/images/image1182.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"<b>Today's Pūjā is very important, because I feel Western countries have gone off with their ego, and they need Buddha very much, and they like also this so-called Buddhism very much, because you see, they can then just hide behind that camouflage. "We are Buddhist, you see." They'll worry about Afghanistan and they'll worry about lama. They'll worry about all other people, because, 'You see, we are Buddhist.' But there's no truth in it, no truth.<br> 
+<font color="DarkRed">"<b>Today's Pūjā is very important</b>, because I feel Western countries have gone off with their ego, and they need Buddha very much, and they like also this so-called Buddhism very much, because you see, they can then just hide behind that camouflage. "We are Buddhist, you see." They'll worry about Afghanistan and they'll worry about lama. They'll worry about all other people, because, 'You see, we are Buddhist.' But there's no truth in it, no truth.<br> 
 <b>Sahaja Yogis have to establish that truth, that dedication.<br>
 So Buddha has said: "Buddham śharaṇaṃ gacchāmi." ``I bow to all those who are realized Souls." "Dhammam śharaṇaṃ gacchāmi." "I bow myself, to my dharma," that is Vishwa Nirmala Dharma. And then lastly is: "Saṅghaṃ śharaṇaṃ gacchāmi." "I bow to collectivity."</b>"</font><br>
 <font size="+0"><b>1989-0520 Śhrī Buddha Pūjā, Gautama, The Lord of the Ego, Open Air near El Farell Hotel, Barcelona, Spain</b></font><br>
