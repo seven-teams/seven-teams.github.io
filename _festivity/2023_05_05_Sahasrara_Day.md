@@ -68,9 +68,8 @@ When it reaches the agnya chakra<br>
 <font color="DarkGreen"><b>Ka Ga Visawa<br>
 Ughad. Sahastrar. Mate</b></font><br>
 O Mother, please open the Sahasrāra!<br>
-<a href="https://youtu.be/JHpK7bJV6wM">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="DarkRed">"It has been such a great pleasure and glorification of Sahaja Yoga today, I remember the day when it started, on the 5th May 1970. And today I see all of you so much engulfed in the Divine Love and Divine Power.<br>
@@ -202,9 +201,8 @@ O Divine Mother, Your unbounded love is the bliss of liberation</font><br>
 
 <p>
 <font color="green"><b>Namami Śhrī Gaṇarāj Dayal</b></font><br>
-<a href="https://youtu.be/K1R54Pk7-70">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
  
 <p>
 <font color="green"><b>Jago Savera Aya Hai, Mata Ne Jagaya Ha</b></font><br>
@@ -213,15 +211,13 @@ O Divine Mother, Your unbounded love is the bliss of liberation</font><br>
 
 <p>
 <font color="green"><b>Tujhya pujani</b></font><br>
-<a href="https://youtu.be/iJiGVlWeUlA">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font color="green"><b> Anyatha Sharnam Nāsti</b></font><br>
-<a href="https://youtu.be/NX0Gy8VNh3E">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <div style="text-align: center"><img src="/images/image1182.png" /></div>
 
@@ -240,9 +236,8 @@ So Buddha has said: "Buddham śharaṇaṃ gacchāmi." ``I bow to all those who 
 <font color="DarkRed"><b>Śhrī Ādi Śhaktyai Nirmalā Mātaram śharaṇaṃ gacchāmi</b></font><br>
 <font color="DarkSlateBlue ">I surrender myself to Śhrī Ādi Śhaktī Mātājī</font><br>
 <font color="DarkGreen"><font size="+0"><b>Buddham śharaṇaṃ gacchāmi</b></font></font><br>
-<a href="https://youtu.be/3IRvnyOjUdI>video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-%pr
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>
