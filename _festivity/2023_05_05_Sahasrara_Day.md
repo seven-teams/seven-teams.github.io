@@ -181,14 +181,17 @@ Please grant boons to all the people.</font><br>
 Mahālakṣhmī Mahāsaraswatī Mahākālī Triguṇātmika Ādi Kuṇḍalinī sākṣhāt Śhrī Mokṣha Pradāyinī sākṣhāt Śhrī Ādi Śhakti sākṣhāt Śhrī Bhagavatī sākṣhāt Śhrī Mātājī Śhrī Nirmalā Devī namo namaḥ.</b><br>
 <br>
 <font color="DarkRed"><b>Tu Ādi Śhakti, Sahasrār virajī</b><br>
-<br>
-<font color="DarkRed"><b></b><br>
-<br>
-<font color="DarkRed"><b></b><br>
-<br>
-<font color="DarkRed"><b></b><br>
-<br>
-<a href="">video</a>
+You are Śhrī Ādi Śhakti seated on the cosmic Sahasrāra<br>
+<font color="DarkRed"><b>Chaitan lutati, Saty.yuga jagati</b><br>
+Showering Divine vibrations and heralding the beginning of Satya Yuga<br>
+<font color="DarkRed"><b>Vishwa ki Janani, tu Mahādevī</b><br>
+You are the Mother of the universe and the Great Goddess<br>
+<font color="DarkRed"><b>Tere Putra banne ki Patrata de Mā</b><br>
+Mother please grant us all the qualities by which we can be Your children in reality.<br>
+<font color="DarkRed"><b>He Nirmalā Mā, He Nirmalā Mā<br>
+Tera pyar. moksha kā Anand. hai Mā</b><br>
+O Divine Mother, Your unbounded love is the bliss of liberation</font><br>
+<a href="https://www.youtube.com/watch?v=v7T1xpKkYFU&ab_channel=108Victoria">video</a>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
@@ -198,24 +201,27 @@ Mahālakṣhmī Mahāsaraswatī Mahākālī Triguṇātmika Ādi Kuṇḍalinī 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="green"><b>Namami Śhrī Gaṇarāj Dayal</b></font><br>
+<a href="https://youtu.be/K1R54Pk7-70">video</a>
 </p>
+%pr
  
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Jago Savera Aya Hai, Mata Ne Jagaya Ha</b></font><br>
+<a href="https://youtu.be/lUNkxcIAEs4">video</a> 
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Tujhya pujani</b></font><br>
+<a href="https://youtu.be/iJiGVlWeUlA">video</a> 
 </p>
+%pr
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b> Anyatha Sharnam Nāsti</b></font><br>
+<a href="https://youtu.be/NX0Gy8VNh3E">video</a> 
 </p>
+%pr
 
 <div style="text-align: center"><img src="/images/image1182.png" /></div>
 
