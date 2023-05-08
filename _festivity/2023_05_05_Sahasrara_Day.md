@@ -49,8 +49,8 @@ They all tried Their best. They did whatever was possible. The Saints were made 
 
 <div style="text-align: center"><img src="/images/image1178.png" /></div>
 
-<p>
-<font color="DarkRed">"<b>Just to say, ‘Mother, it’s all Yours,’ to start it – 'It’s all Yours.<br>
+<p style="text-align:center;">
+<font color="DarkRed"><b>"<b>Just to say, ‘Mother, it’s all Yours,’ to start it – 'It’s all Yours.<br>
 I am Yours, my heart is Yours, all my things are Yours, my life is Yours.'<br>
 Even saying that is a big mantra for Sahasrāra.</b><br>
 The deity of Sahasrāra is a very simple person, extremely simple, and can be moved with very little actions,<br>
@@ -146,7 +146,7 @@ Having granted this Sahaja Yoga to me, please keep my attention forever on You.<
 <font color="DarkRed"><b>"Beautifully rendered! It’s a song written much before, I think just after the first Sahasrāra Day. 
 I mean, it’s a very ancient song. And still is maintained so well."</b></font><br>
 <font size="+0"><b>1987-0502 Talk to Sahaja Yogis, after the Evening Program, the day before Sahasrāra Pūjā, Thredbo Village, Kosciuszko National Park, New South Wales, Australia</b></font><br>
-<font color="DarkGreen"><b>Namostute</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <a href="https://youtu.be/30F02gXLuGw">video</a>
 </p>
 
@@ -161,7 +161,7 @@ May God bless you all."</font><br>
 </p>
 
 <p>
-<font color="DarkRed">"<br>Sahaja Yoga is the power of compassion and love of God Almighty. But it's not just talk, just not giving you a lecture or a sermon, but it is the actualization of the experience of this Divine Love. It is spirit-oriented, not money-oriented, nor is power-oriented.</b> All the religions have failed outside because they are not Spirit-oriented."</font><br>
+<font color="DarkRed">"<b>Sahaja Yoga is the power of compassion and love of God Almighty. But it's not just talk, just not giving you a lecture or a sermon, but it is the actualization of the experience of this Divine Love. It is spirit-oriented, not money-oriented, nor is power-oriented.</b> All the religions have failed outside because they are not Spirit-oriented."</font><br>
 <font size="+0"><b>1995-0801 Public Program, Sala Polivalentă, Bucharest, Romania</b></font>
 </p>
 
@@ -181,13 +181,13 @@ Mahālakṣhmī Mahāsaraswatī Mahākālī Triguṇātmika Ādi Kuṇḍalinī 
 <br>
 <font color="DarkRed"><b>Tu Ādi Śhakti, Sahasrār virajī</b><br>
 You are Śhrī Ādi Śhakti seated on the cosmic Sahasrāra<br>
-<font color="DarkRed"><b>Chaitan lutati, Saty.yuga jagati</b><br>
+<b>Chaitan lutati, Saty.yuga jagati</b><br>
 Showering Divine vibrations and heralding the beginning of Satya Yuga<br>
-<font color="DarkRed"><b>Vishwa ki Janani, tu Mahādevī</b><br>
+<b>Vishwa ki Janani, tu Mahādevī</b><br>
 You are the Mother of the universe and the Great Goddess<br>
-<font color="DarkRed"><b>Tere Putra banne ki Patrata de Mā</b><br>
+<b>Tere Putra banne ki Patrata de Mā</b><br>
 Mother please grant us all the qualities by which we can be Your children in reality.<br>
-<font color="DarkRed"><b>He Nirmalā Mā, He Nirmalā Mā<br>
+<b>He Nirmalā Mā, He Nirmalā Mā<br>
 Tera pyar. moksha kā Anand. hai Mā</b><br>
 O Divine Mother, Your unbounded love is the bliss of liberation</font><br>
 <a href="https://www.youtube.com/watch?v=v7T1xpKkYFU&ab_channel=108Victoria">video</a>
@@ -210,7 +210,7 @@ O Divine Mother, Your unbounded love is the bliss of liberation</font><br>
 </p>
 
 <p>
-<font color="green"><b>Tujhya pujani</b></font><br>
+<font color="green"><b>Tujhya Pūjāni</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
