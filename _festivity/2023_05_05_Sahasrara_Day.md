@@ -70,25 +70,32 @@ Some have grown very much, after getting their Realization, very much. They have
 <div style="text-align: center"><img src="/images/image1180.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
-<font size="+0"><b></b></font><br>
+<font color="DarkRed"><b>"So today is the day we are celebrate [celebrating] by which we have opened absolutely a new dimension, 
+a[n] absolutely a venue of Great Divinity, of the proofs of Divine.<br>
+And this is something so great that we can really finish all the illusions they have about themselves, about their ego. We can manage them. 
+That power you all have.<br>
+May God bless you."</b></font><br>
+<font size="+0"><b>1992-0510 Sahasrāra Pūjā, The Will of God, Tent, Cabella Ligure, Alessandria, Italy</b></font><br>
 <br>
-<font color="DarkGreen"><b></b></font><br>
+<font color="DarkGreen"><b>Tucha Kharokhar. Hya Vishwachi, Karati An Karaviti</b></font><br>
+You verily are the Creator of the Universe<br>
+<font color="DarkGreen"><b>Tucha Kharokhar. Hari Apada, Deun. Dhan. Sampatti</b></font><br>
+You verily are the One who takes away all the sorrows by granting us wealth<br>
+<font color="DarkGreen"><b>Samarth. Tuchi Samarth. Kari Maj. Divyatvachi Murti </b></font><br>
+O, most omnipresent! Please make me powerful too<br>
+<font color="DarkGreen"><b>Param.mangala Yugandhara Tu, Tuchi Ādi Śhakti</b></font><br>
+O, embodiment of total Auspiciousness through ages, only You are Ādi Śhakti<br>
+<font color="DarkGreen"><b>Tujhya Thayi Man. Lago Deun. Sahaj. Yog. Mate</b></font><br>
+Having granted this Sahaja Yoga to me, please keep my attention forever on You.<br>
+<font color="DarkGreen"><b>Namostute, Namostute<br>
+Śhrī Nirmalā Devī, Namostute</b></font><br>
+Śhrī Nirmalā Devī, Salutations to You<br>
 <br>
-<font color="DarkGreen"><b></b></font><br>
-<br>
-<font color="DarkGreen"><b></b></font><br>
-<br>
-<font color="DarkGreen"><b></b></font><br>
-<br>
-<font color="DarkGreen"><b></b></font><br>
-<br>
-<font color="DarkGreen"><b></b></font><br>
-<br>
-<br>
-<font color="DarkRed"><b></b></font><br>
-<font size="+0"><b></b></font><br>
-<font color="DarkGreen"><b>Namostute</b><br>
+<font size="+0">[The 350 Sahaja Yogis present had just finished singing ‘Namostute’.]</font><br>
+<font color="DarkRed"><b>"Beautifully rendered! It’s a song written much before, I think just after the first Sahasrāra Day. 
+I mean, it’s a very ancient song. And still is maintained so well."</b></font><br>
+<font size="+0"><b>1987-0502 Talk to Sahaja Yogis, after the Evening Program, the day before Sahasrāra Pūjā, Thredbo Village, Kosciuszko National Park, New South Wales, Australia</b></font><br>
+<font color="DarkGreen"><b>Namostute</b></font><br>
 <a href="https://youtu.be/30F02gXLuGw">video</a>
 </p>
 
