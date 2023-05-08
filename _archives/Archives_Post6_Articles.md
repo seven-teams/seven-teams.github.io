@@ -33,9 +33,9 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>A3.</b></font> <b>1993-0726 Article 'Indka milu české lidi' (Indian lady loves Czech people) by František Lauer published in the daily newpaper Blesk (Year 2, Number 170), Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A3.</b></font> <b>1993-0726 Article 'Indka milu české lidi' (Indian lady loves Czech people) by František Lauer published in the daily newspaper Blesk (Year 2, Number 170), Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0508)
 
-<div style="text-align: center"><img src="images/1993-0726_Article_Indian _lady_loves_Czech_people_by Frantisek_Lauer_published_in_the_daily_newpaper_Blesk,_Prague,_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="images/1993-0726_Article_Indian_lady_loves_Czech_people_by_Frantisek_Lauer_published_in_the_daily_newspaper_Blesk,_Prague,_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
 
 <br>
 
