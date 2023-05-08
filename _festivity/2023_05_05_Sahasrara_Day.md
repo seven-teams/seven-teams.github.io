@@ -59,7 +59,7 @@ Not much is needed to please the deity of Sahasrāra.<br>
 It’s a very simple person. Little things make Her happy."</font><br>
 <font size="+0"><b>1987-0503 Sahasrāra Pūjā, You Must Obey Me, Yogis in the Body of the Ādi Śhakti and The Ghost of Materialism, Thredbo Village, Kosciuszko National Park, New South Wales, Australia</b></font><br>
 <br>
-<font color="DarkGreen"><b>Tuzhya Krupe Nid.Rit. Shakti Urdhvamukhe Yei</b></font><br>
+<font color="DarkGreen"><b>Tuzhya Krupe Nid.Rit. Śhakti Urdhvamukhe Yei</b></font><br>
 The energy which is awakened with your blessings start to rise<br>
 <font color="DarkGreen"><b>Sat. Chakre Tichya Sparshe Jagrut. Ti Hoi</b></font><br>
 As it touches the seven chakras, they become enlightened<br>
@@ -100,7 +100,7 @@ was about to obliterate all the value system, all the proof of God Almighty."</f
 <br>
 <font color="DarkGreen">Dhyan. Te Rangerle Sahasrār. Dwari<br>
 Mukhi Naam . Gheta<br>
-Nirmala Hi Tari<br> 
+Nirmalā Hi Tari<br> 
 Dhyan. Te Rangerle Sahasrār. Dwari</font><br>
 O Mother we are enjoying our meditation in Sahasrāra<br>
 Whenever we take Your name, You are always there to help us<br>
