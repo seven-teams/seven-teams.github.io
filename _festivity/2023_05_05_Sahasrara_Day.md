@@ -50,7 +50,7 @@ They all tried Their best. They did whatever was possible. The Saints were made 
 <div style="text-align: center"><img src="/images/image1178.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"<b>Just to say, ‘Mother, it’s all Yours,’ to start it – 'It’s all Yours.<br>
+<font color="DarkRed">"<b>Just to say, ‘Mother, it’s all Yours,’ to start it – 'It’s all Yours.<br>
 I am Yours, my heart is Yours, all my things are Yours, my life is Yours.'<br>
 Even saying that is a big mantra for Sahasrāra.</b><br>
 The deity of Sahasrāra is a very simple person, extremely simple, and can be moved with very little actions,<br>
