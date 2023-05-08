@@ -37,7 +37,7 @@ We were the clay but You all the Supreme Creator ......<br>
 Salutations to the Queen of Sahasrāra, salutations again and again to the Queen of the Seven Peaks.<br>
 Today, on this great, great day, we see the Universe at Your Feet.</b></font><br>
 <font size="+0"><b>1994-0508 Sahasrāra Pūjā, Mahāmāyā Swarūpa, Tent, Cabella Ligure, Alessandria, Italy</b></font><br>
-<font color="DarkGreen"><font size="+0"><b>O Queen of Universe</b></font><br>
+<font color="DarkGreen"><font size="+0"><b>O Queen of Universe</b></font></font><br>
 <a href="https://youtu.be/1Y2Z3tNAs0I">video</a>
 </p>
 
@@ -177,7 +177,7 @@ O Devī, who is worshipped by the dwellers of the three worlds<br>
 <b>Lokanam varda bhava</b><br>
 Please grant boons to all the people.</font><br>
 <font color="FireBrick "><b>Auṃ Twameva sākṣhāt Śhrī Sahasrāra Swāminī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!
-Mahālakṣhmī Mahāsaraswatī Mahākālī Triguṇātmika Ādi Kuṇḍalinī sākṣhāt Śhrī Mokṣha Pradāyinī sākṣhāt Śhrī Ādi Śhakti sākṣhāt Śhrī Bhagavatī sākṣhāt Śhrī Mātājī Śhrī Nirmalā Devī namo namaḥ.</b><br>
+Mahālakṣhmī Mahāsaraswatī Mahākālī Triguṇātmika Ādi Kuṇḍalinī sākṣhāt Śhrī Mokṣha Pradāyinī sākṣhāt Śhrī Ādi Śhakti sākṣhāt Śhrī Bhagavatī sākṣhāt Śhrī Mātājī Śhrī Nirmalā Devī namo namaḥ.</b></font><br>
 <br>
 <font color="DarkRed"><b>Tu Ādi Śhakti, Sahasrār virajī</b><br>
 You are Śhrī Ādi Śhakti seated on the cosmic Sahasrāra<br>
