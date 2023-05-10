@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 3 Photos from the special event <font color="Crimson"><b>199x-0000 Dinner Party, Mumbai, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 high resolutions from the Named Collections.<br>
-The direct link to the 3 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/199x/"> 199x Collection</a>.<br>
+We are pleased to let you know that 3 Photos from the special event <font color="Crimson"><b>1999-0000 Dinner Party, Mumbai, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 high resolutions from the Named Collections.<br>
+The direct link to the 3 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1999/"> 1999 Collection</a>.<br>
+[Title updated on 2023-0510. Old title: 199x-0000 Dinner Party, Mumbai, India.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>
