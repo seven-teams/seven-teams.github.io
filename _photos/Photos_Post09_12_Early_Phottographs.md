@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 9 Photos of the event <font color="Crimson"><b>1972-0414 Workshop, Maharashtra, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 13 high resolutions from the Named Collections.<br>
-Direct link to all 13 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1973/"> 1973 Collection</a>.<br>
+Direct link to all 13 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1972/"> 1972 Collection</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>
