@@ -47,6 +47,15 @@ A religion doesn't mean outside, but the religion as a man: means the capacity o
 <div class="para-divider"></div>
 
 <p>
+"To normalize you, all these Great Saints were born on this Earth, in this Void of the Big Primordial Being. And they exist within us, though they are not awakened as yet.<br>
+We have had mainly Ten of Them. <font color="red">In India, we can call Them, from a very long time, as Ādināth, who was thousands of year[s] back.</font> I have told you Socrates, Moses, Abraham, then Rāja Janaka. Then we had, later on, Muhammad Sāhab, then Nāṇaka. Then the last, one of Them, was Śhirḍī Sāī Nāth. He was another Primordial Master, a great man.<br>
+They are the Incarnations of the One Personality! They said the same thing and same thing and same thing: how to sustain yourself. Their job was not to give you Realization, but to sustain you: to make you capable of your Realization, to make you a proper recipient of God's blessings as realized Souls."<br>
+<font size="+0"><b>1980-0613 Public Program, Something within Us which Makes Us Seek Something Beyond, Stratford, East London, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again.<br>
 <font color="red">In India we can say the Ādināth, we had one Ādināth, the Guru long time back.</font> Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth.<br>
 We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius.<br>
@@ -88,21 +97,22 @@ That was also important part. But that was forgot[ten]!<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">The authority with which Moses talked, authority with which Socrates talked, authority with which Lao Tze talked ... All these great Ādi Gurus, from Ādināth to Sāī Nāth, They didn't say, 'If you do this way will be good,' or, 'That way would be good.' No! "This is what it is, you better do it!"</font><br>
+This is what it is!"<br>
 <font size="+0"><b>1986-0706 Guru Pūjā, Cosmic Consciousness, Hall, Kongresshaus Toscana, Toscanapark und Ruhe, Johann Orth-Allee 23, Gmunden (75 kms E of Salzburg), Austria</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"As we had very great people ... uh ... on this Earth, I have given you the names, as we said there are, there have been Ten Gurus, uh ... starting from Ādināth, we had Confucius, we had Socrates, and later on we had Abraham, Moses and also up to Śhirḍī Sāī Nāth, we had about Ten Great Gurus, now we have so many here sitting down. They are all gurus, and They have to behave like gurus and They have to the ... do the job of Great Gurus."</font><br>
 <font size="+0"><b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"And in the stomach, in the Void as you say, are the all the Guru Tattwa where all the Great Gurus uh-uh from Ādināth, Muhammad Sāhab and others up to, we can say, Śhirḍī Sāī Nāth, all of Them are the Guru Principle which we worshiped last time when we were in Andorra."</font><br>
 <font size="+0"><b>1988-0806 Śhrī Kṛiṣhṇa Pūjā, The Witness State (Taṭasth), Lawn, Āśhram, Garlate (40 kms E of Como), Italy</b></font>
 </p>
 
@@ -131,14 +141,19 @@ Their job was just to give awakening to people."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Then ... then of course, of course after Śhrī Kṛiṣhṇa, who took the lead was Christ. And He started talking about spirituality.<br>
+Even, you will be surprised, that Abraham or Moses did not talk of spirituality. They talked of God, but not of spirituality.<br>
+Till Christ came, nobody said that, "You are to be born-again," even in the ... on the other side of the world. Only Śhrī Kṛiṣhṇa said this thing.<br>
+Śhrī Rāma was taught by His guru: that, 'He should be born-again.' In the sense that: what is the Kuṇḍalinī and all that. Not that He should be born-again, but He ... He had become a human being, as I told you. So he taught Him about Kuṇḍalinī, he told Him about Kuṇḍalinī.<br>
+<font color="red">But it was a very secret science, followed by only very ... Nāth Pānthis we call them, is the Ādināth and all that.</font> Very few people were given Realization.<br>
+In Rāma's time just we know upon Nachiketa. And His father-in-law was a realized Soul."<br>
 <font size="+0"><b>1990-0819 Śhrī Kṛiṣhṇa Pūjā, Hallowtree Scout Campsite, Nacton, Ipswich IP10 0JP, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now, the tradition is, that: we had a group, we should say, we called them as Nāth Pānthis, in India, who were working on the central path, which is called as Suṣhumṇā. But the tradition was that only one guru c[o]uld have only one disciple. That was the tradition, for ages together. <font color="red">And the we had this-s Gorakhnāth, and you must have heard about the Macchindranāth, Gorakhnāth, Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], all these people.</font>"<br>
 <font size="+0"><b>1991-0413 Public Program, National Press Club, Canberra, Australia</b></font>
 </p>
 
@@ -158,7 +173,7 @@ Thus this knowledge was kept a secret all the time."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"But in the center we had another great movement which is called as Nāth, Nāth Pānthis. They say it came from Śhiva, but whatever it is: it came from Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], and these people, and got diverted into many types."</font><br>
 <font size="+0"><b>1996-0628 Public Program, Myths Are Unreal, Royal Albert Hall, Kensington Gore, London SW7, UK</b></font>
 </p>
 
