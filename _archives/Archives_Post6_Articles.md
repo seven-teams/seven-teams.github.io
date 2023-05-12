@@ -27,19 +27,19 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>A2.</b></font> <b>1993-0724 Article '7. čakra pro každého' (7th chakra for everyone) by Viktor Šlajchrt in section Kultura, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A2.</b></font> <b>1993-0724 Article '7. čakra pro každého' (7th chakra for everyone) by Viktor Šlajchrt in section Kultura, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0508), Source: <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <font color="SeaGreen">Šrí Mátadží v ČR 2</font></a>
 
 <div style="text-align: center"><img src="/images/1993-0724_Article_7th_chakra_for_everyone_by_Viktor_Slajchrt_in_section_Kultura,_Prague,_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>A3.</b></font> <b>1993-0726 Article 'Indka milu české lidi' (Indian lady loves Czech people) by František Lauer published in the daily newspaper Blesk (Year 2, Number 170), Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A3.</b></font> <b>1993-0726 Article 'Indka milu české lidi' (Indian lady loves Czech people) by František Lauer published in the daily newspaper Blesk (Year 2, Number 170), Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0508), Source: <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <font color="SeaGreen">Šrí Mátadží v ČR 2</font></a>
 
 <div style="text-align: center"><img src="/images/1993-0726_Article_Indian_lady_loves_Czech_people_by_Frantisek_Lauer_published_in_the_daily_newspaper_Blesk,_Prague,_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>A4.</b></font> <b>1996-0717 Article 'Prisli Jsme si pro Kousek lásky kterou rozdávála Šri Mátadží' by Eva Sýkorová published in Večernik Praha, Czech Republic, (David Burša Collection)</b> (2 pages, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A4.</b></font> <b>1996-0717 Article 'Prisli Jsme si pro Kousek lásky kterou rozdávála Šri Mátadží' by Eva Sýkorová published in Večernik Praha, Czech Republic, (David Burša Collection)</b> (2 pages, uploaded on 2023-0508), Source: <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <font color="SeaGreen">Šrí Mátadží v ČR 2</font></a>
 
 <div style="text-align: center"><img src="/images/1996-0717 Article_We_came_for_a_piece_of_love_that_was_given_out_by_Shri_Mataji_by Eva Sykorova_published_in_Vecernik_Praha,_Czech_Republic,_Slide_1_(t)_(David_Bursa_Collection).jpeg" /></div>
 
