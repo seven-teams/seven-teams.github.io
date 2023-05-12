@@ -33,7 +33,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>P3.</b></font> <b>1997-1100 Poster for Public Program on 1118, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0502), Source: <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <font color="SeaGreen">Šrí Mátadží v ČR 2</font></a>
+<font color="DarkGreen"><b>P3.</b></font> <b>1997-1100 Poster for Public Program on 1118, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0502), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
 <div style="text-align: center"><img src="/images/1997-1100_Poster_for_Public_Program_on_1118,_Prague,_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
 
