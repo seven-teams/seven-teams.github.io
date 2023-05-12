@@ -61,26 +61,26 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>A7.</b></font> <b>2012-0319 A Tribute 'Sahaja Yoga for Stress Free Life and Good Health', Free Press Journal, Page 18, Mumbai, Maharashtra, India (M. B. Ratnannvar Collection)</b> (1 pages, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A7.</b></font> <b>2012-0319 A Tribute 'Sahaja Yoga for Stress Free Life and Good Health', Free Press Journal, Page 18, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 pages, uploaded on 2023-0508)
 
-<iframe src="/pdf/?usedownload=true#/files/2012-0319_A_Tribute_'Sahaja_Yoga_for_Stress_Free_Life_and_Good_Health',_FPJ,_Page_18,_Mumbai,_Maharashtra,_India_(M._B._Ratnannvar_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<br>
-
-<font color="DarkGreen"><b>A8.</b></font> <b>2012-0703 A Tribute to Shri Mataji Nirmala Devi on Guru Purnima, Free Press Journal, Page 26, Mumbai, Maharashtra, India (M. B. Ratnannvar Collection)</b> (1 page, uploaded on 2023-0508)
-
-<iframe src="/pdf/?usedownload=true#/files/2012-0703_A_Tribute_to_Shri_Mataji_Nirmala_Devi_on_Guru_Purnima, FPJ,_Page_26,_Mumbai,_Maharashtra,_India_(M._B._Ratnannvar_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#/files/2012-0319_A_Tribute_'Sahaja_Yoga_for_Stress_Free_Life_and_Good_Health',_FPJ,_Page_18,_Mumbai,_Maharashtra,_India_(M._B._Ratnannavar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>A9.</b></font> <b>2013-0321 Article Celebrating the Birth Day of Shri Mataji Nirmala Devi 'Sahaja Yoga - A Silent Move Towards Transformation', Free Press Journal, Page 3, Mumbai, Maharashtra, India (M. B. Ratnannvar Collection)</b> (1 page, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A8.</b></font> <b>2012-0703 A Tribute to Shri Mataji Nirmala Devi on Guru Purnima, Free Press Journal, Page 26, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
 
-<iframe src="/pdf/?usedownload=true#/files/2013-0321_Article_'Sahaja_Yoga_-_A_Silent_Move_Towards_Transformation',_FPJ,_Page_3,_Mumbai,_Maharashtra,_India_(M._B._Ratnannvar_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#/files/2012-0703_A_Tribute_to_Shri_Mataji_Nirmala_Devi_on_Guru_Purnima, FPJ,_Page_26,_Mumbai,_Maharashtra,_India_(M._B._Ratnannavar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>A10.</b></font> <b> 2018-1026 Article 'Unite Nations through Meditation', Free Press Journal, Page 26, Mumbai, Maharashtra, India (M. B. Ratnannvar Collection)</b> (1 page, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A9.</b></font> <b>2013-0321 Article Celebrating the Birth Day of Shri Mataji Nirmala Devi 'Sahaja Yoga - A Silent Move Towards Transformation', Free Press Journal, Page 3, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
 
-<iframe src="/pdf/?usedownload=true#/files/2018-1026_Article_'Unite_Nations_through_Meditation',_FPJ,_Page_26,_Mumbai,_Maharashtra,_India_(M._B._Ratnannvar_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#/files/2013-0321_Article_'Sahaja_Yoga_-_A_Silent_Move_Towards_Transformation',_FPJ,_Page_3,_Mumbai,_Maharashtra,_India_(M._B._Ratnannavar_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
+<font color="DarkGreen"><b>A10.</b></font> <b> 2018-1026 Article 'Unite Nations through Meditation', Free Press Journal, Page 26, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
+
+<iframe src="/pdf/?usedownload=true#/files/2018-1026_Article_'Unite_Nations_through_Meditation',_FPJ,_Page_26,_Mumbai,_Maharashtra,_India_(M._B._Ratnannavar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
