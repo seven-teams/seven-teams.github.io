@@ -48,7 +48,6 @@ Everybody people are talking of vibrations but they do not know what they're tal
 <br>
 <font color="red">We had a Saint called Mārkaṇḍeya, who they say lived fourteen thousand years ago. He has written about this fourth dimension and has described it as the blessing of the Primordial Mother. The second person who was very well equipped with this knowledge, was Ādi Śhaṅkarāchārya who has written many books. The first book he wrote was Vivekachūḍāmaṇi, in which he describes this fourth dimension and explains why we should try to attain this fourth dimension. An intellectual, one Mister Sharma, challenged him and told him that he could not do anything as an ascetic and win over my intellect. Thus he felt that for the common people all this discussion might just seem to be mental acrobatics. So he decided to write books just praising the Primordial Mother, especially in Saundaryalaharī, where he described all the Divine Vibrations as the vibrations of the loving beauty of the Primordial Mother. At that time all this was written in the Sanskrit language but the common people did not understand this language, except for a very few learned people, who also did not want to go into the details of this exposition.</font><br>
 <b>1995-0929 Meta Modern Era, Chapter 9: Evolution</b><br>
-<br>
 </p>
 
 <div class="para-divider"></div>
