@@ -88,6 +88,8 @@ That's why at the age of twenty-three He took a Samādhi. But He wrote this ... 
 <br>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Auspicious Prayer</b><br>
 </p>
