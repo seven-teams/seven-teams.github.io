@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 6 Photos from the special events during the <font color="Crimson"><b>1976-0900 Visit to China</b></font>, i.e., from the very first visit to the Mainland China, have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 high resolutions, 1 medium resolution, and 1 low resolutions from the Named Collections. Few of the events during this visit might have taken place at the end of August, however, it has been felt, exceptionally, more desirable, based on multiple CCT database considerations, to have only 0900 mentioned in the titles of the Photos.<br>
+We are pleased to let you know that 6 Photos from the special events during the <font color="Crimson"><b>1976-0900 Visit, Mainland China</b></font>, i.e., from the very first visit to the Mainland China, have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 high resolutions, 1 medium resolution, and 1 low resolutions from the Named Collections. Few of the events during this visit might have taken place at the end of August, however, it has been felt, exceptionally, more desirable, based on multiple CCT database considerations, to have only 0900 mentioned in the titles of the Photos.<br>
 The direct link to all 6 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/China/1976/"> China 1976</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
