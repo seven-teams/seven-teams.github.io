@@ -96,7 +96,7 @@ And the Mother, the prototype of all existence, is the Eternal Spirit, full of b
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>She's Got the whole world in Her Hands</b></font><br>
+<font color="green"><b>She's got the whole world in Her Hands</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
