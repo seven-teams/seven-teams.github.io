@@ -27,7 +27,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>A3.</b></font> 1990-0800 Newspaper Photos with Caption published in Studenstké Listy, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0518), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
+<font color="DarkGreen"><b>A2.</b></font> <b>1990-0800 Newspaper Photos with Caption published in Studenstké Listy, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0518), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
 <div style="text-align: center"><img src="/images/1990-0800_Newspaper_Photos_with_Caption_published_in_Studenstke_Listy,_Prague,_Czech_Republic_(David_Bursa_Collection).jpg" /></div>
 
