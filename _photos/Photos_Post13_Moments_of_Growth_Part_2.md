@@ -11,7 +11,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to bring to your attention 2 new galleries <a href="https://imageevent.com/sahaja/momentsofgrowth/publicationsofferings"><font color="DarkGreen"><b>Publications-Offerings</b></font></a> and <a href="https://imageevent.com/sahaja/momentsofgrowth/indiatoursbyannamancini"><font color="DarkGreen"><b>India Tours</b></font></a> by a photographer.<br>
+We are pleased to bring to your attention 2 new galleries <a href="https://imageevent.com/sahaja/momentsofgrowth/publicationsofferings"><font color="DarkGreen"><b>Publications-Offerings</b></font></a>, <a href="https://imageevent.com/sahaja/momentsofgrowth/indiatoursbyannamancini"><font color="DarkGreen"><b>India Tours</b></font></a> by a photographer, <a href="https://imageevent.com/sahaja/momentsofgrowth/pujacards?n=0"><font color="DarkGreen"><b>Puja Cards</b></font></a>, and <a href="https://imageevent.com/sahaja/momentsofgrowth/giftsandofferings"><font color="DarkGreen"><b>Gifts and Offerings</b></font></a>.<br>
 Please kindly share the news and the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
