@@ -1,7 +1,7 @@
 ---
 title: 'Divine Message, Version 8.1'
 date: 2023-05-19
-permalink: /divine/2022/05/19
+permalink: /divine/2023/05/19
 tags:
   - Divine Message
 ---
