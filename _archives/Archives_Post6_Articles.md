@@ -39,33 +39,59 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>A4.</b></font> <b>1993-0726 Article 'Indka milu české lidi' (Indian lady loves Czech people) by František Lauer published in the daily newspaper Blesk (Year 2, Number 170), Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0508), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
+<font color="DarkGreen"><b>A4.</b></font> <b>1993-0726 Article 'Indická bohyne v Praze' (Indian goddess in Prague) by Jana Blažková, Prague, Czech Republic (David Burša Collection).</b> (1 page, uploaded on 2023-0601), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
+
+<div style="text-align: center"><img src="/images/1993-0726_Article_'Indian_goddess_in_Prague'_by_Jana_Blazkova,_Prague,_Czech_Republic_(David_Bursa_Collection).jpg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>A5.</b></font> <b>1993-0726 Article 'Indka milu české lidi' (Indian lady loves Czech people) by František Lauer published in the daily newspaper Blesk (Year 2, Number 170), Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0508), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
 <div style="text-align: center"><img src="/images/1993-0726_Article_Indian_lady_loves_Czech_people_by_Frantisek_Lauer_published_in_the_daily_newspaper_Blesk,_Prague,_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>A5.</b></font> <b>1995-0800 Article 'Matka Nirmala Devi přijíždí do Prahy Jóga radosti a poznání' (Mother Nirmala Devi arrives in Prague Yoga of joy and knowledge), Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0518), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
+<font color="DarkGreen"><b>A6.</b></font> <b>1993-0726 Article 'Léčila me bohyne' (I was healed by a goddess), Pargue, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0531), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
+
+<div style="text-align: center"><img src="/images/1993-0726_Article_'I_was_healed_by_a_goddess',_Pargue,_Czech_Republic_(David_Burša_Collection).jpg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>A7.</b></font> <b>1994-0900 Article 'Zujme si boty - Matka přichází' (Take off your shoes - Mother is coming) by Věra Mosková on the 0904 Public Program, published in Bleak, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0531), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
+
+<div style="text-align: center"><img src="/images/1994-0900_Article_'Take_off_your_shoes_-_Mother_is_coming_by_Vera_Moskova_on_the_0904_Public_Program,_published_in_Bleak,_Prague,_Czech_Republic_(David_Burša_Collection).jpg" /></div>
+
+<div style="text-align: center"><img src="/images/1994-0900_Article_'Take_off_your_shoes_-_Mother_is_coming_by_Vera_Moskova_on_the_0904_Public_Program,_published_in_Bleak,_Prague,_Czech_Republic_V2_(David_Burša_Collection).jpg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>A8.</b></font> <b>1995-0800 Article 'Matka Nirmala Devi přijíždí do Prahy Jóga radosti a poznání' (Mother Nirmala Devi arrives in Prague Yoga of joy and knowledge), Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0518), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
 <div style="text-align: center"><img src="/images/1995-0800_Article_'Matka_Nirmala_Devi_prijizdi_do_Prahy_Joga_radosti_a_poznani',_Prague,_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>A6.</b></font> <b>1996-0717 Article 'Prisli Jsme si pro Kousek lásky kterou rozdávála Šri Mátadží' by Eva Sýkorová published in Večernik Praha, Czech Republic, (David Burša Collection)</b> (2 pages, uploaded on 2023-0508), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
+<font color="DarkGreen"><b>A9.</b></font> <b>1995-0807 Article about the Arrival on 0806 with Photo, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0601), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
-<div style="text-align: center"><img src="/images/1996-0717 Article_We_came_for_a_piece_of_love_that_was_given_out_by_Shri_Mataji_by Eva Sykorova_published_in_Vecernik_Praha,_Czech_Republic,_Slide_1_(t)_(David_Bursa_Collection).jpeg" /></div>
-
-<div style="text-align: center"><img src="/images/1996-0717 Article_We_came_for_a_piece_of_love_that_was_given_out_by_Shri_Mataji_by Eva Sykorova_published_in_Vecernik_Praha,_Czech_Republic,_Slide_2_(b)_(David_Bursa_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="/images/1995-0807_Article_about_the_Arrival_on_0806_with_Photo,_Prague,_Czech_Republic_(David_Burša_Collection).jpg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>A7.</b></font> <b>2001-1228 Article (Marathi) in Ratnagiri Times, Front Page, Maharashtra, India (Balwant Kumbhojkar Collection)</b> (1 page, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A10.</b></font> <b>1996-0717 Article 'Prisli Jsme si pro Kousek lásky kterou rozdávála Šri Mátadží' by Eva Sýkorová published in Večernik Praha, Czech Republic, (David Burša Collection)</b> (2 pages, uploaded on 2023-0508), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
+
+<div style="text-align: center"><img src="/images/1996-0717_Article_We_came_for_a_piece_of_love_that_was_given_out_by_Shri_Mataji_by_Eva Sykorova_published_in_Vecernik_Praha,_Czech_Republic,_Slide_1_(t)_(David_Bursa_Collection).jpeg" /></div>
+
+<div style="text-align: center"><img src="/images/1996-0717_Article_We_came_for_a_piece_of_love_that_was_given_out_by_Shri_Mataji_by_Eva Sykorova_published_in_Vecernik_Praha,_Czech_Republic,_Slide_2_(b)_(David_Bursa_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>A11.</b></font> <b>2001-1228 Article (Marathi) in Ratnagiri Times, Front Page, Maharashtra, India (Balwant Kumbhojkar Collection)</b> (1 page, uploaded on 2023-0508)
 
 <div style="text-align: center"><img src="/images/2001-1228 Article_(Marathi)_in_Ratnagiri_Times,_Front_Page,_Maharashtra,_India_(Balwant_Kumbhojkar_Collection).jpg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>A8.</b></font> <b>2003-1200 Article 'शिव और शक्ति का वास्तविक मिलान' (Real Union of Shiva and Shakti) (Hindi), published in Shri Mahashakti Sagar, 4th year, issue 10 (Balwant Kumbhojkar Collection)</b> (2 pages, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A12.</b></font> <b>2003-1200 Article 'शिव और शक्ति का वास्तविक मिलान' (Real Union of Shiva and Shakti) (Hindi), published in Shri Mahashakti Sagar, 4th year, issue 10 (Balwant Kumbhojkar Collection)</b> (2 pages, uploaded on 2023-0508)
 
 <div style="text-align: center"><img src="/images/2003-1200_Article_Real_Union_of Shiva_and_Shakti_(Hindi),_published_in_Shri_Mahashakti_Sagar,_4th_year,_issue_10,_Page_1_(Balwant_Kumbhojkar_Collection).jpg" /></div>
 
@@ -73,25 +99,25 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>A9.</b></font> <b>2012-0319 A Tribute 'Sahaja Yoga for Stress Free Life and Good Health', Free Press Journal, Page 18, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 pages, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A13.</b></font> <b>2012-0319 A Tribute 'Sahaja Yoga for Stress Free Life and Good Health', Free Press Journal, Page 18, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 pages, uploaded on 2023-0508)
 
 <iframe src="/pdf/?usedownload=true#/files/2012-0319_A_Tribute_'Sahaja_Yoga_for_Stress_Free_Life_and_Good_Health',_FPJ,_Page_18,_Mumbai,_Maharashtra,_India_(M._B._Ratnannavar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>A10.</b></font> <b>2012-0703 A Tribute to Shri Mataji Nirmala Devi on Guru Purnima, Free Press Journal, Page 26, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A14.</b></font> <b>2012-0703 A Tribute to Shri Mataji Nirmala Devi on Guru Purnima, Free Press Journal, Page 26, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
 
 <iframe src="/pdf/?usedownload=true#/files/2012-0703_A_Tribute_to_Shri_Mataji_Nirmala_Devi_on_Guru_Purnima, FPJ,_Page_26,_Mumbai,_Maharashtra,_India_(M._B._Ratnannavar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>A11.</b></font> <b>2013-0321 Article Celebrating the Birth Day of Shri Mataji Nirmala Devi 'Sahaja Yoga - A Silent Move Towards Transformation', Free Press Journal, Page 3, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A15.</b></font> <b>2013-0321 Article Celebrating the Birth Day of Shri Mataji Nirmala Devi 'Sahaja Yoga - A Silent Move Towards Transformation', Free Press Journal, Page 3, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
 
 <iframe src="/pdf/?usedownload=true#/files/2013-0321_Article_'Sahaja_Yoga_-_A_Silent_Move_Towards_Transformation',_FPJ,_Page_3,_Mumbai,_Maharashtra,_India_(M._B._Ratnannavar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>A12.</b></font> <b> 2018-1026 Article 'Unite Nations through Meditation', Free Press Journal, Page 26, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A16.</b></font> <b> 2018-1026 Article 'Unite Nations through Meditation', Free Press Journal, Page 26, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
 
 <iframe src="/pdf/?usedownload=true#/files/2018-1026_Article_'Unite_Nations_through_Meditation',_FPJ,_Page_26,_Mumbai,_Maharashtra,_India_(M._B._Ratnannavar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
