@@ -53,15 +53,15 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A6.</b></font> <b>1993-0726 Article 'Léčila me bohyne' (I was healed by a goddess), Pargue, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0531), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
-<div style="text-align: center"><img src="/images/1993-0726_Article_'I_was_healed_by_a_goddess',_Pargue,_Czech_Republic_(David_Burša_Collection).jpg" /></div>
+<div style="text-align: center"><img src="/images/1993-0726_Article_'I_was_healed_by_a_goddess',_Pargue,_Czech_Republic_(David_Bursa_Collection).jpg" /></div>
 
 <br>
 
 <font color="DarkGreen"><b>A7.</b></font> <b>1994-0900 Article 'Zujme si boty - Matka přichází' (Take off your shoes - Mother is coming) by Věra Mosková on the 0904 Public Program, published in the daily newspaper Blesk, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0531), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
-<div style="text-align: center"><img src="/images/1994-0900_Article_'Take_off_your_shoes_-_Mother_is_coming_by_Vera_Moskova_on_the_0904_Public_Program,_published_in_the_daily_newspaper_Blesk,_Prague,_Czech_Republic_(David_Burša_Collection).jpg" /></div>
+<div style="text-align: center"><img src="/images/1994-0900_Article_'Take_off_your_shoes_-_Mother_is_coming_by_Vera_Moskova_on_the_0904_Public_Program,_published_in_the_daily_newspaper_Blesk,_Prague,_Czech_Republic_(David_Bursa_Collection).jpg" /></div>
 
-<div style="text-align: center"><img src="/images/1994-0900_Article_'Take_off_your_shoes_-_Mother_is_coming_by_Vera_Moskova_on_the_0904_Public_Program,_published_in_the_daily_newspaper_Blesk,_Prague,_Czech_Republic_V2_(David_Burša_Collection).jpg" /></div>
+<div style="text-align: center"><img src="/images/1994-0900_Article_'Take_off_your_shoes_-_Mother_is_coming_by_Vera_Moskova_on_the_0904_Public_Program,_published_in_the_daily_newspaper_Blesk,_Prague,_Czech_Republic_V2_(David_Bursa_Collection).jpg" /></div>
 
 <br>
 
@@ -73,7 +73,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A9.</b></font> <b>1995-0807 Article about the Arrival on 0806 with Photo, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0601), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
-<div style="text-align: center"><img src="/images/1995-0807_Article_about_the_Arrival_on_0806_with_Photo,_Prague,_Czech_Republic_(David_Burša_Collection).jpg" /></div>
+<div style="text-align: center"><img src="/images/1995-0807_Article_about_the_Arrival_on_0806_with_Photo,_Prague,_Czech_Republic_(David_Bursa_Collection).jpg" /></div>
 
 <br>
 
