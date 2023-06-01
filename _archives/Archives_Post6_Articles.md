@@ -41,7 +41,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A4.</b></font> <b>1993-0726 Article 'Indická bohyne v Praze' (Indian goddess in Prague) by Jana Blažková, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0601), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
-<div style="text-align: center"><img src="/images/1993-0726_Article_'Indian_goddess_in_Prague'_by_Jana_Blazkova,_Prague,_Czech_Republic_(David_Bursa_Collection).jpg" /></div>
+<div style="text-align: center"><img src="/images/1993-0726_Article_'Indian_goddess_in_Prague'_by_Jana_Blazkova,_Prague,_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
 
 <br>
 
