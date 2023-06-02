@@ -11,7 +11,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Two days ago we have uploaded new Photos to 4 Pūjas as follows.<br>
+Two days ago we uploaded new Photos to 4 Pūjas as follows.<br>
 (i) 1991-0901 Śhrī Kṛiṣhṇa Pūjā: 1 high resolution and 6 medium resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1991"> <font color="DarkGreen"><b>Italy 1991</b></font></a>.<br>
 (ii) 1992-0719 Guru Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1992"> <font color="DarkGreen"><b>Italy 1992</b></font></a>.<br>
 (iii) 1993-1112 Diwālī Pūjā: 4 medium resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Russia/1993"> <font color="DarkGreen"><b>Russia 1993</b></font></a>.<br>
