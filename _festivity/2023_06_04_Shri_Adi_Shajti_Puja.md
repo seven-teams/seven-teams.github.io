@@ -1,6 +1,6 @@
 ---
 title: '2023 Worshiping Śhrī Ādi Śhakti: "Ādi Śhakti is the Power of Love, of pure love, of compassion. There is nothing else She has: only the pure love within Her heart. But this pure love is so powerful, is so powerful" '
-date: 2023-06-06
+date: 2023-06-04
 permalink: /festivity/2023/06/04
 tags:
   - orange @ Shri Adi Shakti Puja
