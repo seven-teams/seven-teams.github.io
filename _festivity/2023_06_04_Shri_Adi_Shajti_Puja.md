@@ -9,13 +9,13 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"Today, we are going to do the Pūjā of Ādi Śhakti.<br>
-It's a difficult subject uuh to talk about Ādi Śhakti, because is not easy to understand that Ādi Śhakti is the Power of Sadāśhiva. Sadāśhiva is the God Almighty. She is His breath, as they some people call it. Some say She is the Desire and some say that She's the Entire Power of Sadāśhiva and Sadāśhiva cannot do anything without Her Powers.<br>
+<font color="DarkRed">"<b>Today, we are going to do the Pūjā of Ādi Śhakti.</b><br>
+It's a difficult subject uuh to talk about Ādi Śhakti, because is not easy to understand that Ādi Śhakti is the Power of Sadāśhiva. Sadāśhiva is the God Almighty. She is His breath, as they some people call it. <b>Some say She is the Desire and some say that She's the Entire Power of Sadāśhiva and Sadāśhiva cannot do anything without Her Powers.</b><br>
 ......<br>
 The first thing is, we must know, that She created a Kuṇḍalinī in the Mother Earth Itself and She created Śhrī Gaṇeśha out of the Mother Earth, it's very interesting.<br>
 So, the Mother Earth becomes a very important thing for us. If we do not know how to respect the Mother Earth, we do not know how to respect ourselves.<br>
 The expression of Ādi Śhakti within you is the Kuṇḍalinī, no doubt. That is the reflection of Ādi Śhakti in you. But the reflection in the Mother Earth is also expressed, as you all know, in different places, different countries, different cities as the manifestation of chakras and Ādi Śhakti's creations. It was very important first to create a very holy Mother Earth for human beings to be born on them [it]. So the reflection of the Ādi Śhakti as Kuṇḍalinī first was on the Mother Earth.<br>
-Kuṇḍalinī is a, we should say, is a wee part of the Ādi Śhakti. Or we can say that She is the desire, pure desire of the Ādi Śhakti. So Ādi Śhakti is the desire, complete desire of Sadāśhiva, and Kuṇḍalinī, Ādi Kuṇḍalinī, is the desire, complete desire of Ādi Śhakti."</font><br>
+Kuṇḍalinī is a, we should say, is a wee part of the Ādi Śhakti. <b>Or we can say that She is the desire, pure desire of the Ādi Śhakti. So Ādi Śhakti is the desire, complete desire of Sadāśhiva, and Kuṇḍalinī, Ādi Kuṇḍalinī, is the desire, complete desire of Ādi Śhakti.</b>"</font><br>
 <font size="+0"><b>1997-0525 Śhrī Ādi Śhakti Pūjā, You Must Give this Love to Others or Respect the Mother Earth, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -24,7 +24,7 @@ Kuṇḍalinī is a, we should say, is a wee part of the Ādi Śhakti. Or we can
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Somebody asked Me, uh, "Is it necessary to have this Pūjā?", [laughing:] I think, if there's any Pūjā that you should do, it is this one, is [of] Ādi Śhakti. Is very important that this Pūjā must be performed.</b> Because that is how you grow, this reflection improves, and you grow more and more within yourself, through the Power of Ādi Śhakti or through the power of Kuṇḍalinī.<br>
 As you know that: Ādi Śhakti has Her own Kuṇḍalinī, which is the Ādi Kuṇḍalinī, and the reflection of that, within you, is the Kuṇḍalinī.<br>
-So you have to worship. And is the best way to please your own Kuṇḍalinī, your own mother, who has given you this birth."</b></font><br>
+So you have to worship. And is the best way to please your own Kuṇḍalinī, your own mother, who has given you this birth."</font><br>
 <font size="+0"><b>1996-0609 Śhrī Ādi Śhakti Pūjā, Get Dissolved into the Divine Power, Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
 <br>
 <font color="DarkGreen"><b>Vin.ti Suniye Ādi Śhakti Meri</b></font><br>
@@ -37,9 +37,9 @@ So you have to worship. And is the best way to please your own Kuṇḍalinī, y
 </p>
 
 <p>
-<font color="DarkRed">"Today we have gathered here to do the Kuṇḍalinī Pūjā, or the Ādi Śhakti Pūjā.<br>
-There's a difference between the two: Ādi Śhakti is the Total Power of God, of His Desire, while [Ādi] Kuṇḍalinī is the One that is reflected, part which is reflected in the human beings as Kuṇḍalinī. So there's a difference between the Ādi Kuṇḍalinī and the Ādi Śhakti.<br>
-Ādi Śhakti is the Parāśhakti, is the Power which is beyond all the powers, which controls all the powers. And one of the powers of Ādi Śhakti is Kuṇḍalinī.<br>
+<font color="DarkRed">"<b>Today we have gathered here to do the Kuṇḍalinī Pūjā, or the Ādi Śhakti Pūjā.</b><br>
+There's a difference between the two: <b>Ādi Śhakti is the Total Power of God, of His Desire, while [Ādi] Kuṇḍalinī is the One that is reflected, part which is reflected in the human beings as Kuṇḍalinī. So there's a difference between the Ādi Kuṇḍalinī and the Ādi Śhakti.<br>
+Ādi Śhakti is the Parāśhakti, is the Power which is beyond all the powers, which controls all the powers. And one of the powers of Ādi Śhakti is Kuṇḍalinī.</b><br>
 For example, the Kuṇḍalinī which is placed within Me, in the triangular bone, is not [the] totality of Me. In the same way, the Kuṇḍalinī, which is placed within you, is not the totality. Of course, It is the power which is there to give you your Self-realization. Is the power that redeems you, that nourishes you, that enlightens your centers.<br>
 But there are two other powers, as you know, very powerful, which are working through Iḍā and Piṅgalā. And the third one is Mahālakṣhmī which is in the center. "</font><br>
 <font size="+0"><b>1995-0604 Śhrī Ādi Śhakti Pūjā, How to Detach Yourself From This Idea of Money Orientation (Thinking about Money, Saving Money, These Things Are Absolutely Against Sahaja Yoga), Hangar, Cabella Ligure, Alessandria, Italy</b></font>
@@ -70,7 +70,7 @@ Salutations to Śhrī Mahālakṣhmī, Śhrī Mahāsaraswatī and Śhrī Mahāk�
 </p>
 
 <p>
-<font color="DarkRed">"Now understand that this Ādi Śhakti is the Power of Love, of Pure Love, of Compassion. There is nothing else She has: only the Pure Love within Her heart. But this Pure Love is so powerful, is so powerful!<br>
+<font color="DarkRed">"<b>Now understand that this Ādi Śhakti is the Power of Love, of Pure Love, of Compassion. There is nothing else She has: only the Pure Love within Her heart. But this Pure Love is so powerful, is so powerful!</b><br>
 ......<br>
 So this Ādi Śhakti's Love is something so, so subtle, is so subtle. You cannot understand sometimes. I know you all love Me very much. It's tremendous love for Me, and when I get the vibrations from you, it is like the ripples that reach the shores and again they return back and lots of little, little sparkling drops are there, on the shore also. In the same way in My heart I feel your love echoing the beauty of this Divine Love ... which I cannot la explain to you the experience that it creates. The first thing that it creates is that tears come into My eyes, because it is the compassion which is Sāndra Karuṇā, is ārdra, it's not dry."</font><br>
 <font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Alessandria, Italy</b></font>
@@ -87,8 +87,8 @@ Your unbounded love is the bliss of complete fulfillment of Mokṣha<br>
 </p>
 
 <p>
-<font color="DarkRed">"Love is the Message of Ādi Śhakti.<br>
-Now you think about it. One Ādi Śhakti created the whole world. How She must have done it. What She must have planned. How She must have organized. It is not a[n] easy thing. Only because She loved.<br>
+<font color="DarkRed">"<b>Love is the Message of Ādi Śhakti.<br>
+Now you think about it. One Ādi Śhakti created the whole world.</b> How She must have done it. What She must have planned. How She must have organized. It is not a[n] easy thing. Only because She loved.<br>
 Love is the expression that you are all there. That is why to be one with Her one should learn to love.<br>
 Of course in that you have to know that you should forgive. If you don't know how to forgive and find mistakes of other people you won't help. What is your now job is, is to see that you are loving, no hatred for anyone, you don't think of hating anyone and hitting somebody.<br>
 This has to work out."</font><br>
@@ -96,11 +96,11 @@ This has to work out."</font><br>
 </p>
 
 <p>
-<font color="DarkRed">"Today, we are all going to worship Me, first time. It has been always the Pūjā of [an] aspect of Me or a part of Me.<br>
+<font color="DarkRed">"<b>Today, we are all going to worship Me, first time. It has been always the Pūjā of [an] aspect of Me or a part of Me.</b><br>
 Now, one has to know very clearly what is Ādi Śhakti. As we say, is the Pure Desire of God Almighty, of Sadāśhiva. But what is the pure Desire of God Almighty?<br>
 If you see your own desires, come out of what? Not out of the Divine Love but out of carnal love, out of material love, of out of power love. Behind all these desires there is love.<br>
 If you do not love something you will not desire it. So, these mundane types of love that you have, for which we spend so much of our time uselessly, actually they do not give you satisfaction, because that is not true love that you have. Just infatuation for the time being, and then you just get fed up with it, and from there you jump to another thing, to another thing, to another thing.<br>
-So Ādi Śhakti is the Embodiment of God's Divine Love, is God's Pure Love, and in His Love what did He desire? He desired that He should create human beings, who would be very obedient, would be sublime, would be like angels. And that was His idea: to create Adam and Eve."</font><br>
+So <b>Ādi Śhakti is the Embodiment of God's Divine Love, is God's Pure Love, and in His Love what did He desire? He desired that He should create human beings, who would be very obedient, would be sublime, would be like angels. And that was His idea: to create Adam and Eve.</b>"</font><br>
 <font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -135,11 +135,11 @@ So, sucking should be more. Sucking should be more. <b>And just before the Pūj�
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Ādi Śhakti Mātājī tere Charano meaya hu mein</b></font><br>
-Ādi Śhakti Mātājī I have come to Your Lotus Feet<br>
+<font size="+0">Ādi Śhakti Mātājī I have come to Your Lotus Feet</font><br>
 <font color="DarkGreen"><b>Shyam Savere gun. Tere gaon,  Tera hijaya hun mein,</b></font><br>
-Morning and evening I sing Your praise<br>
+<font size="+0">Morning and evening I sing Your praise</font><br>
 <font color="DarkGreen"><b>Śhrī Mā Tera hi jaya hu mein</b></font><br>
-Śhrī Mā I Have received Second Birth from You<br>
+<font size="+0">Śhrī Mā I Have received Second Birth from You</font><br>
 <a href="https://youtu.be/L1wSDCxZKS0?list=PLC8554007A2C98EA0">video</a>
 </p>
 
