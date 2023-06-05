@@ -156,7 +156,7 @@ So, sucking should be more. Sucking should be more. <b>And just before the PÅ«jÄ
 
 <p>
 <font color="green"><b>THE 64 ADORATIONS OF SHRI ADI SHAKTI</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://youtu.be/wj74gNpcy0s?list=PLC8554007A2C98EA0">video</a>
 </p>
 
 <p>
