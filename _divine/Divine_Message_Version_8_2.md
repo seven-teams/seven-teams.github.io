@@ -1,5 +1,5 @@
 ---
-title: 'Divine Message, Version 821'
+title: 'Divine Message, Version 8.2'
 date: 2023-06-05
 permalink: /divine/2023/06/05
 tags:
