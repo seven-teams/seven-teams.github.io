@@ -29,7 +29,7 @@ So you have to worship. And is the best way to please your own Kuṇḍalinī, y
 <br>
 <font color="DarkGreen"><b>Vin.ti Suniye Ādi Śhakti Meri</b></font><br>
 <font size="+0"><b>O Ādi Śhakti, please listen to my request</b></font><br>
-<font color="DarkGreen"><b>Pujan . ka adhikar. dijiye</b></font><br>
+<font color="DarkGreen"><b>Pujan. ka adhikar. dijiye</b></font><br>
 <font size="+0"><b>Please give me the authority to do Your Pūjā</b></font><br>
 <font color="DarkGreen"><b>Śharaṇāga. hai Hṛiday. pujārī</b></font><br>
 <font size="+0"><b>Your worshipper is surrendered to You from the heart.</b></font><br>
@@ -38,8 +38,8 @@ So you have to worship. And is the best way to please your own Kuṇḍalinī, y
 
 <p>
 <font color="DarkRed">"<b>Today we have gathered here to do the Kuṇḍalinī Pūjā, or the Ādi Śhakti Pūjā.</b><br>
-There's a difference between the two: <b>Ādi Śhakti is the Total Power of God, of His Desire, while [Ādi] Kuṇḍalinī is the One that is reflected, part which is reflected in the human beings as Kuṇḍalinī. So there's a difference between the Ādi Kuṇḍalinī and the Ādi Śhakti.<br>
-Ādi Śhakti is the Parāśhakti, is the Power which is beyond all the powers, which controls all the powers. And one of the powers of Ādi Śhakti is Kuṇḍalinī.</b><br>
+There's a difference between the two: <b>Ādi Śhakti is the Total Power of God, of His Desire, while [Ādi] Kuṇḍalinī is the One that is reflected, part which is reflected in the human beings as Kuṇḍalinī.</b> So there's a difference between the Ādi Kuṇḍalinī and the Ādi Śhakti.<br>
+<b>Ādi Śhakti is the Parāśhakti, is the Power which is beyond all the powers, which controls all the powers. And one of the powers of Ādi Śhakti is Kuṇḍalinī.</b><br>
 For example, the Kuṇḍalinī which is placed within Me, in the triangular bone, is not [the] totality of Me. In the same way, the Kuṇḍalinī, which is placed within you, is not the totality. Of course, It is the power which is there to give you your Self-realization. Is the power that redeems you, that nourishes you, that enlightens your centers.<br>
 But there are two other powers, as you know, very powerful, which are working through Iḍā and Piṅgalā. And the third one is Mahālakṣhmī which is in the center. "</font><br>
 <font size="+0"><b>1995-0604 Śhrī Ādi Śhakti Pūjā, How to Detach Yourself From This Idea of Money Orientation (Thinking about Money, Saving Money, These Things Are Absolutely Against Sahaja Yoga), Hangar, Cabella Ligure, Alessandria, Italy</b></font>
@@ -58,9 +58,9 @@ But there are two other powers, as you know, very powerful, which are working th
 <font size="+0"><b>1986-0106 Śhrī Mahālakṣhmī Pūjā (English + Marathi + English), Ascent Is the Main Attention, Sangli, Maharashtra, India</b></font><br>
 <br>
 <font color="DarkGreen"><b>Bolo Ādi Śhakti Mātājī Nirmalā Devī kī Jay</b></font><br>
-Salutations to the Ādi Śhakti Mātājī Nirmalā Devī<br>
+<font size="+0">Salutations to the Ādi Śhakti Mātājī Nirmalā Devī</font><br>
 <font color="DarkGreen"><b>Mahālakṣhmī, Mahāsaraswatī, Mahākālī kī Jay.</b></font><br>
-Salutations to Śhrī Mahālakṣhmī, Śhrī Mahāsaraswatī and Śhrī Mahākālī<br>
+<font size="+0">Salutations to Śhrī Mahālakṣhmī, Śhrī Mahāsaraswatī and Śhrī Mahākālī</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -117,7 +117,7 @@ You give Sahaja Yoga to the whole universe<br>
 Verily You are the highest Father of Mankind<br>
 <font color="DarkGreen"><b>He Ādi Mā, He Anti Mā</b></font><br>
 O Primordial Mother, O Eternal Mother<br>
-<a href="">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
