@@ -19,7 +19,7 @@ Kuṇḍalinī is a, we should say, is a wee part of the Ādi Śhakti. Or we can
 <font size="+0"><b>1997-0525 Śhrī Ādi Śhakti Pūjā, You Must Give this Love to Others or Respect the Mother Earth, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image.png" /></div>
+<div style="text-align: center"><img src="/images/image1191.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Somebody asked Me, uh, "Is it necessary to have this Pūjā?", [laughing:] I think, if there's any Pūjā that you should do, it is this one, is [of] Ādi Śhakti. Is very important that this Pūjā must be performed.</b> Because that is how you grow, this reflection improves, and you grow more and more within yourself, through the Power of Ādi Śhakti or through the power of Kuṇḍalinī.<br>
@@ -51,7 +51,7 @@ But there are two other powers, as you know, very powerful, which are working th
 <font size="+0"><b>1997-0525 Śhrī Ādi Śhakti Pūjā, You Must Give this Love to Others or Respect the Mother Earth, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image.png" /></div>
+<div style="text-align: center"><img src="/images/image1192.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">And at this place meet the three chakras, and that is why Śhrī Mahākālī, Śhrī Mahālakṣhmī and Śhrī Mahāsaraswatī, all these Three Powers meet. <b>As these Three Powers meet, they form One Power, that is Śhrī Ādi Śhakti. That is why in Sahasrāra Śhrī Ādi Śhakti resides, but it is said so, that in Sahasrāra Ādi Śhakti exists in a form of Mahāmāyā -- Śhrī Ādi Śhakti exists, but She is in the form of Mahāmāyā.</b> That is why the result of all these Three Powers was like this, that Śhrī Ādi Śhakti comes into this world in the Form of Mahāmāyā (Mahāmāyā Swarūp), and She can penetrate the Sahasrāra of everyone. As you know, She is in front of you and you know all about it, so I need not tell anything more.</font><br>
@@ -76,7 +76,7 @@ So this Ādi Śhakti's Love is something so, so subtle, is so subtle. You cannot
 <font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image.png" /></div>
+<div style="text-align: center"><img src="/images/image1193.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>He Nirmalā Mā,</b></font><br>
@@ -104,7 +104,7 @@ So Ādi Śhakti is the Embodiment of God's Divine Love, is God's Pure Love, and 
 <font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image.png" /></div>
+<div style="text-align: center"><img src="/images/image1194.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Dene Zeri Amuchya Shiri,</b></font><br>
@@ -131,7 +131,7 @@ So, sucking should be more. Sucking should be more. <b>And just before the Pūj�
 <font size="+0"><b>1978-0914 Letter to Mrs. Rāja Kuṃwar Raul (Marathi), 56 Ashley Gardens, Ambrosden Avenue (near Victoria Station), London, UK (other years 1980 and 1981)</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image.png" /></div>
+<div style="text-align: center"><img src="/images/image1195.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Ādi Śhakti Mātājī tere Charano meaya hu mein</b></font><br>
