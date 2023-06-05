@@ -1,7 +1,7 @@
 ---
-title: 'Divine Message, Version 8.1'
-date: 2023-05-19
-permalink: /divine/2023/05/19
+title: 'Divine Message, Version 821'
+date: 2023-06-05
+permalink: /divine/2023/06/05
 tags:
   - Divine Message
 ---
@@ -9,7 +9,7 @@ tags:
 <p>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We would like to share with you all the up-dated <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been working on since Divine Message, Version 8 was posted on March 19, 2023. The pdf file <font color="blue">Divine Message, Version 8.1</font> is available at the link <a href="https://bit.ly/Divine_Message_V8_1">Version 8.1</a>.<br>
+We would like to share with you all the up-dated <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been working on since Divine Message, Version 8.1 was posted on Mary 19, 2023. The pdf file <font color="blue">Divine Message, Version 8.2</font> is available at the link <a href="https://bit.ly/Divine_Message_V8_2">Version 8.2</a>.<br>
 <br>
 Please kindly share the link with all our brothers and sisters.<br> 
 <br>
