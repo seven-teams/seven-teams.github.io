@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 1 Photo of the event <font color="Crimson"><b>1972-0321 Small Birthday Pūjā</b></font>, second Pūjā in the database, has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
-Direct link to the Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1972/"> Collection 1972</a>.<br>
+Direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1972/"> Collection 1972</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>
