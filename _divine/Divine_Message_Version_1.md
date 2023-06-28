@@ -33,8 +33,8 @@ PS. Here are a few additional points:
 2. Many talks are interlinked via hyperlinks.
 3. We were hesitant to add the four books. But we were told that 'Meta Modern Era' is available for free on Kindle, that versions of `The Book of Adi Shakti' are available at http://mothersfirstbook.blogspot.com.au/, and that pdf files of the other two books are widely circulated.
 Our hesitations were completely removed when we found in a letter from NIPC the following text "It is the fundamental and inalienable right of every Sahaja Yogi to access the full and complete knowledge of Shri Mataji in its unadulterated form, exactly as She communicated it to Her audience."
-4. The IAST has not been completed: only about 90% (the most used Sanskrit words have been uniformly written using IAST, except when part of written notes/letters/etc in English; few exceptions will be adjusted in Version 2).
-5. It is expected that the number of Events with Transcripts/Quotes will be well above 5,000. This means that the current file represents only about 40% of the what one would call the 
+4. The IAST has not been completed: only about 90\% (the most used Sanskrit words have been uniformly written using IAST, except when part of written notes/letters/etc in English; few exceptions will be adjusted in Version 2).
+5. It is expected that the number of Events with Transcripts/Quotes will be well above 5,000. This means that the current file represents only about 40\% of the what one would call the 
 Complete Divine Message of Her Holiness Shri Mataji Nirmala Devi. 
 6. Putting aside the boldface, in this Version 1 we refrained from using more than one font (except for `The Book of Adi Shakti') as it was felt that more inputs/agreement on fonts would be required. 
 7. Same about colors: the usage of colors (applied uniformly) has been so far restricted to the very minimum as more inputs are required. 
