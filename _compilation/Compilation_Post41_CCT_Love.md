@@ -19,7 +19,7 @@ They [husband and wife] are not similar but both are equal, no doubt! One is the
 ......<br>
 What sin can you commit that I cannot devour? <font color="red">You know, the Devī's Love is like the bottom of the ocean; no matter how big the ocean is, its bottom is always bigger.</font><br>
 ......<br>
-[Related to the seekers that come to public programs and then they fizzle out due to the escapism that Śhrī Mātājī is too pure and too great:] <font color="red">The ocean of sin cannot be greater than the heart of your Lord who loves you.</font> He can drink all the poison. Come back.<br>
+[Related to the seekers that come to public programs and then they fizzle out due to the escapism that, 'Śhrī Mātājī is too pure and too great':] <font color="red">The ocean of sin cannot be greater than the heart of your Lord who loves you.</font> He can drink all the poison. Come back.<br>
 ......<br>
 <font color="red">I think your childhood must have been very harsh, that is why you do not know the art of love.</font><br>
 ......<br>
