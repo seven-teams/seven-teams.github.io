@@ -30,7 +30,7 @@ What sin can you commit that I cannot devour? <font color="red">You know, the De
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"There is no need to think about others' wrong. <font color="red">Satisfaction is the boat and love is the oar.</font> Why to make our life's hard‽<br>
+"There is no need to think about others' wrong. <font color="red">Satisfaction is the boat and love is the oar.</font> Why to make our life's hard‽<br>
 ......<br>
 Does Gaṅgā measure the value of your pitcher? ...... Gaṅgā has accepted you and came to your house. <font color="red">She washes your feet, so that you can accept this pure love and fill others' pitcher.</font>"<br>
 <font size="+0"><b>1900-0000 Quotes from Various Letters (likely Hindi) from Anant Jeevan, Issue 2, Inside Front Cover</b></font>
@@ -162,7 +162,7 @@ When I talk of love, people think that I am trying to make you weak people. Beca
 ......<br>
 But it is not now for the realized to sit down and to wonder and laugh at the foolishness of the people who are not yet realized. Not even to take pity on them, but to come out. <font color="red">'Come out with the sword of love to win the whole world,' it is very, very essential.</font> If the creation has to be saved, then you are not to keep mum about it.<br>
 <font color="red">All the wrong ideas about love, all the falsehood about love, has to be given up.</font><br>
-......"</font><br>
+......"<br>
 <font size="+0"><b>1973-0828 Śhrī Kṛiṣhṇa Pūjā, Most Dynamic Power of Love, Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 

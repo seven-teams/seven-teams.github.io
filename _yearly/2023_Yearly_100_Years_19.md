@@ -21,7 +21,7 @@ tags:
 ......<br>
 The Pūjā is arranged because you have been initiated into the Statutes of the Lord. You have been told what are the dharmas of a human being.<br>
 ......<br>
-Let's see what are the Statutes. First is: `You do not harm anyone.' First principle is that we are not to harm anyone. ...... Animals [human beings] are not to harm anyone! They can correct but not harm.<br>
+Let's see what are the Statutes. First is: 'You do not harm anyone.' First principle is that we are not to harm anyone. ...... Animals [human beings] are not to harm anyone! They can correct but not harm.<br>
 ......<br>
 The second Statute is that you have to stu ... stand on your own legs and know that you are here one with the Truth, the testimony. The testimony of the Truth: that you have seen the Truth, you know what Truth is, and you cannot compromise with falsehood, you cannot.<br>
 ......<br>
