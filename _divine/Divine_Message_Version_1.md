@@ -8,7 +8,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginis,
 
 We would like to share with all of you the <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been working on since one year: the pdf file <font color="blue">Divine Message, Version 1</font>  is available at the link
-<a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing</a>
+<a href="https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing">https://drive.google.com/file/d/0B3izjZneKyksd0Vtc2p3WWpwcjA/view?usp=sharing"</a>
 
 Please kindly share it with all our brothers and sisters. This can be done by either sharing this link or by downloading the file and then e-mailing it as an attachment.
 
