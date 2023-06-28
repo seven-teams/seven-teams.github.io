@@ -1,7 +1,7 @@
 ---
 title: 'Post 41: Love'
-date: 2023-06-26
-permalink: /compilation/2023/0626
+date: 2023-06-28
+permalink: /compilation/2023/0628
 tags:
   - crimson @ Love
 ---
