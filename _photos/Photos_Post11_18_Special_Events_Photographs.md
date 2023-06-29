@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 4 extra Photos from the special event <font color="Crimson"><b>2007-0420 With Taarini, Dubai, U.A.E.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 high resolutions from the Named Collections.<br>
+We are pleased to let you know that 4 Photos from the special event <font color="Crimson"><b>2007-0420 With Taarini, Dubai, U.A.E.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 high resolutions from the Named Collections.<br>
 The direct link to all 4 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/UAE/2007/"> U.A.E. 2007</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
