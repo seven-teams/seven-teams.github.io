@@ -21,7 +21,7 @@ sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
 
-<font color="DarkGreen"><b>SP(H)1.</b></font> <b></b> (4 pages, uploaded on 2023-0629)
+<font color="DarkGreen"><b>SP(H)1.</b></font> <b>1995-1205 Sahaj Patrika (Hindi), Issue 1, New Delhi (CCT Scans Collection)</b> (4 pages, uploaded on 2023-0629)
 
 [Download the original CCT scan pdf here](https://bit.ly/Sahaj_Patrika_Hindi_Issue_1)
 
