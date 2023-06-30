@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo from the special event <font color="Crimson"><b>1996-0000 With Family and a Guest, Pune, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
+We are pleased to let you know that 1 Photo from the special event <font color="Crimson"><b>1996-0000 With a Guest and Family, Pune, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
 The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1996/"> Collection 1996</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
