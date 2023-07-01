@@ -1,14 +1,14 @@
 ---
-title: 'Post 18: OLD TESTATMENT'
+title: 'Post 18: OLD TESTAMENT'
 date: 2023-07-01
-permalink: /quotes/2022/0701
+permalink: /quotes/2023/0701
 tags:
   - crimson @ Shri Abraham
   - crimson @ Shri Moses
   - green @ Shri Adi Guru
   - green @ Shri Vishnu
   - orange @ Torah
-  - orange @ Bible (Old Testatemnt)
+  - orange @ Bible (Old Testament)
   - peru @ Judaism
   - peru @ Islam
   - peru @ Christianity
@@ -16,7 +16,7 @@ tags:
 
 <p>
 <br>
-<font color="red"><b>Śhrī Mātājī's words on Old Testatemnt</b></font><br>
+<font color="red"><b>Śhrī Mātājī's words on Old Testatment</b></font><br>
 <br>
 <font color="DarkGreen"><b>King James Bible Version</b></font><br>
 <br>
