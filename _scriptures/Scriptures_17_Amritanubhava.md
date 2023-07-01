@@ -27,7 +27,7 @@ In that state you are Atīta [beyond], this is a very beautiful word. You become
 The road to attain that religion is that of the raising of the Kuṇḍalinī. Now you have to give up the false ideas that, 'We have to pay money,' 'It is too difficult,' 'It causes a lot of trouble,' etc. You have to explain this fact properly to the people.<br>
 If you just take the example of Tukārām, you see in how many ways he has described this.<br>
 In Amṛutānubhav, Gyāneśhwara has described these things so beautifully.<br>
-If you read the śhlokas of Nāmadeva, you will be surprised that how he has described such great things with the simplest of words. </font><br>
+If you read the śhlokas of Nāmadeva, you will be surprised that how he has described such great things with the simplest of words.</font><br>
 <b>1986-1229 Public Program (Marathi), Art, Commerce, and Science, Rahimatpur (22 kms SE of Sātārā), Maharashtra, India</b><br>
 <br>
 <font color="red">Dyaneśhwa Himself has clearly written in His book Amṛutānubhav that after reading His book, one should simply contemplate and think, 'What this is all about?', not merely continue reading. You will be surprised that He has stipulated in it more clearly what I am emphasizing.</font><br>
