@@ -15,7 +15,7 @@ tags:
 <br>
 <font color="DarkGreen"><b>Translation by Pandit S. Subrahmanya Sastri and T. R. Srinivasa Ayyangar, published by The Theosophical Publishing House, Madras India, sixth printing 1985</b></font><br>
 <br>
-<font color="purple"><b>Transliterations</b> <a href="https://vignanam.org/english/soundarya-lahari.html">link 1</a> and <a href="https://www.symb-ol.org/sacred-books/">link 2</font><br>
+<font color="purple"><b>Transliterations</b> <a href="https://vignanam.org/english/soundarya-lahari.html">link 1</a> and <a href="https://www.symb-ol.org/sacred-books/">link 2</a></font><br>
 </p>
 
 <div class="para-divider"></div>
