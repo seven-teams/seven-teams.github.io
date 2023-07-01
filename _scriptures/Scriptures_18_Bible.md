@@ -16,9 +16,9 @@ tags:
 
 <p>
 <br>
-<font color="red"><b>Śhrī Mātājī's words on Old Testatment</b></font><br>
+<font color="red"><b>Śhrī Mātājī's words on Old Testament</b></font><br>
 <br>
-<font color="DarkGreen"><b>King James Bible Version</b></font><br>
+<font color="DarkGreen"><b>King James Version</b></font><br>
 <br>
 <font color="blue"><b>New International Version</b></font><br>
 <br>
