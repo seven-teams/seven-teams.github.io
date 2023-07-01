@@ -66,7 +66,7 @@ First you have to become a Saint! You have to become an enlightened personality,
 <b>Genesis</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p>
@@ -79,266 +79,266 @@ First you have to become a Saint! You have to become an enlightened personality,
 <b>Exodus</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Leviticus</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Numbers</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Deuteronomy</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Joshua</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Judges</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Ruth </b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>1 Samuel</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>2 Samuel</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b> 1 Kings</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>2 Kings</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>1 Chronicles</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>2 v</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Ezra</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Nehemiah</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Esther </b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Job</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Psalms</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Proverbs</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Ecclesiastes</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b> Song of Solomon</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Isaiah</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b> Jeremiah</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Lamentations</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Ezekiel</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Daniel</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Hosea</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Joel</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Amos</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Obadiah</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Jonah</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Micah</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Nahum </b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Habakkuk</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Zephaniah</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Haggai</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Zechariah</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
 <b>Malach</b><br>
 <font color="DarkGreen"><b></b></font>
 <font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font><br>
+<font color="Peru"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
