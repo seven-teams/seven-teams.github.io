@@ -382,17 +382,17 @@ Mukunda brahm’endra sphuṭa makuṭa nīrājita padām</font>
 
 <p>
 <b>23 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Tvayā hṛitvā vāmaṁ vapur apari-tṛiptena manasā<br>
+Śharīr’ārdhaṁ śhambhor aparam api śhaṅke hṛitam abhūt<br>
+Yad etat tvad-rūpaṁ sakalam aruṇābhaṁ trinayanaṁ<br>
+Kuchābhyām ānamraṁ kuṭila śhaśhi chūḍāla makuṭam</font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <b>23 Translation</b><br>
-<font color="DarkGreen">Tvayā hṛitvā vāmaṁ vapur apari-tṛiptena manasā<br>
-Śharīr’ārdhaṁ śhambhor aparam api śhaṅke hṛitam abhūt<br>
-Yad etat tvad-rūpaṁ sakalam aruṇābhaṁ trinayanaṁ<br>
-Kuchābhyām ānamraṁ kuṭila śhaśhi chūḍāla makuṭam</font><br>
+<font color="DarkGreen"></font><br>
 </p>
 
 <p>
