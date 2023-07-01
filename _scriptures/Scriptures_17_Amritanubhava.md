@@ -1,7 +1,7 @@
 ---
 title: 'Post 17: AMṚUTĀNUBHAVA'
 date: 2023-05-13
-permalink: /quotes/2023/0513
+permalink: //scriptures/2023/0513
 tags:
   - crimson @ Shri Gyaneshwara
   - green @ Shri Karttikeya
