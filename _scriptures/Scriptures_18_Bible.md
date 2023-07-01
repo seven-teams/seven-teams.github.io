@@ -1,7 +1,7 @@
 ---
 title: 'Post 18: OLD TESTAMENT'
 date: 2023-07-01
-permalink: //scriptures/2023/0701
+permalink: /scriptures/2023/0701
 tags:
   - crimson @ Shri Abraham
   - crimson @ Shri Moses
