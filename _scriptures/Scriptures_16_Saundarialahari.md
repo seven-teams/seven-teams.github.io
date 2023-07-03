@@ -81,6 +81,7 @@ Haras saṁkṣhudy’ainaṁ bhajati bhasit’oddhūlana vidhim</font>
 <p>
 <b>2 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -96,6 +97,7 @@ Nimagnānāṁ daṁṣhṭrā mura ripu-varāhasya bhavati</font>
 <p>
 <b>3 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -111,6 +113,7 @@ Bhayāt trātuṁ dātuṁ phalam api cha vāñchhā samadhikaṁ<br>
 <p>
 <b>4 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -126,6 +129,7 @@ Munīnām apy’antaḥ prabhavati hi mohāya mahatām</font>
 <p>
 <b>5 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -141,6 +145,7 @@ Apāṅgāt te labdhvā jagad idam anaṅgo vijayate</font>
 <p>
 <b>6 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -156,6 +161,7 @@ Purastād āsthāṁ naḥ pura mathitur āho-puruṣhikā</font>
 <p>
 <b>7 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -171,6 +177,7 @@ bhajanti tvāṁ dhanyāḥ katichana chid-ānanda-laharīm</font>
 <p>
 <b>8 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -186,6 +193,7 @@ Sahasrāre padme saha rahasi patyā viharase</font>
 <p>
 <b>9 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -201,6 +209,7 @@ Svam ātmānaṁ kṛitvā svapiṣhi kula-kuṇḍe kuhariṇi</font>
 <p>
 <b>10 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -216,6 +225,7 @@ Tri-rekhābhiḥ sārdhaṁ tava śharaṇa koṇāḥ pariṇatāḥ</font>
 <p>
 <b>11 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -231,6 +241,7 @@ Tapobhir duṣh-prāpām api giriśha sāyujya padavīm</font>
 <p>
 <b>12 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -246,6 +257,7 @@ Haṭhāt truṭyat kāñchyo vigalita dukūlā yuvatayaḥ</font>
 <p>
 <b>13 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -261,6 +273,7 @@ Mayūkhās teṣhām apy’upari tava pād’āmbuja yugam</font>
 <p>
 <b>14 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -276,6 +289,7 @@ Madhu kṣhīra drākṣhā madhuri madhurīṇāḥ phaṇitayaḥ</font>
 <p>
 <b>15 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -291,6 +305,7 @@ Gabhīrābhir vāgbhir vidadhati satāṁ rañjanam amī</font>
 <p>
 <b>16 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -306,6 +321,7 @@ Vachobhir vāg-devī vadana kamal’āmoda madhuraiḥ</font>
 <p>
 <b>17 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -321,6 +337,7 @@ Sah’orvaśhyā vaśhyāḥ kati kati na gīrvāṇa-gaṇikāḥ</font>
 <p>
 <b>18 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -336,6 +353,7 @@ Trilokīm apy’āśhu bhramayati rav’īndu stana yugām</font>
 <p>
 <b>19 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -351,6 +369,7 @@ Jvara-pluṣhṭān dṛiṣhṭyā sukhayati sudhā-dhāra sirayā</font>
 <p>
 <b>20 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -366,6 +385,7 @@ Mahāntaḥ paśhyanto dadhati param’āhlāda laharīm</font>
 <p>
 <b>21 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -381,6 +401,7 @@ Mukunda brahm’endra sphuṭa makuṭa nīrājita padām</font>
 <p>
 <b>22 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -396,6 +417,7 @@ Kuchābhyām ānamraṁ kuṭila śhaśhi chūḍāla makuṭam</font>
 <p>
 <b>23 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -411,6 +433,7 @@ Tav’āgñyām ālambya kṣhaṇa chalitayor bhrū latikayoḥ</font>
 <p>
 <b>24 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -426,6 +449,7 @@ Sthitā hy’ete śhaśhvan mukulita karottaṁsa makuṭāḥ</font>
 <p>
 <b>25 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -441,6 +465,7 @@ Mahāsaṁhāre-’smin viharati sati tvat patir asau</font>
 <p>
 <b>26 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -456,6 +481,7 @@ Saparyā paryāyas tava bhavatu yan me vilasitam</font>
 <p>
 <b>27 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -471,6 +497,7 @@ Na śhambhos tan mūlaṁ tava janani tāṭaṅka mahimā</font>
 <p>
 <b>28 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -486,6 +513,7 @@ Bhavasy’ābhy’utthāne tava parijan’oktir vijayate</font>
 <p>
 <b>29 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -501,6 +529,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>30 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -513,6 +542,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>31 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -525,6 +555,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>32 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -537,6 +568,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>33 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -549,6 +581,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>34 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -561,6 +594,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>35 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -573,6 +607,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>36 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -585,6 +620,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>37 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -597,6 +633,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>38 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -609,6 +646,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>39 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -621,6 +659,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>40 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -633,6 +672,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>1 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -645,6 +685,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>42 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -657,6 +698,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>43 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -669,6 +711,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>44 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -681,6 +724,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>45 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -693,6 +737,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>46 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -705,6 +750,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>47 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -717,6 +763,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>48 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -729,6 +776,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>49 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -741,6 +789,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>50 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -753,6 +802,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>51 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -765,6 +815,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>52 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -777,6 +828,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>53 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -789,6 +841,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>54 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -801,6 +854,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>55 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -813,6 +867,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>56 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -825,6 +880,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>57 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -837,6 +893,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>58 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -849,6 +906,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>59 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -861,6 +919,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>60 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -873,6 +932,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>61 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -885,6 +945,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>62 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -897,6 +958,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>63 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -909,6 +971,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>64 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -921,6 +984,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>65 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -933,6 +997,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>66 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -945,6 +1010,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>67 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -957,6 +1023,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>68 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -969,6 +1036,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>69 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -981,6 +1049,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>70 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -993,6 +1062,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>71 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1005,6 +1075,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>72 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1017,6 +1088,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>73 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1029,6 +1101,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>74 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1041,6 +1114,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>75 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1053,6 +1127,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>76 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1065,6 +1140,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>77 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1077,6 +1153,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>78 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1089,6 +1166,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>79 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1101,6 +1179,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>80 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1113,6 +1192,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>81 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1125,6 +1205,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>82 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1137,6 +1218,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>83 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1149,6 +1231,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>84 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1161,6 +1244,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>85 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1173,6 +1257,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>86 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1185,6 +1270,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>87 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1197,6 +1283,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>88 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1209,6 +1296,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>89 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1221,6 +1309,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>90 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1233,6 +1322,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>91 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1245,6 +1335,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>92 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1257,6 +1348,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>93 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1269,6 +1361,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>94 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1281,6 +1374,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>95 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1293,6 +1387,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>96 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1305,6 +1400,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>97 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1317,6 +1413,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>98 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1329,6 +1426,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>99 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1341,6 +1439,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>100 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1353,6 +1452,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>101 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1365,6 +1465,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>102 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1377,6 +1478,7 @@ Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 <p>
 <b>103 Translation</b><br>
 <font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
