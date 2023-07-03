@@ -88,7 +88,7 @@ That's why it was said that, ``Guru is a person who makes you meet God": he rais
 <p>
 <font color="DarkRed">"In the Guru Principle, we have seen people who came on this Earth. They were all mostly born realized, actually, and they never gave Realization to anyone to -- very big difference. They were all born as realized Souls, and they became as Sufis and they are called by different names, but they were not given Self-realization, they had it.<br>
 And because of their Self-realization, as they had, they have so much of knowledge. And that is what they tried to impart to people.<br>
-They knew all about chakras everything they knew, somehow, must be in their last lives achievements that they knew it, perhaps some of them were disciples of other very great people. "</font><br>
+They knew all about chakras everything they knew, somehow, must be in their last lives achievements that they knew it, perhaps some of them were disciples of other very great people."</font><br>
 <font size="+0"><b>2002-0724 Guru Pūrṇimā Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
