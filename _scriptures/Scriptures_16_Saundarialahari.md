@@ -16,6 +16,7 @@ tags:
 <font color="DarkGreen"><b>Translation by Pandit S. Subrahmanya Sastri and T. R. Srinivasa Ayyangar, published by The Theosophical Publishing House, Madras India, sixth printing 1985</b></font><br>
 <br>
 <font color="blue"><b>Translation by Poornima Damodaran</b></font><br>
+<br>
 <font color="purple"><b>Transliterations</b> <a href="https://vignanam.org/english/soundarya-lahari.html">link 1</a> and <a href="https://www.symb-ol.org/sacred-books/">link 2</a></font><br>
 </p>
 
@@ -64,7 +65,7 @@ Praṇantuṁ stotuṁ vā katham akṛita-puṇyaḥ prabhavati</font>
 <p>
 <b>1 Translation</b><br>
 <font color="DarkGreen">Only if conjoint with the Śhakti (Thyself), would Śhiva earn the privilege to become Overlord; otherwise the God is not able even to stir. ......</font><br>
-<font color="blue">United with Śhakti, Śhiva is endowed with the power to create the universe.  Otherwise, He is incapable even of movement.</font>
+<font color="blue">United with Śhakti, Śhiva is endowed with the power to create the universe.  Otherwise, He is incapable even of movement. ......</font>
 </p>
 
 <p>
