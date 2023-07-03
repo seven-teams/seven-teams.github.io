@@ -163,7 +163,7 @@ He is the solution, the Giver of Liberation and Shelter<br>
 </p>
 
 <p>
-<font color="green"><b>Sabko Dua Dena</b></font><br>
+<font color="green"><b>Sabako Dua Dena</b></font><br>
 <a href="https://youtu.be/Rhqs-9UTpPw?list=PL407136734B2B056D">video</a> 
 </p>
 
