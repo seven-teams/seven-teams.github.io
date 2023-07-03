@@ -68,6 +68,8 @@ Praṇantuṁ stotuṁ vā katham akṛita-puṇyaḥ prabhavati</font>
 <font color="blue">United with Śhakti, Śhiva is endowed with the power to create the universe.  Otherwise, He is incapable even of movement. ......</font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>2 Transliteration</b><br>
 <font color="purple">Tanīyāṁsaṁ pāṁsuṁ tava charaṇa paṅkeruha bhavaṁ<br> 
@@ -76,12 +78,12 @@ Vahaty’enaṁ śhauriḥ katham api sahasreṇa śhirasāṁ<br>
 Haras saṁkṣhudy’ainaṁ bhajati bhasit’oddhūlana vidhim</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>2 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>3 Transliteration</b><br>
@@ -91,12 +93,12 @@ Daridrāṇāṁ chintāmaṇi guṇanikā janma-jaladhau<br>
 Nimagnānāṁ daṁṣhṭrā mura ripu-varāhasya bhavati</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>3 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>4 Transliteration</b><br>
@@ -106,12 +108,12 @@ Bhayāt trātuṁ dātuṁ phalam api cha vāñchhā samadhikaṁ<br>
 Śharaṇye lokānāṁ tava hi charaṇāv’eva nipuṇau</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>4 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>5 Transliteration</b><br>
@@ -121,12 +123,12 @@ Smaro-’pi tvāṁ natvā rati nayana lehyena vapuṣhā<br>
 Munīnām apy’antaḥ prabhavati hi mohāya mahatām</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>5 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>6 Transliteration</b><br>
@@ -136,12 +138,12 @@ That’āpy’ekaḥ sarvaṁ hima-giri-sute kāmapi kṛipām<br>
 Apāṅgāt te labdhvā jagad idam anaṅgo vijayate</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>6 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>7 Transliteration</b><br>
@@ -151,12 +153,12 @@ Dhanur bāṇān pāśhaṁ sṛiṇim api dadhānā kara-talaiḥ<br>
 Purastād āsthāṁ naḥ pura mathitur āho-puruṣhikā</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>7 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>8 Transliteration</b><br>
@@ -166,12 +168,12 @@ Maṇi-dvīpe nīpo-‘pavana-vati chintāmaṇi gṛihe<br>
 bhajanti tvāṁ dhanyāḥ katichana chid-ānanda-laharīm</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>8 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>9 Transliteration</b><br>
@@ -181,12 +183,12 @@ Mano-’pi bhrū-madhye sakalam api bhittvā kula-pathaṁ<br>
 Sahasrāre padme saha rahasi patyā viharase</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>9 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>10 Transliteration</b><br>
@@ -196,12 +198,12 @@ Avāpya svāṁ bhūmiṁ bhujaga nibham adhyuṣhṭa valayaṁ<br>
 Svam ātmānaṁ kṛitvā svapiṣhi kula-kuṇḍe kuhariṇi</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>10 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>11 Transliteration</b><br>
@@ -211,12 +213,12 @@ Chatuśh-chatvāriṁśhad vasu-dala-kalāśhra tri-valaya<br>
 Tri-rekhābhiḥ sārdhaṁ tava śharaṇa koṇāḥ pariṇatāḥ</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>11 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>12 Transliteration</b><br>
@@ -226,12 +228,12 @@ Yadā-loka’utsukyād amara-lalanā yānti manasā<br>
 Tapobhir duṣh-prāpām api giriśha sāyujya padavīm</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>12 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>13 Transliteration</b><br>
@@ -241,12 +243,12 @@ Galad-veṇī-bandhāḥ kucha kalaśha visrasta sichayā<br>
 Haṭhāt truṭyat kāñchyo vigalita dukūlā yuvatayaḥ</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>13 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>14 Transliteration</b><br>
@@ -256,12 +258,12 @@ Divi dviṣh-ṣhaṭtriṁśhan manasi cha chatuṣh-ṣhaṣhṭir iti ye<br>
 Mayūkhās teṣhām apy’upari tava pād’āmbuja yugam</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>14 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>15 Transliteration</b><br>
@@ -271,12 +273,12 @@ Sakṛin na tvāṁ natvā katham-iva satāṁ saṁnidadhate<br>
 Madhu kṣhīra drākṣhā madhuri madhurīṇāḥ phaṇitayaḥ</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>15 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>16 Transliteration</b><br>
@@ -286,12 +288,12 @@ Viriñchi preyasyās taruṇa-tara śhṛiṅgāra laharī-<br>
 Gabhīrābhir vāgbhir vidadhati satāṁ rañjanam amī</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>16 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>17 Transliteration</b><br>
@@ -301,12 +303,12 @@ Sa kartā kāvyānāṁ bhavati mahatāṁ bhaṅgi ruchibhiḥ<br>
 Vachobhir vāg-devī vadana kamal’āmoda madhuraiḥ</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>17 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>18 Transliteration</b><br>
@@ -316,12 +318,12 @@ Bhavanty asya trasyad vana-hariṇa śhālīna nayanāḥ<br>
 Sah’orvaśhyā vaśhyāḥ kati kati na gīrvāṇa-gaṇikāḥ</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>18 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>19 Transliteration</b><br>
@@ -331,12 +333,12 @@ Sa sadyaḥ saṁkṣhobhaṁ nayati vanitā ity’atilaghu<br>
 Trilokīm apy’āśhu bhramayati rav’īndu stana yugām</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>19 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>20 Transliteration</b><br>
@@ -346,12 +348,12 @@ Sa sarpāṇāṁ darpaṁ śhamayati śhakunt’ādhipa iva<br>
 Jvara-pluṣhṭān dṛiṣhṭyā sukhayati sudhā-dhāra sirayā</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>20 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>21 Transliteration</b><br>
@@ -361,12 +363,12 @@ Mahā-padm’āṭavyāṁ mṛidita mala-māyena manasā<br>
 Mahāntaḥ paśhyanto dadhati param’āhlāda laharīm</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>21 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>22 Transliteration</b><br>
@@ -376,12 +378,12 @@ Tad’aiva tvaṁ tasmai diśhasi nija sāyujya padavīṁ<br>
 Mukunda brahm’endra sphuṭa makuṭa nīrājita padām</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>22 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>23 Transliteration</b><br>
@@ -391,12 +393,12 @@ Yad etat tvad-rūpaṁ sakalam aruṇābhaṁ trinayanaṁ<br>
 Kuchābhyām ānamraṁ kuṭila śhaśhi chūḍāla makuṭam</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>23 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>24 Transliteration</b><br>
@@ -406,12 +408,12 @@ Sadā pūrvaḥ sarvaṁ tad idam anugṛihṇāti cha śhivas<br>
 Tav’āgñyām ālambya kṣhaṇa chalitayor bhrū latikayoḥ</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>24 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>25 Transliteration</b><br>
@@ -421,12 +423,12 @@ Tathā hi tvat pād’odvahana maṇi pīṭhasya nikaṭe<br>
 Sthitā hy’ete śhaśhvan mukulita karottaṁsa makuṭāḥ</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>25 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>26 Transliteration</b><br>
@@ -436,12 +438,12 @@ Vitandrī māhendrī vitatir api saṁmīlita dṛiśhā<br>
 Mahāsaṁhāre-’smin viharati sati tvat patir asau</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>26 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>27 Transliteration</b><br>
@@ -451,12 +453,12 @@ Praṇāmas saṁveśhas sukham akhilam ātm’ārpaṇa dṛiśhā<br>
 Saparyā paryāyas tava bhavatu yan me vilasitam</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>27 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>28 Transliteration</b><br>
@@ -466,12 +468,12 @@ Karālaṁ yat kṣhvelaṁ kabali-tavataḥ kāla-kalanā<br>
 Na śhambhos tan mūlaṁ tava janani tāṭaṅka mahimā</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>28 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>29 Transliteration</b><br>
@@ -481,12 +483,12 @@ Praṇam reṣhveteṣhu prasabham upa-yātasya bhavanaṁ<br>
 Bhavasy’ābhy’utthāne tava parijan’oktir vijayate</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>29 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>30 Transliteration</b><br>
@@ -496,883 +498,881 @@ Kim āśhcharyaṁ tasya tri-nayana samṛiddhiṁ tṛiṇayato<br>
 Mahā-saṁvart’āgnir virachayati nīrājana vidhim</font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>30 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>31 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>31 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>32 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>32 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>33 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>33 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>34 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>34 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>35 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>35 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>36 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>36 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>37 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>37 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>38 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>38 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>39 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>39 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>40 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>40 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>41 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>1 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>42 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>42 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>43 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>43 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>44 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
-<b>4 Translation</b><br>
+<b>44 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>45 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>45 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>46 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>46 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>47 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>47 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>48 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>48 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>49 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>49 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>50 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>50 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>51 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>51 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>52 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>52 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>53 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>53 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>54 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>54 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>55 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>55 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>56 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>56 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>57 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>57 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>58 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>58 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>59 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>59 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>60 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>60 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>61 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>61 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>62 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>62 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>63 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>63 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>64 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>64 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>65 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>65 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>66 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>66 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>67 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>67 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>68 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>68 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>69 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>69 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>70 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>70 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>71 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>71 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>72 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>72 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>73 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>73 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>74 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>74 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>75 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>75 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>76 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>76 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>77 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>77 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>78 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>78 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>79 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>79 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>80 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>80 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>81 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>81 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>82 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>82 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>83 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>83 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>84 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>84 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>85 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>85 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>86 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>86 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>87 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>87 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>88 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>88 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>89 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>89 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>90 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>90 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>91 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>91 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>92 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>92 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>93 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>93 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>94 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>94 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>95 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>95 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>96 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>96 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>97 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>97 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>98 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>98 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>99 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>99 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>100 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>100 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>101 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>101 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <b>102 Transliteration</b><br>
 <font color="purple"></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>102 Translation</b><br>
 <font color="DarkGreen"></font><br>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <b>103 Transliteration</b><br>
 <font color="purple"></font>
 </p>
-
-<div class="para-divider"></div>
 
 <p>
 <b>103 Translation</b><br>
