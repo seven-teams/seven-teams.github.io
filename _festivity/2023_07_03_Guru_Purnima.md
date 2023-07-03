@@ -104,7 +104,7 @@ So, the gurus who were there for Bhavasāgara, to establish dharma in the human 
 <font color="DarkGreen"><b>"This is the day of Guru Pūrṇimā and I bless you that you all become gurus.<br>
 Whatever you have got now don't waste it, don't throw away but use it for the betterment of people."</b></font><br>
 <font size="+0"><b>2008-0720 Guru Pūjā, You All Have to Become a Guru, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font><br>
-<font color="DarkRed"><b><GURU SAMAN. KUNI NAHI SOYARA/b></font><br>
+<font color="DarkRed"><b>GURU SAMAN. KUNI NAHI SOYARA</b></font><br>
 You won't find a relative like your Guru<br>
 <font color="DarkRed"><b></b></font><br>
 There is no other refuge  than your Guru<br>
