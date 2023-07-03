@@ -2,7 +2,7 @@
 title: '2023 Celebrating Guru Pūrṇimā: "today is not the day for Me to give but for you. You have to announce." '
 date: 2023-07-03
 permalink: /festivity/2023/07/03
-tags:%permalink
+tags:
   - maroon @ Guru Purnima
   - orange @ Guru Puja
 ---
