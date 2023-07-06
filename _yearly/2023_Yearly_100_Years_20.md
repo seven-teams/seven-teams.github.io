@@ -34,4 +34,4 @@ Link to suggested talk: <a href="https://vimeo.com/423084608"> video</a> and <a 
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
-<p>Yearly Topics Teams</p>
+<p>Yearly Topics Team</p>
