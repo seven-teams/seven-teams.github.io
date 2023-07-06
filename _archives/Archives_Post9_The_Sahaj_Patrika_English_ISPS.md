@@ -1,7 +1,7 @@
 ---
 title: 'Archive Post 9: The Sahaj Patrika (English, ISPS)'
 date: 2023-07-06
-permalink: /archives/2023/0706-a
+permalink: /archives/2023/0706-b
 tags:
   - darkblue @ The Sahaj Patrika (English, ISPS)
   - red @ Archive
