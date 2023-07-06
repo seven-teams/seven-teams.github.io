@@ -42,4 +42,4 @@ Link to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/197
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
-<p>Yearly Topics Teams</p>
+<p>Yearly Topics Team</p>
