@@ -1,7 +1,7 @@
 ---
 title: 'Archive Post 10: Sahaja Yoga Australian Newsletter, Part 5 (2004)'
 date: 2023-07-06
-permalink: /archives/2023/0706-b
+permalink: /archives/2023/0706-a
 tags:
   - darkblue @ Sahaj Patrika (Hindi)
   - red @ Archive
