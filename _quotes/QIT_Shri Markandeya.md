@@ -402,7 +402,7 @@ And fighting about Him! How can you fight? I can't understand really. To Me, it'
 <div class="para-divider"></div>
 
 <p>
-"Blake has described all Sahaja Yoga in such details to comprehend. He said: that, "God of men will be born in those days, and they will have power ... they .... they will become Prophets, and they will have power to make others Prophets." But He even described where I stayed. For He said that, the first we're going to live in Surrey Hills where I lived. Then Ge says that, "Foundation will be laid in London," where we laid the foundation of our Āśhram. Then He described the house that I now have, which uh will be decorated by the Sahaja Yogis. He's describing the house near the Kensington Garden, near Talburn. That's what My house is there now. And these boys are painting it with gold, the ceiling. For the golden builders will be doing that. With such detailed, you know! Such details []. And have ... a sinuous will vibrate this. Sinuous are the ... nerves, will vibrate that land.<br>
+"Blake has described all Sahaja Yoga in such details to comprehend. He said: that, "God of men will be born in those days, and they will have power ... they .... they will become Prophets, and they will have power to make others Prophets." But He even described where I stayed. For He said that, the first we're going to live in Surrey Hills where I lived. Then Ge says that, "Foundation will be laid in London," where we laid the foundation of our Āśhram. Then He described the house that I now have, which uh will be decorated by the Sahaja Yogis. He's describing the house near the Kensington Garden, near Talburn. That's what My house is there now. And these boys are painting it with gold, the ceiling. For the golden builders will be doing that. With such detailed, you know! Such details [<font color="orange">unclear</font>]. And have ... a sinuous will vibrate this. Sinuous are the ... nerves, will vibrate that land.<br>
 Is so beautifully He has done. <font color="red">I don't know how He could see, like Mārkaṇḍeya. He's a Seer of that point.</font>"<br>
 <font size="+0"><b>1982-0426 Conversation with Sahaja Yogis, Apartment of Ruth Lederberger, Via Giuseppe Mercalli, 46, Rome, Italy</b></font>
 </p>
@@ -537,7 +537,7 @@ We Indians are best suited for this to understand."<br>
 <p>
 "Hindu religion now we can take what even Ādi Śhaṅkarāchārya has said, that: "Na Yogen na Sāṅkhyen" [part of line 1 of Vivekachūḍāmaṇi 56]. "It's only through Mother's Grace you can get your Realization."<br>
 Everybody, intellectuals and all that fought with Him, and were arguing with Me. Like Mister Sh... there was a Sharma fellow who uh-uh quite argued.<br>
-And He got so fed up with all those arguments and, "Śhabda jālam," [laughing:] that He said, "[],"  He wrote the last, was Saundaryalaharī, praising the Mother. Describing all the waves of the different types of śhaktis that flow from Her and how they take their forms.<br>
+And He got so fed up with all those arguments and, "Śhabda jālam," [laughing:] that He said, "[<font color="orange">unclear</font>],"  He wrote the last, was Saundaryalaharī, praising the Mother. Describing all the waves of the different types of śhaktis that flow from Her and how they take their forms.<br>
 And every couplet that He has written is a Mantra! But who knows about it?<br>
 Everybody who were supposed to be intellectuals in those days said, "Ohh! What are you doing? Here You are writing like Vivekachūḍāmaṇi and all that, and today why are You writing like this? What is the need to write about this?" So, He said, "This is the way it is going to work out. This is the way it is. Not by all these arguments, śhabda jālam, by talking about it but by happening of the Kuṇḍalinī."<br>
 He is the one who first time opened this knowledge of Kuṇḍalinī, in His books.<br>
@@ -987,7 +987,7 @@ That it will happen. We must realize that we are getting all the promises fulfil
 <font color="red">All these people, say for example Mārkaṇḍeya used to live in a place in, He used to be prapared. He used to dedicate Himself. He lived there, very happily, with His father, in a very modest manner.<br>
 And then, you see, He was the richest man because He enjoyed the uh-uh-uh Grace of the Mother. And He saw all these things so well.<br> 
 He was cursed to be dead uh at a very young age. And then His father told Him that, "You have to die because Śhiva has given me the boon that I will give you the son but then He'll die." He said, "All right. I will find out the solution."<br>
-So He worshiped the Goddess. The Goddess gave Him the boon. See, Goddess Herself He saw in person. That's how this uh-uh-uh place is Saptaśhṛiṅgī is there, there, [].<br> 
+So He worshiped the Goddess. The Goddess gave Him the boon. See, Goddess Herself He saw in person. That's how this uh-uh-uh place is Saptaśhṛiṅgī is there, there, [<font color="orange">unclear</font>].<br> 
 It's uh-uh-uh ... Saptaśhṛiṅgī is seven, seven chakras. Is the Ādi Śhakti's place. Is the Ādi Śhakti's place.<br>
 So, this is, when you are reading all these things, you are amazed, 'How do They?' For He's gone fourteen thousand years back.</font><br>
 How many know this thing [laughing:] about it, which tallies with your ... which tallies with your Sahaja Yoga, which shows what you are?<br>
