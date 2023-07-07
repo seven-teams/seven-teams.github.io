@@ -9,6 +9,17 @@ tags:
 <div class="para-divider"></div>
 
 <p>
+"Now, we have had great Saints in our country, no doubt.<br>
+Even a person like Gyāneśhwara, was a great Saint we have [had]. <font color="DarkRed">And He was in the same line as Macchindranāth, Gorakhnāth, then Gyānināth, and then His father [brother] there was Nivṛuttināth, and He initiated Him.</font> And we had a Great Guru paramparā, Guru tradition in a ... that Nāth Pānthis.<br>
+<font color="DarkRed">Even He, Gyāneśhwara, who was a realized Soul, no doubt, and His brother was really a very great Saint.</font> Even He, when He writes about [the] Kuṇḍalinī awakening, He doesn't do the way you Sahaja Yogis [<font color="orange">unclear</font>].<br>
+That I wish you could read Marathi, I could make you understand now.<br>
+And how He has raised the Kuṇḍalinī, what happens: He could give Realization to two people in His lifetime. See?"<br>
+<font size="+0"><b>1979-0527 Conversation with Sahaja Yogis, TM, False Gurus, Industrial Revolution, Christ, Go Slowly with New People, Seminar, Day 1, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "I didn't tell you about the third kind of movement we had in our country, is of Nāth Pānthis.<br>
 Jains have Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], and a deviation started from that: ah ... one guru was supposed to give knowledge to only one person. Like Janaka had only Nachiketa.<br>
 Till the time of Gyāneśhwara, that's in the twelfth century.<br>

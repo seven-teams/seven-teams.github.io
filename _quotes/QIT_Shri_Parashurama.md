@@ -290,7 +290,7 @@ So, all Gods were brought to the level of human beings, with ... 'bestowed' with
 <font color="red"><b>Śhrī Mātājī:</b></font> This is Zeus, yeah?<br>
 <b>Same Sahaja Yogi:</b> ... Zeus.<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> Zeus, Zeus.<br>
-<b>Same Sahaja Yogi:</b> Yes. [].<br>
+<b>Same Sahaja Yogi:</b> Yes. [<font color="orange">unclear</font>].<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> So is very good today because of Lakṣhmī. After all, Lakṣhmī is a ...<br>
 <b>Sahaja Yogi:</b> With Zeus.<br>
 <font color="red"><b>Śhrī Mātājī</b>: Zeus is the Paraśhurāma Avatār.</font><br>
