@@ -126,7 +126,7 @@ You can find how Christ was so strict about the Christians, what they should be 
 
 <p>
 <b>Quote</b><br>
-Sahaja Yoga is completely a work of Total Love. And we have great examples to follow. Jesus Christ, on the cross said, that, "O Lord, forgive them for they know not what they are doing.<br>
+<font color="red">Sahaja Yoga is completely a work of Total Love. And we have great examples to follow. Jesus Christ, on the cross said, that, "O Lord, forgive them for they know not what they are doing.</font><br>
 <b>2003-0316 Śhivarātri Pūjā (English + Hindi + English + Hindi), Embodiment of Forgiveness is Śhrī Śhiva Śhaṅkar, Śhrī Śhiv Chhatrapati Sports Complex Stadium, Balewadi, Mahalunge, Pune, Maharashtra, India</b>
 </p>
 
