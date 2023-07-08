@@ -64,22 +64,16 @@ First you have to become a Saint! You have to become an enlightened personality,
 
 <p style="text-align:center;">
 <b>Genesis</b><br>
-<font color="DarkGreen"><b></b></font>
-<font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font>
 </p>
 
 <p>
-<b>1.1 Translation</b><br>
+<b>1.1 Verse</b><br>
 <font color="DarkGreen">In the beginning God created the heaven and the earth.</font><br>
-<font color="blue">In the beginning God created the heavens and the earth.</font><br>
+<font color="blue">In the beginning God created the heavens and the earth.</font>
 </p>
 
 <p style="text-align:center;">
 <b>Exodus</b><br>
-<font color="DarkGreen"><b></b></font>
-<font color="blue"><b></b></font><br>
-<font color="Peru"><b></b></font>
 </p>
 
 <p style="text-align:center;">
