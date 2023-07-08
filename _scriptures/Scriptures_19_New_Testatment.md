@@ -1,7 +1,7 @@
 ---
 title: 'Post 19: NEW TESTAMENT'
 date: 2023-07-08
-permalink: /quotes/2023/0708
+permalink: /scriptures/2023/0708
 tags:
   - crimson @ Shri Abraham
   - crimson @ Shri Jesus
