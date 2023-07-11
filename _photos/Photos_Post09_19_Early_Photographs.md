@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 1 Photo of the event <font color="Crimson"><b>1967-0000 Group Photo with Honored Officials, Mumbai, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
-Direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1967"> Collection 1967</a>.<br>
+Direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1967/"> Collection 1967</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>
