@@ -1,7 +1,7 @@
 ---
 title: 'Post 44: Joys or Types of Joy'
-date: 2023-04-26
-permalink: /compilation/2023/0426
+date: 2023-07-12
+permalink: /compilation/2023/0712
 tags:
   - crimson @ Types of Joy
   - crimson @ Ahankaranand
