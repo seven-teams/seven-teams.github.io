@@ -71,14 +71,14 @@ For that God has made this creation with great labor [hard work]."<br>
 "<font color="DarkRed">Yesterday I told you that today I will tell you about Śhiva's Nature of Truth, Attention and Joy Spirit (Śhiva Swarūp Sachchidānanda Ātmā), residing in the heart.</font> But [I] think I will tell you in the end only, after telling about all the chakras. That will be good."<br>
 <br>
 <b>Variant 2:</b><br>
-"<font color="DarkRed">Yesterday I told you that I will be telling you about Sachchidānanda who is the same as Śhiva and who resides in our heart</font>, but today I am thinking that I should tell you that after I finish talking about all the chakras, in the end. That will be good."</font><br>
+"<font color="DarkRed">Yesterday I told you that I will be telling you about Sachchidānanda who is the same as Śhiva and who resides in our heart</font>, but today I am thinking that I should tell you that after I finish talking about all the chakras, in the end. That will be good."<br>
 <font size="+0"><b>1979-0316 Public Program (Hindi), Day 7, Viśhuddhi Chakra, Śhāmiyānā, Garden, Pataudi House, 10 Ashoka Road, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-"<font color="DarkRed">I don't know how far he is been able to tell you about the Kuṇḍalinī. <font color="DarkRed">Today, it looks like Sachchidānanda and everything.</font> And Grégoire already has written a book called <i>Advent</i>, which is very knowledgeable also.<br>
+"I don't know how far he is been able to tell you about the Kuṇḍalinī. <font color="DarkRed">Today, it looks like Sachchidānanda and everything.</font> And Grégoire already has written a book called <i>Advent</i>, which is very knowledgeable also.<br>
 ......<br>
 But it's all uh absolutely blasphemous to say that, 'You don't drink!' So I don't say that either.<br>
 <font color="DarkRed">You will just not do it, because you really get drunk with the joy of the Spirit, Sachchidānand.</font>"<br>
@@ -239,8 +239,7 @@ In different stages of Sahaja Yoga we had to start from Śharīrānanda, means t
 <br>
 4. <i>Yogānanda</i><br>
 <br>
-They are created by the four petals, which generate Four Powers called <i>Gupta}</i>, <i>Prakasa</i>, <i>Karala</i> and <i>Vikarala</i>.</font> 
-"<br>
+They are created by the four petals, which generate Four Powers called <i>Gupta}</i>, <i>Prakasa</i>, <i>Karala</i> and <i>Vikarala</i>.</font>"<br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 12: Mūlādhāra Chakra</b></font>
 </p>
 
