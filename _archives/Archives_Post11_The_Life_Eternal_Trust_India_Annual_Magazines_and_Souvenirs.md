@@ -3,7 +3,7 @@ title: 'Archive Post 11: The Life Eternal Trust India Annual Magazines and Souve
 date: 2023-07-13
 permalink: /archives/2023/0713
 tags:
-  - darkblue @ The Sahaj Patrika (English, ISPS)
+  - darkblue @ Life Eternal
   - red @ Archive
 ---
 
