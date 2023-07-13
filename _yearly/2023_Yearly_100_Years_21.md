@@ -9,7 +9,7 @@ tags:
 <br>
 <div style="text-align: left"><img src="/images/100Years.jpg" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image1203Photo_credit_Colin_Heinsen" /></div>
+<div style="text-align: center"><img src="/images/image1203Photo_credit_Colin_Heinsen.png" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
