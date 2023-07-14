@@ -325,6 +325,30 @@ Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Hi
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">Five hundred years before Christ [500 BC], the Great Master Socrates in this country told the whole world that, ``We have to know ourselves." And He was wisdom personified. But He was killed. He didn't do any harm. He just told to everyone for their benevolence. He didn't live for Himself. And He lived for others. He did not take any ... any money from anyone, for His knowledge, nor ... nor did He punish anyone, but He was punished.</font><br>
+......<br>
+We can say that on the Tree of Life there were one or two flowers in the beginning, but today it is a Blossom Time, and so many are seeking the Truth.<br>
+<font color="red">Socrates could not have got so many people, in Greece, to listen to Him.</font> [Smiles.]"<br>
+<font size="+0"><b>1989-0524 Public Program, Day 1, Ballroom, Hotel Grande Bretagne, 1  Vasileos Georgiou A, Syntagma Square Str, Athens, Greece</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1989-0525 Public Program, Day 2, Ballroom, Hotel Grande Bretagne, 1  Vasileos Georgiou A, Syntagma Square Str, Athens, Greece</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. <font color="red">In China He was born as Confucius and as Lao Tze, and in Greece as Socrates.</font> He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."<br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 33</b></font>
 </p>
