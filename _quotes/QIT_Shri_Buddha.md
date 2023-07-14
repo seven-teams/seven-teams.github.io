@@ -3,7 +3,8 @@ title: 'ŚHRĪ BUDDHA in the Words of ŚHRĪ MĀTĀJĪ'
 date: 2023-07-14
 permalink: /quotes/2023/0714
 tags:
-  - Incarnations
+  - crimson @ Shri Buddha
+  - hotpink @ Disciple Principle
 ---
 
 <div class="para-divider"></div>
