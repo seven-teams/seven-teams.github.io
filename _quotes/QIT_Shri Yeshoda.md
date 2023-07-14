@@ -152,8 +152,4 @@ Rādhā in Mary's Incarnation wanted to give Her Son the name of Her Lord, Kṛi
 
 <div class="para-divider"></div>
 
-[Download pdf here](http://seven-teams.github.io/files/Shri_Anasuya_V2.pdf)
-
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
-
-Quotes on Incarnations Team
