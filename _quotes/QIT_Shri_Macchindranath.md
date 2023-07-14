@@ -7,6 +7,8 @@ tags:
   - hotpink @ Angels
 ---
 
+<div class="para-divider"></div>
+
 <p>
 <font color="DarkRed">"Macchinder Nath an incarnation of Primordial Guru started Nath Pantha.</font> Even after some decades these were very few real Gurus (Avadhuta[s)] left in this cult. The deterioration started. Tankrikas [tantrikas] who imposed themselves as Gurus took charge of the cult in Many places."<br>
 <font size="+0"><b>1902-0000 Handwritten Note on Haṭha Yoga related to The Book of Ādi Śhakti, Chapter 7</b></font>
