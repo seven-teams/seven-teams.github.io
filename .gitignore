@@ -3,6 +3,7 @@ _site/
 .sass-cache/
 serve.log
 .jekyll-metadata
+Gemfile.lock
 
 # some tidbits
 .files.json

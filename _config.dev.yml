@@ -11,3 +11,79 @@ comments:
 
 sass:
   style: expanded
+
+collections:
+  teaching:
+    output: false
+    permalink: /:collection/:path
+  publications:
+    output: false
+    permalink: /:collection/:path
+  portfolio:
+    output: false
+    permalink: /:collection/:path
+  talks:
+    output: false
+    permalink: /:collection/:path
+  festivity:
+    output: false
+    permalink: /:collection/:path
+  compilation:
+    output: false
+    permalink: /:collection/:path
+  quotes:
+    output: false
+    permalink: /:collection/:path
+  scriptures:
+    output: false
+    permalink: /:collection/:path
+  yearly:
+    output: false
+    permalink: /:collection/:path
+  divine:
+    output: false
+    permalink: /:collection/:path
+  photos:
+    output: false
+    permalink: /:collection/:path   
+  archives:
+    output: false
+    permalink: /:collection/:path  
+  events:
+    output: true
+    permalink: /:collection/:path  
+  news:
+    output: false
+    permalink: /:collection/:path
+  chronology:
+    output: false
+    permalink: /:collection/:path
+
+include:
+  - _pages
+  - _includes
+  - _layouts
+  - 
+
+exclude:
+  - files
+  - pdf
+  - _festivity
+  - _compilation
+  - _quotes
+  - _scriptures
+  - _yearly
+  - _divine
+  - _chronology
+  - _archives
+  - _news
+  - _photos
+  - _portfolio
+  - _publications
+  - _quotes
+
+feed:
+  collections: []
+
+# plugins:
+#   - jekyll-redirect-from

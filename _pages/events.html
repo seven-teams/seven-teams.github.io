@@ -10,7 +10,6 @@ redirect_from:
 {%- include base_path -%}
 {%- assign sectionYear = 'None' -%}
 
-
 {%- assign posts = site.events | sort_by_date -%}
 {%- for post in posts reversed -%}
   {%- capture year -%}
@@ -24,7 +23,6 @@ redirect_from:
 
   {%- include archive-single.html -%}
 {%- endfor -%}
-
 
 {%- comment -%}
   {% include base_path %}
