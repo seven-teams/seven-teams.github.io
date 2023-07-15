@@ -30,8 +30,8 @@ tags:
 <p>
 <b>Quotes</b><br>
 <br>
-<font color="red">You should read the book [Nag] Hammadi which talks about the Mother.]<br>
-[It was Saint Thomas who wrote it before leaving for India.</font><br>
+<font color="red">[You should read the book [Nag] Hammadi which talks about the Mother.]<br>
+[It was Saint Thomas who wrote it before leaving for India.]</font><br>
 <b>1992-1016 Interview with Edson, Journalist of the Brazilian Senate, Senate President's Office, Parliament, Brasília, Brazil</b><br>
 <br>
 <font color="red">Now recently I've got a book which was hidden in a jar in Egypt for about ... till fifty years [ago] they discovered it. And this book is called as s Library of [Nag] Hammadi. The place was called Hammadi: were it was discovered.<br>
