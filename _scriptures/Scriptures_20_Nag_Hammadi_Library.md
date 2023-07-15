@@ -22,7 +22,7 @@ tags:
 <br>
 <font color="red"><b>Śhrī Mātājī's words on Nag Hammadi Library</b></font><br>
 <br>
-<font color="DarkGreen"><b>The Nag Hammadi Library, Revised Edition, James M. Robisnon as General Editor, published by HarperSanFranciso</b>, available as a pdf file at the link available as a pdf at</b> <a href="https://gnosis.study/library/%D0%93%D0%BD%D0%BE%D0%B7%D0%B8%D1%81/%D0%98%D1%81%D1%81%D0%BB%D0%B5%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F/ENG/The%20Nag%20Hammadi%20Library.%20The%20Definitive%20Translation%20of%20the%20Gnostic%20Scriptures%20Complete%20in%20One%20Volume.pdf">pdf</a></font><br>
+<font color="DarkGreen"><b>The Nag Hammadi Library, Revised Edition, James M. Robisnon as General Editor, published by HarperSanFranciso</b>, available as a pdf file at the link <a href="https://gnosis.study/library/%D0%93%D0%BD%D0%BE%D0%B7%D0%B8%D1%81/%D0%98%D1%81%D1%81%D0%BB%D0%B5%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F/ENG/The%20Nag%20Hammadi%20Library.%20The%20Definitive%20Translation%20of%20the%20Gnostic%20Scriptures%20Complete%20in%20One%20Volume.pdf">pdf</a></font><br>
 <br>
 
 <div class="para-divider"></div>
@@ -30,8 +30,8 @@ tags:
 <p>
 <b>Quotes</b><br>
 <br>
-<font color="red">You should read the book [Nag] Hammadi which talks about the Mother.]<br>
-[It was Saint Thomas who wrote it before leaving for India.</font><br>
+<font color="red">[You should read the book [Nag] Hammadi which talks about the Mother.]<br>
+[It was Saint Thomas who wrote it before leaving for India.]</font><br>
 <b>1992-1016 Interview with Edson, Journalist of the Brazilian Senate, Senate President's Office, Parliament, Brasília, Brazil</b><br>
 <br>
 <font color="red">Now recently I've got a book which was hidden in a jar in Egypt for about ... till fifty years [ago] they discovered it. And this book is called as s Library of [Nag] Hammadi. The place was called Hammadi: were it was discovered.<br>
