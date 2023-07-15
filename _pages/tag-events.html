@@ -23,10 +23,11 @@ title: Divine Events Tag
 
 <div class="posts">
   <p>
-    {% assign lineColor = tags | first | getColor %}
+    {% assign lineColor = tags | first | get_color %}
     {% for tag in tags %}
-      {% assign curColor = tag | getColor %}
+      {% assign curColor = tag | get_color %}
       {% unless lineColor == curColor %}
+        {{ curColor }}
         <br/>
         <br/>
         {% assign lineColor = curColor %}
