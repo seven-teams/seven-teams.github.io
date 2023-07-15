@@ -34,7 +34,6 @@ tags:
 
 <p>
 <b>Quotes</b><br>
-
 <br>
 <font color="red">Like in India, you see, there are sweepers who clean all the bathrooms and things like that, they never get the bad smells, you know. It's like that.<br>
 We have lost that sensitivity of chastity within us. And that's how this attention is very much ruined.<br>
