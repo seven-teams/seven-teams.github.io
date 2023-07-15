@@ -25,7 +25,7 @@ title: Festivity Tag
   <p>
     {% assign lineColor = tags | first | getColor %}
     {% for tag in tags %}
-      {% assign curColor = tag | getColor %}
+      {% assign curColor = tag | get_color %}
       {% unless lineColor == curColor %}
         <br />
         <br />

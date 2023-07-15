@@ -18,3 +18,5 @@ if (Gem.win_platform?)
   gem "tzinfo"
   gem "tzinfo-data"
 end
+
+gem "rubocop", "~> 1.54"

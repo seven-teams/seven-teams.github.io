@@ -12,7 +12,7 @@ assign tags = tags | split: '|' | sort %} {% assign rawTags = nil %}
 
 <div class="posts">
   <p>
-    {% assign lineColor = tags | first | getColor %} {% for tag in tags %} {% assign curColor = tag
+    {% assign lineColor = tags | first | get_color %} {% for tag in tags %} {% assign curColor = tag
     | getColor %} {% unless lineColor == curColor %}
     <br />
     <br />
