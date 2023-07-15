@@ -27,7 +27,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>LETIndia2.</b></font> <b> 1980-00000 The Life Eternal, Version 2 (CCT Scans Collection)</b> (58 pages, uploaded on 2023-0713, scanned by CCT members as a hard copy in 1997 and rescanned as a pdf file in 2014-09 and shared publicly by in 2014-10 by CCT)
+<font color="DarkGreen"><b>LETIndia2.</b></font> <b> 1980-00000 The Life Eternal, Version 2 (CCT Scans Collection)</b> (58 pages, uploaded on 2023-0713, scanned by CCT in 2014-09 from a CCT original)
 
 <iframe src="/pdf/?usedownload=true#/files/1980-0000_The_Life_Eternal,_Version_2_(CCT_Scans_Collection).pdf" width="1000px" height="1000px"></iframe>
 
