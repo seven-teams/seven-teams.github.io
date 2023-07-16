@@ -27,7 +27,6 @@ title: Divine Events Tag
     {% for tag in tags %}
       {% assign curColor = tag | get_color %}
       {% unless lineColor == curColor %}
-        {{ curColor }}
         <br/>
         <br/>
         {% assign lineColor = curColor %}
