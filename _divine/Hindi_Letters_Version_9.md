@@ -15,7 +15,7 @@ Missing originals: 2 letters. [Missing originals but with retyped text: 1 letter
 Translations in progress: 2 letters.<br>
 <br>
 
-<iframe src="/pdf/?usedownload=true#/files/1981-0000_The_Life_Eternal_(CCT_Scans_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#/files/Hindi_Letters_from_Divine_Message_Version_9.pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 Please kindly share the file with all our brothers and sisters.<br>
