@@ -93,7 +93,7 @@ The one who stays within the boundaries (maryādās), is the one who will rise h
 <div class="para-divider"></div>
 
 <p>
-"x <font color="DarkRed">Sustenance (Dharma) in the creation is the essence that expresses character.</font> For example Gold has the sustenance that it does tarnish. Anything that is yellow or glittering is not gold. In the same way water has the quality of sustenance that it cleanses or dissolves many things and does not dissolve some things. <font color="DarkRed">The human sustenance expressed in a nutshell as ten commandments. That was the time to let human beings know the essence of their quality. What they do and what they do not.<font color="DarkRed"> Later on it would be discussed in details in the Chapter of Manipura Chakra."</font><br>
+"x <font color="DarkRed">Sustenance (Dharma) in the creation is the essence that expresses character.</font> For example Gold has the sustenance that it does tarnish. Anything that is yellow or glittering is not gold. In the same way water has the quality of sustenance that it cleanses or dissolves many things and does not dissolve some things. <font color="DarkRed">The human sustenance expressed in a nutshell as ten commandments. That was the time to let human beings know the essence of their quality. What they do and what they do not.</font>"<br>
 <font size="+0"><b>1902-0000 Handwritten Note on Dharma likely related to The Book of Ādi Śhakti</b></font>
 </p>
 
@@ -114,7 +114,7 @@ The one who stays within the boundaries (maryādās), is the one who will rise h
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"For example human beings are evolved and have sense of dirt[,] filth and untidiness but animals are not aware of it. The sense of laws that govern us also comes from the evolved state of our sustainence [sustenance] (Dharma). We know that balanced life is very important and that unlike animals we have freedom to go to any absurd extremes.<br>
+"For example human beings are evolved and have sense of dirt[,] filth and untidiness but animals are not aware of it. <font color="DarkRed">The sense of laws that govern us also comes from the evolved state of our sustainence [sustenance] (Dharma).</font> We know that balanced life is very important and that unlike animals we have freedom to go to any absurd extremes.<br>
 ......<br>
 <font color="DarkRed">Hence sex without marriage fidelity has no help for wellbeing as it creates a problematic personality. As all other sex has no collective sanction as is against human sustainence [sustenence] (Dharma).</font>"<br>
 <font size="+0"><b>1902-0000 Handwritten Note on Sex related to the book Ascent</b></font>
