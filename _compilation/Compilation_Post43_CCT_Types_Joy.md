@@ -1,5 +1,5 @@
 ---
-title: 'Post 44: Joys or Types of Joy'
+title: 'Post 43: Joys or Types of Joy'
 date: 2023-07-12
 permalink: /compilation/2023/0712
 tags:
