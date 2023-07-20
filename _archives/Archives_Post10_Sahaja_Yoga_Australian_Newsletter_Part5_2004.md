@@ -1,5 +1,5 @@
 ---
-title: 'Archive Post 9: Sahaja Yoga Australian Newsletter, Part 5 (2004)'
+title: 'Archive Post 10: Sahaja Yoga Australian Newsletter, Part 5 (2004)'
 date: 2023-07-06
 permalink: /archives/2023/0706-a
 tags:
@@ -22,109 +22,109 @@ sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
 
-<font color="DarkGreen"><b>2004SYAUSNEW1.</b></font> <b>2004-0109 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0706)
+<font color="DarkGreen"><b>SYAUSNEW1.</b></font> <b>2004-0109 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0706)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0109_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW2.</b></font> <b>2004-0116, 0123, 0130 and 0206 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0706)
+<font color="DarkGreen"><b>SYAUSNEW2.</b></font> <b>2004-0116, 0123, 0130 and 0206 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0706)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0116-0206_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW3.</b></font> <b>2004-0213 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (10 pages, original file, uploaded on 2023-0706)
+<font color="DarkGreen"><b>SYAUSNEW3.</b></font> <b>2004-0213 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (10 pages, original file, uploaded on 2023-0706)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0213_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW4.</b></font> <b>2004-0220 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0706)
+<font color="DarkGreen"><b>SYAUSNEW4.</b></font> <b>2004-0220 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0706)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0220_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW5.</b></font> <b>2004-0227 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0706)
+<font color="DarkGreen"><b>SYAUSNEW5.</b></font> <b>2004-0227 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0706)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0227_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW6.</b></font> <b>2004-0305 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (3 pages, original file, uploaded on 2023-0706)
+<font color="DarkGreen"><b>SYAUSNEW6.</b></font> <b>2004-0305 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (3 pages, original file, uploaded on 2023-0706)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0305_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW7.</b></font> <b>2004-0312 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0706)
+<font color="DarkGreen"><b>SYAUSNEW7.</b></font> <b>2004-0312 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0706)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0312_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW8.</b></font> <b>2004-0319 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (5 pages, original file, uploaded on 2023-0706)
+<font color="DarkGreen"><b>SYAUSNEW8.</b></font> <b>2004-0319 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (5 pages, original file, uploaded on 2023-0706)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0319_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW9.</b></font> <b>2004-0326 and 0402 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0706)
+<font color="DarkGreen"><b>SYAUSNEW9.</b></font> <b>2004-0326 and 0402 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0706)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0326-0402_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW10.</b></font> <b>2004-0430 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0706)
+<font color="DarkGreen"><b>SYAUSNEW10.</b></font> <b>2004-0430 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0706)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0430_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW11.</b></font> <b>2004-0507 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0720)
+<font color="DarkGreen"><b>SYAUSNEW11.</b></font> <b>2004-0507 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0720)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0507_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW12.</b></font> <b>2004-0514 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (2 pages, original file, uploaded on 2023-0720)
+<font color="DarkGreen"><b>SYAUSNEW12.</b></font> <b>2004-0514 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (2 pages, original file, uploaded on 2023-0720)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0514_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW13.</b></font> <b>2004-0521 and 0528 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0720)
+<font color="DarkGreen"><b>SYAUSNEW13.</b></font> <b>2004-0521 and 0528 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0720)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0521_0528_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW14.</b></font> <b>2004-0716 and 0723 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0720)
+<font color="DarkGreen"><b>SYAUSNEW14.</b></font> <b>2004-0716 and 0723 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0720)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0716_0723_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW15.</b></font> <b>2004-0820 and 0827 Sahaja Yoga Australian Newsletter (CCT Collection)</b> (6 pages, original file, uploaded on 2023-0720)
+<font color="DarkGreen"><b>SYAUSNEW15.</b></font> <b>2004-0820 and 0827 Sahaja Yoga Australian Newsletter (CCT Collection)</b> (6 pages, original file, uploaded on 2023-0720)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0820_0827_Sahaja_Yoga_Australian_Newsletter_(CCT_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW16.</b></font> <b>2004-0924 and 1001 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0720)
+<font color="DarkGreen"><b>SYAUSNEW16.</b></font> <b>2004-0924 and 1001 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0720)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-0924_1001_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW17.</b></font> <b>2004-1008 and 1015 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (5 pages, original file, uploaded on 2023-0720)
+<font color="DarkGreen"><b>SYAUSNEW17.</b></font> <b>2004-1008 and 1015 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (5 pages, original file, uploaded on 2023-0720)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-1008_1015_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>2004SYAUSNEW18.</b></font> <b>2004-1022, 1029, 1105 and 1112 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0706)
+<font color="DarkGreen"><b>SYAUSNEW18.</b></font> <b>2004-1022, 1029, 1105 and 1112 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0706)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-1022_1112_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 

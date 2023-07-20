@@ -1,5 +1,5 @@
 ---
-title: 'Archive Post 10: The Sahaj Patrika (English, ISPS)'
+title: 'Archive Post 9: The Sahaj Patrika (English, ISPS)'
 date: 2023-07-06
 permalink: /archives/2023/0706-b
 tags:
