@@ -1,5 +1,5 @@
 ---
-title: 'Archive Post 10: Sahaja Yoga Australian Newsletter, Part 5 (2004)'
+title: 'Archive Post 9: Sahaja Yoga Australian Newsletter, Part 5 (2004)'
 date: 2023-07-06
 permalink: /archives/2023/0706-a
 tags:
