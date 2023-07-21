@@ -32,10 +32,8 @@ tags:
 <p>
 "Even Muhammad Sāhab has said: that, "Paradise lies at the Feet of the Mother!"<br>
 In the Gospel of Thomas, he writes, authentically: Christ said, that, "This is the Mother who has bore Me in Her womb. But I have another One with a great M capital." "<br>
-<font color="blue"><b></b></font><br>
+<font color="blue"><b>1992-0728 Public Program, Budapest, Hungary</b></font><br>
 </p>
-
-
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
