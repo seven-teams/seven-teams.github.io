@@ -12,6 +12,7 @@ tags:
 <div style="text-align: center"><img src="/images/image1205_13_Photo_credit_Matthew_Cooper.jpg" /></div>
 
 <br>
+
 <div style="text-align: center"><img src="/images/image1206_15_Photo_credit_Matthew_Cooper.jpg" /></div>
 
 <br>
