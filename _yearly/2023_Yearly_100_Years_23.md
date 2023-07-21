@@ -1,5 +1,5 @@
 ---
-title: '2023 Birthday Centenary of H. H. Shri Mataji Nirmala Devi, Post 23 on the Lotus Feet (the day when in 2006-0721 we celebrated 1000 Months of Love)'
+title: '2023 Birthday Centenary of H. H. Shri Mataji Nirmala Devi, Post 23 on the Lotus Feet Day (the day when in 2006-0721 we celebrated 1000 Months of Love)'
 date: 2023-07-21
 permalink: /yearly/2023/0721
 tags:
