@@ -1,7 +1,7 @@
 ---
 title: 'Post 21: ŚHRĪ LALITĀ SAHASRĀNAMA'
 date: 2023-07-21
-permalink: /quotes/2023/0721
+permalink: /scriptures/2023/0721
 tags:
   - crimson @ Shri Lalita
   - green @ Shri Adi Shakti
