@@ -86,7 +86,7 @@ And that's how it is the germination within you, which is a living force of the 
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> So-o, to become closer to God, you have to be closer to God. That's as simple as that.<br>
 I mean somebody would say: `How do I know that I know that ... what ... how to drive a car?' When you know. `How do I know I [laughing:] can drive a bike?' Say, for example somebody says, `How can I use a bike?' I mean when you are that you are that! I mean is there any other way out? `How will I say I've got eyes?' When you can see! Finished! I mean it's so simple as that.<br>
 So, how can you say you are nearer to God? You yourself will know you are nearer to God. Because the joy of being that tells you.<br>
-You need not be close to Me, you need not be touching My Feet, you could be anywhere in the forest, you could be very close to Me, and those who thing [] they are close to Me because they can make a little face and, you know, behave in a very artificial way or some dramatic styles, you see, they are very far away.<br>
+You need not be close to Me, you need not be touching My Feet, you could be anywhere in the forest, you could be very close to Me, and those who thing [<font color="orange">unclear</font>] they are close to Me because they can make a little face and, you know, behave in a very artificial way or some dramatic styles, you see, they are very far away.<br>
 And those who cannot understand the commands of the brain are useless things!<br>
 Now supposing one nail starts growing big, all right, and piercing inside the skin, we'll take it out, isn't it? There's not listening to the brain!<br>
 <b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>

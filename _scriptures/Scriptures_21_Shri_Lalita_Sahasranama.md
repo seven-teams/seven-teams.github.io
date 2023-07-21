@@ -24,7 +24,7 @@ tags:
 <b>Quotes</b><br>
 <font color="red">Now, all this from ninety-nine ... to hundred and eight is Kuṇḍalinī Yoga [from Lalitā Sahasrānama]. You should remember these names by heart, is good idea. Is not much! From ninty-nine to hundred and eight, how many they make?<br>
 [Some answers.]<br>
-Nine names []? So not difficult for you to know.<br>
+Nine names [<font color="orange">unclear</font>]? So not difficult for you to know.<br>
 And all the ... they have given the chakras on this, you see?
 Now, nobody knows Hindi.<br>
 She can read it. All right.</font><br>
@@ -58,7 +58,7 @@ She can read it. All right.</font><br>
 <font color="red">Mantras 'Twam Bhavānī', 'Twam Durgā', 'Twam Ambikā', etc. are good for Iḍā channel, but when you are established in Sahaja Yoga, you will have to say 'Ahaṃ Bhavānī'. However this Mantra can be said only when your purity becomes one with that of 'Ahaṃ Bhavānī' and I tell you now itself that this will happen.</font><br>
 <b>1901-0000 Letter to Rājabhāī Modi and other Sahaja Yogis (Marathi) from Nirmala Yoga, Issue 14 (March-April 1983), Pages 10 and 39 (perhaps London, 1975)</b><br>
 <br>
-[After a Sahaja Yogi reads and says, "Auṃ Śhrī Bhavānī namaḥ. Salutations to Her who is the mistress of everytning that is coming to be."] <font color="red">Bhavānī []. Bhava means: to manifest. Whatever is manisfested [manifested].</font><br>
+[After a Sahaja Yogi reads and says, "Auṃ Śhrī Bhavānī namaḥ. Salutations to Her who is the mistress of everytning that is coming to be."] <font color="red">Bhavānī [<font color="orange">unclear</font>]. Bhava means: to manifest. Whatever is manisfested [manifested].</font><br>
 <b>1982-0515 Śhrī Lalitā Pūjā, Understand Your Own Importance, House of Gillian Grimshaw, 11 Vallance Road, Hove (next, W of Brighton), UK</b><br>
 <br>
 [At the end of the Śhrī Devī Pūjā:] <font color="red">As Bhavānī, as the consort of Śhiva, She doesn't wear anything very ornamental, as if the oneness with Śhiva sucks in all that is manifesting outside. So, not much ornaments or anything are to be used. Again, this is to make them [you] understand -- on rational level is difficult.<br>

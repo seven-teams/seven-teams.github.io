@@ -71,7 +71,7 @@ You may be adhārmik but after Kuṇḍalinī awakening you become dhārmik.</fo
 <p>
 <font color="DarkRed">"The void is kept clean by people who follow a life of human sustainence (Dharma)[.]<br>
 After enlightenment the Dharma is awakened and then there [is] no need to know about do's and don'ts.</font> All bad habits drop out spontaneously."<br>
-<font size="+0"><b>1902-0000 Handwritten Note on Void</b></font>\includegraphics[]{../../../Divine/Figures/1902-0000HandwrittenNoteonPranava.jpg}
+<font size="+0"><b>1902-0000 Handwritten Note on Void</b>
 
 </p>
 
