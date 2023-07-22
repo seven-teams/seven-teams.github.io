@@ -10,10 +10,10 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Sahaja Yoga is very difficult for the Jains. If the Jains come into Sahaja Yoga they are very difficult people. Because their traditions are very shallow. The people of Ārya Samāj are very shallow people.<br>
+"Sahaja Yoga is very difficult for the Jains. If the Jains come into Sahaja Yoga they are very difficult people. Because their traditions are very shallow. The people of Ārya Samāj are very shallow people.<br>
 Similarly the Buddhists: they believe in the formless but not as far as God is concerned.<br>
-Look at this, 'We do not know Buddha. We do not know Muhammad. We have not seen Them. We do not know Mahāvīra. We do not know anyone [of Them]. Who gave us Self-realization? Śhrī Mātājī. That we were able to know because of Śhrī Mātājī.'<br>
-So, whomever we believe in Them, we will have to believe Them in Śhrī Mātājī itself. Not in Sahaja Yoga. "</font><br>
+<font color="red">Look at this, 'We do not know Buddha. We do not know Muhammad. We have not seen Them. We do not know Mahāvīra. We do not know anyone [of Them]. Who gave us Self-realization? Śhrī Mātājī. That we were able to know because of Śhrī Mātājī.'</font><br>
+So, whomever we believe in Them, we will have to believe Them in Śhrī Mātājī itself. Not in Sahaja Yoga."<br>
 <font size="+0"><b>1900-0000 Quote, Navarātri Pūjā, from the book Sahaja Yoga, An Experiential Treatise (Sahaja Yoga Anubhavāche Bola) by Venu Narayan Phaḍake, Chapter 19, Pages 248 and 249</b></font>
 </p>
 
