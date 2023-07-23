@@ -82,6 +82,21 @@ tags:
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"So try to be people who are without any conditioning: that brings out your better quality.<br>
+You have been to Sajjanagaḍ, now you have seen it.<br>
+And tomorrow it's a New Year, is a very big day tomorrow. So we have to make some promises to ourselves.<br>
+That in ah now Sajjanagaḍ such a Great Saint [Śhrī Swāmī Rāmadās] lived, who just wore one dress on His body. You went to see Him. You went to see His vibrations. Now, how much are you going to have out of His life in yourself? That is the point is.<br>
+And God knows where He lived! Nobody knew how He lived. He used to sleep on stones and He has to ... has bath uh in every place, wherever He went, on a ... in a river or any place.<br>
+He never cooked His food. He used to beg once in the day time.<br>
+Such a Great Saint used to go and beg, you see? If you I'll ask you to go and begged [beg], you will feel that I am insulting you.<br>
+So He used to go and beg while the whole of welcome, Śhivajī was at His Lotus Feet. But He used to beg. And He used to beg once, eat that much whatever He got from whatever house, that He would eat, and then He would not eat at all.<br>
+So that kind of a thing we have to have: this conditioning has to be reduced to it as much as possible."</font><br>
+<font size="+0"><b>1982-1231 Vāstuśhānti Pūjā, Try to Be People Who Are Without any Conditioning (We Have Come Here to Get Out of Our Conditionings, Garden, House of Kenjale Family, Sātārā, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b>1983-0104 Śhrī Gaṇeśha Pūjā, What Are You Here for, Sholapur, Maharashtra, India</b></font>
 </p>
