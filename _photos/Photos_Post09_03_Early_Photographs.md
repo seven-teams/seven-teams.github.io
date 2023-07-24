@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 84 Photos from the <font color="Crimson"><b>1969-1124 Marriage Events</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 71 new high resolutions and 13 low resolutions from the Named Collections.<br>
-One direct link to all 84 Photos: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1969/"> 1969 Collection</a>.<br>
+We are pleased to let you know that 86 Photos from the <font color="Crimson"><b>1969-1124 Marriage Events</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 71 new high resolutions, 2 medium resolutions and 13 low resolutions from the Named Collections.<br>
+One direct link to all 86 Photos: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1969/"> 1969 Collection</a>.<br>
+[Note: 2 Photos of medium resolutions were uploaded only on 2023-0724.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>
