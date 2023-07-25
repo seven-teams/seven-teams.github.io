@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 11: Special Events (after 1975), Part 38'
 date: 2023-07-25
-permalink: /photos/2023/0725
+permalink: /photos/2023/0725-a
 tags:
   - blue @ Special Events Photographs
   - crimson @ Photographs of Shri Mataji
