@@ -1,5 +1,5 @@
 ---
-title: 'Hindi Letters from the Divine Message, Version 9'
+title: 'Hindi Letters from Divine Message, Version 9'
 date: 2023-07-18
 permalink: /divine/2023/07/18
 tags:
