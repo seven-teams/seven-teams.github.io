@@ -1,5 +1,5 @@
 ---
-title: 'Marathi Letters from the Divine Message, Version 8.2'
+title: 'Marathi Letters from Divine Message, Version 8.2'
 date: 2023-05-31
 permalink: /divine/2023/05/31
 tags:

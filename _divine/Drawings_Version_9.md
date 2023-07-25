@@ -1,7 +1,7 @@
 ---
 title: 'Drawings from Divine Message, Version 9'
-date: 2023-07-18
-permalink: /divine/2023/07/18
+date: 2023-07-25
+permalink: /divine/2023/07/25
 tags:
   - Divine Message
 ---
