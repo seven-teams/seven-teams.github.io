@@ -21,7 +21,7 @@ Please kindly share the file with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-The Marathi Subteam<br>
+The Drawings Subteam<br>
 sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
