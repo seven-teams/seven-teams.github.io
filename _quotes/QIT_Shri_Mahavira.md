@@ -77,6 +77,17 @@ Now today they are like Incarnations. Incarnations are beyond but maybe the gap 
 <div class="para-divider"></div>
 
 <p>
+"All the Incarnations who came on this Earth were a milestone on the ladder of our evolution. But They all had one type of work to do.<br>
+Like the Goddess had to kill the rākṣhasas and save the devotees.<br>
+That is why Śhrī Kṛiṣhṇa arranged this play. This was all a play. There is no need to be so serious about it. Śhrī Kṛiṣhṇa won everyone with His sweetness. He explained all our faults in a sweet and roundabout way. It was a very beautiful Incarnation of His.<br>
+<font color="red">After Him came Mahāvīra and Buddha, who took an Incarnation of Seriousness. In this seriousness, They spoke of Oneness of the Spirit and the knowledge of the Whole.<br>
+Then seriousness developed and the people became serious-minded, and made their daily lives very difficult. In fact neither Buddha nor Mahāvīra had said so.</font>"<br>
+<font size="+0"><b>1990-0409 Śhrī Ādi Śhakti Pūjā (Hindi), Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
