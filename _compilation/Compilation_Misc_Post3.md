@@ -12,11 +12,11 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 Jay Śhrī Mātājī!<br>
 <br>
 We are pleased to let you to mention that Step 5 of the database aims to facilitate educational and scholarly research on small parts of the Divine Message that are of special interest, such as:<br>
-1. The first version of Drawings, Version 9, can be downloaded from the post <a href="https://seven-teams.github.io/divine/2023/07/25">.<br>
-2. The first version of English Letters, Version 9, can be downloaded from the post <a href="https://seven-teams.github.io/divine/2023/07/28">.<br>
-3. The handwritings gallery <a href="https://eternalmoments.smugmug.com/Moments-of-Joy/Handwritings/"> has already 301 images.<br>
-4. The first version of Hindi Letters, Version 9, can be downloaded from the post <a href="https://seven-teams.github.io/divine/2023/07/18">.<br>
-5. The third version of Marathi Letters, Version 9, can be downloaded from the post <a href="https://seven-teams.github.io/divine/2023/06/26">.<br>
+1. The first version of Drawings, Version 9, can be downloaded from the post <a href="https://seven-teams.github.io/divine/2023/07/25"> Drawings</a>.<br>
+2. The first version of English Letters, Version 9, can be downloaded from the post <a href="https://seven-teams.github.io/divine/2023/07/28"> English Letters</a>.<br>
+3. The handwritings gallery <a href="https://eternalmoments.smugmug.com/Moments-of-Joy/Handwritings/"> Handwritings</a>has already 301 images.<br>
+4. The first version of Hindi Letters, Version 9, can be downloaded from the post <a href="https://seven-teams.github.io/divine/2023/07/18"> Hindi Letters</a>.<br>
+5. The third version of Marathi Letters, Version 9, can be downloaded from the post <a href="https://seven-teams.github.io/divine/2023/06/26"> Marathi Letters</a>.<br>
 Please kindly share these posts and links with all our brothers and sisters.<br>
 </p>
 
