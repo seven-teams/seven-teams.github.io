@@ -4,6 +4,9 @@ date: 2023-07-29
 permalink: /compilation/2023/0729
 tags:
   - violet @ Miscellaneous
+  - green @ Drawings
+  - green @ Handwritings
+  - green @ Letters
 ---
 
 <p>
