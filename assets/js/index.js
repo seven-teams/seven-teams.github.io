@@ -1,0 +1,1 @@
+import "/assets/js/custom/wave-list.js"
