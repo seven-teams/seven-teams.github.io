@@ -18,6 +18,7 @@ We are pleased to let you to mention that Step 5 of the database aims to facilit
 4. The first version of Hindi Letters, Version 9, can be downloaded from the post <a href="https://seven-teams.github.io/divine/2023/07/18">.<br>
 5. The third version of Marathi Letters, Version 9, can be downloaded from the post <a href="https://seven-teams.github.io/divine/2023/06/26">.<br>
 Please kindly share these posts and links with all our brothers and sisters.<br>
+</p>
 
 <br>
 The Comprehensive Compilations Team (CCT) and the Subteams of Divine Message, Hindi, Marathi, and Photos<br>
