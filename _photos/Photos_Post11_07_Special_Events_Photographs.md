@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 5 Photos from the special event <font color="Crimson"><b>1984-0000 IMO Reception, London, UK</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 5 high resolutions from the Named Collections.<br>
-The direct link to the 5 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1984/"> 1984 Collection</a>.<br>
+We are pleased to let you know that 1 Photo from the special event <font color="Crimson"><b>1984-0000 IMO Reception, London, UK</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
+The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1984/"> 1984 Collection</a>.<br>
+[Note: 4 Photos were dated 1978-0317 on 2023-0719.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>

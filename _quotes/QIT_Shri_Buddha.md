@@ -120,8 +120,20 @@ Buddha had dharma. His body was clean, His mind, the attention, did not find any
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Such born realized people: this is a very, very far-fetched stuff; they are very few.<br>
+I would say perhaps Buddha and Mahāvīra are the only two human beings who have gone through many lives. From one extreme to another They went and ultimately They found out that going to the extremes is not proper. Still They have not reached the complete height of an Incarnation."</font><br>
 <font size="+0"><b>1977-0126 Talk to Sahaja Yogis (28th Republic Day), Day 1, Questions on Chakras, Bordi, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now beyond that is God's Realization.<br>
+There are three stages to that also, but just now I have told this: the Sat-chit-ānand State.<br>
+<font color="red">The God's Realization is the state in which Gautama Buddha and Mahāvīra only rose, and They are settled down here in our brains, both of Them are here, Christ is here.<br>
+And these two were not Incarnations. They were born as human beings. They were born to Sītā, as Lav and Kuśh. Then they were born as Buddha and Mahāvīra and Ādi Śhakti was their mother again. Then they were born to Fāṭimah Bi as Hasan and Husayn. They are both placed here in your head and They are the two milestones you have got by which you can know what a human being can rise up to.<br>
+Now today they are like Incarnations. Incarnations are beyond but maybe the gap can be bridged.</font>"<br>
+<font size="+0"><b>1977-0215 Public Program (Hindi + English), Day 2, Sat-chit-ānanda, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -129,6 +141,17 @@ Buddha had dharma. His body was clean, His mind, the attention, did not find any
 <p>
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"All the Incarnations who came on this Earth were a milestone on the ladder of our evolution. But They all had one type of work to do.<br>
+Like the Goddess had to kill the rākṣhasas and save the devotees.<br>
+That is why Śhrī Kṛiṣhṇa arranged this play. This was all a play. There is no need to be so serious about it. Śhrī Kṛiṣhṇa won everyone with His sweetness. He explained all our faults in a sweet and roundabout way. It was a very beautiful Incarnation of His.<br>
+<font color="red">After Him came Mahāvīra and Buddha, who took an Incarnation of Seriousness. In this seriousness, They spoke of Oneness of the Spirit and the knowledge of the Whole.<br>
+Then seriousness developed and the people became serious-minded, and made their daily lives very difficult. In fact neither Buddha nor Mahāvīra had said so.</font>"<br>
+<font size="+0"><b>1990-0409 Śhrī Ādi Śhakti Pūjā (Hindi), Kolkata, West Bengal, India</b></font>
 </p>
 
 <div class="para-divider"></div>
