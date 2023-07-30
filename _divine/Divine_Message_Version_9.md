@@ -18,7 +18,7 @@ Please kindly share the link with all our brothers and sisters.
 If you are part of some project which has a public platform (such as a web-site) and some Sahaja Yogis or Sahaja Yoginīs involved in that project would like to use parts of the Divine Message (any version), please kindly consider finding a way to refer on that public platform to<br>
 https://seven-teams.github.io/divine<br>
 <br>
-We would like to thank all of you who have contributed in various way to the <font color="mediumvioletred">Database of Transcripts/Quotes</font>. For more contributions, ideas, suggestions, and help in any way, please write to us at sahajayoga.compilations@gmail.com
+We would like to thank all of you who have contributed in various ways to the <font color="mediumvioletred">Database of Transcripts/Quotes</font>. For more contributions, ideas, suggestions, and help in any way, please write to us at sahajayoga.compilations@gmail.com
 </p>
 
 <p>

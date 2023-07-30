@@ -22,7 +22,7 @@ If you are part of some project which has a public platform (such as a web-site)
 https://seven-teams.github.io/divine
 </p>
 
-We would like to thank all of you who have contributed in various way to the <font color="mediumvioletred">Database of Transcripts/Quotes</font>. For more contributions, ideas, suggestions, and help in any way, please write to us at sahajayoga.compilations@gmail.com
+We would like to thank all of you who have contributed in various ways to the <font color="mediumvioletred">Database of Transcripts/Quotes</font>. For more contributions, ideas, suggestions, and help in any way, please write to us at sahajayoga.compilations@gmail.com
 
 <p>
 <font color="DarkGreen">I. Primarily aimed at:</font><br>
