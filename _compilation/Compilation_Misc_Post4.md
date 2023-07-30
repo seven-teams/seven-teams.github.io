@@ -11,7 +11,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-We are pleased to mention that Step 6, Divine Events, has been started with the very first 547 events from the period 1997 to 2011. Step 6 of the database aims to facilitate the search of all events. It comes with multiple key features, including:<br>
+We are pleased to mention that Step 6, Divine Events, has been started with the very first 547 events from the period 1997 to 2011. Step 6 of the database aims to facilitate the search and the scholarly research of all Divine Events. It brings in multiple key features, including:<br>
 <br>
 1. Structured in just 3 simple layers: titles, key quotes and comments.<br>
 2. Streamlined categories and subcategories.<br>
