@@ -19,9 +19,8 @@ We are pleased to mention that Step 6, Divine Events, has been started with the 
 4. As we are looking at a number of events between 16,000 and 1,000,000, the monthly category is vital.<br>
 5. Everything on one page <a href="https://seven-teams.github.io/tag-events/"><font color="deeppink">Tags of the Divine Events</font></a>.<br>
 6. The new events added can be easily traced at the link <a href="https://seven-teams.github.io/tag-events/"><font color="deeppink">Divine Events Posts</font></a>.<br>
-7. A system of dates that allows 00, 0000, x, y, and z in the dates, everything being sorted as per the supposes chronological order.<br>
-8. An in-built system that makes conspicuous all errors on categories or dates so that they can be easily ands immediately identified and fixed.<br>
-9. Unlimited possibilities.<br>
+7. A system of dates that allows 00, 0000, x, y, and z in the dates, everything being sorted as per the supposed chronological order.<br>
+8. Unlimited possibilities.<br>
 <br>
 Everyone is invited and welcome to add new or contribute to old events at any time via emails or messages. Please kindly share the news with all our brothers and sisters.<br>
 <br>
