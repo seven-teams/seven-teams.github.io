@@ -14,7 +14,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-We are pleased to mention that Step 5 of the database aims to facilitate educational and scholarly research on small parts of the Divine Message that are of special interest in themselves, such as:<br>
+We are pleased to mention that Step 5 of the database aims to facilitate educational and scholarly research on small parts of the Divine Message that are of independent special interest, such as:<br>
 <br>
 1. The first version of Drawings, Version 9, can be downloaded from the post <a href="https://seven-teams.github.io/divine/2023/07/25"> Drawings</a>.<br>
 2. The first version of English Letters, Version 9, can be downloaded from the post <a href="https://seven-teams.github.io/divine/2023/07/28"> English Letters</a>.<br>
