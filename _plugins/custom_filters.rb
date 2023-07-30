@@ -14,6 +14,17 @@ def colorize_core(input)
   }>#{tag}</span>"]
 end
 
+def parse_date(document)
+  case document['sort_date']
+  when String
+    document['sort_date']
+  when Date
+    document['sort_date'].strftime('%Y-%m-%d')
+  when NilClass
+    document['date'].strftime('%Y-%m-%d')
+  end.split('-')
+end
+
 module CustomFilters
   def colorize(input)
     colorize_core(input)[1]
@@ -24,16 +35,11 @@ module CustomFilters
   end
 
   def sort_by_date(input)
-    input.sort_by do |document|
-      case document.data['sort_date']
-      when String
-        document.data['sort_date']
-      when Date
-        document.data['sort_date'].strftime("%Y-%m-%d")
-      when NilClass
-        document.data['date'].strftime("%Y-%m-%d")
-      end.split('-').reverse.map(&:to_f)
-    end
+    input.sort_by { |e| parse_date(e.data).map(&:to_f) }
+  end
+
+  def get_year(input)
+    parse_date(input)[0]
   end
 end
 
