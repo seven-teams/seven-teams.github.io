@@ -75,7 +75,6 @@ class WaveList extends LitElement {
   	  <div class="wrapper" style=${ifDefined(when(this.manualLineBreak, () => styleMap({ width: "fit-content" })))}>
   	  	<div style=${styleMap({ width: when(this.manualLineBreak, () => "auto", () => `${this.width}%`) })}">
             <slot name="title"></slot>
-            <h3>line break status: ${this.manualLineBreak}</h3>
             <ul>
               <slot name="list"></slot>
             </ul>
