@@ -20,6 +20,7 @@ We are pleased to mention that Step 6, Divine Events, has been started with the 
 5. Everything on one page <a href="https://seven-teams.github.io/tag-events/"><font color="pink">Tags of the Divine Events</font></a>.<br>
 6. The new events added can be easily traced at the link <a href="https://seven-teams.github.io/tag-events/"><font color="pink">Divine Events Posts</font></a>.<br>
 7. A system of dates that allows 00, 0000, x, y, and z in the dates.</font></a>.<br>
+8. An in-built system that makes conspicuous all errors on categories or dates so that they can be easily ands immediately identified and fixed.<br>
 <br>
 Please kindly share the news with all our brothers and sisters.<br>
 <br>
