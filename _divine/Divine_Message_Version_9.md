@@ -28,7 +28,7 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 
 <p>
 <font color="DarkGreen">II. Numerical Data on</font>
-<font color="blue"> Divine Message, Version 8:</font> <br>
+<font color="blue"> Divine Message, Version 9:</font> <br>
 1. has 19,739 pages (an increment of 397 pages from Version 8);<br>
 2. contains 4,821 events started (an increment of 104 from Version 8);<br>
 3. contains 374 figures (an increment of 75 from Version 8);<br> 
