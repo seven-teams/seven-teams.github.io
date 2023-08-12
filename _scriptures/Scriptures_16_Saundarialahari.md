@@ -192,7 +192,7 @@ Sahasrāre padme saha rahasi patyā viharase</font>
 
 <p>
 <b>9 Translation</b><br>
-<font color="DarkGreen">Thou art diverting Thyself, in secrecay with Thy Lord, in the thousand-petalled lotus, having pierced the Earth situated in the <i>Mūlādhāra</i>i>, the Water in the <i>Maṇipūra</i>, the Fire abiding in the <i>Swādhiṣhṭhāna</i>, the Air in the Heart (<i>Anāhata</i>), the Ether above (the <i>Viśhuddhi,</i>), and Manas between the eyebrows (<i>Āgñyā</i>) and thus broken through the entire Kula path.</font><br>
+<font color="DarkGreen">Thou art diverting Thyself, in secrecay with Thy Lord, in the thousand-petalled lotus, having pierced the Earth situated in the <i>Mūlādhāra</i>, the Water in the <i>Maṇipūra</i>, the Fire abiding in the <i>Swādhiṣhṭhāna</i>, the Air in the Heart (<i>Anāhata</i>), the Ether above (the <i>Viśhuddhi,</i>), and Manas between the eyebrows (<i>Āgñyā</i>) and thus broken through the entire Kula path.</font><br>
 <font color="blue">Having penetrated the Pṛithvī (earth) element situated in the Mūlādhāra, the Jala (water) element in the Maṇipūra, the Agni (fire) element in the Swādhiṣhṭhān, the Vāyu (air) element in the Heart (Anāhata), the Ākāśha (sky or ether) element above the former in the Viśhuddhi, and Manas in the Āgñyā between the eyebrows, Thou, ascending through the Suṣhumṇā, sportest with Thy Consort in the solitude of Sahasrāra, the Thousand-petalled Lotus.</font><br>
 </p>
 
