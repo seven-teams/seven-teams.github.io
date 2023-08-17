@@ -10,10 +10,11 @@ tags:
 <p>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-This post will share issues of Sahaja Yoga Australian Newsletter published in the 4th year (2003) and received or scanned by the team.<br>
+This post will share issues of Sahaja Yoga Australian Newsletter published in the 3rd year (2002) and received or scanned by the team.<br>
 <br>
 Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces).<br>
 This is a joint project with Kannan Subrahmanyan from Australia.<br>
+For Part 4, please see <a href="https://seven-teams.github.io/archives/2023/0727"> Part 4</a>.<br>
 For Part 5, please see <a href="https://seven-teams.github.io/archives/2023/0706-a"> Part 5</a>.<br>
 <br>
 Jay Śhrī Mātājī!<br>
