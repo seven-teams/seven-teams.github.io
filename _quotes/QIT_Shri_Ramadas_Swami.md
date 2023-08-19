@@ -97,7 +97,25 @@ So that kind of a thing we have to have: this conditioning has to be reduced to 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"Are we going to forget all that civilization that's doomed one in the West?<br>
+You are the people who are the foundation, what are you‽ You are not Saints, are you not?<br>
+How does a Saint lives [live]?<br>
+<font color="DarkRed">You have seen Rāmdāsa Swāmī [in Sajjangaḍa], I went to see.</font><br>
+Now do you realize that you went to Mahālakṣhmī, that's one of the ... one of the Pīṭhas of, one of the Kuṇḍalinī's Pīṭha, you see, of the whole Universe. Did you follow that?<br>
+Looking after your comfort things or looking after your Spirit? What are you doing here?<br>
+Did you go ... did you understand that the temple was for that? Did you follow that point?<br>
+And now, I want you to see another temple. And then another temple I'm going to arrange.<br>
+Is not so easy: no tourist has gone to these temples! Actually no Indians are -- no foreigners are allowed in these temples.<br>
+Because you are Saints they have allowed you, but behave like Saints!<br>
+What's this nonsense going on? Talking about comfort, this nonsense.<br>
+What comfort do you have there? I feel most uncomfortably in the Western countries. There's no comfort of the Spirit! Most uncomfortable I feel. Everybody drinking, everybody nonsensically, so materialistic, so materialistic they are! Horrible!<br>
+Now don't think too much of yourself, for Heaven's sake.<br>
+I don't want you to talk that somebody's dominating you, crossing your maryādās, `Sahaj means lethargy.' Why don't you have your own Spirits and your own this ... uh arrangements?<br>
+Everything you have misleft, two room... four rooms there unlocked, this thing.<br>
+There's one girl looking after Me, [snapping Her right fingers:] how smart she is! Just see how smart she is.<br>
+Even ten En... English girls can't look after Me the way she looks after Me. Every little bit of that she knows!<br>
+I'm not saying only English but all of you have this problem. Please get rid of it! Otherwise forget the West!<br>
+You have to do tremendous jobs!"<br>
 <font size="+0"><b>1983-0104 Śhrī Gaṇeśha Pūjā, What Are You Here for, Sholapur, Maharashtra, India</b></font>
 </p>
 

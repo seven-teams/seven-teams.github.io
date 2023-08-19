@@ -126,8 +126,9 @@ Keep it one name. There are ten names, to one thing, for twice-born."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+"We have some very big Sahaja Yogis in India, you know that, of a very great height.<br>
+<font color="red">The other day I received a letter from one of them, so I was amazed! The way he has .. he's expressing himself, most amazed at it! He was talking just like Socrates is-ss.</font>"<br>
+<font size="+0"><b>1980-0410 Public Program, Christ Is Symbolized as An Egg (The Egg and Rebirth), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -158,7 +159,49 @@ A religion doesn't mean outside, but the religion as a man: means the capacity o
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1980-0613 Public Program, Something within Us which Makes Us Seek Something Beyond, Stratford, East London, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1980-0715 Public Program, What We Are Wanting Is the Reality, Cambridge, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1980-0727 Guru Pūjā (Guru Pūrṇimā Day), Statutes of the Lord (You Do Not Harm Anyone, The Testimony of the Truth, Develop Detachment, Lead a Moral Life) and Promise that You Will Be a Guru Worthy of Your Mother (Today I Authorize You to Be the Gurus and You Have a Very Supreme Guru), Temple of All Faiths (now demolished, 11c Pond St), Belsize Park, Hampstead, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1980-0728 Public Program, The Principle of Guru (Moderation Is the Way We Really Solve the Problem and The Innocence Is in the Center), Sea is the Guru (The Sea Is to Be Worshiped and So Much to Learn from the Sea) and Your Dharma Is the Way Your Attention Is (Dharma Is Balancing), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1980-0929 Public Program, Hotel Waldhaus Dolder, Zürich, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1980-1020 Public Program, The Way of Kuṇḍalinī, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
