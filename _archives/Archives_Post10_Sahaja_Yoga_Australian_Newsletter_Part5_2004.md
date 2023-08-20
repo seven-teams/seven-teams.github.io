@@ -124,7 +124,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>SYAUSNEW18.</b></font> <b>2004-1022, 1029, 1105 and 1112 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0706)
+<font color="DarkGreen"><b>SYAUSNEW18.</b></font> <b>2004-1022, 1029, 1105 and 1112 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0720)
 
 <iframe src="/pdf/?usedownload=true#/files/2004-1022_1112_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
