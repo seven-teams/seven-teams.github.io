@@ -65,7 +65,8 @@ Praṇantuṁ stotuṁ vā katham akṛita-puṇyaḥ prabhavati</font>
 <p>
 <b>1 Translation</b><br>
 <font color="DarkGreen">Only if conjoint with the Śhakti (Thyself), would Śhiva earn the privilege to become Overlord; otherwise the God is not able even to stir. ......</font><br>
-<font color="blue">United with Śhakti, Śhiva is endowed with the power to create the universe. Otherwise, He is incapable even of movement. ......</font>
+<font color="blue">United with Śhakti, Śhiva is endowed with the power to create the universe. Otherwise, He is incapable even of movement. Therefore, who except those endowed with great merits acquired in the past can be fortunate enough to salute or praise Thee, 
+Mother Divine, who art the adored of even Hari, Hara and Viriñchi.</font>
 </p>
 
 <div class="para-divider"></div>
@@ -80,8 +81,8 @@ Haras saṁkṣhudy'ainaṁ bhajati bhasit'oddhūlana vidhim</font>
 
 <p>
 <b>2 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">Viriñchi, having gathered the tiniest speck of dust of Thy lotus-like Feet, creates the worlds, leaving nothing to be desired; ......</font><br>
+<font color="blue">Gathering a minute particle of dust from Thy lotus FeeT, Brahmā the Creator brings  into being this universe (limitless and mysterious) without any imperfection. ......</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -538,7 +539,10 @@ Mahā-saṁvart'āgnir virachayati nīrājana vidhim</font>
 
 <p>
 <b>31 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Chatuḥ-ṣhaṣhṭyā tantraiḥ sakalam ati-saṁdhāya bhuvanaṁ<br>
+  Sthitas tat tat-siddhi prasava para-tantraiḥ paśhu-patiḥ<br>
+Punas tvan-nirbandhād akhila puruṣh’ārth’aika ghaṭanā-<br>
+Sva-tantraṁ te tantraṁ kṣhiti talam avātītarad idam</font>
 </p>
 
 <p>
@@ -551,7 +555,10 @@ Mahā-saṁvart'āgnir virachayati nīrājana vidhim</font>
 
 <p>
 <b>32 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Śhivaḥ śhaktiḥ kāmaḥ kṣhitir atha raviḥ śhīta-kiraṇaḥ<br>
+Smaro haṁsaḥ śhakras tadanu cha par’āmāra harayaḥ<br>
+Amī hṛillekhābhis tisṛibhir avasāneṣhu ghaṭitā<br>
+Bhajante varṇās te tava janani nām’āvayavatām</font>
 </p>
 
 <p>
@@ -564,7 +571,10 @@ Mahā-saṁvart'āgnir virachayati nīrājana vidhim</font>
 
 <p>
 <b>33 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Smaraṁ yoniṁ lakṣhmīṁ tritayam idam ādau tava manor<br>
+Nidhāy’aike nitye niravadhi mahā-bhoga rasikāḥ<br>
+Bhajanti tvāṁ chintā-maṇi guna nibaddh’ākṣha valayāḥ<br>
+Śhiv’āgnau juhv’antaḥ surabhi ghṛita dhār’āhuti śhataiḥ</font>
 </p>
 
 <p>
@@ -577,7 +587,10 @@ Mahā-saṁvart'āgnir virachayati nīrājana vidhim</font>
 
 <p>
 <b>34 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Śharīraṁ tvaṁ śhambhoḥ śhaśhi-mihira vakṣh’oruha yugaṁ<br>
+Tav’ātmānaṁ manye Bhagavati nav’ātmānam anagham<br>
+Ataḥ śheṣhaḥ śheṣh’īty’ayam ubhaya sādhāraṇatayā<br>
+Sthitaḥ saṁbandho vāṁ samarasa par’ānanda parayoḥ</font>
 </p>
 
 <p>
@@ -590,7 +603,10 @@ Mahā-saṁvart'āgnir virachayati nīrājana vidhim</font>
 
 <p>
 <b>35 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Manas-tvaṁ vyoma tvaṁ marud asi marut sārathir asi<br>
+Tvam āpas-tvaṁ bhūmis-tvayi pari-ṇatāyāṁ na hi param<br>
+Tvameva sv’ātmānaṁ pari-ṇamayituṁ viśhva vapuṣhā<br>
+Chid-ānand’ākāraṁ śhiva-yuvati bhāvena bibhṛiṣhe</font>
 </p>
 
 <p>
@@ -701,7 +717,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>42 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Gatair māṇikyatvaṁ gagana maṇibhiḥ sāndra ghaṭitaṁ<br>
+Kirīṭaṁ te haimaṁ Hima-giri-sute kīrtayati yaḥ<br>
+Sa nīḍeyaḥ chhāyāḥ chhuraṇa śhabalaṁ chandra śhakalaṁ<br>
+Dhanuḥ śhaunāsīraṁ kim iti na nibadhnāti dhiṣhaṇām</font>
 </p>
 
 <p>
@@ -714,7 +733,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>43 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Dhunotu dhvāntaṁ nas tulita dalit’endīvara vanaṁ<br>
+Ghana snigdhaḥ-lakṣhṇaṁ chikura nikurumbaṁ tava śhive<br>
+Yad’īyaṁ saurabhyaṁ sahajam upalabdhuṁ sumanaso<br>
+Vasanty’asmin manye vala mathana vāṭī viṭapinām</font>
 </p>
 
 <p>
@@ -727,7 +749,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>44 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Tanotu kṣhemaṁ nas tava vadana saundarya-laharī<br>
+Parīvāha srotaḥ saraṇir iva sīmanta saraṇiḥ<br>
+Vahantī sindūraṁ prabala kabarī bhāra timira<br>
+Dviṣhāṁ vṛindair bandī-kṛitam iva navīn’ārka kiraṇam</font>
 </p>
 
 <p>
@@ -740,7 +765,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>45 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Arālaiḥ sv’ābhāv’yād alika-labha saśhrībhir alakaiḥ<br>
+Parītaṁ te vaktraṁ parihasati paṅkeruha ruchim<br>
+Dara-smere yasmin daśhana ruchi kiñjalka ruchire<br>
+Sugandhau mādyanti smara-dahana chakṣhur madhu-lihaḥ</font>
 </p>
 
 <p>
@@ -753,7 +781,11 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>46 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">
+Lalāṭaṁ lāvaṇya dyuti vimalam ābhāti tava yad<br>
+Dvitīyaṁ tan manye makuṭa ghaṭitaṁ chandra śhakalam<br>
+Viparyāsa nyāsād ubhayam api saṁbhūya cha mithaḥ<br>
+Sudhā-lepa syūtiḥ pariṇamati rākā hima-karaḥ</font>
 </p>
 
 <p>
@@ -766,7 +798,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>47 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Bhruvau bhugne kiṁ-chid bhuvana-bhaya-bhaṅga vyasanini<br>
+  Tvadīye netrābhyāṁ madhu-kara ruchibhyāṁ dhṛita-guṇam<br>
+  Dhanur-manye savy’etara kara-gṛihītaṁ rati-pateḥ<br>
+Prakoṣhṭhe muṣhṭau cha sthagayati nigūḍh’āntaram Ume</font>
 </p>
 
 <p>
@@ -779,7 +814,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>48 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Ahaḥ sūte savyaṁ tava nayanam ark’ātma-katayā<br>
+Triyāmāṁ vāmaṁ te sṛijati rajanī nayaka tayā<br>
+Tṛitīyā te dṛiṣhṭir daradalita hem’āmbuja ruchiḥ<br>
+Sam’ādhatte saṁdhyāṁ divasa niśhayor antara charīm</font>
 </p>
 
 <p>
@@ -792,7 +830,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>49 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Viśhālā kalyāṇī sphuṭa ruchir ayodhyā kuvalayaiḥ<br>
+Kṛipā-dhār’ādhārā kim api madhur’ābhoga-vatikā<br>
+Avantī dṛiṣhṭis te bahu-nagara vistāra vijayā<br>
+Dhruvaṁ tat-tan-nāma vyava-haraṇa yogyā vijayate</font>
 </p>
 
 <p>
@@ -805,7 +846,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>50 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Kavīnāṁ saṁdarbha stabaka makarand’aika rasikaṁ<br>
+Kaṭākṣha vyākṣhepa bhramara kalabhau karṇa yugalam<br>
+Amuñchantau dṛiṣhṭvā tava nava-ras’āsvāda taralāu<br>
+Asūyā saṁsargād alika-nayanaṁ kiṁ-chid aruṇam</font>
 </p>
 
 <p>
@@ -818,7 +862,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>51 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Śhive śhṛiṅgār’ārdrā tad itara-jane kutsana-parā<br>
+Saroṣhā gaṅgāyāṁ giriśha-charite vismayavatī<br>
+Har’āhibhyo bhītā sarasiruha saubhāgya jananī<br>
+Sakhīṣhu smerā te mayi Jananī dṛiṣhṭiḥ sakaruṇā</font>
 </p>
 
 <p>
@@ -831,7 +878,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>52 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Gate karṇ’ābhy’arṇaṁ garuta iva pakṣhmāṇi dadhatī<br>
+Purāṁ bhettuśh chitta praśhama rasa vidrāvaṇa phale<br>
+Ime netre gotr’ādhara pati kul’ottaṁsa Kalike<br>
+Tav’ākarṇ’ākṛiṣhṭa smara śhara vilāsaṁ kalayataḥ</font>
 </p>
 
 <p>
@@ -844,7 +894,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>53 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Vibhakta trai-varṇyaṁ vyati-karita līl’āñjanatayā<br>
+Vibhāti tvan netra tritayam idam Īśhāna-dayite<br>
+Punaḥ sraṣhṭuṁ devān druhiṇa hari rudrān uparatān<br>
+Rajaḥ sattvaṁ bibhrat-tama iti guṇānāṁ trayam iva</font>
 </p>
 
 <p>
@@ -857,7 +910,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>54 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Pavitrī-kartuṁ naḥ paśhu-pati parādhīna hṛidaye<br>
+Dayā-mitrair netrair aruṇa-dhavala śhyāma ruchibhiḥ<br>
+Nadaḥ śhoṇo gaṅgā tapana-tanay’eti dhruvam amuṁ<br>
+Trayāṇāṁ tīrthānām upanayasi saṁbhedam anagham</font>
 </p>
 
 <p>
@@ -870,7 +926,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>55 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Nimeṣh’onmeṣhā-bhyāṁ pralayam udayaṁ yāti jagatī<br>
+Tav’ety’āhuḥ santo Dharaṇi-dhara-rājanya-tanaye<br>
+Tvad unmeṣhāj-jātaṁ jagad idam aśheṣhaṁ pralayataḥ<br>
+Paritrātuṁ śhaṅke parihṛita nimeṣhās tava dṛiśhaḥ</font>
 </p>
 
 <p>
@@ -883,7 +942,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>56 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Tav’āparṇe karṇe japa nayana paiśhunya chakitā<br>
+Nilīyante toye niyatam animeṣhāḥ śhapharikāḥ<br>
+Iyaṁ cha śhrīr baddhach-chhada puṭa kavāṭaṁ kuvalayam<br>
+Jahāti pratyūṣhe niśhi cha vighaṭay-ya praviśhati</font>
 </p>
 
 <p>
@@ -896,7 +958,11 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>57 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">
+Dṛiśhā drāghīyasyā dara-dalita nīl’otpala ruchā<br>
+Davīyāṁsaṁ dīnaṁ snapaya kṛipayā mām api Śhive<br>
+Anenāyaṁ dhanyo bhavati na cha te hānir iyatā<br>
+Vane vā harmye vā sama-kara-nipāto hima-karaḥ</font>
 </p>
 
 <p>
@@ -909,7 +975,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>58 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Arālaṁ te pālī-yugalam aga-rājanya tanaye<br>
+Na keṣhām ādhatte kusuma śhara kodaṇḍa kutukam<br>
+Tiraśh-chīno yatra śhravaṇa patham ullaṅghya vilasan<br>
+Napāṅga-vyāsaṅgo diśhati śhara saṁdhāna dhiṣhaṇām</font>
 </p>
 
 <p>
@@ -922,7 +991,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>59 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Sphurad gaṇḍ’ābhoga pratiphalita tāṭaṅka yugalaṁ<br>
+Chatuśh-chakraṁ manye tava mukham idaṁ manmatha ratham<br>
+Yam’āruhya druhyaty’avani-ratham ark’endu charaṇaṁ<br>
+Mahāvīro māraḥ pramatha-pataye sajjitavate</font>
 </p>
 
 <p>
@@ -935,7 +1007,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>60 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Sarasvatyāḥ sūktīr amṛita laharī kauśhala harīḥ<br>
+Pibantyāḥ Śharvāṇi śhravaṇa chulukābhyām aviralam<br>
+Chamat-kāra śhlāghā-chalita śhirasaḥ kuṇḍala-gaṇo<br>
+Jhaṇat-kārais tāraiḥ prati vachanam āchaṣhṭa iva te</font>
 </p>
 
 <p>
@@ -948,7 +1023,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>61 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Asau nāsā vaṁśhas tuhina giri-vaṁśha dhvaja-paṭi<br>
+Tvadīyo nedīyaḥ phalatu phalam asmākam uchitam<br>
+Vahann antar-muktāḥ śhiśhira-tara niśhvāsa galitaṁ<br>
+Samṛiddhyā yat tāsāṁ bahir api cha muktāmaṇi dharaḥ</font>
 </p>
 
 <p>
@@ -961,7 +1039,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>62 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Prakṛity’ārakt’āyās tava sudati Dantach-chhada-rucheḥ<br>
+Pravakṣhye sādṛiśhyaṁ janayatu phalaṁ vidruma-latā<br>
+Na bimbaṁ tad bimba prati-phalana rāgād aruṇitaṁ<br>
+Tulām adhy’āroḍhuṁ katham iva vilajjeta kalayā</font>
 </p>
 
 <p>
@@ -974,7 +1055,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>63 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Smita jyotsnā jālaṁ tava vadana-chandrasya pibatāṁ<br>
+Chakorāṇām āsīd ati-rasatayā chañchu jaḍimā<br>
+Atas te śhīt’āṁśhor amṛita laharīm amla ruchayaḥ<br>
+Pibanti svach-chhandaṁ niśhi niśhi bhṛiśhaṁ kāñjika dhiyā</font>
 </p>
 
 <p>
@@ -987,7 +1071,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>64 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Aviśhrāntaṁ patyur guṇa-gaṇa-kath’āmreḍana japā<br>
+Japā puṣhpach-chhāyā tava Janani jihvā jayati sā<br>
+Yad agrāsīnāyāḥ sphaṭika dṛiṣhad achchhach chhavi mayī<br>
+Sarasvatyā mūrtiḥ pari-ṇamati māṇikya vapuṣhā</font>
 </p>
 
 <p>
@@ -1000,7 +1087,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>65 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Raṇe jitvā daityān apahṛita śhirastraiḥ kavachibhir<br>
+Nivṛittaiḥ-chaṇḍ’āṁśha tripura-hara nirmālya vimukhaiḥ<br>
+Viśhākh’endr’opendraiḥ śhaśhi viśhada karpūra śhakalā<br>
+Vilīyante mātas tava vadana tāmbūla kabalāḥ</font>
 </p>
 
 <p>
@@ -1013,7 +1103,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>66 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Vipañchyā gāyantī vividham apadānaṁ puraripos<br>
+Tvay’ārabdhe vaktuṁ chalita śhirasā sadhu-vachane<br>
+Tadīyair mādhuryair apalapita tantrī kala-ravāṁ<br>
+Nijāṁ vīṇāṁ vāṇī nichulayati cholena nibhṛitam</font>
 </p>
 
 <p>
@@ -1026,7 +1119,11 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>67 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">
+Kar’āgreṇa spṛiṣhṭaṁ tuhina giriṇā vatsala tayā<br>
+Girīśhen’odastaṁ muhur adhara pān’ākulatayā<br>
+Kara-grāhyaṁ śhambhor mukha mukura vṛintaṁ Giri-sute<br>
+Kathaṅ-kāraṁ brūmas tava chibukam aupamya rahitam</font>
 </p>
 
 <p>
@@ -1039,7 +1136,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>68 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Bhujā-śhleṣhān nityaṁ pura damayituḥ kaṇṭaka-vatī<br>
+Tava grīvā dhatte mukha kamala-nāla śhriyam iyam<br>
+Svataḥ śhvetā kāl’āguru bahula jambāla malinā<br>
+Mṛiṇālī lālityam vahati yad adho hāra latikā</font>
 </p>
 
 <p>
@@ -1052,7 +1152,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>69 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Gale rekhās tisro Gati-gamaka-gīt’aika-nipuṇe<br>
+Vivāha vyānaddha praguṇa guṇa saṁkhyā pratibhuvaḥ<br>
+Virājante nānā vidha madhura rāg’ākara bhuvāṁ<br>
+Trayāṇāṁ grāmāṇāṁ sthiti niyama sīmāna iva te</font>
 </p>
 
 <p>
@@ -1065,7 +1168,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>70 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Mṛiṇālī mṛidvīnāṁ tava bhuja-latānāṁ chatasṛiṇāṁ<br>
+Chaturbhiḥ saundaryaṁ sarasija-bhavaḥ stauti vadanaiḥ<br>
+Nakhebhyaḥ santrasyan prathama mathanā dandhaka ripoḥ<br>
+Chaturṇāṁ śhīrṣhāṇāṁ samam abhaya hast’ārpaṇa dhiyā</font>
 </p>
 
 <p>
@@ -1078,7 +1184,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>71 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Nakhānām uddyotair nava nalina rāgaṁ vihasatāṁ<br>
+Karāṇāṁ te kāntiṁ kathaya kathayāmaḥ katham Ume<br>
+Kayā-chid vā sāmyaṁ bhajatu kalayā hanta kamalaṁ<br>
+Yadi krīḍal lakṣhmī charaṇa tala lākṣhā rasa chhaṇam</font>
 </p>
 
 <p>
@@ -1091,7 +1200,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>72 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Samaṁ Devi skanda dvipa vadana pītaṁ stana yugaṁ<br>
+Tav’edaṁ naḥ khedaṁ haratu satataṁ prasnuta mukham<br>
+Yad ālokyā śhaṅk’ākulita hṛidayo hāsa janakaḥ<br>
+Sva-kumbhau herambaḥ pari-mṛiśhati hastena jhaḍ-iti</font>
 </p>
 
 <p>
@@ -1104,7 +1216,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>73 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Amū te vakṣhojāv’amṛita-rasa māṇikya kutupau<br>
+Na saṁdeha spando Naga-pati-patāke manasi naḥ<br>
+Pibantau tau yasmād avidita vadhū saṅga rasikau<br>
+Kumār’āvady’āpi dvirada vadana krauñcha dalanau</font>
 </p>
 
 <p>
@@ -1117,7 +1232,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>74 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Vahaty’amba stamb’erama danuja kumbha prakṛitibhiḥ<br>
+Sam’ārabdhāṁ muktā-maṇibhir amalāṁ hāra latikām<br>
+Kuch’ābhogo bimb’ādhara ruchibhir antaḥ śhabalitāṁ<br>
+Pratāpa vyāmiśhrāṁ pura damayituḥ kīrtim iva te</font>
 </p>
 
 <p>
@@ -1130,7 +1248,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>75 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Tava stanyaṁ manye Dharaṇi-dhara-kanye hṛidayataḥ<br>
+Payaḥ pārāvāraḥ pari-vahati sārasvatam iva<br>
+Dayāvatyā dattaṁ draviḍa-śhiśhur āsvādya tava yat<br>
+Kavīnāṁ prauḍhānām ajani kamanīyaḥ kavayitā</font>
 </p>
 
 <p>
@@ -1143,7 +1264,11 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>76 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">
+Hara krodha jvāl’āvalibhir ava-līḍhena vapuṣhā<br>
+Gabhīre te nābhī-sarasi kṛita-saṅgo manasi-jaḥ<br>
+Samutta-sthau tasmād Achala-tanaye dhūma latikā<br>
+Janas tāṁ jānīte tava janani rom’āvalir iti</font>
 </p>
 
 <p>
@@ -1156,7 +1281,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>77 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Yad etat kālindī tanu tara taraṅg’ākṛiti Śhive<br>
+Kṛiśhe madhye kiṁ-chij-janani tava yad bhāti sudhiyām<br>
+Vimardād anyo’nyaṁ kucha kalaśhayor antara-gataṁ<br>
+Tanū bhūtaṁ vyoma praviśhad iva nābhiṁ kuhariṇīm</font>
 </p>
 
 <p>
@@ -1169,7 +1297,11 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>78 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">
+Sthiro gaṅg’āvartaḥ stana mukula romāvali latā<br>
+Kalāvālaṁ kuṇḍaṁ kusuma-śhara tejo huta bhujaḥ<br>
+Rater līl’āgāraṁ kim api tava nābhir giri-sute<br>
+Bila-dvāraṁ siddher giriśha nayanānāṁ vijayate</font>
 </p>
 
 <p>
@@ -1182,7 +1314,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>79 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Nisarga kṣhīṇasya stana taṭa bhareṇa klama juṣho<br>
+Naman mūrter nārī tilaka śhanakais truṭyata iva<br>
+Chiraṁ te madhyasya truṭita taṭinī tīra taruṇā<br>
+Samāvasth’āsthemno bhavatu kuśhalaṁ Śhaila-tanaye</font>
 </p>
 
 <p>
@@ -1195,7 +1330,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>80 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Kuchau sadyaḥ svidyat taṭa ghaṭita kūrpāsa bhid-urau<br>
+Kaṣhantau dormūle kanaka kalaśh’ābhau kalayatā<br>
+Tava trātuṁ bhaṅgād alam iti valagnaṁ tanu-bhuvā<br>
+Tridhā naddhaṁ devi trivali lavalī vallibhir iva</font>
 </p>
 
 <p>
@@ -1208,7 +1346,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>81 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Guru-tvaṁ vistāraṁ kṣhiti-dhara patiḥ pārvati nijān<br>
+Nitamb’ādāch-chhidya tvayi haraṇa rūpeṇa nidadhe<br>
+Atas te vistīrṇo gurur ayam aśheṣhāṁ vasumatīṁ<br>
+Nitamba prāg-bhāraḥ sthagayati laghutvaṁ nayati cha</font>
 </p>
 
 <p>
@@ -1221,7 +1362,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>82 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Kar’īndrāṇāṁ śhuṇḍān kanaka kadalī kāṇḍa paṭalīm<br>
+Ubhābhyām ūrubhyām ubhayam api nir-jitya bhavatī<br>
+Su-vṛittābhyāṁ patyuḥ praṇati kaṭhinābhyāṁ Giri-sute<br>
+Vidhigñye jānubhyāṁ vibudha kari-kumbha dvayam asi</font>
 </p>
 
 <p>
@@ -1234,7 +1378,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>83 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Parājetuṁ rudraṁ dvi-guṇa śhara garbhau Giri-sute<br>
+Niṣhaṅgau jaṅghe te viṣhama viśhikho bāḍham akṛita<br>
+Yad-agre dṛiśhyante daśha-śhara phalāḥ pāda yugalī<br>
+Nakh’āgrach-chhadmānaḥ sura makuṭa śhāṇ’aika niśhitāḥ</font>
 </p>
 
 <p>
@@ -1247,7 +1394,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>84 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Śhrutīnāṁ mūrdhāno dadhati tava yau śhekhara-tayā<br>
+  Mam’āpy’etau mātaḥ śhirasi dayayā dhehi charaṇau<br>
+Yayoḥ pādyaṁ pāthaḥ paśhu-pati jaṭā jūṭa taṭinī<br>
+Yayor lākṣhā lakṣhmīr aruṇa hari chūḍā-maṇi ruchiḥ</font>
 </p>
 
 <p>
@@ -1260,7 +1410,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>85 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Namo-vākaṁ brūmo nayana ramaṇī-yāya padayos<br>
+Tavāsmai dvandvāya sphuṭa ruchi ras’ālakta kavate<br>
+Asūyaty’atyantaṁ yad abhi-hananāya spṛihayate<br>
+Paśhūnām īśhānaḥ pramada vana kaṅkeli tarave</font>
 </p>
 
 <p>
@@ -1273,7 +1426,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>86 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Mṛiṣhā kṛitvā gotra skhalanam atha vailakṣhya namitaṁ<br>
+Lalāṭe bhartāraṁ charaṇa-kamale tāḍayati te<br>
+Chirād antaḥ-śhalyaṁ dahana kṛitam unmūlita vatā<br>
+Tulā koṭi kvāṇaiḥ kili kilitam īśhāna ripuṇā</font>
 </p>
 
 <p>
@@ -1286,7 +1442,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>87 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Himānī hantavyaṁ hima-giri nivās’aika-chaturau<br>
+Niśhāyāṁ nidrāṇaṁ niśhi charama-bhāge cha viśhadau<br>
+Varaṁ lakṣhmī-pātraṁ śhriyam ati-sṛijantau samayināṁ<br>
+Sarojaṁ tvat-pādau Janani jayataśh chitram iha kim</font>
 </p>
 
 <p>
@@ -1299,7 +1458,11 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>88 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">
+Padaṁ te kīrtīnāṁ prapadam apadaṁ Devi vipadāṁ<br>
+Kathaṁ nītaṁ sadbhiḥ kaṭhina kamaṭhī karpara tulām<br>
+Kathaṁ vā bāhubhyām upa-yamana kāle pura-bhidā<br>
+Yad ādāya nyastaṁ dṛiṣhadi daya mānena manasā</font>
 </p>
 
 <p>
@@ -1312,7 +1475,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>89 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Nakhair nāka-strīṇāṁ kara kamala saṁkocha śhaśhibhis<br>
+  Tarūṇāṁ divyānāṁ hasata iva te Chaṇḍi charaṇau<br>
+Phalāni svaḥ-sthebhyaḥ kisalaya karāgreṇa dadatāṁ<br>
+Daridrebhyo bhadrāṁ śhriyam aniśham ahnāya dadatau</font>
 </p>
 
 <p>
@@ -1325,7 +1491,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>90 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Dadāne dīnebhyaḥ śhriyam aniśham āśhānu-sadṛiśhīm<br>
+Amandaṁ saundarya prakara makarandam vikirati<br>
+Tav’āsmin mandāra stabaka subhage yātu charaṇe<br>
+Nimajjan majjīvaḥ karaṇa-charaṇaḥ ṣhaṭ charaṇatām</font>
 </p>
 
 <p>
@@ -1338,7 +1507,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>91 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Pada nyāsa krīḍā pari-chayam iv’ārabdhu manasaḥ<br>
+Skhalantas te khelaṁ bhavana kala haṁsā na jahati<br>
+Atas teṣhāṁ śhikṣhāṁ subhaga maṇi mañjīra raṇitaḥ<br>
+Chhalādā chakṣhāṇaṁ charaṇa-kamalaṁ chāru charite</font>
 </p>
 
 <p>
@@ -1351,7 +1523,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>92 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Gatās te mañchatvaṁ druhiṇa hari-rudr’eśhvara bhṛitaḥ<br>
+Śhivaḥ svachchhach-chhāyā ghaṭita kapaṭa prachchhada paṭaḥ<br>
+Tvadīyānāṁ bhāsāṁ prati-phalana rāg’āruṇatayā<br>
+Śharīrī śhṛiṅgāro-rasa iva dṛiśhāṁ dogdhi kutukam</font>
 </p>
 
 <p>
@@ -1364,7 +1539,11 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>93 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">
+Arālā keśheṣhu prakṛiti-saralā manda hasite<br>
+Śhirīṣh’ābhā chitte dṛiṣhad upala śhobhā kucha-taṭe<br>
+Bhṛiśhaṁ tanvī madhye pṛithur urasij’āroha viṣhaye<br>
+Jagat trātuṁ śhambhor-jayati karuṇā kāchid aruṇā</font>
 </p>
 
 <p>
@@ -1377,7 +1556,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>94 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Samāntītaḥ padbhyāṃ maṇi-mukuratām ambara-maṇir<br>
+Bhayād āsyad antaḥ-stimita-kiraṇa-śhreṇi-masṛiṇaḥ<br>
+Dadhāti tvad-vaktra-pratiphalanam aśhrānta-vikachaṃ<br>
+Nirātaṅkaṃ chandrān nija-hṛidaya-paṅkeruham iva</font>
 </p>
 
 <p>
@@ -1390,7 +1572,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>95 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Kalaṅkaḥ kastūrī rajani kara bimbaṁ jalamayaṁ<br>
+Kalābhiḥ karpūrair marakata karaṇḍaṁ nibiḍitam<br>
+Atas tvad-bhogena prati-dinam idaṁ rikta kuharaṁ<br>
+Vidhir bhūyo bhūyo nibiḍayati nūnaṁ tava kṛite</font>
 </p>
 
 <p>
@@ -1419,7 +1604,10 @@ Tava dvār'opānta sthitibhir aṇim'ādyābhir amarāḥ</font>
 
 <p>
 <b>97 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Kalatraṁ vaidhātraṁ kati kati bhajante na kavayaḥ<br>
+Śhriyo devyāḥ ko vā na bhavati patiḥ kairapi dhanaiḥ<br>
+Mahādevaṁ hitvā tava Sati-satīnām-acharame<br>
+Kuchābhyām āsaṅgaḥ kuravaka taror apy’asulabhaḥ</font>
 </p>
 
 <p>
@@ -1449,7 +1637,10 @@ Mahā-māyā viśhvaṁ bhramayasi Parabrahma-mahiṣhi</font>
 
 <p>
 <b>99 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Samudbhūta-sthūla-stana-bharam uraśh chāru hasitaṃ<br>
+Kaṭākṣhe kandarpāḥ kandichana kadamba-dyuti vapuḥ<br>
+Harasya tvad-bhrāntiṃ manasi janasyanti sma vimalā<br>
+Bhavatyā ye bhaktāḥ pariṇatir amīhām iyam ume</font>
 </p>
 
 <p>
@@ -1478,7 +1669,11 @@ Kadā dhatte vāṇī mukha kamala tāmbūla rasatām</font>
 
 <p>
 <b>101 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">
+Sarasvatyā lakṣhmyā vidhi hari sa-patno viharate<br>
+Rateḥ pāti-vratyaṁ śhithi-layati ramyeṇa vapuṣhā<br>
+Chiraṁ jīvann eva kṣhapita paśhu-pāśha vyati-karaḥ<br>
+Par’ānand’ābhikhyam rasayati rasaṁ tvad bhajanavān</font>
 </p>
 
 <p>
@@ -1491,7 +1686,10 @@ Kadā dhatte vāṇī mukha kamala tāmbūla rasatām</font>
 
 <p>
 <b>102 Transliteration</b><br>
-<font color="purple"></font>
+<font color="purple">Nidhe nitya-smere niravadhi-guṇe nīti-nipuṇe<br>
+Nirāghāṭajñane niyama-para-chittaika-nilaye<br>
+Niyatyā nirmukhe nikhila-nigamānta-stuta-pade<br>
+Nirātaṅke nitye nigamaya mamāpi stutim imām</font>
 </p>
 
 <p>
