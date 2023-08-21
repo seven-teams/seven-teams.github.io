@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 13: Moments of Growth, New Albums and Galleries, Part 4'
 date: 2023-08-21
-permalink: /photos/2023/0821
+permalink: /photos/2023/0821-a
 tags:
   - crimson @ Photos Moments of Growth
   - green @ Updates
