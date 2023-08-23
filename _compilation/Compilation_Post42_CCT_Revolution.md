@@ -107,8 +107,49 @@ It is impossible to replicate those forms in exactly the same way. Also, the one
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"<font color="DarkRed">Now, after the Industrial Re... Revolution and Industrial Revolution as they call it in the West, people have gone so far in creating aggressive economy that they are astounded the way, now, things are working out in those countries. The aggression that started with the industry, with the machinery, is now directed towards the human beings themselves.</font><br>
+......<br>
+<font color="DarkRed">Sahaja Yoga will bring a revolution and all these falsehood and old institutions will be destroyed and raise them on the basis of truth.</font><br>
+If not this, then the second thing I told you that humans will have to understand that, 'Nothing but the truth will prevail and last.'<br>
+Whatever hollow and false things we are holding on to and we stand for them and are taking them lightly, we should realize that this is like a crocodile.<br>
+......<br>
+<font color="DarkRed">Sahaja Yoga is a very big revolution.</font><br>
+You have never believed in this, you just want to memorize things what Kabīr said, people just memorize the sayings of Kabīr from morning till evening. But now the time has come that whatever Kabīr said is right before you.<br>
+......<br>
+<font color="DarkRed">If a human being has to achieve God and if this is the destination, and from this only the revolution will come and this is only meaningful, [then the] rest all is of no use.</font> And all that is useless has no meaning, no meaning in the life of a human being."<br>
 <font size="+0"><b>1979-0311 Public Program (English + Hindi), Day 2, Session 2 (evening), On Gāndhī and Collective Consciousness, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"In olden days people were like this, to give their love, to play, to feed, and to give happiness. All this gave them a lot of happiness.<br>
+The same thing comes so overwhelmingly within, I do not know how to tell people that, `Enough is enough, now do not do anything to come closer.'<br>
+When people went to villages, just do not know what all they did for them. Whatever we could do for them, we did all that.<br>
+Foreigners say that, ``We never knew that there is so much of love in Indians." And I said, ``Are you not like that? Even you have developed a lot of love."<br>
+<font color="DarkRed">They have also developed love and you all also have. A revolution of love has appeared.</font><br>
+We people, at the most love our own children, wife, or a few family members. And we do not even know the quantum of our love. Even in that we have our own choice.<br>
+For instance, when our son comes back from battlefield, then we think from heart as to how to meet him. Similarly, in enquiring about health, how to meet. Same quantum of love even in ordinary meeting, `Oh, come, let us meet them,' `They stay here, let us see them.' If they have any problem, `Let us find out and help them,' `Any thing else we can do?'<br>
+Such type of things start working from within as our happy vision gets a change totally.<br>
+To give, brings happiness. To support somebody, gives happiness.<br>
+Even if there are small requirements, a person volunteers to do it. He says, `Could this be done? That done? Can it be done this way?'<br>
+The happiness we experience by this, cannot be compared to the present artificial calculation done for everything.<br>
+This love, which surges from Nābhī, which enters our attention, is spread all over. This is so large spread, happy and peaceful, that your health gets well just by meeting people.<br>
+I have also seen such people who always get bored with people. If somebody visits them, they say over the phone, `Brother, I am not at home, please go.' They keep running. Then they will be running from morning to [till] evening."<br>
+<font size="+0"><b>1979-0315 Public Program (Hindi), Day 6, Session 2 (evening), Har Jagah Ke Apane Vibrations Hote Hai (Every Place Has Its Own Vibrations), Śhāmiyānā, Garden, Pataudi House, 10 Ashoka Road, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"I had said last year that one day Gaṅgājī will eat them up.<br>
+And that's what happened. I saw on BBC that all were running with their stoles.<br>
+<font color="DarkRed">Sahaja Yoga doesn't only mean that you will have a union within. It is a revolution.<br>
+......<br>
+And only Viṣhṇu incarnates, Viṣhṇu Tattwa incarnates. He is the only one who can get out of the illusion of Bhavasāgar through many Incarnations. He is the one who comes many times on Earth and guides you. He is your leader.<br>
+<font color="DarkRed">It is because of this Tattwa you are evolved. This is the evolutionary element of this revolution. You became human from the amoeba because of Him, because He is the Bearer of Religion.</font><br>
+They change the dharma of all things and eventually change the dharma of humans. This is your human religion."<br>
+<font size="+0"><b>1979-0316 Public Program (Hindi), Day 7, Viśhuddhi Chakra, Śhāmiyānā, Garden, Pataudi House, 10 Ashoka Road, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
