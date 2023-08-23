@@ -93,10 +93,10 @@ Once these were awakened, people wondered what to do next.<br>
 Then meditation started and people came to the Central Path.<br>
 Once they started progressing on the Suṣhumṇā, they could see where the Deities were seated and that the bodies of the chakras were made of these five elements. When they studied the elements, they realized that they were governed by Deities. After that, they got to know these Deities one after the other, through meditation.<br>
 Then they claimed that they had Forms so the focus shifted from the Formless to Form. Those whose awareness evolved came to the Form.<br>
-Then you know what happened to the ones who started believing in the Forms. `Worship this!', `Worship that!' Ritualism came into being. Blind faith and religious fanaticism came into being and things were in a miserable state.<br>
+Then you know what happened to the ones who started believing in the Forms. 'Worship this!', 'Worship that!' Ritualism came into being. Blind faith and religious fanaticism came into being and things were in a miserable state.<br>
 <font color="DarkRed">Then there was a great revolution, and not only that, Muhammad Sāheb took His birth. Christ came into this world. These people said that the Formless is to be worshipped and to do away with the Form.</font>"<br>
 There was a lot of secrecy in this matter at that time.<br>
-However, the Bible says that, `All that is made by the Earth and the Sky should not be replicated and worshipped.' If Christians could understand this and apply this understanding to the practice of idol worship.<br>
+However, the Bible says that, 'All that is made by the Earth and the Sky should not be replicated and worshipped.' If Christians could understand this and apply this understanding to the practice of idol worship.<br>
 What has the Earth made? The Earth has made all the swayambhus.<br>
 Now tell the Christians that the Earth has made the swayambhus Herself and if you make their replicas, they are not worthy of worship because they're imperfect.<br>
 These things have a coefficient, too. Forms have a coefficient because of which there is a flow of the Chaitanya.<br>
@@ -124,18 +124,18 @@ You have never believed in this, you just want to memorize things what Kabīr sa
 
 <p>
 "In olden days people were like this, to give their love, to play, to feed, and to give happiness. All this gave them a lot of happiness.<br>
-The same thing comes so overwhelmingly within, I do not know how to tell people that, `Enough is enough, now do not do anything to come closer.'<br>
+The same thing comes so overwhelmingly within, I do not know how to tell people that, 'Enough is enough, now do not do anything to come closer.'<br>
 When people went to villages, just do not know what all they did for them. Whatever we could do for them, we did all that.<br>
-Foreigners say that, ``We never knew that there is so much of love in Indians." And I said, ``Are you not like that? Even you have developed a lot of love."<br>
+Foreigners say that, "We never knew that there is so much of love in Indians." And I said, "Are you not like that? Even you have developed a lot of love."<br>
 <font color="DarkRed">They have also developed love and you all also have. A revolution of love has appeared.</font><br>
 We people, at the most love our own children, wife, or a few family members. And we do not even know the quantum of our love. Even in that we have our own choice.<br>
-For instance, when our son comes back from battlefield, then we think from heart as to how to meet him. Similarly, in enquiring about health, how to meet. Same quantum of love even in ordinary meeting, `Oh, come, let us meet them,' `They stay here, let us see them.' If they have any problem, `Let us find out and help them,' `Any thing else we can do?'<br>
+For instance, when our son comes back from battlefield, then we think from heart as to how to meet him. Similarly, in enquiring about health, how to meet. Same quantum of love even in ordinary meeting, 'Oh, come, let us meet them,' 'They stay here, let us see them.' If they have any problem, 'Let us find out and help them,' 'Any thing else we can do?'<br>
 Such type of things start working from within as our happy vision gets a change totally.<br>
 To give, brings happiness. To support somebody, gives happiness.<br>
-Even if there are small requirements, a person volunteers to do it. He says, `Could this be done? That done? Can it be done this way?'<br>
+Even if there are small requirements, a person volunteers to do it. He says, 'Could this be done? That done? Can it be done this way?'<br>
 The happiness we experience by this, cannot be compared to the present artificial calculation done for everything.<br>
 This love, which surges from Nābhī, which enters our attention, is spread all over. This is so large spread, happy and peaceful, that your health gets well just by meeting people.<br>
-I have also seen such people who always get bored with people. If somebody visits them, they say over the phone, `Brother, I am not at home, please go.' They keep running. Then they will be running from morning to [till] evening."<br>
+I have also seen such people who always get bored with people. If somebody visits them, they say over the phone, 'Brother, I am not at home, please go.' They keep running. Then they will be running from morning to [till] evening."<br>
 <font size="+0"><b>1979-0315 Public Program (Hindi), Day 6, Session 2 (evening), Har Jagah Ke Apane Vibrations Hote Hai (Every Place Has Its Own Vibrations), Śhāmiyānā, Garden, Pataudi House, 10 Ashoka Road, New Delhi, India</b></font>
 </p>
 
@@ -144,7 +144,7 @@ I have also seen such people who always get bored with people. If somebody visit
 <p>
 "I had said last year that one day Gaṅgājī will eat them up.<br>
 And that's what happened. I saw on BBC that all were running with their stoles.<br>
-<font color="DarkRed">Sahaja Yoga doesn't only mean that you will have a union within. It is a revolution.<br>
+<font color="DarkRed">Sahaja Yoga doesn't only mean that you will have a union within. It is a revolution.</font><br>
 ......<br>
 And only Viṣhṇu incarnates, Viṣhṇu Tattwa incarnates. He is the only one who can get out of the illusion of Bhavasāgar through many Incarnations. He is the one who comes many times on Earth and guides you. He is your leader.<br>
 <font color="DarkRed">It is because of this Tattwa you are evolved. This is the evolutionary element of this revolution. You became human from the amoeba because of Him, because He is the Bearer of Religion.</font><br>
