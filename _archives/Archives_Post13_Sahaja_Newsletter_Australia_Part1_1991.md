@@ -8,11 +8,13 @@ tags:
 ---
 
 <p>
+<br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 This post will share issues of Sahaja Newsletter (Australia) published in the 1st year (1991) and received or scanned by the team.<br>
 <br>
 Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces).<br>
+<br>
 This is a joint project with Kannan Subrahmanyan from Australia.<br>
 <br>
 Jay Śhrī Mātājī!<br>
