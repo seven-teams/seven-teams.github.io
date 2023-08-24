@@ -91,7 +91,13 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>A12.</b></font> <b>2003-1200 Article 'शिव और शक्ति का वास्तविक मिलान' (Real Union of Shiva and Shakti) (Hindi), published in Shri Mahashakti Sagar, 4th year, issue 10 (Balwant Kumbhojkar Collection)</b> (2 pages, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A12.</b></font> <b>2003-0417 Article 'Ever more enduring at eighty' by Meher Moos published in 'The Afternoon Despatch & Courier', Page 10, Mumbai, Maharashtra, India (Mrs. Kalpana Srivastava Collection)</b> (1 page, uploaded on 2023-0824)
+
+<div style="text-align: center"><img src="/images/2003-0417_Article_'Ever_more_enduring_at_eighty'_by_Meher_Moos_published_in_'The_Afternoon_Despatch_Courier',_Page_10,_Mumbai,_Maharashtra,_India_(Mrs._Kalpana_Srivastava_Collection).jpg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>A13.</b></font> <b>2003-1200 Article 'शिव और शक्ति का वास्तविक मिलान' (Real Union of Shiva and Shakti) (Hindi), published in Shri Mahashakti Sagar, 4th year, issue 10 (Balwant Kumbhojkar Collection)</b> (2 pages, uploaded on 2023-0508)
 
 <div style="text-align: center"><img src="/images/2003-1200_Article_Real_Union_of Shiva_and_Shakti_(Hindi),_published_in_Shri_Mahashakti_Sagar,_4th_year,_issue_10,_Page_1_(Balwant_Kumbhojkar_Collection).jpg" /></div>
 
@@ -99,25 +105,25 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>A13.</b></font> <b>2012-0319 A Tribute 'Sahaja Yoga for Stress Free Life and Good Health', Free Press Journal, Page 18, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 pages, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A14.</b></font> <b>2012-0319 A Tribute 'Sahaja Yoga for Stress Free Life and Good Health', Free Press Journal, Page 18, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 pages, uploaded on 2023-0508)
 
 <iframe src="/pdf/?usedownload=true#/files/2012-0319_A_Tribute_'Sahaja_Yoga_for_Stress_Free_Life_and_Good_Health',_FPJ,_Page_18,_Mumbai,_Maharashtra,_India_(M._B._Ratnannavar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>A14.</b></font> <b>2012-0703 A Tribute to Shri Mataji Nirmala Devi on Guru Purnima, Free Press Journal, Page 26, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A15.</b></font> <b>2012-0703 A Tribute to Shri Mataji Nirmala Devi on Guru Purnima, Free Press Journal, Page 26, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
 
 <iframe src="/pdf/?usedownload=true#/files/2012-0703_A_Tribute_to_Shri_Mataji_Nirmala_Devi_on_Guru_Purnima, FPJ,_Page_26,_Mumbai,_Maharashtra,_India_(M._B._Ratnannavar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>A15.</b></font> <b>2013-0321 Article Celebrating the Birth Day of Shri Mataji Nirmala Devi 'Sahaja Yoga - A Silent Move Towards Transformation', Free Press Journal, Page 3, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A16.</b></font> <b>2013-0321 Article Celebrating the Birth Day of Shri Mataji Nirmala Devi 'Sahaja Yoga - A Silent Move Towards Transformation', Free Press Journal, Page 3, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
 
 <iframe src="/pdf/?usedownload=true#/files/2013-0321_Article_'Sahaja_Yoga_-_A_Silent_Move_Towards_Transformation',_FPJ,_Page_3,_Mumbai,_Maharashtra,_India_(M._B._Ratnannavar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>A16.</b></font> <b> 2018-1026 Article 'Unite Nations through Meditation', Free Press Journal, Page 26, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
+<font color="DarkGreen"><b>A17.</b></font> <b> 2018-1026 Article 'Unite Nations through Meditation', Free Press Journal, Page 26, Mumbai, Maharashtra, India (M. B. Ratnannavar Collection)</b> (1 page, uploaded on 2023-0508)
 
 <iframe src="/pdf/?usedownload=true#/files/2018-1026_Article_'Unite_Nations_through_Meditation',_FPJ,_Page_26,_Mumbai,_Maharashtra,_India_(M._B._Ratnannavar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
