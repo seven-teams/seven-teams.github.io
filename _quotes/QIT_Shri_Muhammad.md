@@ -588,7 +588,12 @@ They all are one and we are fighting over Them.</font> I often don't understand 
 "Sahaja: saha means with you, ja means born, which is born with you, that is Sahaja Yoga.<br>
 We can call this the climax of Sahaja Yoga.<br>
 <font color="red">Kṛiṣhṇa has done only Sahaja Yoga, Nāṇak also did only Sahaja Yoga. Muhammad has also done only Sahaja Yoga and Christ also did only Sahaja Yoga.</font><br>
-But the finale of it, when the flower has to turn into a fruit, that is going to happen now. It has to happen now in this modern time. Now the time has come when this will happen."<br>
+But the finale of it, when the flower has to turn into a fruit, that is going to happen now. It has to happen now in this modern time. Now the time has come when this will happen.<br>
+......<br>
+They were saying the other day that it is written in Qur'ān, 'Convert all into Muslims at knifepoint.' I said, "I have not read this. It is about Rahmat and Raḥīm and it is about Karīm and karāmāt [refers to supernatural wonders performed by Muslim Saints]. Then how can it be that they say such things?"<br>
+<font color="red">This type of blindness for [followers of] Dattātreya Himself who reincarnated [as Prophet Muhammad] in this world‽ We do not hesitate even a little bit, we do not think even a little bit in saying such things about Him. They do not know anything and don't even think, 'Why are we so foolishly saying such things in this way about such a great personality?'<br>
+How large-hearted were these people who came into this world to guide humanity!</font><br>
+Do they think they are Arab[s]? Or sometimes I think these are unlucky Hiṃdustānīs, they have never known anything about themselves. Ask them! They do not know about their country, they do not know about their culture. Tomorrow if you ask them about their mother's name, they will not be able to recall it."<br>
 <font size="+0"><b>1979-0114 Public Program (Hindi), Day 1, Satya kā Anveṣhaṇa (Exploration of Truth), Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 

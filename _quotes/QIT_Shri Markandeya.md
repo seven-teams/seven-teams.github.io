@@ -977,6 +977,8 @@ Mārkaṇḍeya is a very unique name, isn't it? Markanda means a powerful perso
 <p>
 <font color="red">[Speaking again on the kavach:] "<font color="red">Which was promised long time back by Mārkaṇḍeya, now you have achieved it. This He had promised fourteen thousand years back that, 'When Mahāmāyā will come, She will do this work.'</font><br> 
 That it will happen. We must realize that we are getting all the promises fulfilled for us."</font><br>
+......<br>
+<font color="red">Supposing there is somebody like Mārkaṇḍeya, no problem.</font><br>
 <font size="+0"><b>1988-1014 Talk to Sahaja Yogis, Navarātri Celebrations (4th Day), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
@@ -1071,7 +1073,7 @@ But He [Śhrī Gyāneśhwara] wrote it in Marathi language, we see is a local la
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">Fourteen thousand years back Mārkaṇḍeya has writtten about Kuṇḍalinī, then also Ādi Śhaṅkarāchārya, everybody has talked about Kuṇḍalinī.</font><br>
+"<font color="red">Fourteen thousand years back Mārkaṇḍeya has written about Kuṇḍalinī, then also Ādi Śhaṅkarāchārya, everybody has talked about Kuṇḍalinī.</font><br>
 But the system was such that ah the ... tradition was to have one guru to one disciple only. One guru, one disciple. And it was all in the Sanskrit language.<br>
 So, only in the twelfth century, one great Saint, called Gyāneśhwara, wrote about it for public in a local language."<br>
 <font size="+0"><b>1991-0802 Public Program, Day 2, The Liver, Its Problems and Treatment, Koningszaal, Artis (Natura Artis Magistra), Plantage Middenlaan 41 A, Amsterdam, Netherlands</b></font>
@@ -1146,7 +1148,7 @@ Everywhere you find a-uh-uh place of a Pīr [Saint]. Also they are realized Soul
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"I don't know if you have read about Mārkaṇḍeya, who is, see, was about fourteen thousand years back in history. And He has talked about Kuṇḍalinī. "</font><br>
+<font color="red">"I don't know if you have read about Mārkaṇḍeya, who is, see, was about fourteen thousand years back in history. And He has talked about Kuṇḍalinī."</font><br>
 <font size="+0"><b>1994-0115 Public Program, Bengaluru, Karnataka, India</b></font>
 </p>
 

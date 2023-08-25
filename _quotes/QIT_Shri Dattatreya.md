@@ -227,7 +227,38 @@ After one year he again reappeared, in Delhi. And then I told him, "Now will you
 
 <div class="para-divider"></div>
 
-[<font color="orange">WARNING: Quotes after 1979-0108 to follow.</font>] 
+<p>
+"For Cancer best treatment is of water i.e. putting feet in the river, sea or in the water at home with the photograph. <font color="red">Water has the religion (Dharma) of cleansing and hence Shri VISHNU and DATTATREYA responsible for the religion (Dharma) of human beings are to be worshiped. They help you to cure and also the local Deity of the Chakra that is attacked.</font> Put the patient before the photograph with the candle and his feet being in the water, bring down your hands across the sympathetic nervous system towards the water. The patient will cool down gradually. If he gets realization, then he is cured."<br>
+<font size="+0"><b>1979-0000 Letter to Dr. Raul from Nirmala Yoga, Issue 8 (March-April 1982), Page 24</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"In Delhi there is Hazrat Nizamuddin, he is a realized Soul. He is realized for everyone in the world. He is not the property of someone's father.<br>
+<font color="red">Sāī Nāth of Śhirḍī was Muslim but He was realized. He was not only realized but the incarnation of Dattātreya.</font><br>
+How will you know about it? Till you are not realized, how will you know that you are Muslim or we are Hindu?"<br>
+<font size="+0"><b>1979-0109 Public Program (Hindi), Day 2, Kuṇḍalinī yā Cīja hai aura Usakā Jāgraṃ Kaise Hotā Hai (What is Kuṇḍalinī and How is Its Awakening), Bharatiya Vidyā Bhavan, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"They were saying the other day that it is written in Qur'ān, 'Convert all into Muslims at knifepoint.' I said, "I have not read this. It is about Rahmat and Raḥīm and it is about Karīm and karāmāt [refers to supernatural wonders performed by Muslim Saints]. Then how can it be that they say such things?"<br>
+<font color="red">This type of blindness for [followers of] Dattātreya Himself who reincarnated [as Prophet Muhammad] in this world‽ We do not hesitate even a little bit, we do not think even a little bit in saying such things about Him. They do not know anything and don't even think, 'Why are we so foolishly saying such things in this way about such a great personality?'<br>
+How large-hearted were these people who came into this world to guide humanity!</font><br>
+Do they think they are Arab[s]? Or sometimes I think these are unlucky Hiṃdustānīs, they have never known anything about themselves. Ask them! They do not know about their country, they do not know about their culture. Tomorrow if you ask them about their mother's name, they will not be able to recall it."<br>
+<font size="+0"><b>1979-0114 Public Program (Hindi), Day 1, Satya kā Anveṣhaṇa (Exploration of Truth), Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1979-0122 Public Program (Marathi), Ātmyālā Miḍavilyāhśivāya Parameśhwar or Avadhūtas, YMCA Hall, New Link Road, D.N. Nagar, Andheri West (14 kms NW of Mumbai), Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
@@ -237,16 +268,9 @@ After one year he again reappeared, in Delhi. And then I told him, "Now will you
 <div class="para-divider"></div>
 
 <p>
-"For Cancer best treatment is of water i.e. putting feet in the river, sea or in the water at home with the photograph. <font color="red">Water has the religion (Dharma) of cleansing and hence Shri VISHNU and DATTATREYA responsible for the religion (Dharma) of human beings are to be worshiped. They help you to cure and also the local Deity of the Chakra that is attacked.</font> Put the patient before the photograph with the candle and his feet being in the water, bring down your hands across the sympathetic nervous system towards the water. The patient will cool down gradually. If he gets realization, then he is cured."<br>
-<font size="+0"><b>1979-0000 Letter to Dr. Raul from Nirmala Yoga, Issue 8 (March-April 1982), Page 24</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
 "So the dharma that has been established in us by God Almighty because if we want to go to the Kingdom of God, then in our freedom we must desire to get to God. If someone tries to pressurize us and says, 'You must ask for God,' then it is of no use, it is not an evaluation. That is why to reach in this state, a person has to seek the God as per his own independent sweet will and not due to any pressure, or any disease or any hardships or any sorrow, but only because of the fact and realizing that, 'It is the only motive of our life to seek God.'<br>
 <font color="red">That is why, when we desire for this Divine Gift, then the doors of God Almighty's Divine Blessings open for you, and around the center is a place of Ten Primordial Gurus. These are the Main Gurus which are the Incarnation[s] of Śhri Dattātreya. They are: Socrates, Moses, Muhammad Sāhab, Guru Nāṇak, Śhirḍī Sāī Nāth, and Zoroaster. They are all Incarnation[s] of one Incarnation.</font>"<br>
-There is no difference between Muhammad Sāhab and Guru Nāṇak. When Muhammad Sahab saw that people are taking wrong interpretation of His Dharma and doing everything against the dharma, then He was born again as Guru Nāṇak to correct it. Because He wanted to bring unity among people but you know what happened during Their lives.<br>
+There is no difference between Muhammad Sāhab and Guru Nāṇak. When Muhammad Sahab saw that people are taking wrong interpretation of His Dharma and doing everything against the dharma, then He was born again as Guru Nāṇak to correct it. Because He wanted to bring unity among people but you know what happened during Their lives."<br>
 <font size="+0"><b>1979-0322 Public Program (Hindi), Sahaja Yoga and the Subtle System, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India (other date 0321)</b></font>
 </p>
 

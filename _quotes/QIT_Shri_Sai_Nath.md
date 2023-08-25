@@ -158,7 +158,7 @@ People got the other way by saying, 'OK, if drinking is not allowed then let's n
 
 <p>
 "In Delhi there is Hazrat Nizamuddin, he is a realized Soul. He is realized for everyone in the world. He is not the property of someone's father.<br>
-<font color="red">Sāī Nāth of Śhirḍī was Muslim but He was realized. He was not only realized but Ihe incarnation of Dattātreya.</font><br>
+<font color="red">Sāī Nāth of Śhirḍī was Muslim but He was realized. He was not only realized but the incarnation of Dattātreya.</font><br>
 How will you know about it? Till you are not realized, how will you know that you are Muslim or we are Hindu?"<br>
 <font size="+0"><b>1979-0109 Public Program (Hindi), Day 2, Kuṇḍalinī yā Cīja hai aura Usakā Jāgraṃ Kaise Hotā Hai (What is Kuṇḍalinī and How is Its Awakening), Bharatiya Vidyā Bhavan, Mumbai, Maharashtra, India</b></font>
 </p>

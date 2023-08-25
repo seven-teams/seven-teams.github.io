@@ -102,8 +102,133 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <div class="para-divider"></div>
 
 <p>
+"People very religiously sit down and discuss God. It's most surprising for Me.<br>
+You have to become. It's an actualization. It's a Real Baptism you must have. It is your right to have it! You are seeking that alone and nothing else! You have to get it within yourself! If you cannot get it, then you are not going to be a happy person.<br>
+Don't run after falsehood. Ask for the Reality. And the Reality is that: the Spirit resides within your heart.<br>
+You don't have to travel for that.<br>
+Guru Nāṇaka has said, "O, madman, where are you traveling? It is in your heart! You just wait, it will work out. Balance yourself! Lead a balanced life. Don't go to extremes."<br>
+<font color="red">Same Moses said, same Abraham said, same Lao Tze said, same [<font color="orange">unclear</font>] said.</font>  Everybody has said the same thing."<br>
+<font size="+0"><b>1981-0911 Public Program, Day 2, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1981-0928 Public Program, Day 5, Christ Church (United Methodist), 524 Park Avenue, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">What others have to say? Let's see. Great people like Kabīra, great people like Ādi Śhaṅkarāchārya, great people like Kahlil Gibran, all these people who are really great people, Lao Tze, Zen, anyone: that your awareness get[s] transformed. You get a transformation.</font><br>
+Transformation doesn't mean that you are sitting like a normal person, you start jumping like a mad man. It doesn't mean that. That you don't become mad, that's one thing one should know."<br>
+<font size="+0"><b>1981-1012 Public Program, Day 1, John Muir Elementary School, 1721 Ocean Park Boulevard, Santa Monica (23 kms W of Los Angeles), CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1981-1015 Public Program, Day 4, Reorganized Church of Jesus Christ, 18480 Nordoff Street, Panorama City (32 kms N-NW of Los Angeles), CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-0823 Public Program, Day 1, Temple de la Fusterie (Fusterie Temple), Place de la Fusterie, Geneva, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-1007 Public Program, Truth Is to Be Achieved, Guild Hall (now Bedford Guild House), 56 Harpur Street, Bedford, Bedfordshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-1101 Talk to Sahaja Yogis (Śhrī Guru Nāṇaka Jayanti), Every Sahaja Yogi Has to Become a Guru, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-1226 Public Talk, Lions Club International, District 323-D, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0303 Public Program, Day 2, God Has Created Us with a Purpose, Town Hall, Hay Street and Barrack Street, Perth, WA, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0308 Press Conference, The Hotel Windsor, 111 Spring Street, Melbourne, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0308 Public Program, Day 1, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0310 Public Program, Day 3, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0315 Public Program, Day 1, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0317 Public Program, Day 3, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0525 Public Program, Within Us there Is a Power Which Can Fulfill Our Seeking, Lewes Town Council, High Street, Lewes, East Sussex, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0526 Śhrī Buddha Pūjā, Brighton Center, Brighton, East Sussex, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0526 Public Program, Day 1, Brighton, East Sussex, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
