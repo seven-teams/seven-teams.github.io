@@ -23,7 +23,8 @@
   },
   "Publisher/Author": {
     "filter": { "type": true },
-    "sorter": { "enable": true }
+    "sorter": { "enable": true },
+    "popup": { "enable": true }
   },
   "Type": {
     "filter": { "type": true },
@@ -39,7 +40,6 @@
     }
   },
   "Link_Name": {
-    "visiblity": false
   },
   "Share": {
     "filter": { "type": true },
