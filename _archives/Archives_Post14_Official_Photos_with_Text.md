@@ -22,7 +22,7 @@ sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
 
-<font color="DarkGreen"><b>OPT1.</b></font> <b>1951-0107 Group Photo, Farewell of Shri C.P. Srivastava I.A.S. City Magistrate Lucknow on the Eve of His Transfer as Additional District Magistrate Meerut, Lucnow, Uttar Pradesh, India (Mrs. Kalpana Srivastava Collection)</b> (1 page, uploaded on 2023-0829)
+<font color="DarkGreen"><b>OPT1.</b></font> <b>1951-0107 Group Photo, Farewell of Shri C.P. Srivastava I.A.S. City Magistrate Lucknow on the Eve of His Transfer as Additional District Magistrate Meerut, Lucknow, Uttar Pradesh, India (Mrs. Kalpana Srivastava Collection)</b> (1 page, uploaded on 2023-0829)
 
 <div style="text-align: center"><img src="/images/1951-0107_Group_Photo,_Farewell_of_Shri_C.P._Srivastava_I.A.S._City_Magistrate,_Lucknow,_Uttar_Pradesh,_India_(Mrs._Kalpana_Srivastava_Collection).jpeg" /></div>
 
