@@ -84,7 +84,7 @@ And that's how it is the germination within you, which is a living force of the 
 
 <p>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> So-o, to become closer to God, you have to be closer to God. That's as simple as that.<br>
-I mean somebody would say: `How do I know that I know that ... what ... how to drive a car?' When you know. `How do I know I [laughing:] can drive a bike?' Say, for example somebody says, `How can I use a bike?' I mean when you are that you are that! I mean is there any other way out? `How will I say I've got eyes?' When you can see! Finished! I mean it's so simple as that.<br>
+I mean somebody would say: 'How do I know that I know that ... what ... how to drive a car?' When you know. 'How do I know I [laughing:] can drive a bike?' Say, for example somebody says, 'How can I use a bike?' I mean when you are that you are that! I mean is there any other way out? 'How will I say I've got eyes?' When you can see! Finished! I mean it's so simple as that.<br>
 So, how can you say you are nearer to God? You yourself will know you are nearer to God. Because the joy of being that tells you.<br>
 You need not be close to Me, you need not be touching My Feet, you could be anywhere in the forest, you could be very close to Me, and those who thing [<font color="orange">unclear</font>] they are close to Me because they can make a little face and, you know, behave in a very artificial way or some dramatic styles, you see, they are very far away.<br>
 And those who cannot understand the commands of the brain are useless things!<br>
@@ -107,7 +107,7 @@ So, if you become malignant in Sahaja Yoga, you may think you are a very great p
 
 <p>
 "Like Blake has said, that, "Men of God will become Prophets, and the ... these Prophets will have powers to make others Prophets."<br>
-He said it so clearly for you English people, but I don't think you people like Him very much. [Laughing:] Because ... because the way peo... few people I have seen, who really appreciate Blake. And some of them have said that, ``He is mad!" Naturally, among all the mad people, a sane person may look mad also. But He is the one who has so clearly said.<br>
+He said it so clearly for you English people, but I don't think you people like Him very much. [Laughing:] Because ... because the way peo... few people I have seen, who really appreciate Blake. And some of them have said that, "He is mad!" Naturally, among all the mad people, a sane person may look mad also. But He is the one who has so clearly said.<br>
 And in this country, this great man should be born, and should talk about Jerusalem, is remarkable!<br>
 Because you cannot think, in England, where people just believe in dominating other countries and using the ... their power to dominate others, you could get Jerusalem established!<br>
 But what He said was of these days, when those false ideas have dropped off, when people do not think of domination, they do not think of materialism, they are fed up with all these things, and they are seeking today.<br> 
@@ -141,11 +141,50 @@ If you have a machinery, you have to eat other! Because you produce so much, you
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"More so in places which are supposed to be developed. In developing that part of your systems you have exhausted yourself much more. I mean, it was all right up to a point. But when human beings know something, they'll go to the extreme end of everything.<br>
+Now, if you know electricity, then everything must work on electricity: your lift will work on electricity, this will work on electricity. Now, computer have come, all right. Now, they will make human beings into electrical lid ... electrodes, I don't know what they are going to make out of that. I mean, going to that extent. Then ilectriti ... electricity fails, finished.<br>
+Now, petrol started: petrol, use petrol as much as you like, all right. Now, petrol is getting exhausted.<br>
+So there's a shock, [laughing:] future shock conditions: in a trauma we sit. In that confused state you are in a shocked state, 'Oh, God! What's going to happen to us?'<br>
+But why play into the hands of these things to that extent?<br>
+The countries which are not so developed, see, you can say countries which are little underdeveloped and developed, you see, where a motorcar runs and a bullock cart also runs: if the motorcar fails they can use the oxes [oxen] to run the motorcar[s]. We call it 'Ox Ford'. [Laughter.] 
+<font color="DarkRed">So, one can rely [laughing:] on something else: there is an alternative already available.<br>
+But when you cut out all the alternatives, then how can you find out in alternatives?</font><br>
+For example, now we've got calculators. I was amazed in the shop: they can't count one, two, three, four, five. They, if they make mistakes in somewhere, if you tell them that, 'There's a mistake,' because you know how to calculate, they'll say, 'How can it be? Machine is not wrong.' 'But your fingers were wrong somewhere.'<br>
+<font color="DarkRed">They have no alternative left now! I mean: they have to depend on the electricity; they have to depend on petrol; you have to depend on all these elements. So, if you find with little detachment: you are already slaves of all these elements. Instead of becoming free birds, we have become now slaves of this.<br>
+So we start finding out alternatives. Now what can alternatives [laughing:] we can have?</font> We have lost all deftness to do any hand work. After some time I think people won't be even able to clean their dishes! [Soft laughter.] They will need a machine! As it is they can't clean their cloths, I think, they can't comb their hair. What's going to happen? You will need even a machine to feed you! Going to that extent.<br>
+When we go up to such a limit that we become absolute slaves, the confusion is worsen."<br>
 <font size="+0"><b>1982-0614 Public Program, You Are All Bound by One Thread (We All Are Expecting Something Great to Happen), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"For a greater cause you have to give up something. That alternative remains."</font><br>
+<font size="+0"><b>1982-0705 Conversation with Sahaja Yogis, How to Deal with Bhūts, Guru Pūrṇimā Seminar, Day 3, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now the question about Sahaja Yoga is very simple to understand: all that is vital is extremely simple.<br>
+For example, the way we breathe is so simple. We don't read any book, we don't do any exercise for that. We don't have to go and learn from anyone, we just do it.<br>
+<font color="DarkRed">In the same way, if our seeking has some meaning, and if we have to find out something, it must be the most vital thing offered. Is not just an alternative life. Many people have a feeling that the seekers are nothing but they are finding alternative theories, and to alternate with the present norms and condition. Is not so.</font>"<br>
+<font size="+0"><b>1982-0730 Public Program, All that Is Vital Is Extremely Simple, Community and Leisure Centre, Caldene Avenue, Mytholmroyd, Yorkshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1982-0816 Talk to Sahaja Yogis, Media and Other Problems, before and during Lunch, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
 
 <div class="para-divider"></div>
 

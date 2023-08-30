@@ -162,7 +162,7 @@ They change the dharma of all things and eventually change the dharma of humans.
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"Today our country needs a big spiritual revolution.}"</font><br>
+<font color="DarkRed">"Today our country needs a big spiritual revolution."</font><br>
 <font size="+0"><b>1986-1011 Public Program (Hindi) (8th Day of Navarātri), Sahajyog ke Anubhav (Experience of Sahaja Yoga), Ice Skating Ring, Kolkata, West Bengal, India (place and date not sure)}</b></font>
 </p>
 
