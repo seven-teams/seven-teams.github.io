@@ -75,8 +75,13 @@ So the relationship between brother and sister is much more important than any o
 <div style="text-align: center"><img src="/images/image1213.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
-<font size="+0"><b></b></font><br>
+<font color="DarkRed">"<b>So, this day is uh extremely important, in a way, for Sahaja Yogis to observe, and I'm happy that I am here, because it's very important also for America.</b><br>
+Uh as I told you that, I have already talked to you how the-ee war between Alexander and Puru's was finished because of a sister's intervention.<br>
+And, also, how Śhrī Kṛiṣhṇa, whose sister was Draupadī, Viṣhṇumāyā was born as Draupadī, and how He came to save Her chastity, by rushing all the way from Dvārika.<br> 
+So, we can see that when we ascend in the Collective Consciousness and we have collective living, collective meeting, at the Viśhuddhi chakra, Śhrī Kṛiṣhṇa establish[ed] this, or He manifested uh this pure relationship of a sister.<br>
+In a collective life that we have, in the Āśhram where we live, where we move about as Sahaja Yogis, if we do not have this basic principle within us, there will be a chaos, complete chaos. Once this purity of relationship is established, that apart from my wife, all the rest are my sisters or mothers, it cannot be a proper society and <b>the chaos of the social system of America is because they have no sense of pure relationships.<br>
+Once you call somebody a sister, she's a sister. And once you call somebody a brother, she's [he's] a brother. It's not only that you should be born of the same parents, it's not necessary, but this is a very important principle to have a very pure society where everybody can live peacefully.</b>"</font><br>
+<font size="+0"><b>1990-0807 Rakṣhābandhan Pūjā, Room, House of Dr. Vinod Worlikar, 17301 Maria Avenue, Cerritos (32 kms SE of Los Angeles), CA, U.S.A.</b></font><br>
 <br>
 <font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Bandhu Rakṣhita Pāvitrya sākshāt<br>
 Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
