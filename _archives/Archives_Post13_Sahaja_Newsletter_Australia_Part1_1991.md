@@ -1,7 +1,7 @@
 ---
 title: 'Archive Post 13: Sahaja Newsletter (Australia), Part 1 (1991)'
-date: 2023-08-31
-permalink: /archives/2023/0831
+date: 2023-08-24
+permalink: /archives/2023/0824-b
 tags:
   - darkblue @ Sahaja Newsletter (Australia)
   - red @ Archive
