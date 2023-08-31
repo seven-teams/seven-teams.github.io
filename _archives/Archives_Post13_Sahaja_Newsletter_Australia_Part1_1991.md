@@ -24,30 +24,30 @@ sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
 
-<font color="DarkGreen"><b>SAHNEWAUS1.</b></font> <b>1991-1004 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824)
+<font color="DarkGreen"><b>1991SAHNEWAUS1.</b></font> <b>1991-1004 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824)
 
 <iframe src="/pdf/?usedownload=true#/files/1991-1004_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>SAHNEWAUS2.</b></font> <b>1991-1025 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824)
+<font color="DarkGreen"><b>1991SAHNEWAUS2.</b></font> <b>1991-1025 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824)
 
 <iframe src="/pdf/?usedownload=true#/files/1991-1025_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>SAHNEWAUS3.</b></font> <b>1991-1115 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824)
+<font color="DarkGreen"><b>1991SAHNEWAUS3.</b></font> <b>1991-1115 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824)
 
 <iframe src="/pdf/?usedownload=true#/files/1991-1115_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>SAHNEWAUS4.</b></font> <b>1991-1122 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824)
+<font color="DarkGreen"><b>1991SAHNEWAUS4.</b></font> <b>1991-1122 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824)
 
 <iframe src="/pdf/?usedownload=true#/files/1991-1122_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 <br>
 
-<font color="DarkGreen"><b>SAHNEWAUS5.</b></font> <b>1991-1129 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824)
+<font color="DarkGreen"><b>1991SAHNEWAUS5.</b></font> <b>1991-1129 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824)
 
 <iframe src="/pdf/?usedownload=true#/files/1991-1129_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
