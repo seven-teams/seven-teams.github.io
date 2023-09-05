@@ -10,12 +10,12 @@ tags:
 
 <p>
 <b>Gentleman:</b> ...... I know the meaning of this, but what is the significance of keeping them [shoes] 'on the table'?<br>
-<font color="DarkRed">Śhrī Mātājī:</font> <font color="DarkRed">What is the significance of Bharata carrying the pādukā of Rāma, in the same way.</font> All right?<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">What is the significance of Bharata carrying the pādukā of Rāma, in the same way.</font> All right?<br>
 Have you read Rāmāyaṇa or not, or your ...?<br>
 <b>Gentleman:</b> [<font color="orange">unclear</font>] read Rāmāyaṇa.<br>
-<font color="DarkRed">Śhrī Mātājī:</font> Then all right.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Then all right.<br>
 <b>Gentleman:</b> [<font color="orange">unclear</font>].<br>
-<font color="DarkRed">Śhrī Mātājī:</font> So that is the significance.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> So that is the significance.<br>
 And for this also, you have to understand, first of all, vibrations. Where are the vibrations? From where the vibrations are coming?<br>
 Then you will know the significance. It is not mental significance: it's actual. Then you will know, What does these shoes mean?', 'What these hair mean?' Everything you will know. All right?<br>
 But do not put ... put attention to these.<br>
