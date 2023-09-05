@@ -12,7 +12,7 @@ tags:
 <b>Gentleman:</b> ...... I know the meaning of this, but what is the significance of keeping them [shoes] 'on the table'?<br>
 <font color="DarkRed">Śhrī Mātājī:</font> <font color="DarkRed">What is the significance of Bharata carrying the pādukā of Rāma, in the same way.</font> All right?<br>
 Have you read Rāmāyaṇa or not, or your ...?<br>
-<b>Gentleman:</b> [<font color="orange">unclear</font>] read Rāmāyaṇa.
+<b>Gentleman:</b> [<font color="orange">unclear</font>] read Rāmāyaṇa.<br>
 <font color="DarkRed">Śhrī Mātājī:</font> Then all right.<br>
 <b>Gentleman:</b> [<font color="orange">unclear</font>].<br>
 <font color="DarkRed">Śhrī Mātājī:</font> So that is the significance.<br>
