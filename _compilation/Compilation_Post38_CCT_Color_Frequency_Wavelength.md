@@ -33,8 +33,44 @@ You shouldn't see that. One color is power [red] and one is purity [green]. If y
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font>  <font color="DarkRed">At the stage, where is this-s red mark, we are carbon.</font> Just a carbon. Carbon gives you life, because without carbon you cannot get life. So this is carbon is here.<br>
+<font color="DarkRed">Then eh ... the orange one that you see there, is the one that goes round and round.<br>
+There's a mistake in coloring.</font><br>
+<b>Sahaja Yogi:</b> Which one, Mother?<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> [Laughs.] <font color="DarkRed">The ... this is a yellow one.</font><br>
+<b>Dr. Warren Reeves:</b> [] ah.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">This is yellow.</font><br>
+<font color="DarkRed">And that is green.</font><br>
+<b>Dr. Warren Reeves:</b> This, this is green?<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Yeah.</font><br>
+<font color="DarkRed">And that is blue. Blue, and that one is ...</font><br>
+<b>Dr. Warren Reeves:</b> Yes, it is too. He's ... he's painted that ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">... is ... a wrongly.</font><br>
+<b>Dr. Warren Reeves:</b> Wrongly.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Is just now I noticed, it's all right.<br>
+<b>Dr. Warren Reeves:</b> That's green, that should be blue.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Blue. And that should be: what you call dhu. Dhu means smokey, smokey color.</font><br>
+<b>Dr. Warren Reeves:</b> That's a smokey color.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Mhh.</font><br>
+<b>Dr. Warren Reeves:</b> That one's correct.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">It's [a] little mistake, doesn't matter.</font> [Laughs.] All right.<br>
+<font size="+0"><b>1983-0303 Workshop, Garden, Āśhram, Dalkeith, Perth, WA, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="DarkRed">Now within us, are these seven centers: if you see the red one, the yellow one, the green one, the blue one, and here is a little smoky [blue magenta] one, and then here is like the light, and, ultimately, this big one which we call as Sahastrāra [Sahasrāra].</font> These are the subtle centers.<br>
+And they control outside ... the centers that are known to the doctors as plexuses. Outside in the gross.<br>
+Now, these centers are very subtle centers, and govern our parasympathetic nerver ... nervous system. And this parasympathetic nervous system is beyond our control."<br>
+<font size="+0"><b>1984-0724 Public Program, Medina Theatre, Medina High School (now Medina College), Fairlee Road, Newport, Isle of Wight, UK</b></font>
 </p>
 
 <div class="para-divider"></div>

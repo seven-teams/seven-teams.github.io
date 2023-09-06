@@ -19,7 +19,7 @@ tags:
 <p>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Sometimes I feel, all these Incarnations have created a chaos for Me. If they had not done all this nonsense with these ignorant people, it would have been a much better world, you know.<br>
 <b>Dr. Rustom Burjorjee:</b> So why did They come, Śhrī Mātājī?<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Huh?
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Huh?<br>
 <b>Dr. Rustom Burjorjee:</b> Why did They come?<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> They came to bring you to make the sopān [ladder] as this, what you call a, is the step by which you have to rise.<br>
 But everybody seems to be completely disobeyed.<br>
