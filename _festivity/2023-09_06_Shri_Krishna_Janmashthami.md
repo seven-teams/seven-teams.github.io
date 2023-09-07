@@ -10,13 +10,13 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"Today we have gathered here to worship Śhrī Kṛiṣhṇa's Incarnation.<br>
+<font color="DarkRed">"<b>Today we have gathered here to worship Śhrī Kṛiṣhṇa's Incarnation.</b><br>
 As you know that Śhrī Kṛiṣhṇa is the Incarnation of Nārāyaṇa, of Śhrī Viṣhṇu.<br>
 So in every Incarnation, They carry all Their qualities, all Their powers, and all Their nature with Them.<br>
 So when He incarnated, He had all the qualities of Nārāyaṇa, and then that of Rāma, but every Incarnation tries to rectify whatever in Their previous life has been misunderstood and have been carried to the extremes. That's why They have to come back again and again.<br>
 ......<br>
-So, as Śhrī Viṣhṇu, when He thought of taking His Incarnation, because He is the One who is the Sp... Preserver, He's the Preserver, of this Creation, and also the Preserver of Dharma. So when He took His Incarnation He had to see that people keep to their dharma.<br>
-By keeping the dharma all right only, you could get your Realization."</font><br>
+So, as Śhrī Viṣhṇu, when He thought of taking His Incarnation, because He is the One who is the Sp... Preserver, <b>He's the Preserver, of this Creation, and also the Preserver of Dharma. So when He took His Incarnation He had to see that people keep to their dharma.<br>
+By keeping the dharma all right only, you could get your Realization.</b>"</font><br>
 <font size="+0"><b>1989-0814 Śhrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, UK</b></font>
 </p>
 
