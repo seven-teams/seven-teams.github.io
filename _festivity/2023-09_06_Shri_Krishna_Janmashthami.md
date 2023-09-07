@@ -130,8 +130,8 @@ Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa
 <br>
 <font color="blue">Auṃ Twameva sākṣhāt Śhrī Samuhānanda sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</font><br>
 The joy of Sahaj collectivity<br>
-<font color="DarkGreen"><font size="+0">Kṛiṣhṇa Govind</font></font><br>
-<a href="https://youtu.be/H_-4d_cwBjE">video</a><br>
+<font color="DarkGreen"><font size="+0">Kṛiṣhṇa Govinda</font></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 <br>
 <font color="blue"><b>Kutilalaka samyuktham , Poorna chandra nibhananam, Vilasad kundala dharam, Krishnam vande Jagat Gurum</b></font><br>
 I worship the Guru of the universe Śhrī Kṛiṣhṇa, Who is with curly locks of hair, Who resembles the full moon, And who shines in His ear studs.<br>
@@ -139,7 +139,6 @@ I worship the Guru of the universe Śhrī Kṛiṣhṇa, Who is with curly locks
 <b>I worship the Guru of the universe Śhrī Kṛiṣhṇa, who has eyes like fully opened petals of lotus, who resembles the rich blue cloud, and is the greatest gem among Yādavas.</b><br>
 <b>(Kṛiṣhṇāṣhṭakam by Śhrī Ādi Śhaṅkarāchārya)</b>
 </p>
-%pr
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1999-0905 Śhrī Virāṭa Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
