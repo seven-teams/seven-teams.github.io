@@ -23,10 +23,9 @@ By keeping the dharma all right only, you could get your Realization.</b>"</font
 <div style="text-align: center"><img src="/images/image1215.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">Today we are celebrating here in this holy land the Birthday of Śhrī Kṛiṣhṇa.<br>
+<font color="DarkRed">"Today we are celebrating here in this holy land the Birthday of Śhrī Kṛiṣhṇa.<br>
 ......<br>
-So today we are going to see to the two aspects of Śhrī Kṛiṣhṇa, which were the manifestation of His divine birth. ...... <b>So the first aspect of Śhrī Kṛiṣhṇa we have to understand is the Yogeśhwara and the second aspect of him as the Virāṭa.</b><br>
-</font><br>
+So today we are going to see to the two aspects of Śhrī Kṛiṣhṇa, which were the manifestation of His divine birth. ...... <b>So the first aspect of Śhrī Kṛiṣhṇa we have to understand is the Yogeśhwara and the second aspect of him as the Virāṭa."</b></font><br>
 <font size="+0"><b>1983-0828 Śhrī Kṛiṣhṇa Pūjā, The Ultimate of the Fatherhood, Garden, Āśhram, 1 Chemin du Joran, Tannay (13 kms N of Geneva), Switzerland</b></font><br>
 <br>
 <font color="blue"><b>Auṃ Twameva sākṣhāt Śhrī Americheśhwara sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
@@ -47,8 +46,8 @@ What fruits you have, Śhasyaśhyāmalāṃ [part of line 4 of 'Vande Mātaram']
 
 <p>
 <font color="DarkRed">"Today we are celebrating here in this holy land the Birthday of Śhrī Kṛiṣhṇa.<br>
-Śhrī Kṛiṣhṇa is the ultimate of the fatherhood, that I described you before, who came on this Earth and illustrated the ultimate of that. <b>So on this Earth, the highest fatherhood is Śhrī Kṛiṣhṇa's awareness.</b> But in the Kingdom of God, we can say in Heavens, or even above everything else, resides Sadāśhiva who does not take Incarnations. He is one of the aspects, Śhrī Kṛiṣhṇa is one of the aspects of Sadāśhiva which is the Father.<br>
-And the Ādi Śhakti or the Holy Ghost is the other aspect of Sadāśhiva which is His Power.<br> 
+Śhrī Kṛiṣhṇa is the ultimate of the fatherhood, that I described you before, who came on this Earth and illustrated the ultimate of that. <b>So on this Earth, the highest fatherhood is Śhrī Kṛiṣhṇa's awareness.</b> But in the Kingdom of God, we can say in Heavens, or even above everything else, resides Sadāśhiva who does not take Incarnations. <b>He is one of the aspects, Śhrī Kṛiṣhṇa is one of the aspects of Sadāśhiva which is the Father.<br>
+And the Ādi Śhakti or the Holy Ghost is the other aspect of Sadāśhiva which is His Power.</b><br> 
 So when Śhrī Kṛiṣhṇa incarnated on this Earth, an aspect of this Ādi Śhakti came on this Earth as Rādhā."</font><br>
 <font size="+0"><b>1983-0828 Śhrī Kṛiṣhṇa Pūjā, The Ultimate of the Fatherhood, Garden, Āśhram, 1 Chemin du Joran, Tannay (13 kms N of Geneva), Switzerland</b></font>
 </p>
@@ -58,10 +57,10 @@ So when Śhrī Kṛiṣhṇa incarnated on this Earth, an aspect of this Ādi Ś
 <p style="text-align:center;">
 <font color="DarkRed"><b>Śhrī Kṛiṣhṇa is very fond of ghee and butter.</b><br>
 So when you rub My Feet with say butter, your Viśhuddhi will improve, you know that.</font><br>
-<font size="+0"><b>1980-0927 Talk to Sahaja Yogis, Lethargy Most anti-God Activity, Āśhram, 44 Chelsham Road, Clapham, London, UK]</b></font><br>
+<font size="+0"><b>1980-0927 Talk to Sahaja Yogis, Lethargy Most anti-God Activity, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font><br>
 <font color="blue">Auṃ Twameva sākṣhāt Śhrī Ghṛuta-priya sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</font><br>
-He is fond of ghee (clarified butter)<br>
-<font color="indigo"><font size="+0">Krishna Jinka Nam. Hai</font></font><br>
+<font color="RebeccaPurple">He is fond of ghee (clarified butter)</font><br>
+<font color="DarkSlateBlue"><font size="+0">Krishna Jinka Nam. Hai</font></font><br>
 <a href="https://www.youtube.com/watch?v=qPHTCzTRtyI&ab_channel=VIOLONISTUL">video</a>
 </p>
 
@@ -75,14 +74,14 @@ So the innocence of a child and the innocence of a virgin, or you can say the ch
 </p>
 
 <p>
-<font color="indigo">"<b>With the understanding that today is the day -- in the night about twelve o'clock, now it must be about twelve o'clock in India also, about that, so it matches -- He was born at this time in the night, because it was real night symbolically, under horrible circumstances He came.</b> At a time then, when His own birth was very dangerously placed, He was saved, and then in His very childhood He killed rākṣhasas. But all this He did because He was an Incarnation."</font><br>
+<font color="DarkSlateGray">"<b>With the understanding that today is the day -- in the night about twelve o'clock, now it must be about twelve o'clock in India also, about that, so it matches -- He was born at this time in the night, because it was real night symbolically, under horrible circumstances He came.</b> At a time then, when His own birth was very dangerously placed, He was saved, and then in His very childhood He killed rākṣhasas. But all this He did because He was an Incarnation."</font><br>
 <font size="+0"><b>1982-0815 Havan, before Śhrī Yogeśhwara Pūjā, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1217.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>That is what it is, where Śhrī Kṛiṣhṇa had to raise a complete mountain on His fingertips like this, to the right side. Govardhandhāri was called.</b></font><br>
+<font color="DarkRed"><b>"That is what it is, where Śhrī Kṛiṣhṇa had to raise a complete mountain on His fingertips like this, to the right side. Govardhandhāri was called."</b></font><br>
 <font size="+0"><b>1983-0920 Guru Pūjā (Anant Chaturdaśhī Day), This Finger Is Nothing but the Sahaja Yogis of America and They Have to Help by Their Dynamic Behavior and by Their Proper Understanding, Responsibility as the People Belonging to this Great Nation of Fatherhood, Houston, TX, U.S.A.</b></font><br>
 <br>
 <font color="blue"><b>Auṃ Twameva sākṣhāt Śhrī Govardhandhāri sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
@@ -112,7 +111,7 @@ Then He says that, "Whatever are the flowers and things like that you give Me," 
 
 <p>
 <font color="blue">"So this Viśhuddhi on the right-hand side is to be controlled by surrendering as it is said, actually you surrender your ego to begin with. And this ego when you surrender, it has to be done from you heart, it should not be a lip service. From your heart: "I don't want this ego any more, I want reality. Let the reality be seen by me, felt by me, enjoyed by me." And once you start doing it from your heart you'll be amazed that your voice will become sweet. Apart from that it will have the Divine Power flowing through it. That is what we say that you have now got Vāk Śhakti, means 'the Power of Speech'.<br>
-So when you surrender ego, what do you do actually is to say that, "I'm not doing anything, it is You who do everything." So that a little drop has now become an Ocean. And so, your sound has got the Power of the Ocean. "</font><br>
+So when you surrender ego, what do you do actually is to say that, "I'm not doing anything, it is You who do everything." So that a little drop has now become an Ocean. And so, your sound has got the Power of the Ocean."</font><br>
 <font size="+0"><b>1983-0904 Śhrī Kṛiṣhṇa Pūjā, Viśhuddhi Chakra, House of Grégoire de Kalbermatten, Sternwartestrasse 62, Vienna, Austria</b></font>
 </p>
 
@@ -129,12 +128,12 @@ Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa
 <font size="+0"><b>1986-0823 Śhrī Kṛiṣhṇa Pūjā, The Six Enemies and False Enemies, Hotel Primerose (now Hostellerie am Schwarzsee), Seestrasse 10, Schwarzsee (2k kms SE of Fribourg), Switzerland</b></font><br>
 <br>
 <font color="blue">Auṃ Twameva sākṣhāt Śhrī Samuhānanda sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</font><br>
-The joy of Sahaj collectivity<br>
+<font color="DarkSlateBlue">The joy of Sahaj collectivity</font><br>
 <font color="DarkGreen"><font size="+0">Kṛiṣhṇa Govinda</font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 <br>
 <font color="blue"><b>Kutilalaka samyuktham , Poorna chandra nibhananam, Vilasad kundala dharam, Krishnam vande Jagat Gurum</b></font><br>
-I worship the Guru of the universe Śhrī Kṛiṣhṇa, Who is with curly locks of hair, Who resembles the full moon, And who shines in His ear studs.<br>
+<b>I worship the Guru of the universe Śhrī Kṛiṣhṇa, Who is with curly locks of hair, Who resembles the full moon, And who shines in His ear studs.</b><br>
 <font color="blue"><b>Uthphulla pathra padamaksham, Nīlaji mudha sannibham, Yadavaanaam siro rathnam, Krishnam vande Jagat Gurum.</b></font><br>
 <b>I worship the Guru of the universe Śhrī Kṛiṣhṇa, who has eyes like fully opened petals of lotus, who resembles the rich blue cloud, and is the greatest gem among Yādavas.</b><br>
 <b>(Kṛiṣhṇāṣhṭakam by Śhrī Ādi Śhaṅkarāchārya)</b>
@@ -157,7 +156,7 @@ I worship the Guru of the universe Śhrī Kṛiṣhṇa, Who is with curly locks
 </p>
  
 <p>
-<font color="blue"><b>Yoga Dayānī Mā</b></font><br>
+<font color="orange"><b>Yoga Dayānī Mā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -172,7 +171,7 @@ I worship the Guru of the universe Śhrī Kṛiṣhṇa, Who is with curly locks
 </p>
 
 <p>
-<font color="blue"><b>Kṛiṣhṇa Govinda</b></font><br>
+<font color="orange"><b>Kṛiṣhṇa Govinda</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -187,17 +186,17 @@ I worship the Guru of the universe Śhrī Kṛiṣhṇa, Who is with curly locks
 </p>
 
 <p>
-<font color="green"><b>Rādhā Kṛiṣhṇa Bhajele 1987-0816 Shri Krishna Puja</b></font><br>
+<font color="orange"><b>Rādhā Kṛiṣhṇa Bhajele 1987-0816 Shri Krishna Puja</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b>Offering of 16 crowns 1986 0823 Shri Krishna Puja, Friburg, Switzerland</b></font><br>
+<font color="orange"><b>Offering of 16 crowns 1986 0823 Shri Krishna Puja, Friburg, Switzerland</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b>Āratī (1987-0816 Śhrī Kṛiṣhṇa Pūjā)</b></font><br>
+<font color="orange"><b>Āratī (1987-0816 Śhrī Kṛiṣhṇa Pūjā)</b></font><br>
 <a href="https://youtu.be/DEzt1vmETlk">video</a> 
 </p>
 
