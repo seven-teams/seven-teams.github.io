@@ -16,6 +16,7 @@ This post will share issues of Sahaja Newsletter (Australia) published in the 2n
 Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces).<br>
 <br>
 This is a joint project with Kannan Subrahmanyan from Australia.<br>
+For Part 1, please see <a href="https://seven-teams.github.io/archives/2023/0824-b"> Part 1</a>.<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
@@ -45,6 +46,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 <font color="DarkGreen"><b>1992SAHNEWAUS4.</b></font> <b>1992-0410 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831)
 
 <iframe src="/pdf/?usedownload=true#/files/1992-0410_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
 <br>
 
 <font color="DarkGreen"><b>1992SAHNEWAUS5.</b></font> <b>1992-0424 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831)
