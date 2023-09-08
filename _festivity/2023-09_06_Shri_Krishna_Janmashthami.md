@@ -55,12 +55,12 @@ So when Śhrī Kṛiṣhṇa incarnated on this Earth, an aspect of this Ādi Ś
 <div style="text-align: center"><img src="/images/image1216.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Śhrī Kṛiṣhṇa is very fond of ghee and butter.</b><br>
-So when you rub My Feet with say butter, your Viśhuddhi will improve, you know that.</font><br>
+<font color="DarkRed"><b>"Śhrī Kṛiṣhṇa is very fond of ghee and butter.</b><br>
+So when you rub My Feet with say butter, your Viśhuddhi will improve, you know that."</font><br>
 <font size="+0"><b>1980-0927 Talk to Sahaja Yogis, Lethargy Most anti-God Activity, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font><br>
 <font color="blue">Auṃ Twameva sākṣhāt Śhrī Ghṛuta-priya sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</font><br>
 <font color="RebeccaPurple">He is fond of ghee (clarified butter)</font><br>
-<font color="DarkSlateBlue"><font size="+0">Krishna Jinka Nam. Hai</font></font><br>
+<font color="DarkSlateBlue"><font size="+0">Kṛiṣhṇa Jinka Nam. Hai</font></font><br>
 <a href="https://www.youtube.com/watch?v=qPHTCzTRtyI&ab_channel=VIOLONISTUL">video</a>
 </p>
 
@@ -132,9 +132,9 @@ Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa
 <font color="DarkGreen"><font size="+0">Kṛiṣhṇa Govinda</font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 <br>
-<font color="blue"><b>Kutilalaka samyuktham , Poorna chandra nibhananam, Vilasad kundala dharam, Krishnam vande Jagat Gurum</b></font><br>
+<font color="blue"><b>Kutilalaka samyuktham , Poorna chandra nibhananam, Vilasad kundala dharam, Kṛiṣhṇam vande Jagat Gurum</b></font><br>
 <b>I worship the Guru of the universe Śhrī Kṛiṣhṇa, Who is with curly locks of hair, Who resembles the full moon, And who shines in His ear studs.</b><br>
-<font color="blue"><b>Uthphulla pathra padamaksham, Nīlaji mudha sannibham, Yadavaanaam siro rathnam, Krishnam vande Jagat Gurum.</b></font><br>
+<font color="blue"><b>Uthphulla pathra padamaksham, Nīlaji mudha sannibham, Yadavaanaam siro rathnam, Kṛiṣhṇam vande Jagat Gurum.</b></font><br>
 <b>I worship the Guru of the universe Śhrī Kṛiṣhṇa, who has eyes like fully opened petals of lotus, who resembles the rich blue cloud, and is the greatest gem among Yādavas.</b><br>
 <b>(Kṛiṣhṇāṣhṭakam by Śhrī Ādi Śhaṅkarāchārya)</b>
 </p>
@@ -186,12 +186,12 @@ Now, what is the Dharma of Virāṭa? What is the Dharma of Śhrī Kṛiṣhṇa
 </p>
 
 <p>
-<font color="orange"><b>Rādhā Kṛiṣhṇa Bhajele 1987-0816 Shri Krishna Puja</b></font><br>
+<font color="orange"><b>Rādhā Kṛiṣhṇa Bhajele (1987-0816 Śhrī Kṛiṣhṇa Pūjā)</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="orange"><b>Offering of 16 crowns 1986 0823 Shri Krishna Puja, Friburg, Switzerland</b></font><br>
+<font color="orange"><b>Offering of 16 crowns (1986-0823 Śhrī Kṛiṣhṇa Pūjā, Friburg, Switzerland)</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
