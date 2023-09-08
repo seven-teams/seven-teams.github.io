@@ -49,7 +49,7 @@ There's a mistake in coloring.</font><br>
 <b>Dr. Warren Reeves:</b> Wrongly.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Is just now I noticed, it's all right.<br>
 <b>Dr. Warren Reeves:</b> That's green, that should be blue.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Blue. And that should be: what you call dhueṃ. Dhueṃ means smoky, smoky color.</font><br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Blue. And that should be: what you call dhu[e]ṃ. Dhu[eṃ] means smoky, smoky color.</font><br>
 <b>Dr. Warren Reeves:</b> That's a smoky color.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Mhh.</font><br>
 <b>Dr. Warren Reeves:</b> That one's correct.<br>
