@@ -26,7 +26,7 @@ As you know what is dharma is, and the maryādās, the boundaries of our behavio
 By the ascent, with this Principle, you achieve a personality by which you become a Universal Being. You understand the problems of your country and of your race, and you transcend to see what's wrong with them and how to correct them.<br>
 ......<br>
 Even people come to Sahaja Yoga and they start going either to the left or to the right. One has to keep a proper watch. Because you have come to Sahaja Yoga to ascend.<br>
-Now, if you move to the right side, then you start fighting with your leader, finding faults with the leader, and, as Christ has said, you become "murmuring souls": you start talking ill about the leader. 
+Now, if you move to the right side, then you start fighting with your leader, finding faults with the leader, and, as Christ has said, you become "murmuring souls": you start talking ill about the leader.<br>
 ......<br>
 There is no need to start some new methods.<br>
 If [they do] so, they should get out of Sahaja Yoga. This is the worst type of ego!<br>
