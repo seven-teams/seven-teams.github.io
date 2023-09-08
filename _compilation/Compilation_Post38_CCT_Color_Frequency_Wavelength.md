@@ -82,6 +82,22 @@ Now, these centers are very subtle centers, and govern our parasympathetic nerve
 
 <div class="para-divider"></div>
 
+<p>
+"
+You see, it is represented as lotus because our brain is like a lotus, actually. If you cut it horizontally, you can see uh-uh-uh ... as if you have cut the petals. And yeah-uh-uh if you cut it vertically, you can see that around the vert... uh-uh-uh ... uh around the limbic area it is just like petals of lotus.<br>
+But when you are enlightened, what happens? They swell up and they open out, and they all have beautiful colors. They look like tongues of flames, it's very beautiful.<br>
+Now the Sahasrāra is open, and the lotus is open, and inside you find the fruit already there kept, ah-ah which is the Āgñyā chakra, which sits there. <font color="DarkRed">You can see it very clearly Āgñyā, is yellow ... uh-uh-uh yellow-covered uh as we say, like a cold ... gold cap is the Āgñyā there, beautiful Āgñyā is inside.</font><br>
+Now, the fruit of the pearl ... of the lotus is, later on we see, and the I would say that is called as Bindu State, where you become a Bindu, a-eh-eh sp... uh dot, it's a little dot. And that dot has to then grow. So, is the second stage starts when you become the fruit [smiling:] of the lotus."<br>
+<font size="+0"><b>1987-0506 Talk to Sahaja Yogis, The Need to Go Deeper and Questions and Answers, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
 
 <p>
 <font color="DarkRed">"Ādi Viṣhṇu protects and evolves the path of evolution. His Incarnations are like milestones in the progress of spiritual awareness, and develop, one by one, new dimensions of human perception. They show the light in the darkness of ignorance, and each Avatāra adds a new boundless perception, a new fragrance, and a new color to the beauty of creation."</font><br>

@@ -578,7 +578,7 @@ Not only that, they are anti-God people.<br>
 How can they raise Kuṇḍalinī, you just tell Me? A person who has no authority from God, how can he raise the Kuṇḍalinī?<br>
 It's a very recent thing, all also this is about fifty years back only, people have started writing all this nonsense.<br>
 And ancient books nobody reads, that's the trouble is.<br>
-I<font color="red">f you read Mārkaṇḍeya, who wrote in fourteen thousand years back.</font><br>
+<font color="red">If you read Mārkaṇḍeya, who wrote in fourteen thousand years back.</font><br>
 Of India, [laughing:] what's such a thing like that?<br>
 He said, "Mother can do it." Ādi Śhaṅkarāchārya in the sixth century said."<br>
 <font size="+0"><b>1983-0303 Workshop, Garden, Āśhram, Dalkeith, Perth, WA, Australia</b></font>
@@ -744,6 +744,13 @@ In spite of this, it was never disclosed how this happens, because the time was 
 "But actually, there are only three castes: sāttvik, rājasik and tāmasik. <font color="red">Fourteen thousand years ago Mārkaṇḍeya Swāmī said, "Yā Devī sarvabhūteśhu, Jāti rūpeṇa saṃsthitā."</font> Three are only castes in Devī, Mahālakṣhmī, Mahāsaraswatī, Mahākālī, and no fourth caste.<br>
 One is above [the] three Jātis, that is Paramātma. He has no caste."<br>
 <font size="+0"><b>1985-0215 Public Program (English+Hindi), Day 4, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Such great people like Mārkaṇḍeya were born in our country, so why not you people?"</font><br>
+<font size="+0"><b>1985-0216 Public Program (Hindi), Day 5, Sahasrāra and Ātmā, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>

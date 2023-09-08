@@ -155,14 +155,18 @@ They never talked about it, they never told about it. Because they thought: that
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"And that is why, in this country, people knew about Kuṇḍalinī since long.<br>
+I don't know if you have read about Mārkaṇḍeya, who is, see, was about fourteen thousand years back in history. And He has talked about Kuṇḍalinī.<br>
+<font color="DarkRed">Then we have Nāth Pānthis who were, like Macchindranāth, Gorakhnāth, ancient! They have talked of Kuṇḍalinī. They where the ones who really used a separate or different type of a method, which they called as Sahaj the Way.</font>"<br>
 <font size="+0"><b>1994-0115 Public Program, Bengaluru, Karnataka, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+[Today's Sahaj Yoga is only one advancement.]<br>
+[If you read Mārkaṇḍeya, who was thirteen thousand years ago, he was only sixteen years old when He wrote about the Kuṇḍalinī.]<br>
+<font color="DarkRed">[Macchindranāth, Gorakhnāth and Ādi Śhaṅkarāchārya have described it.]</font><br>
 <font size="+0"><b>1994-0118 Public Program, Chennai, Tamil Nadu, India</b></font>
 </p>
 
