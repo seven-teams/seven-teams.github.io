@@ -3,8 +3,8 @@ title: 'Photos Post 20: Protocols (Suggestions and Expectations)'
 date: 2023-09-11
 permalink: /photos/2023/0911-a
 tags:
-  - crimson @ Suggestions and Expectations
   - green @ Updates
+  - orange @ Suggestions and Expectations 
 ---
 
 <p>
