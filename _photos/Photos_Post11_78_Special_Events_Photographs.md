@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 12 Photos from the special event <font color="Crimson"><b>2000-0531 Birthday Anniversary, CA, U.S.A.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 12 high resolutions from the Named Collections.<br>
+We are pleased to let you know that 12 Photos from the special event <font color="Crimson"><b>2000-0531 Birthday Anniversary, CA, U.S.A.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 12 high resolution (tif-neg) from the Named Collections.<br>
 The direct link to the 12 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/2000/"> Collection 2000</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
