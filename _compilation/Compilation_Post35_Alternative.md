@@ -175,8 +175,49 @@ For example, the way we breathe is so simple. We don't read any book, we don't d
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"These are alternatives to that Absolute. But you find the real: you give up all these alternatives, automatically.</font> All right?"<br>
 <font size="+0"><b>1982-0816 Talk to Sahaja Yogis, Media and Other Problems, before and during Lunch, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">Śhrī Mātājī:</font> You start understanding Sahaja Yoga so well ... when your vibrations are steady.<br>
+[Touching the left thumb with the right index finger:] Now this finger, this is catching. Now this is catching means: the person has been to somebody who is unauthorized in spiritual life. Anything! Say ESP, you call it EST, then you have got parapsychology, even psychology. Then you have got other things like all these gurus, false gurus, you can say this aura business ...<br>
+What else is there? Just now he was telling.<br>
+<b>Sahaja Yoginī:</b> Uh supernatural, Mother.<br>
+<font color="DarkRed">Śhrī Mātājī:</font> Supernatural and under-natural, and [big laugh]. All these things, you know: all alternatives you can think of. Anything you can think of, all these things and the books, and the Lamas and the Dhamas, and everything. [Some laughter.]<br>
+Even people who go, sort of adhere to a church too much, or adhere to Catholicism, again. Because they are not connected with Gou... God [touching again:] and they are unauthorized.<br>
+<font size="+0"><b>1982-0818 Workshop, Nirmala Palace Āśhram, 99 Nightingale Lane Āśhram, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"So we should also see what is our background just now: `Where are we? At this moment, how are we placed?' We do not realize that we are precariously placed at this moment.<br>
+It's a time whether you jump over to your emancipation or you just go to Hell. <font color="DarkRed">These are the only two alternatives left, there's no third.</font> There's no compromise. I must tell you it's a fact!<br>
+One has to accept when you see all around you people are fighting, quarreling, there're big big wars are been threatening. One button you push and the whole world can be destroyed. Such a situation!<br>
+Some people have to think there has to be some way out: out of all this madness, out of this rat race, out of this self-destroying uh organizations that we have built up around us. There has to be something!<br>
+If so, then what is our responsibility? What is our ... best approach? What should be our attitude?<br>
+We are taking everything for granted. We are just sitting down, think[ing], `Oh, it's all right. As long as we don't do anything wrong, it's all right.' It is not so! It is not so. That time is over! That time that were ... you were leading a very good life and dhārmik life, that is not sufficient today. That is not going to help!<br>
+First of all, we have to know: that if you are seekers and honest seekers, you have to play [loudly:]a very dynamic role in this great work of God."<br>
+<font size="+0"><b>1982-0913 Public Program, No Other Way Out and Inauguration of Don's Book `Sahaja Yoga', Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="DarkRed">Now, when we come to Truth, we have to know about its other alternatives and the fakeness of it.</font> Every truth can be faked.<br>
+Every flower, which is living, can be made into plastic flowers.<br>
+And to make plastic fowe... flower is very easy, you can make them by thousands. But the real flowers are rare, and are real because they're actual flowers living on a living force of life."<br>
+<font size="+0"><b>1982-0926 Public Program, Day 1, Spirit Resides inside You, Urania Volkshochschulen, Volksbildungshaus, Uraniastraße 1, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1983-0131 Public Program, Day 2, The Nābhī Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
