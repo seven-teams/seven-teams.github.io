@@ -106,6 +106,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 <font color="DarkGreen"><b>1993SAHNEWAUS14.</b></font> <b>1993-0507 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907)
 
 <iframe src="/pdf/?usedownload=true#/files/1993-0507_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
 <br>
 
 <font color="DarkGreen"><b>1993SAHNEWAUS15.</b></font> <b>1993-0514 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907)
