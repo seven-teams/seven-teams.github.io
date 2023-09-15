@@ -265,7 +265,10 @@ In the Bible also it is there, that, "I'll appear before you like tongues of fla
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"<font color="DarkRed">I am very surprised that from India people like Macchindranāth, Gorakhnāth, who used to talk about Kuṇḍalinī, traveled to places like Bolivia, several thousand years back, which is a very difficult place for us to reach. They went to Ukraine and also to some parts of Russia. And after going there they explained to people that, `This Kuṇḍalinī Śhakti is inside you and all the chakras are present inside your system.'</font><br>
+And we people who are their progeny do not know anything about Kuṇḍalinī.<br>
+The natives of Bolivia know everything about Kuṇḍalinī but they say that they do not know how to awaken the Kuṇḍalinī, though they are aware of the existence of Kuṇḍalinī. I went to Bolivia only once, and many thousands of people got Self-realization instantly.<br>
+But we people do not have any knowledge of this, and no one tells us about it, nor it is mentioned in any of our books. It is as if we have been completely severed from that great culture and the great knowledge, and we ourselves do not know what kind of peculiar human beings we have become. We are neither Indians nor English. We do not know to which country we belong to. People also do not know the meaning of Kuṇḍalinī. Just imagine, people do not know what is this Kuṇḍalinī which has an ocean-like knowledge inside it."</font><br>
 <font size="+0"><b>1998-1218 Public Program (Hindi), Naitikatā aura Deśhabhakti (Ethics and Patriotism), Rāmlīlā Maidān, New Delhi, India</b></font>
 </p>
 
@@ -286,7 +289,9 @@ In the Bible also it is there, that, "I'll appear before you like tongues of fla
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"Many Saints from our country went to other countries. <font color="DarkRed">I think Macchindranāth and Gorakhnāth also went to many countries.</font><br>
+Bolivian people know about them. They know the names of the chakras and also they know about Kuṇḍalinī.<br>
+I have seen, in the ancient paintings of the Russia, they have painted plexuses. If you travel a little in this country [Russia], then you will be surprised that how and from where have they known about it! Decidedly some of our Saints might have gone there and told about every thing."</font><br>
 <font size="+0"><b>2000-0325 Public Program (Hindi), Hamārī Ātmā Kyā Chīja Hai (What Is Our Spirit), Rāmlīlā Maidān, New Delhi, India</b></font>
 </p>
 

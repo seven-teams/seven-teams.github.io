@@ -135,7 +135,9 @@ So much ignorance has come into people due to English education.<br>
 <div class="para-divider"></div>
 
 <p>
-"Now I will tell you about Kuṇḍalinī and I will describe one or two experiences about It. You can see with your eyes the pulsation of Kuṇḍalinī.<br>
+"<font color="red">From time immemorial, people have said that Kuṇḍalinī is an institution within us. This has been especially elaborated by Ādi Śhaṅkarāchārya and Mārkaṇḍeya Swāmī.</font> After that Kabīr and Guru Nāṇak have also explained and written in detail.<br>
+......<br>
+Now I will tell you about Kuṇḍalinī and I will describe one or two experiences about It. You can see with your eyes the pulsation of Kuṇḍalinī.<br>
 <font color="red">That is My identity. Mārkaṇḍeya has professed about Me, that, "The Kuṇḍalinī will pulsate at Her Feet." "</font><br>
 <font size="+0"><b>1979-0227 Public Program (Marathi), Dhule, Maharashtra, India</b></font>
 </p>
@@ -494,7 +496,16 @@ You need real courage to grow into that penetration."<br>
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">Now, it is described in the Purāṇas, if you read there's a book of Mārkaṇḍeya, which these people should know how Mahāviṣhṇu was created by Rādhā, who was the second Incarnation of this [principle].</font> First came Sītā, then came Rādhā, and then came uh-uh-uh Mary. These are the three human Incarnations of that force which is Mahālakṣhmī, on this Earth."<br>
+"<font color="red">Now, it is described in the Purāṇas, if you read there's a book of Mārkaṇḍeya, which these people should know how Mahāviṣhṇu was created by Rādhā, who was the second Incarnation of this [principle].</font> First came Sītā, then came Rādhā, and then came uh-uh-uh Mary. These are the three human Incarnations of that force which is Mahālakṣhmī, on this Earth.<br>
+......<br>
+But uh ... you see, on Blake I have spoken on this.<br>
+He went to this extent, you see, that He has even described, you know, the houses where I lived. The first one He said, the first beacon will be lit in uh-uh-uh ... Sunny Hills, where lived first. Then about our Lambert Way where we have an Āśhram, that a sinuous will vibrate. You see, such details He has given. "Come to Lambert Way."<br>
+Then Jerusalem is to be, means this is going to be the pilgrimage.<br>
+The last house that we have now: is on a Tyburn Brook. And it's written there: that, `It will be on that brook behind the Kensington Garden,' it's exactly there.<br>
+And the Sahaja Yogis are the golden builders because they have painted some parts in the uh cornices with gold [some laughter]: the golden builders.<br>
+And so beautifully written: the hearts are thanksgiving, and the floors are honesty. It's beautifully He has done it!<br>
+You see, if you read it, you'll be amazed. Jerusalem, in that He has described all that.<br>
+<font color="red">So, I mean I must say the Blake, Blake is the same as Mārkaṇḍeya, the one who came about fourteen thousands years back to talk about Christ, and Blake who came to talk about Me, about hundred years back, in England.</font>"<br>
 <font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
