@@ -14,6 +14,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 6 Photos from the special event <font color="Crimson"><b>1983-0210 Talk to Sahaja Yogis, New Delhi, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 6 medium resolutions from the Named Collections.<br>
 The direct link to the 7 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1983"> India 1983</a>.<br>
+[Note: the event was refined into 2 events on 2023-0917: first event with 1 Photo, second event with the mentioned 6 Photos.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
