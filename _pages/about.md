@@ -103,7 +103,7 @@ For other websites of Photographs please see:
 
     iii. <a href="https://www.flickr.com/photos/colinheinsenalbionstudio/albums"> Albion Studio</a> (of Colin Heinsen) (created in 2008)
 
-    iv. <a href="https://www.flickr.com/people/74539343@N05/"> Photos of Shri Mataji</a> (taken by Matthew Fogarty) (created in 2012, currently unavailable or on the move to some other website)
+    iv. <a href="https://www.flickr.com/photos/199081870@N07/"> Photos of Shri Mataji</a> (taken by Matthew Fogarty) (created in 2012, new version 2023)
 
     v. <a href="https://library.sahajaworld.org/photos"> Photos</a> (of Sahaja Digital Library) (created in 2017)
     
