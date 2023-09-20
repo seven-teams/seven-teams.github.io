@@ -21,7 +21,23 @@ The first Deity that was created by the Ādi Śhakti was Śhrī Gaṇeśh, becau
 <p style=" text-align:center;">
 <font color="DarkRed"><b>So Tuesday is the day when Gaṇeśha was established, and then the Goddess started working.</b></font><br>
 <font size="+0"><b>1981-0404 Śhrī Gaṇeśha Gaurī Pūjā, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font><br>
-<a href="">video</a>
+<br>
+<font color="DarkGreen"><b>Aum namaste Ganapataye</b></font><br>
+<font size="+0">Amen. Obeisance to Ganapati (the lord of the Ganas).</font><br>
+<font color="DarkGreen"><b>Twameva pratyaksham Tattwam'asi</b></font><br>
+<font size="+0">You are the manifest primordial principle.</font><br>
+<font color="DarkGreen"><b>Twameva kevalam kart'āsi</b></font><br>
+<font size="+0">You alone are the doer.</font><br>
+<font color="DarkGreen"><b>Twameva kevalam dhart'āsi</b></font><br>
+<font size="+0">You alone are the supporter (of the universe).</font><br>
+<font color="DarkGreen"><b>Twameva kevalam hart’āsi</b></font><br>
+<font size="+0">You alone are the destroyer. </font><br>
+<font color="DarkGreen"><b>Twameva sarvam khalv’idam Brahm'āsi</b></font><br>
+<font size="+0">You are verily the All-pervading Brahman (Supreme Spirit).</font><br>
+<font color="DarkGreen"><b>Twam sākshād-Ātm’āsi nityam</b></font><br>
+<font size="+0">You are the manifest eternal Self (Atman).</font><br>
+<font color="DarkGreen"><font size="+0">Śhrī Gaṇeśha Atharva Śhīrṣha</font></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -40,7 +56,22 @@ The Gaṇeśh Principle is what we call as abodhita [ignorant of wrong behavior]
 <font color="red"><b>Because Chaturthī is the day He is established, Gaṇeśha is established on this Chaturthī ......</b></font><br>
 <font size="+0"><b>1982-0822 Śhrī Gaṇeśha Pūjā, House of Charles and Magda Mathys, Chemin des Moulins-de-Drize 5, Troinex (6 kms S of Geneva), Switzerland</b></font><br>
 <br>
-<a href="">video</a>
+<font color="DarkGreen"><b>Namami Shri Gan.Raj. Dayal.</b></font><br>
+<font size="+0">We bow to You, Compassionate Gaṇeśha!</font><br>
+<font color="DarkGreen"><b>Karat. Ho Bhakt. Naka Pratipal.</b></font><br>
+<font size="+0">Verily You are the Protector and supporter of devotees</font><br>
+<font color="DarkGreen"><b>Namami Shri Gan.Raj. Dayal.</b></font><br>
+<font size="+0">We bow to You, Compassionate Gaṇeśha!</font><br>
+<font color="DarkGreen"><b>Nishidina Dhyan. Dhare Jo Prani</b></font><br>
+<font size="+0">The one who meditates every day</font><br>
+<font color="DarkGreen"><b>Hare Sakal. Bhav. Jal.</b></font><br>
+<font size="+0">You free him from these wordly temptations</font><br>
+<font color="DarkGreen"><b>Janam.-Maran. Se Hot. Nirala</b></font><br>
+<font size="+0">He who watches the cycle of birth and death as a witness</font><br>
+<font color="DarkGreen"><b>Nahi Lag.Ti Kar. Mal.</b></font><br>
+<font size="+0">Obtains ultimate liberation from his Karmas.</font><br>
+<font color="blue"><font size="+0">Namami Śhrī Gaṇarāj Dayal</font></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -67,8 +98,10 @@ Innocence has a great effect on our character and on our sense of chastity. Actu
 When we see small children, we [are] automatically compelled towards them and also we want to love them, kiss them and be with us [them]. And very innocent they are, extremely innocent.<br>
 And when we worship Śhrī Gaṇeśh we have to know if we have been really innocent or not.</font><br>
 <font size="+0"><b>1999-0925 Śhrī Gaṇeśha Pūjā, You Must Worship Śhrī Gaṇeśh and You Should Be Absolutely Chaste People, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font><br>
-<br>
-<a href="">video</a>
+<font color="DarkGreen"><b>Sumukhash-chai'ka-dantash-cha Kapilo Gaja-karnakah<br>
+Lambodarsha-cha Vikato Vighna-nasho Ganadhipah<br>
+Dhumra-ketur-Ganadhyaksho Bhala-chandro-Gajananah</b></font><br>
+<a href="https://youtu.be/PSSlZT0ddcM">video</a>
 </p>
 
 <p>
@@ -90,8 +123,12 @@ So today though I did not want to say anything to upset you people, but I must t
 <font color="DarkRed"><b>So today's Pūjā is specially to be done with a prayer in your heart that: 'Śhrī Gaṇeśha, please be kind and merciful and forgiving that You manifest within ourselves. Let all these hypocritical things, all these conditionings and all these wrong ideas we have or all the wrong life we have had, should just disappear like thin air, and let the beautiful moonlight of your soothing qualities of innocence be manifested through us.'<br>
 Let us manifest these qualities. This is what is to be asked.</b></font><br>
 <font size="+0"><b>1990-0826 Śhrī Gaṇeśha Pūjā, The Glow of Śhrī Gaṇeśha, Lanersbach, Austria</b></font><br>
-<a href="">video</a><br>
+<a href="https://youtu.be/HJzi8uu62lc?list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1">video</a><br>
 <br>
+<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Gaṇeśha sākṣhāt<br>
+Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
+<b>O Divine Mother, You are verily Śhrī Gaṇeśha.<br>
+Salutations to You!</b><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
@@ -101,53 +138,50 @@ Let us manifest these qualities. This is what is to be asked.</b></font><br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="green"><b>Hemaja Sutam Bhajan</b></font><br>
+<a href="https://youtu.be/mGvUq8-ebXo">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="green"><b>Jai Jai Bolo Nirmal Gaṇeśha Kī</b></font><br>
+(Victory to Śhrī Gaṇeśh, Australian songbook, Hindi supplement page 66)<br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Jay Gaṇarāyā Śhrī Gaṇarāyā</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Śhrī Gaṇeśha Pañcha Ratnam</b></font><br>
+(Names of Śhrī Gaṇeśha, Australian songbook, Sanskrit song 23)<br>
+<a href="https://youtu.be/TxotrB3Gzo0">video</a> 
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="DarkGreen"><b>Jay Jagadambe </b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="green"><b>Hasat Ali</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
-</p>
- 
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Śhrī Gaṇeśha Kinaryala Lau</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Zulzul Vahe</b></font><br>
+<a href="https://youtu.be/TbbNsFKL07c">video</a> 
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Āratī and the Three Great Mantras</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <div style="text-align: center"><img src="/images/image1025.png" /></div>
