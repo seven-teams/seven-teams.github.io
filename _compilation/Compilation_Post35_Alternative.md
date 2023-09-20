@@ -194,14 +194,14 @@ Even people who go, sort of adhere to a church too much, or adhere to Catholicis
 <div class="para-divider"></div>
 
 <p>
-"So we should also see what is our background just now: `Where are we? At this moment, how are we placed?' We do not realize that we are precariously placed at this moment.<br>
+"So we should also see what is our background just now: 'Where are we? At this moment, how are we placed?' We do not realize that we are precariously placed at this moment.<br>
 It's a time whether you jump over to your emancipation or you just go to Hell. <font color="DarkRed">These are the only two alternatives left, there's no third.</font> There's no compromise. I must tell you it's a fact!<br>
 One has to accept when you see all around you people are fighting, quarreling, there're big big wars are been threatening. One button you push and the whole world can be destroyed. Such a situation!<br>
 Some people have to think there has to be some way out: out of all this madness, out of this rat race, out of this self-destroying uh organizations that we have built up around us. There has to be something!<br>
 If so, then what is our responsibility? What is our ... best approach? What should be our attitude?<br>
-We are taking everything for granted. We are just sitting down, think[ing], `Oh, it's all right. As long as we don't do anything wrong, it's all right.' It is not so! It is not so. That time is over! That time that were ... you were leading a very good life and dhārmik life, that is not sufficient today. That is not going to help!<br>
+We are taking everything for granted. We are just sitting down, think[ing], 'Oh, it's all right. As long as we don't do anything wrong, it's all right.' It is not so! It is not so. That time is over! That time that were ... you were leading a very good life and dhārmik life, that is not sufficient today. That is not going to help!<br>
 First of all, we have to know: that if you are seekers and honest seekers, you have to play [loudly:]a very dynamic role in this great work of God."<br>
-<font size="+0"><b>1982-0913 Public Program, No Other Way Out and Inauguration of Don's Book `Sahaja Yoga', Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+<font size="+0"><b>1982-0913 Public Program, No Other Way Out and Inauguration of Don's Book 'Sahaja Yoga', Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -216,8 +216,44 @@ And to make plastic fowe... flower is very easy, you can make them by thousands.
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"When I will tell you about Sahasrāra and about Āgñyā, I will tell you: 'How this brain becomes [a] receptor of the Ultimate Truth. How through this brain you start receiving the knowledge of Absolute Truth. How this brain, when enlightened, gives you the power to know what is Truth and what is not truth. And there are no alternatives.' This I'll tell you later on, when the Kuṇḍalinī I'll describe at the brain level. "</font><br>
 <font size="+0"><b>1983-0131 Public Program, Day 2, The Nābhī Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"So it's a big confusion! That is the modern times: are the confusion. That the Western people are confused.<br>
+They have seen the value of this material affluence, so they are trying to give up the material affluence s-s... style, that style. They are changing the style, alternate styles.<br>
+But by changing the styles also, you don't achieve much. That's another doing something else.<br>
+Ah while the Indians think that they are poor and God should help them to make them rich. This [is] another alternative style. This is also outside.<br>
+Or they have no children, then they'll come, "Mother, I've no children." If they have too many children then they [will] have no job. You get them the job, then they'll say, "Marry my elder daughter to someone." [Laughter.] Then you do that, then they will say that, "Do this."<br>
+But nobody says, 'What about my Spirit? What about my Ātmā? Mother, what about it? What is happening to it? Where is it? Am I all right? Am I clearer?' "</font><br>
+<font size="+0"><b>1983-0208 Talk to Sahaja Yogis, Our Goal Is to Become the Spirit, Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"And then you have to have the detachment even of a kind of a collectivity that we think is collectivity. I call the fraternity of the bhūts, not collectivity. Always, all the useless Sahaja Yogis will form a group, and will have a very strong objection to everything that is sensible. And they will have suggestions for everything.<br>
+There has to be no suggestions at all. There are no alternatives, because Śhiva is absolute. Once what He said is said! You just do it and see, that's the best. Alternatives will be second best or third best or maybe useless. But there is no alternative for Śhiva Tattwa.<br>
+I'll give an example, I told Delhi people that, "You organize, say, program for seven days outside with other people." It was sensible because I knew it was to rain. At ... it has to rain also. Rain can be stopped, but it was to rain for all the other villagers, you see. We cannot stop them for only Sahaja Yogis, can we? Of course, Sahaja Yogis are important, so I said, "Let them be with other Sahaja Yogis." Now they started an alternative, only thinking that, 'You see, they won't be comfortable and ...' I mean it was good, but on a no ... other level that, 'They will not be comfortable with Sahaja Yogi,' another level.<br>
+......<br>
+So all these ideas of giving alternatives at the mental level is also wrong.<br>
+I give any ... anything I say, immediately there will be ten suggestions. I try all these tricks with you. Because you are used to conferences, you see. [Laughter, laughs.] So I said, "All right, Subramanian [from New Delhi], what do you have to say about it?" [Laughter, smiles.] Because, after all, Lord Subramanian['s] mind is there, must ask him. Then I ask Venugopalan [from New Delhi], then I'll ask Gavin [Brown], Warren [Reeves], all these people. "Now what do you have to say?" And then they give their suggestion[s].<br>
+But, if you see, in the conference of all the Divine Deities, there is no suggestion, no suggestion, no alternative. No alternatives to your Mother's ideas, nothing. Absolute, it's absolute. Nobody gives any suggestions to Me, never. No question. They won't listen to you, They won't listen to anyone. There's no question. Such harmony, complete obedience. And not only, They are fixed with Their qualities. They are told that you have to do it, They'll do it. [Snaps Her palms.] This is the difference.<br>
+......<br>
+Every time you do something, I tell you something, is just for you to learn something. I don't have to learn anything. Do you thinks that way, that I have to learn something now anymore? Not. So you have to learn something.<br>
+And that is what if you understand, then a kind of a detachment will build in you and a surrender. You will be amazed your ... [you will] be so much relieved of nonsensical headaches that you have and the burdens you carry if you understand that, 'The whole joke, the whole work, the whole drama is done by Mother, on I am just playing into it.' There's so simple. That is to be felt, to be understood.<br>
+And the enjoyment lies in that. Not in judging or finding alternatives. You try! Those who have tried it have enjoyed it very much."</font><br>
+<font size="+0"><b>1983-0211 Śhivarātri Pūjā (English + Hindi), Śhiva Tattwa within Us and No Alternatives to Your Mother's Ideas, Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1983-0304 Pūjā, Mother You Be in Our Brain, Rented House, Adelaide, SA, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
