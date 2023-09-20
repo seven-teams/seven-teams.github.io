@@ -12,14 +12,14 @@ tags:
 
 <p>
 <font color="DarkRed">"<b>Today we have gathered here to do Śhrī Gaṇeśha Pūjā.<br>
-The first Deity that was created by the Ādi Śhakti was Śhrī Gaṇeśh, because it was necessary first to create the Deity of Principles.</b> The Deity of Principle in the sense that whatever is created, whatever is there, has [been] called bhava, whatever has been so far created up to human level, everything, had to be through the implanted mechanism of energy. Otherwise nothing could have been create[d]. "</font><br>
+The first Deity that was created by the Ādi Śhakti was Śhrī Gaṇeśh, because it was necessary first to create the Deity of Principles.</b> The Deity of Principle in the sense that whatever is created, whatever is there, has [been] called bhava, whatever has been so far created up to human level, everything, had to be through the implanted mechanism of energy. Otherwise nothing could have been create[d]."</font><br>
 <font size="+0"><b>1993-0919 Śhrī Gaṇeśha Pūjā, The Principle of Innocence (Innocence Is the Basis of All the Dharmas), Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1221.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b>So Tuesday is the day when Gaṇeśha was established, and then the Goddess started working.</b></font><br>
+<font color="DarkRed"><b>"So Tuesday is the day when Gaṇeśha was established, and then the Goddess started working."</b></font><br>
 <font size="+0"><b>1981-0404 Śhrī Gaṇeśha Gaurī Pūjā, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font><br>
 <br>
 <font color="DarkGreen"><b>Aum namaste Ganapataye</b></font><br>
@@ -53,7 +53,7 @@ The Gaṇeśh Principle is what we call as abodhita [ignorant of wrong behavior]
 <font color="DarkRed">"Tuesday is the day realized Souls (Sahaja Yogis) should worship Śhrī Gaṇeśha in the Mūlādhāra chakra."</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 12: Mūlādhāra Chakra</b></font><br>
 <br>
-<font color="red"><b>Because Chaturthī is the day He is established, Gaṇeśha is established on this Chaturthī ......</b></font><br>
+<font color="red"><b>"Because Chaturthī is the day He is established, Gaṇeśha is established on this Chaturthī ......"</b></font><br>
 <font size="+0"><b>1982-0822 Śhrī Gaṇeśha Pūjā, House of Charles and Magda Mathys, Chemin des Moulins-de-Drize 5, Troinex (6 kms S of Geneva), Switzerland</b></font><br>
 <br>
 <font color="DarkGreen"><b>Namami Shri Gan.Raj. Dayal.</b></font><br>
@@ -93,10 +93,10 @@ Innocence has a great effect on our character and on our sense of chastity. Actu
 <div style="text-align: center"><img src="/images/image1223.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed">Today, we have gathered here to worship Śhrī Gaṇeśha.<br>
+<font color="DarkRed">"Today, we have gathered here to worship Śhrī Gaṇeśha.<br>
 <b>You all know what a powerful Deity He is. His Power comes from His innocence.</b><br>
 When we see small children, we [are] automatically compelled towards them and also we want to love them, kiss them and be with us [them]. And very innocent they are, extremely innocent.<br>
-And when we worship Śhrī Gaṇeśh we have to know if we have been really innocent or not.</font><br>
+And when we worship Śhrī Gaṇeśh we have to know if we have been really innocent or not."</font><br>
 <font size="+0"><b>1999-0925 Śhrī Gaṇeśha Pūjā, You Must Worship Śhrī Gaṇeśh and You Should Be Absolutely Chaste People, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font><br>
 <font color="DarkGreen"><b>Sumukhash-chai'ka-dantash-cha Kapilo Gaja-karnakah<br>
 Lambodarsha-cha Vikato Vighna-nasho Ganadhipah<br>
@@ -120,8 +120,8 @@ So today though I did not want to say anything to upset you people, but I must t
 <div style="text-align: center"><img src="/images/image1224.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b>So today's Pūjā is specially to be done with a prayer in your heart that: 'Śhrī Gaṇeśha, please be kind and merciful and forgiving that You manifest within ourselves. Let all these hypocritical things, all these conditionings and all these wrong ideas we have or all the wrong life we have had, should just disappear like thin air, and let the beautiful moonlight of your soothing qualities of innocence be manifested through us.'<br>
-Let us manifest these qualities. This is what is to be asked.</b></font><br>
+<font color="DarkRed"><b>"So today's Pūjā is specially to be done with a prayer in your heart that: 'Śhrī Gaṇeśha, please be kind and merciful and forgiving that You manifest within ourselves. Let all these hypocritical things, all these conditionings and all these wrong ideas we have or all the wrong life we have had, should just disappear like thin air, and let the beautiful moonlight of your soothing qualities of innocence be manifested through us.'<br>
+Let us manifest these qualities. This is what is to be asked."</b></font><br>
 <font size="+0"><b>1990-0826 Śhrī Gaṇeśha Pūjā, The Glow of Śhrī Gaṇeśha, Lanersbach, Austria</b></font><br>
 <a href="https://youtu.be/HJzi8uu62lc?list=PLuAVZW42aaCkYVG_Ll2jgiRUtS9cC__p1">video</a><br>
 <br>
@@ -154,7 +154,7 @@ Salutations to You!</b><br>
 </p>
 
 <p>
-<font color="green"><b>Śhrī Gaṇeśha Pañcha Ratnam</b></font><br>
+<font color="green"><b>Śhrī Gaṇeśha Paṃcharatnam</b></font><br>
 (Names of Śhrī Gaṇeśha, Australian songbook, Sanskrit song 23)<br>
 <a href="https://youtu.be/TxotrB3Gzo0">video</a> 
 </p>
@@ -187,7 +187,7 @@ Salutations to You!</b><br>
 <div style="text-align: center"><img src="/images/image1225.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed">"Only in your Āratī, in Marathi, of Śhrī Gaṇeśha, they say that, "At the time when I am getting my Realization you must save me." That's the only thing they ask, "At the time of my Resurrection you must save me." It does not say that, 'At the time of my Resurrection you protect me,' no! "You save me." <b>Because He's the one who is sitting on every chakra like a vice-chancellor of the university. Even if you have Viṣhṇu on your side, Mahādeva on your side, but if Śhrī Gaṇeśha is there sitting and He says, 'No, not his ascent,' it doesn't work out, it's very difficult.</b>"</font><br>
+<font color="DarkRed">"<b>Only in your Āratī, in Marathi</b>, of Śhrī Gaṇeśha, they say that, "At the time when I am getting my Realization you must save me." That's the only thing they ask, "At the time of my Resurrection you must save me." It does not say that, 'At the time of my Resurrection you protect me,' no! "You save me." <b>Because He's the one who is sitting on every chakra like a vice-chancellor of the university. Even if you have Viṣhṇu on your side, Mahādeva on your side, but if Śhrī Gaṇeśha is there sitting and He says, 'No, not his ascent,' it doesn't work out, it's very difficult.</b>"</font><br>
 <font size="+0"><b>1997-0907 Śhrī Gaṇeśha Pūjā, Dharma Has to Be there for Our Ascent, Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
 <br>
 <font color="DarkGreen"><b>Sukha Karta Dukha Harta Varta Vighnachi</b><br>
