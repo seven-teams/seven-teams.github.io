@@ -16,7 +16,7 @@ The first Deity that was created by the Ādi Śhakti was Śhrī Gaṇeśh, becau
 <font size="+0"><b>1993-0919 Śhrī Gaṇeśha Pūjā, The Principle of Innocence (Innocence Is the Basis of All the Dharmas), Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1021.png" /></div>
+<div style="text-align: center"><img src="/images/image1221.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>So Tuesday is the day when Gaṇeśha was established, and then the Goddess started working.</b></font><br>
@@ -47,7 +47,7 @@ The Gaṇeśh Principle is what we call as abodhita [ignorant of wrong behavior]
 <font size="+0"><b>1979-0922 Talk to Sahaja Yogis (Marathi), Kuṇḍalinī and Śhrī Gaṇeśha Principle, Navarātri Celebrations (1st Day), Amar Hind Mandal, West Dadar, Mumbai, Maharashtra, India]</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1022.png" /></div>
+<div style="text-align: center"><img src="/images/image1222.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"Tuesday is the day realized Souls (Sahaja Yogis) should worship Śhrī Gaṇeśha in the Mūlādhāra chakra."</font><br>
@@ -90,7 +90,7 @@ Innocence has a great effect on our character and on our sense of chastity. Actu
 <font size="+0"><b>2002-0914 Śhrī Gaṇeśha Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1023.png" /></div>
+<div style="text-align: center"><img src="/images/image1223.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">Today, we have gathered here to worship Śhrī Gaṇeśha.<br>
@@ -117,7 +117,7 @@ So today though I did not want to say anything to upset you people, but I must t
 <font size="+0"><b>1985-0804 Śhrī Gaṇeśha Pūjā, The Importance of Chastity, Brighton Friends Meeting House, Ship Street, Brighton, East Sussex, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1024.png" /></div>
+<div style="text-align: center"><img src="/images/image1224.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>So today's Pūjā is specially to be done with a prayer in your heart that: 'Śhrī Gaṇeśha, please be kind and merciful and forgiving that You manifest within ourselves. Let all these hypocritical things, all these conditionings and all these wrong ideas we have or all the wrong life we have had, should just disappear like thin air, and let the beautiful moonlight of your soothing qualities of innocence be manifested through us.'<br>
@@ -184,7 +184,7 @@ Salutations to You!</b><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image1025.png" /></div>
+<div style="text-align: center"><img src="/images/image1225.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"Only in your Āratī, in Marathi, of Śhrī Gaṇeśha, they say that, "At the time when I am getting my Realization you must save me." That's the only thing they ask, "At the time of my Resurrection you must save me." It does not say that, 'At the time of my Resurrection you protect me,' no! "You save me." <b>Because He's the one who is sitting on every chakra like a vice-chancellor of the university. Even if you have Viṣhṇu on your side, Mahādeva on your side, but if Śhrī Gaṇeśha is there sitting and He says, 'No, not his ascent,' it doesn't work out, it's very difficult.</b>"</font><br>
