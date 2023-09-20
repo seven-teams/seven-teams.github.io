@@ -98,6 +98,7 @@ Innocence has a great effect on our character and on our sense of chastity. Actu
 When we see small children, we [are] automatically compelled towards them and also we want to love them, kiss them and be with us [them]. And very innocent they are, extremely innocent.<br>
 And when we worship Śhrī Gaṇeśh we have to know if we have been really innocent or not."</font><br>
 <font size="+0"><b>1999-0925 Śhrī Gaṇeśha Pūjā, You Must Worship Śhrī Gaṇeśh and You Should Be Absolutely Chaste People, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font><br>
+<br>
 <font color="DarkGreen"><b>Sumukhash-chai'ka-dantash-cha Kapilo Gaja-karnakah<br>
 Lambodarsha-cha Vikato Vighna-nasho Ganadhipah<br>
 Dhumra-ketur-Ganadhyaksho Bhala-chandro-Gajananah</b></font><br>
