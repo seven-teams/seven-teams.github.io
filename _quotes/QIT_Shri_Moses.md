@@ -314,6 +314,49 @@ That's how they avoided to accept someone who was telling the Truth! It is nice 
 <div class="para-divider"></div>
 
 <p>
+"But in the history of spirituality all over the world, we find there has been great contributions by people, who otherwise were very wise, very intelligent, and extremely generous people. They could not have been false. They could not have lied to us.<br>
+For example let us take the case of Socrates. Socrates has told us that: 'We have to leave our body for the second life and that when we live on this world, when we live as human beings on this Earth, we have to keep ourselves in such a way that we do not spoil our being. That we have a sustainance [sustenance] within us, a quality that makes us human beings, by which we can be called as human beings.'<br>
+What is the difference between human beings and animals?<br>
+As so many others also have said the same thing: 'That we are human beings, because we are human beings we have to maintain a certain amount of sustainance [sustenance].'<br> 
+<font color="red">After Socrates we had people like Abraham and Moses, They also said the same thing! There isn't much difference in what They said and Socrates had said.<br>
+Socrates had said one a ... one more thing: 'That there are Deities within us, and we have to look after those Deities. We have to keep Them pleased.'</font><br>
+<font color="red">Moses, when He found Ten Commandments, actually He found those Ten Methods by which He was telling us, that, 'We should be able to keep our existence as human being[s],' by following those Ten Commandments.</font><br>
+Sustainance [sustenance] means the one we sustain within us. In Sanskrit knowl... language it is called as dharma. "Dhārayati [yena] sa dharmaḥ" [related to Mahābhārata 12.110.11]: the one which sustain[s] within ourselves.<br>
+......<br>
+To normalize you, all these Great Saints were born on this Earth, in this Void of the Big Primordial Being. And they exist within us, though they are not awakened as yet.<br>
+We have had mainly Ten of Them. In India, we can call Them, from a very long time, as Ādināth, who was thousands of year[s] back. <font color="red">I have told you Socrates, Moses, Abraham, then Rāja Janaka.</font> Then we had, later on, Muhammad Sāhab, then Nāṇaka. Then the last, one of Them, was Śhirḍī Sāī Nāth. He was another Primordial Master, a great man.<br>
+<font color="red">They are the Incarnations of the One Personality! They said the same thing and same thing and same thing: how to sustain yourself. Their job was not to give you Realization, but to sustain you: to make you capable of your Realization, to make you a proper recipient of God's blessings as realized Souls.</font><br>
+If the pot is not all right, if it has all the holes in it, what's the use of pouring Ganges into it?<br>
+<font color="red">So They clogged all the points, and said that, "This should not be done."</font><br>
+But as we have made mess of everything, we have made mess of Them also. All of us! Whether you are English, Indians or this thing doesn't matter. Whether you are Christians, Muslims or a Sikh or anything doesn't matter. All of us have made a mess of Them by just disobeying. We have really disobeyed Them, because we have a freedom to disobey. We have molded Them as we liked!"<br>
+<font size="+0"><b>1980-0613 Public Program, Something within Us which Makes Us Seek Something Beyond, Stratford, East London, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"These Statutes were given by all the Gurus: take Them from Socrates onward, Moses, Abraham, Dattātreya, Janaka, up to, say, Nāṇaka, Muhammad Sāhab, and take up to the point where it was only about hin ... hundred years back, you can say, at the most, was Sāī Nāth.<br>
+All of Them have said that: "You have to lead a moral life." None of Them have said that, 'You do not get married,' that, 'You do not talk to your wife,' that, 'You have no relationship with your wife.' All this is nonsensical! "Lead a moral life." "</font><br>
+<font size="+0"><b>1980-0727 Guru Pūjā (Guru Pūrṇimā Day), Statutes of the Lord (You Do Not Harm Anyone, The Testimony of the Truth, Develop Detachment, Lead a Moral Life) and Promise that You Will Be a Guru Worthy of Your Mother (Today I Authorize You to Be the Gurus and You Have a Very Supreme Guru), Temple of All Faiths (now demolished, 11c Pond St), Belsize Park, Hampstead, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "And these Ten Sustainances [Sustenances] are represented by Great Prophets. The Principle is called as Ādi Guru, in Sanskrit language, the Primordial Master. <font color="red">He had incarnated on this Earth as Abraham, Moses, as Lao Tze, as Confucius, as Socrates.</font> Recently, He has been as Sāī Nāth of Śhirḍī, not the other fellow, and other great people have been like Nāṇaka, Janaka.<br>
 All these Great Saints can ... came on this Earth to tell us: how to keep in the center, how to keep our sustenance, how to be human beings.<br>
 As carbon has got four valances, we too have got ten valances. We have to maintain those ten valances within us! That's what they came to tell us."<br>

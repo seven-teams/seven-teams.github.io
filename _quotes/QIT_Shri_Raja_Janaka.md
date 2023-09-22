@@ -362,6 +362,40 @@ A religion doesn't mean outside, but the religion as a man: means the capacity o
 <div class="para-divider"></div>
 
 <p>
+"To normalize you, all these Great Saints were born on this Earth, in this Void of the Big Primordial Being. And they exist within us, though they are not awakened as yet.<br>
+We have had mainly Ten of Them. In India, we can call Them, from a very long time, as Ādināth, who was thousands of year[s] back. <font color="red">I have told you Socrates, Moses, Abraham, then Rāja Janaka.</font> Then we had, later on, Muhammad Sāhab, then Nāṇaka. Then the last, one of Them, was Śhirḍī Sāī Nāth. He was another Primordial Master, a great man.<br>
+<font color="red">They are the Incarnations of the One Personality! They said the same thing and same thing and same thing: how to sustain yourself. Their job was not to give you Realization, but to sustain you: to make you capable of your Realization, to make you a proper recipient of God's blessings as realized Souls.</font><br>
+If the pot is not all right, if it has all the holes in it, what's the use of pouring Ganges into it?<br>
+<font color="red">So They clogged all the points, and said that, "This should not be done."</font><br>
+But as we have made mess of everything, we have made mess of Them also. All of us! Whether you are English, Indians or this thing doesn't matter. Whether you are Christians, Muslims or a Sikh or anything doesn't matter. All of us have made a mess of Them by just disobeying. We have really disobeyed Them, because we have a freedom to disobey. We have molded Them as we liked!"<br>
+<font size="+0"><b>1980-0613 Public Program, Something within Us which Makes Us Seek Something Beyond, Stratford, East London, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"These Statutes were given by all the Gurus: take Them from Socrates onward, Moses, Abraham, Dattātreya, Janaka, up to, say, Nāṇaka, Muhammad Sāhab, and take up to the point where it was only about hin ... hundred years back, you can say, at the most, was Sāī Nāth.<br>
+All of Them have said that: "You have to lead a moral life." None of Them have said that, 'You do not get married,' that, 'You do not talk to your wife,' that, 'You have no relationship with your wife.' All this is nonsensical! "Lead a moral life." "</font><br>
+<font size="+0"><b>1980-0727 Guru Pūjā (Guru Pūrṇimā Day), Statutes of the Lord (You Do Not Harm Anyone, The Testimony of the Truth, Develop Detachment, Lead a Moral Life) and Promise that You Will Be a Guru Worthy of Your Mother (Today I Authorize You to Be the Gurus and You Have a Very Supreme Guru), Temple of All Faiths (now demolished, 11c Pond St), Belsize Park, Hampstead, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again. In India we can say the Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had one Ādināth, the Guru long time back. <font color="red">Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth.</font> We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius. <font color="red">All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.</font><br>
 You must understand: everyone has one's own job. See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
 <font color="red">But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>

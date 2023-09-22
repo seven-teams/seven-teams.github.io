@@ -24,7 +24,7 @@ sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
 
-<font color="DarkGreen"><b>1991SAHNEWAUS1.</b></font> <b>1991-1004 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824)
+<font color="DarkGreen"><b>1991SAHNEWAUS1.</b></font> <b>1991-1004 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824 as 2 pages and on 2023-0921 as 8 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1991-1004_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
@@ -32,9 +32,11 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>1991SAHNEWAUS2.</b></font> <b>1991-1025 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824)
+<font color="DarkGreen"><b>1991SAHNEWAUS2.</b></font> <b>1991-1025 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824 as 2 pages and on 2023-0922 as 8 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1991-1025_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1991-1025_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 

@@ -1044,6 +1044,59 @@ If you read Their teachings you will find [that] They are saying the same things
 <div class="para-divider"></div>
 
 <p>
+"To normalize you, all these Great Saints were born on this Earth, in this Void of the Big Primordial Being. And they exist within us, though they are not awakened as yet.<br>
+We have had mainly Ten of Them. In India, we can call Them, from a very long time, as Ādināth, who was thousands of year[s] back. I have told you Socrates, Moses, Abraham, then Rāja Janaka. <font color="red">Then we had, later on, Muhammad Sāhab, then Nāṇaka.</font> Then the last, one of Them, was Śhirḍī Sāī Nāth. He was another Primordial Master, a great man.<br>
+<font color="red">They are the Incarnations of the One Personality! They said the same thing and same thing and same thing: how to sustain yourself. Their job was not to give you Realization, but to sustain you: to make you capable of your Realization, to make you a proper recipient of God's blessings as realized Souls.</font><br>
+If the pot is not all right, if it has all the holes in it, what's the use of pouring Ganges into it?<br>
+<font color="red">So They clogged all the points, and said that, "This should not be done."</font><br>
+But as we have made mess of everything, we have made mess of Them also. All of us! Whether you are English, Indians or this thing doesn't matter. Whether you are Christians, Muslims or a Sikh or anything doesn't matter. All of us have made a mess of Them by just disobeying. We have really disobeyed Them, because we have a freedom to disobey. We have molded Them as we liked!"<br>
+<font size="+0"><b>1980-0613 Public Program, Something within Us which Makes Us Seek Something Beyond, Stratford, East London, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Then some people are, of course, there are some people who know about these things and also they work out Kuṇḍalinī.<br>
+But for example, now you will be amazed, here fifty percent people are here sitting who can raise the Kuṇḍalinī, who are realized Souls. Fifty percent people are here in this hall! So, it can work out.<br>
+So far, you see, those who are in the market, I should [laughing:] say, I have not seen even one who has been, but those who are hiding themselves are realized Souls, lots of them are there. And the ... they came to see Me and I went to see them and ... I mean we are in one unison. And their idea about people is very funny and they think that you people will harm them. <font color="red">And you'll never listen to them because you like circus and you like all artificial things and you have always crucified people who have been truthful, you have always uh murdered them, you have always given them poison, like Socrates or Muhammad Sāhab, so they are literally frightened of coming down.</font> And the ... they have told Me, "Mother that You work for twelve years then [laughing:] we'll come down." Now already ten years I've worked, so in two years later, I hope, they are willing to come down.<br>
+They have ... some of them have lost their limbs and suffering quite a lot. It has been a very sad thing.<br>
+But do, people do go to them, see them, and sometimes one ... once in a year they meet people."<br>
+<font size="+0"><b>1980-0715 Public Program, What We Are Wanting Is the Reality, Cambridge, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"These Statutes were given by all the Gurus: take Them from Socrates onward, Moses, Abraham, Dattātreya, Janaka, up to, say, Nāṇaka, Muhammad Sāhab, and take up to the point where it was only about hin ... hundred years back, you can say, at the most, was Sāī Nāth.<br>
+All of Them have said that: "You have to lead a moral life." None of Them have said that, 'You do not get married,' that, 'You do not talk to your wife,' that, 'You have no relationship with your wife.' All this is nonsensical! "Lead a moral life." "</font><br>
+<font size="+0"><b>1980-0727 Guru Pūjā (Guru Pūrṇimā Day), Statutes of the Lord (You Do Not Harm Anyone, The Testimony of the Truth, Develop Detachment, Lead a Moral Life) and Promise that You Will Be a Guru Worthy of Your Mother (Today I Authorize You to Be the Gurus and You Have a Very Supreme Guru), Temple of All Faiths (now demolished, 11c Pond St), Belsize Park, Hampstead, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+
+<p>
 "Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again. In India we can say the Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had one Ādināth, the Guru long time back. Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth. <font color="red">We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius. All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.</font><br>
 You must understand: everyone has one's own job. See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
 <font color="red">But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>

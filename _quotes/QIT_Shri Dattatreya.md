@@ -321,6 +321,21 @@ Moses never said that, though they knew He was great. He had overpowered nature.
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"These Statutes were given by all the Gurus: take Them from Socrates onward, Moses, Abraham, Dattātreya, Janaka, up to, say, Nāṇaka, Muhammad Sāhab, and take up to the point where it was only about hin ... hundred years back, you can say, at the most, was Sāī Nāth.<br>
+All of Them have said that: "You have to lead a moral life." None of Them have said that, 'You do not get married,' that, 'You do not talk to your wife,' that, 'You have no relationship with your wife.' All this is nonsensical! "Lead a moral life." "</font><br>
+<font size="+0"><b>1980-0727 Guru Pūjā (Guru Pūrṇimā Day), Statutes of the Lord (You Do Not Harm Anyone, The Testimony of the Truth, Develop Detachment, Lead a Moral Life) and Promise that You Will Be a Guru Worthy of Your Mother (Today I Authorize You to Be the Gurus and You Have a Very Supreme Guru), Temple of All Faiths (now demolished, 11c Pond St), Belsize Park, Hampstead, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again. In India we can say the Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had one Ādināth, the Guru long time back. Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth. <font color="red">We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius. All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.</font><br>
 You must understand: everyone has one's own job. See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
 But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>
