@@ -20,7 +20,7 @@ tags:
 "Now she asked Me, "What is the surrender?" Surrendering, as I am saying, that is to be done in three stages.<br>
 ......<br>
 So the first point is to surrender by understanding rationally.<br>
-......
+......<br>
 Ego and your will is to be found out. How? By finding out your Self.<br>
 Now, what is your Self? Is the Spirit within you. All right?<br>
 How do you know your Self? Because, after Realization, It vibrates and It tells you. So, your will becomes the will of your Spirit, not of your ego, because you have also superego.<br>
@@ -29,7 +29,6 @@ The more you start learning about vibrations, learning what they are saying to y
 ......<br>
 Now this is what is the surrender: is the space more there. Because you don't allow this to work out [ego], or this to work out [superego] but just allow a space. So it starts opening out.<br>
 ......<br>
-
 Today, as we know that, this is the day of Muhammad Sāhab's Birthday.<br>
 And we have to understand that all these Incarnations came at different times. They all came at different times. And They came as a continuous process of evolution of man.<br>
 No question of conflict or anything with Them. No question. You see, human beings can't understand! Because they create conflict, they have lived with conflicts, you see.<br>
