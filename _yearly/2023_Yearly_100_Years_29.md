@@ -1,7 +1,7 @@
 ---
 title: '2023 Birthday Centenary of H. H. Shri Mataji Nirmala Devi, Post 29 on Mahātmā Gāndhī Jayanti and Śhrī Lal Bahadur Shastri Jayanti'
-date: 2023-01-30
-permalink: /yearly/2023/0130
+date: 2023-10-02
+permalink: /yearly/2023/1002
 tags:
   - crimson @ Birthday Centenary
 ---
