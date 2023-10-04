@@ -1,7 +1,7 @@
 ---
-title: 'Photos Post 13: Moments of Growth, New Albums and Galleries, Part 8'
-date: 2023-09-29
-permalink: /photos/2023/0929
+title: 'Photos Post 13: Moments of Growth, New Albums and Galleries, Part 9'
+date: 2023-10-03
+permalink: /photos/2023/1003
 tags:
   - crimson @ Photos Moments of Growth
   - green @ Updates
@@ -11,7 +11,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to bring to your attention 1 new gallery <a href="https://imageevent.com/sahaja/art/artofjohnwatkinson"><font color="DarkGreen"><b>Art of an Artist</b></font></a>.<br>
+We are pleased to bring to your attention 1 new gallery <a href="https://imageevent.com/sahaja/art/booksofedwardsaugstad"><font color="DarkGreen"><b>Books of an Artist</b></font></a>.<br>
 Please kindly share the news and the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
