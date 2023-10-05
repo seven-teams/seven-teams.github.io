@@ -349,7 +349,7 @@ Then also attention is on, 'How to cure our diseases?', or, if goes up, 'To have
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"Secondly, I want to say that whatever I tell you should be sincerely complied without suggesting alternatives. When you suggest alternatives to what I tell, it troubles Me and to you too. Hence, please do not tell Me which does not make any sense. Whatever I tell you to do, you should immediately accept with [the] response, `Yes, Śhrī Mātājī, I will do it.' Otherwise, it is very troublesome. It troubles Sahaja Yoga too.<br>
+<font color="DarkRed">"Secondly, I want to say that whatever I tell you should be sincerely complied without suggesting alternatives. When you suggest alternatives to what I tell, it troubles Me and to you too. Hence, please do not tell Me which does not make any sense. Whatever I tell you to do, you should immediately accept with [the] response, 'Yes, Śhrī Mātājī, I will do it.' Otherwise, it is very troublesome. It troubles Sahaja Yoga too.<br>
 If the people had not proposed alternatives, we would have had beautiful apartments at Mumbai and Pune as well.<br>
 At that time all harassed Me with their different ideas that now I have decided to tell to the one who suggests an alternative to what I tell, to not to do so and I am going to do what I am telling. No matter if you feel sad about it."</font><br>
 <font size="+0"><b>1988-1217 Pūjā (English + Marathi), We Have Certain Dharmas within Us and These Dharmas Are to be Observed to Get Puṇyas, Pandal, the banks of Mutanwadi River, Pune, Maharashtra, India</b></font>
@@ -395,7 +395,7 @@ But still to be aware at that time, to have presence of mind at that very moment
 
 <p>
 <font color="DarkRed">""</font><br>
-<font size="+0"><b>1992-0701 Public Program, Day 1, Cultureel Centrum `Artemis' (now Rijksmonument), Keizersgracht 676 (at the Vijzelstraat), Amsterdam, Netherlands</b></font>
+<font size="+0"><b>1992-0701 Public Program, Day 1, Cultureel Centrum 'Artemis' (now Rijksmonument), Keizersgracht 676 (at the Vijzelstraat), Amsterdam, Netherlands</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -460,7 +460,7 @@ Their situation becomes so bad that I feel that if anyone gets some disease, at 
 
 <p>
 "<font color="DarkRed">Sahaja Yoga is not just a fashion, cult or alternative method.</font> Thus there is no organization as such in Sahaja Yoga. There is no membership in Sahaja Yoga except that we had to have a nominal Trust. By that Trust we have to operate for legal affairs, but it has no permanent list of names of people. There is no dead organization, but a living collective single organism. The body has the cells, after Self-realization the spirits of the cells are enlightened by Sahaja Yoga. The seeker's being has to actually be sprouted by Kuṇḍalinī awakening. Then <i>becoming</i> is important."<br>
-<font size="+0"><b>1991-0700 Book `Sahaja Yoga', Chapter 1: Sahaja Yoga</b></font>
+<font size="+0"><b>1991-0700 Book 'Sahaja Yoga', Chapter 1: Sahaja Yoga</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -483,7 +483,7 @@ Now they are mugging and even killing people who are only slightly more affluent
 <div class="para-divider"></div>
 
 <p>
-"If you ask an enlightened soul: ``What will you like to have for yourself?", he may start thinking: ``What could I possibly need?" He already has everything. On the contrary he will think, `If I really have to go shopping, then I must buy something by which I can express my love to others.' An enlightened soul will purchase something only if it is a thing of spiritual value because there are certain very beautiful things created by human beings, which do emit Divine Cool Vibrations and relax enlightened people. <font color="DarkRed">Alternatively he might support some artist, or poor person, who is trying to make a living by creating something artistic.</font> So, underlying his purchase, there is not the principle that, `I like it,' but there is the principle that, `My Spirit enjoys it.' "<br>
+"If you ask an enlightened soul: "What will you like to have for yourself?", he may start thinking: "What could I possibly need?" He already has everything. On the contrary he will think, 'If I really have to go shopping, then I must buy something by which I can express my love to others.' An enlightened soul will purchase something only if it is a thing of spiritual value because there are certain very beautiful things created by human beings, which do emit Divine Cool Vibrations and relax enlightened people. <font color="DarkRed">Alternatively he might support some artist, or poor person, who is trying to make a living by creating something artistic.</font> So, underlying his purchase, there is not the principle that, 'I like it,' but there is the principle that, 'My Spirit enjoys it.' "<br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 2: Choices</b></font>
 </p>
 
