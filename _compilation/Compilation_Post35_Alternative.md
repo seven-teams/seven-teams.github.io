@@ -55,8 +55,8 @@ As someone asked, "How many turns are there in London?" "Only two: left and righ
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"There were some people who came to Me whom I called druggist or chemist. Means they used to be in state of coma. Such high consumption of drugs. But they got out of drugs from next day itself. Liquor, cigarette everything. Ninety-nine percent [99%].<br>
-But one percent [1%] may still be stuck. Some are stubborn, but they should strive hard, and they do strive else one gets catches. Then you realize that there is a catch on the left Viśhuddhi, this and that. Then it pains. There is no alternative except removing the catch."</font><br>
+<font color="DarkRed">"There were some people who came to Me whom I called druggist or chemist. Means they used to be in state of coma. Such high consumption of drugs. But they got out of drugs from next day itself. Liquor, cigarette everything. Ninety-nine percent [99\%].<br>
+But one percent [1\%] may still be stuck. Some are stubborn, but they should strive hard, and they do strive else one gets catches. Then you realize that there is a catch on the left Viśhuddhi, this and that. Then it pains. There is no alternative except removing the catch."</font><br>
 <font size="+0"><b>1980-1209 Talk to Sahaja Yogis (Marathi), Day 1, Sane Gurujī Vidyālaya (English Medium) School, Bhikoba Waman Pathare Mārg, Near Dadar Catering College, Shivaji Park, West Dadar, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -261,6 +261,234 @@ And the enjoyment lies in that. Not in judging or finding alternatives. You try!
 <p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1983-0307 Public Program, Day 2, Meeting Room, Town Hall, 128 King William Street and Pirie Street, Adelaide, SA, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1983-0308 Public Program, Day 1, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="DarkRed">The third great quality of Spirit is that It is absolute and because It is absolute It is not relative. You jump into a life that is absolute. There is no relativity, there is no alternative.</font><br>
+You see, these vibrations will tell you always the truth, nothing but the truth because Spirit is the Truth and it's [<font color="orange">unclear</font>]. It is the Truth.<br>
+So when you want to know about somebody, 'Now how is this person?', the vibrations will tell you. Another person who is a Sahaja Yogi will say the same thing. Even if you have ten children and tie up their eyes they'll tell the same thing that this person has this problem or this problem or this problem. Everyone will say the same thing because Truth is one and that's why you just say, everything says the same and there is absolute collectivity among Sahaja Yogis.<br>
+There's no quarrel, no fighting, nothing.<br>
+It is said that helium when it is heated up every molecule fights with each other. There's a big commotion there but when it is cooled down it becomes collective and starts moving in the same direction.<br>
+In the same way what happens that everything that you do becomes nothing but your vibratory awareness because you get a new awareness, a new dimension by which you can judge others."<br>
+<font size="+0"><b>1983-0323 Public Program, Kuala Lumpur, Malaysia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1983-0520 Public Program, The Danger of This Horrible Ego which We Have Created of Our Own (Sensitivity to Reality, Why People Don't Progress in Sahaja Yoga, The Situation of Today's Seekers, How We Break These Ego and Superego Barriers Within Human Beings, and The Solution of All the Problems of the World), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1983-0525 Public Program, Within Us there Is a Power Which Can Fulfill Our Seeking, Lewes Town Council, High Street, Lewes, East Sussex, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1983-0906 Public Program, Day 3, Mittlerer Saal, Urania Volkshochschulen, Volksbildungshaus, Uraniastraße 1, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1983-0908 Public Program, Day 1, You Are the Spirit, Sala Borromini, Biblioteca Vallicelliana, Piazza della Chiesa Nuova, 18, Rome, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1984-0218 Śhrī Chandramā Pūjā (Marathi + English + Marathi), Vaitarna, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1985-0613 Public Program, Day 2, Session 2 (evening), All Great Incarnations Are just One, Salle Centrale, Geneva, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1987-1230 Talk to Sahaja Yogis, On Different Matters and Marriages, before the Evening Program Organized by the Mayor of Kolhapur and Western Sahaja Yogis, Kolhapur, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"The attention is, once we come in Sahaja Yoga, 'How much money can we earn?', or, 'What all we can get?', then we cannot achieve it. Raise your attention above this.<br>
+Then also attention is on, 'How to cure our diseases?', or, if goes up, 'To have the darśhan of Mother,' or sometimes people come from Aurangabad or Delhi. <font color="DarkRed">There is no alternate word for it.</font> Why you came I don't have time or you have to quarrel with everyone."<br>
+<font size="+0"><b>1988-0918 Śhrī Gaurī Gaṇeśha Pūjā (Hindi), Suryavanshi Hall (near Śhivajī Park), Dadar, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Secondly, I want to say that whatever I tell you should be sincerely complied without suggesting alternatives. When you suggest alternatives to what I tell, it troubles Me and to you too. Hence, please do not tell Me which does not make any sense. Whatever I tell you to do, you should immediately accept with [the] response, `Yes, Śhrī Mātājī, I will do it.' Otherwise, it is very troublesome. It troubles Sahaja Yoga too.<br>
+If the people had not proposed alternatives, we would have had beautiful apartments at Mumbai and Pune as well.<br>
+At that time all harassed Me with their different ideas that now I have decided to tell to the one who suggests an alternative to what I tell, to not to do so and I am going to do what I am telling. No matter if you feel sad about it."</font><br>
+<font size="+0"><b>1988-1217 Pūjā (English + Marathi), We Have Certain Dharmas within Us and These Dharmas Are to be Observed to Get Puṇyas, Pandal, the banks of Mutanwadi River, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1990-0531 Public Program, Day 2, Hall, Cafe Del Rey Moro, Balboa Park, San Diego, CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1991-0802 Public Program, Day 2, The Liver, Its Problems and Treatment, Koningszaal, Artis (Natura Artis Magistra), Plantage Middenlaan 41 A, Amsterdam, Netherlands</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="DarkRed">In our Marathi language we have ten alternatives for each word. Thus our language is a very rich language. Hence we cannot explain in one word.</font><br>
+But still to be aware at that time, to have presence of mind at that very moment is very essential."<br>
+<font size="+0"><b>1991-1215 Śhrī Gaṇeśha Pūjā (English + Marathi), Shere (Pune), Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1992-0222 Talk to Sahaja Yogis, On Departure, Airport, Brisbane, Queensland, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1992-0412 Talk to Children and Sahaja Yogis, The Responsibility Has to Be Taken with Wisdom and with your Powers and On Medical Matters, Nirmala House, Sant'Angelo Romano (7 kms N of Guidonia), Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1992-0701 Public Program, Day 1, Cultureel Centrum `Artemis' (now Rijksmonument), Keizersgracht 676 (at the Vijzelstraat), Amsterdam, Netherlands</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1993-0319 Press Conference (Medical and Scientific), Meridian Hotel, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1993-0322 Public Program (Hindi), Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1993-0718 Public Program, Alpheusdal (now Zaal Apollo), Filip Williotstraat 22, Berchem (5 kms SSE of Antwerp), Belgium</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1994-0719 Public Program, Saal F (Floor 0), Austria Center, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1995-0725 Public Talk to Representatives of Ecoforum and the Vice-minister of Health, Sofia, Bulgaria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Our country is such, that along with Rānī Padminī, thirty-two thousand women jumped into a pit of fire to save their honor, to save their purity.<br>
+<font color="DarkRed">So in this country what other alternative do they have? They cannot live a life of honor and dignity.</font><br>
+Their situation becomes so bad that I feel that if anyone gets some disease, at least he can go to a hospital. Some solution or others can be found for him or her. But tell Me, in the case of these unfortunate women, in what way can we lessen their burden. So much sorrow and not even a sympathizer!"<br>
+<font size="+0"><b>2000-0407 Śhrī Bhūmī Devī Pūjā (Hindi), Inauguration of the H.H. Śhrī Mātājī Nirmalā Devī Foundation, Nirmal Dham, Behind BSF Camp Chhawala, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>2000-0926 Public Program, Day 1, Royal Albert Hall, Kensington Gore, London SW7, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>2001-0800 Interview with a Lady, Marina di Pietrasanta, Versilia, Tuscany, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1991-0700 Book `Sahaja Yoga', Chapter 1: Sahaja Yoga</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1991-0700 Book 'Sahaja Yoga', Chapter 2: Vishwa Nirmala Dharma</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 1: Modernism and Rationality</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 2: Choices</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 4: Racialism</b></font>
 </p>
 
 <div class="para-divider"></div>
