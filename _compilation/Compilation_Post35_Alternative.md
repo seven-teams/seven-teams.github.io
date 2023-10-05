@@ -459,35 +459,40 @@ Their situation becomes so bad that I feel that if anyone gets some disease, at 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"<font color="DarkRed">Sahaja Yoga is not just a fashion, cult or alternative method.</font> Thus there is no organization as such in Sahaja Yoga. There is no membership in Sahaja Yoga except that we had to have a nominal Trust. By that Trust we have to operate for legal affairs, but it has no permanent list of names of people. There is no dead organization, but a living collective single organism. The body has the cells, after Self-realization the spirits of the cells are enlightened by Sahaja Yoga. The seeker's being has to actually be sprouted by Kuṇḍalinī awakening. Then <i>becoming</i> is important."<br>
 <font size="+0"><b>1991-0700 Book `Sahaja Yoga', Chapter 1: Sahaja Yoga</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"<font color="DarkRed">One of the big problems of the intellectuals is that they never want to accept anything as absolute, but they always want to find alternatives for everything. Now there is no alternative for one's ascent.</font> As a seed has to grow its primule, so the Kuṇḍalinī has to be awakened. But some of those who have come to Sahaja Yoga have also gone away, saying that there must be some other methods and powers that should work it out. This is just escapist reaction. Supposing you are diving a well and you find water in one place, what is the use of digging in other places? Whatever you have found, it is the water, so why not make the well there? But this is how many people are escaping reality. One should face it and get it. There is no other way human transformation can take place, as has been said in so many ancient books. Still, if people want to escape it, then you cannot help it. You cannot force them. You cannot in any way condemn them.<br>
+<font color="DarkRed">So the problem remains: how to make these people know that this is a living process, which has already started, is working in so many people when they have no other alternative. They should become Sahaja Yogis.</font> Actually, one requires tremendous patience with these people, because they can be saved if they understand that it is for their benevolence, it is for their good. After coming to Sahaja Yoga very few people have suffered from any serious diseases and there are so many who have never been to a doctor or to a dentist. It is also for one's mental peace. So many of them have written to me, that they have found their mental peace at long last. There are so many who write how they have achieved proficiency and balance in their work."<br>
 <font size="+0"><b>1991-0700 Book 'Sahaja Yoga', Chapter 2: Vishwa Nirmala Dharma</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"<font color="DarkRed">If the Truth is not accepted, it will destroy those very brains that reject it. They will take to other alternatives in most cases and they will have to take to self-destructive styles. They have accepted wrong ideas that originate from those many human beings who are teaching falsehood in the name of Truth.</font> It is an extraordinary thing to witness, that to approach the subject of truth compassionately, one has to really beg people to listen, to hear about the Truth that they all have their divinity intact and that it can manifest itself in the great event of their ascent through the Kuṇḍalinī awakening. It is such a great pity, I must say, that this kind of convincing and cajoling of the complicated Western brain takes such an unnecessary long time. It is quite ironic that those leaders and teachers who are fake, who are modern anti-Gods, who are against the Divine, who are for the destruction of human beings, actually become very successful and achieve a worldwide following in such a short time. It is also true, however, because of the activity of the Paramachaitanya and law of polarity, that false teachers are being revealed for what they are and all the false ideas perpetrated by them are being exposed and destroyed very quickly. They appear and establish themselves easily, but in this age of Kṛita Yuga, it is only for a short time. The trouble is that after the exposure of one guru people are so weak that some immediately start looking around for another one. When they settle down with one, they usually end up lost as moneyless recluses. This guru shopping is now a common and fashionable lifestyle in the West of the seekers. It is the same with other kinds of ideology. Communism has failed in Russia, and fundamentalism and racialism have filled the vacuum and begun to prosper in the so-called democracies.<br>
+......<br>
+Now they are mugging and even killing people who are only slightly more affluent than themselves. So, as these developed societies become richer and richer, by another action of the Law of Polarity, they also create increasing numbers of thieves and more and more sophisticated Mafias, who make money by kidnapping rich people who have made money and spread corruption and misery wherever they spring up. These alternative Empires of the Mafia cannot be controlled, but can (and do) themselves control everyone, even governments and politicians."<br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 1: Modernism and Rationality</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"If you ask an enlightened soul: ``What will you like to have for yourself?", he may start thinking: ``What could I possibly need?" He already has everything. On the contrary he will think, `If I really have to go shopping, then I must buy something by which I can express my love to others.' An enlightened soul will purchase something only if it is a thing of spiritual value because there are certain very beautiful things created by human beings, which do emit Divine Cool Vibrations and relax enlightened people. <font color="DarkRed">Alternatively he might support some artist, or poor person, who is trying to make a living by creating something artistic.</font> So, underlying his purchase, there is not the principle that, `I like it,' but there is the principle that, `My Spirit enjoys it.' "<br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 2: Choices</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"In America according to law, no alternative medicine could be practiced. Our Lord Jesus Christ would be arrested if he cured any American in America.<br>
+......<br>
+When the White people get sick and have no hopes of recovery, only then do they start searching for new alternatives. Then they don't think about what skin the doctor has."</font><br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 4: Racialism</b></font>
 </p>
 
