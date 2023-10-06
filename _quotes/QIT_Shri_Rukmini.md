@@ -59,7 +59,7 @@ Left Viśhuddhi is on the left-hand side, and right [is] on the right-hand side.
 <div class="para-divider"></div>
 
 <p>
-<font color="red"><b>Śhrī Mātājī:</b></font> Like Kṛiṣhṇa's case, you see, Kṛiṣhṇa had it Sixteen Thousand Powers and He got them, they were born in India as women. Ah but He couldn't keep it them in the house because everybody would say that, `They ... they are His keeps,' you see. So He made one king uh-uh ...<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Like Kṛiṣhṇa's case, you see, Kṛiṣhṇa had it Sixteen Thousand Powers and He got them, they were born in India as women. Ah but He couldn't keep it them in the house because everybody would say that, 'They ... they are His keeps,' you see. So He made one king uh-uh ...<br>
 <b>Grégoire de Kalbermatten:</b> You come [<font color="orange">unclear</font>].<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> ... to capture them, all these sixteen thousands, and keep them in the house, you see, in his arrest. So, Kṛiṣhṇa defeated him and got all of them, and married them! [Drinks tea during translation.]<br>
 <font color="red">And He had five, five elements also which He kuh tried to incarnate, and then He married too as five, His wives, His queens.</font><br>
@@ -85,9 +85,9 @@ But after all He was, you have Virāṭa, you see. [Laughing:] Imagine, He has t
 <p>
 "<font color="red">So, for the right Viśhuddhi we use the mantra of Viṭṭhala and Rakhumāī [Rukmiṇī], these two persons.</font><br>
 You see, it is very significant that also.<br>
-Because they say that there was a Puṇḍarīkākṣh, one boy, who was serving his parents. "<font color="red">And his parents were sleeping, he was pressing their feet, when Viṭṭhala and His Power Rakhumāī ... Rukmiṇī, They appeared uh in the door. But he said, ``Now keep quiet. My parents are sleeping, so You stay there!" So he had one brick near him which he threw, and asked Them, ``You stay on that." So They kept quiet. They kept quiet because they are sleeping."</font><br> 
+Because they say that there was a Puṇḍarīkākṣh, one boy, who was serving his parents. "<font color="red">And his parents were sleeping, he was pressing their feet, when Viṭṭhala and His Power Rakhumāī ... Rukmiṇī, They appeared uh in the door. But he said, "Now keep quiet. My parents are sleeping, so You stay there!" So he had one brick near him which he threw, and asked Them, "You stay on that." So They kept quiet. They kept quiet because they are sleeping."</font><br> 
 Now, this is the thing is: on the right side, if you are talking loudly, if you talk too much, uh-uh-uh-uh if you uh intimidate people with your talking, then you catch on right Viśhuddhi.<br>
-So for that, best is to take some rest, and give some rest to your right Viśhuddhi, by stopping your talk. `Go into mauna,' they say: just don't talk. For some time if you don't taulk [talk], you'll see that your Viśhuddhi will be improved, your problems will be improved."<br>
+So for that, best is to take some rest, and give some rest to your right Viśhuddhi, by stopping your talk. 'Go into mauna,' they say: just don't talk. For some time if you don't taulk [talk], you'll see that your Viśhuddhi will be improved, your problems will be improved."<br>
 <font size="+0"><b>1989-0814 Śhrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, UK</b></font>
 </p>
 

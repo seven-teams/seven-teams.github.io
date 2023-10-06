@@ -110,7 +110,7 @@ Because you are Saints they have allowed you, but behave like Saints!<br>
 What's this nonsense going on? Talking about comfort, this nonsense.<br>
 What comfort do you have there? I feel most uncomfortably in the Western countries. There's no comfort of the Spirit! Most uncomfortable I feel. Everybody drinking, everybody nonsensically, so materialistic, so materialistic they are! Horrible!<br>
 Now don't think too much of yourself, for Heaven's sake.<br>
-I don't want you to talk that somebody's dominating you, crossing your maryādās, `Sahaj means lethargy.' Why don't you have your own Spirits and your own this ... uh arrangements?<br>
+I don't want you to talk that somebody's dominating you, crossing your maryādās, 'Sahaj means lethargy.' Why don't you have your own Spirits and your own this ... uh arrangements?<br>
 Everything you have misleft, two room... four rooms there unlocked, this thing.<br>
 There's one girl looking after Me, [snapping Her right fingers:] how smart she is! Just see how smart she is.<br>
 Even ten En... English girls can't look after Me the way she looks after Me. Every little bit of that she knows!<br>

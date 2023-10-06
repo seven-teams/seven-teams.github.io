@@ -24,7 +24,7 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-"Now just put attention on the word Christ. The name comes from Krist. And Krist comes from Kṛiṣhṇa. Because He was Kṛiṣhṇa's Son, so the name of Father was continuing so His name was Krist. But His name was Jesus also, that is because He was also the Son of Rādhā. <font color="red">Rādhā thought that, `Till today nowhere the name of Jaśhodā was mentioned.' That's why Ya-śho-dā means Jesus. Like we say Yasodā, we say Jesu. If someone's name is Jasoda, he will be known as Jesu, and Jasoda will be known as Jesu.<br>
+"Now just put attention on the word Christ. The name comes from Krist. And Krist comes from Kṛiṣhṇa. Because He was Kṛiṣhṇa's Son, so the name of Father was continuing so His name was Krist. But His name was Jesus also, that is because He was also the Son of Rādhā. <font color="red">Rādhā thought that, 'Till today nowhere the name of Jaśhodā was mentioned.' That's why Ya-śho-dā means Jesus. Like we say Yasodā, we say Jesu. If someone's name is Jasoda, he will be known as Jesu, and Jasoda will be known as Jesu.<br>
 Many people like in Maharashtra know him as Yeśhu and Jasoda as Jesu.</font>"<br>
 <font size="+0"><b>1978-0201 Public Program (Hindi), Brahma kā Gyān (Knowledge of Brahma) or Mūlādhāra to Viśhuddhi, Āgñyā, and Sahasrāra, 9 Raisina Road, New Delhi, India</b></font>
 </p>

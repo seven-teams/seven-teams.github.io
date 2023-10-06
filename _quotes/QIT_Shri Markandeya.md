@@ -501,7 +501,7 @@ You need real courage to grow into that penetration."<br>
 But uh ... you see, on Blake I have spoken on this.<br>
 He went to this extent, you see, that He has even described, you know, the houses where I lived. The first one He said, the first beacon will be lit in uh-uh-uh ... Sunny Hills, where lived first. Then about our Lambert Way where we have an Āśhram, that a sinuous will vibrate. You see, such details He has given. "Come to Lambert Way."<br>
 Then Jerusalem is to be, means this is going to be the pilgrimage.<br>
-The last house that we have now: is on a Tyburn Brook. And it's written there: that, `It will be on that brook behind the Kensington Garden,' it's exactly there.<br>
+The last house that we have now: is on a Tyburn Brook. And it's written there: that, 'It will be on that brook behind the Kensington Garden,' it's exactly there.<br>
 And the Sahaja Yogis are the golden builders because they have painted some parts in the uh cornices with gold [some laughter]: the golden builders.<br>
 And so beautifully written: the hearts are thanksgiving, and the floors are honesty. It's beautifully He has done it!<br>
 You see, if you read it, you'll be amazed. Jerusalem, in that He has described all that.<br>
@@ -1049,7 +1049,7 @@ After that, so many Saints wrote about Self-realization."<br>
 "It is very essential for us that we keep a clear head because this could be a [<font color="orange">unclear</font> novel] thing for you.<br>
 If someone had talked about Kuṇḍalinī two hundred years ago, it would not be a new thing.<br>
 In twelfth century A.D., Gyāneśhwara talked about it. <font color="red">Mārkaṇḍeya talked about it, thousands of years ago.</font> Kabīrdas talked about it, the Bible also talks about it, and Nāṇak Sāhab also talked about it.<br>
-But no one really thought about it that, `Is the Truth,' or that there should have been more attention to it."<br>
+But no one really thought about it that, 'Is the Truth,' or that there should have been more attention to it."<br>
 <font size="+0"><b>1990-0206 Public Program (Hindi+English), Day 1, Paramātma ko Jānane ke Lie (To Know God), Hyderabad, Telangana, India</b></font>
 </p>
 

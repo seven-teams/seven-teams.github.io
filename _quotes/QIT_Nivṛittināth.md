@@ -47,14 +47,14 @@ Thus, all this knowledge, of the inner be-ing, was kept in the darkness. And thi
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">But in the twelfth century, Gyāneśhwara asked His Guru, who was His brother, Nivṛittināth. He asked Him: that, ``You just allow Me to write about this Kuṇḍalinī." Because He wrote Gyāneśhwarī. And in Gyāneśhwarī, He wanted to write about this Kuṇḍalinī, just to little talk about this secret power within us. His Guru allowed Him, and then He wrote it."</font>
+<font color="DarkRed">But in the twelfth century, Gyāneśhwara asked His Guru, who was His brother, Nivṛittināth. He asked Him: that, "You just allow Me to write about this Kuṇḍalinī." Because He wrote Gyāneśhwarī. And in Gyāneśhwarī, He wanted to write about this Kuṇḍalinī, just to little talk about this secret power within us. His Guru allowed Him, and then He wrote it."</font>
 <font size="+0"><b>1993-1016 Public Program (2nd Day of Navarātri), Auditorium, New York Society for Ethical Culture, 2 West 64 Street, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"But in the twelfth century, Gyāneśhwara took permission from His brother who was His Guru as well, that, ``Please allow Me to at least write about it! This much permission I need!" And when He wrote about it, in His book Gyāneśhwarī, in the sixth chapter, He has described beautifully that, ``Due to this Kuṇḍalinī only we achieve our enlightenment." He has stated it very clearly."</font><br>
+<font color="DarkRed">"But in the twelfth century, Gyāneśhwara took permission from His brother who was His Guru as well, that, "Please allow Me to at least write about it! This much permission I need!" And when He wrote about it, in His book Gyāneśhwarī, in the sixth chapter, He has described beautifully that, "Due to this Kuṇḍalinī only we achieve our enlightenment." He has stated it very clearly."</font><br>
 <font size="+0"><b>1993-1203 Public Program (Hindi), Kidwai Nagar, New Delhi, India</b></font>
 </p>
 

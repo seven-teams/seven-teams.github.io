@@ -1065,7 +1065,7 @@ That was also important part. But that was forgot[ten]!<br>
 "It is very essential for us that we keep a clear head because this could be a [<font color="orange">unclear</font> novel] thing for you.<br>
 If someone had talked about Kuṇḍalinī two hundred years ago, it would not be a new thing.<br>
 In twelfth century A.D., Gyāneśhwara talked about it. Mārkaṇḍeya talked about it, thousands of years ago. <font color="red">Kabīrdas talked about it, the Bible also talks about it, and Nāṇak Sāhab also talked about it.</font><br>
-But no one really thought about it that, `Is the Truth,' or that there should have been more attention to it."<br>
+But no one really thought about it that, 'Is the Truth,' or that there should have been more attention to it."<br>
 <font size="+0"><b>1990-0206 Public Program (Hindi+English), Day 1, Paramātma ko Jānane ke Lie (To Know God), Hyderabad, Telangana, India</b></font>
 </p>
 
