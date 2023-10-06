@@ -915,15 +915,11 @@ All of Them have said that: "You have to lead a moral life." None of Them have s
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-"Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again. In India we can say the Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had one Ādināth, the Guru long time back. <font color="red">Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth.</font> We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius. <font color="red">All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.</font><br>
-You must understand: everyone has one's own job. See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
+"Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again. In India we can say the Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had one Ādināth, the Guru long time back. <font color="red">Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth.</font><br>
+We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius.<br> 
+<font color="red">All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.</font><br>
+You must understand: everyone has one's own job.</font><br> 
+See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
 <font color="red">But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>
 So, these Ten Principles, as I told you, They established [dharma].</font><br> 
 <font color="red">They are created in the Void.</font><br>

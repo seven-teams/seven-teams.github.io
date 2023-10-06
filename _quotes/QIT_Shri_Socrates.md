@@ -198,21 +198,27 @@ All of Them have said that: "You have to lead a moral life." None of Them have s
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again.</font><br>
+In India we can say the Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had one Ādināth, the Guru long time back. Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth.<br>
+We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius.<br>
+<font color="red">All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.<br>
+You must understand: everyone has one's own job.</font><br>
+See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
+<font color="red">But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>
+So, these Ten Principles, as I told you, They established [dharma].<br>
+They are created in the Void.</font><br>
+As you see here the Void part, this part is made out of the water element. <font color="red">So, whatever miracles They did, had something to do with water, like They could create water anywhere They wanted to. They would not cure people. All of Them have created water in the desert or in the places where ... like in ... Nāṇaka has created a Pan̄jā Sāhab they call it, or everywhere They have been able to create water. Whatever They touched, They could create water out of it.</font><br>
+Water is the life, life force which sustains us. Without water we cannot live! The is the sustainance [sustenance].<br>
+<font color="red">But, They actually are symbolized in an ocean, in the ocean, because They give us the salt, the salt of life, which gives us the sustainance [sustenance].</font> If you see the salt, if we do not have salt in our body, we'll have no sustainance [sustenance]."<br>
 <font size="+0"><b>1980-0728 Public Program, The Principle of Guru (Moderation Is the Way We Really Solve the Problem and The Innocence Is in the Center), Sea is the Guru (The Sea Is to Be Worshiped and So Much to Learn from the Sea) and Your Dharma Is the Way Your Attention Is (Dharma Is Balancing), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b>1980-0929 Public Program, Hotel Waldhaus Dolder, Zürich, Switzerland</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
+"Everything that has happened before has to be proved today. <font color="red">Everything that is said about sustainance [sustenance] and all that is to be proved today: Moses has to be proved, Socrates has to be proved, Abraham has to be proved, everyone has to be proved.</font><br>
+<font color="red">But this is not necessary. Why should anybody prove Them‽<br>
+Only in Realization you yourself you have to accept, [laughing:] because without taking Their names the Kuṇḍalinī won't rise. They are true to Kuṇḍalinī: She proves. She proves it to you, that They all were absolutely true people and They wanted you to receive Their Truth.</font>"<br>
 <font size="+0"><b>1980-1020 Public Program, The Way of Kuṇḍalinī, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
@@ -235,13 +241,6 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
 <font color="red">"Moses, Abraham, Confucius, Socrates, Muhammad, Nāṇak, Janak, Lao Tze, these are the Primordial Masters, the Principle of Primordial Masters, the Ādi Gurus, who incarnated on this Earth to teach us how to keep our sustainance [sustenance]. They taught against all alcohols and strong things."</font><br>
 <font size="+0"><b>1981-0402 Public Program, Day 1, The Pure Power of Desire or Aim of Seeking, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
@@ -250,11 +249,31 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1981-0518 Public Program, The Right Side, Sense of Responsibility (You Have to Be Alert and Active, Responsible and Respectable, Decide that Every Moment and Movement of Your Life You Are Going to Feel Responsible as Hanumāna Does and I Have to Be Responsible from My Heart) and I Want You to Be Really Honored in the Kingdom of God as Great Sons of Your Mother (I Want You to Have Your Due: All the Heralds and All the Glory), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1981-0814 Public Program, The Scientific Viewpoint, Quaker Meeting House, 40 Bull Street, Birmingham B4 6AF, West Midlands, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1981-0928 Public Program, Day 5, Christ Church (United Methodist), 524 Park Avenue, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1981-1015 Public Program, Day 4, Reorganized Church of Jesus Christ, 18480 Nordoff Street, Panorama City (32 kms N-NW of Los Angeles), CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
 <p>
 <font color="red"><b>Śhrī Mātājī:</b></font> Is not only that, I'm saying on the whole, a shee ... worship is a tradition which has come to us from great Seers and ancient Sages. <font color="red">Anybody, even, say, Moses, you can say Socrates, you can say Dattātreya, or Mārkaṇḍeya, or any one of these people, have found out the ways and methods how to tune our instruments to the Divine to achieve the maximum joy.</font><br>
 'How to please the Deities,'' that's the main point is, how to please the Deities. But it's a crude word pleases, but how to ... [laughing:] I don't know what should I say, innovation they say, or what do you call that? How to spark them, ...<br>
@@ -267,7 +286,43 @@ So we know that we have to educate ourself, first point, and secondly, we have t
 
 <div class="para-divider"></div>
 
-[<font color="orange">WARNING: Quotes for the period 1980-04 to 2001-12 will follow in due time.</font>]
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-0622 Public Program, You All Have to Become Holy People and Attention Becomes Enlightened (Have I Become a Prophet), Reading, Berkshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Surrounding this stomach is the area where one has to cross.<br>
+<font color="red">And this area is actually the Area of the Masters. All the Primordial Masters were born in this area, like Moses, Socrates.</font><br>
+<font color="red">There are main basic Ten Primordial Beings, who came on this Earth, who came to give us an idea as to our seeking, what we have to do. Basically, They came here to teach us how to balance ourselves: how to balance so we can ascend.</font><br>
+<font color="red">Now all these Great Prophets or Primordial Beings, we should say They were the Ones who were the Masters, They came to inform us that if you cross too much onto the left side or too much on the right side, then you will be falling in your sustainance [sustenance], in your quality as a human being.</font><br>
+As a human being, you have to have a sustainance [sustenance], and this is the center that gradually unfolds the sustainance [sustenance] from animal to higher animals and to human stage, where a person starts realizing that these sustenances exist within us. That's how all our laws have come. The Ten Commandments of the Bible are the Ten Sustenances that are within us.<br>
+<font color="red">These are the Ten Gurus who came on this Earth to save human beings from getting out of the Middle Path, going more to the left and more to the right.</font>"<br>
+<font size="+0"><b>1982-0710 Public Program, Day 1, We Have to Know Something More (Modern Times Are the Times of Confusion, Experience of Your Awareness, and You Become the Spirit), Derby, Derbyshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-0928 Public Program, Day 3, Urania Volkshochschulen, Volksbildungshaus, Uraniastraße 1, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-1101 Talk to Sahaja Yogis (Śhrī Guru Nāṇaka Jayanti), Every Sahaja Yogi Has to Become a Guru, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
+</p>
 
 <div class="para-divider"></div>
 
@@ -282,7 +337,14 @@ As soon as the Kuṇḍalinī rises, you start manifesting your grandeur, your g
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1983-0308 Public Program, Day 1, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0310 Public Program, Day 3, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -298,7 +360,38 @@ The ... we call it Ten Incarnations of the Primordial Master. There are many who
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1983-1017 Public Program, Day 1, The Community Church, 40 East and 35th Street, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"In this country until and unless rājakaraṇ is not going to be associated with dharma, political people will come, and other people will come to them and spit on them, but their politics will go on. <font color="red">Until the pillar of dharma is not established -- because our country India's foundation is dharma -- until we don't learn to base politics on dharma, until we don't bring Śhrī Rāmachandra's politics, until we don't bring Socrates' politics, this country is not going to progress.</font><br>
+......<br>
+In the left side is the abode of Śhrī Rām: Śhrī Rām who was a father, who is a benevolent king. <font color="red">He was a king such as explained by Socrates.</font> Who cannot think of anything but benevolence of people: how to benefit people, how to make them all right, how to manifest well-being of people. Whatever He did in the world, He had desired only one thing: how to manifest well-being of people.<br>
+He went barefoot in the forest so that the earth can be vibrated by His Feet. He played the entire drama -- it was a sad drama. His body tolerated everything. He played this entire sad drama to show what is an ideal king, what is an ideal father and what is an ideal son."<br>
+<font size="+0"><b>1984-0316 Public Program (Hindi), Day 4, Heart and Viśhuddhi Chakras, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1984-0830 Public Program, Lausanne, Vaud, Switzerland}\label{1984-0830 Public Program, Lausanne, Vaud, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1984-0917 Public Program, La Sala dei Congressi della Provincia di Milano, Via Filippo Corridoni 16, Milan, Lombardy, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0505 Sahasrāra Pūjā, State of Absolute (Nirānanda Absolute Joy, Absolute Love, Absolute Compassion, Absolute Power), Laxenburg Castle, Vienna, Austria</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -318,14 +411,31 @@ And the word Kuṇḍalinī also is ... has a meaning that it is a coiled-up ene
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1985-0509 Public Program, Day 2, Habit Comes to You from Matter, Münich, Bavaria, Germany</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0510 Public Program, Becoming the Light within, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0515 Public Program, La Sala dei Congressi della Provincia di Milano, Via Filippo Corridoni 16, Milan, Lombardy, Italy</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 "<font color="red">When they talked, say, about the flowers, say, they talked that they are Gods, like Socrates talked about Gods, like Confucius talked about Gods. When they talked, 'We have to please our Gods,' we started doubting. 'What Gods He's talking about?' Whatever They saw we could not see. All right.<br>
-Then they thought, "No use talking about Gods. If you talk about Gods, then it becomes a, sort of a worship of something that is a flower. We talk about flower, then we think, 'We have become God.' And we talk about flower all the time!" "</font><br>
+Then they thought, "No use talking about Gods. If you talk about Gods, then it becomes a, sort of a worship of something that is a flower. We talk about flower, then we think, 'We have become God.' And we talk about flower all the time!"</font>
+......<br>
+......<br>
+......."<br>
 <font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, UK</b></font>
 </p>
 
@@ -333,7 +443,7 @@ Then they thought, "No use talking about Gods. If you talk about Gods, then it b
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1985-1009 Public Program, Nature of Truth, Salle de La Marseillaise, Palais des Fetes, 34 Boulevard Clemenceau, Strasbourg, France</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -343,6 +453,56 @@ Then they thought, "No use talking about Gods. If you talk about Gods, then it b
 That was also important part. But that was forgot[ten]!<br> 
 'Why? Why the code? Why the religion?' Religion is for the ascent, to build you up."<br>
 <font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"You may read the books written by famous personalities like Socrates, Lao Tze, Confucius, who have said, "One should get one's Self-realization." "</font><br>
+<font size="+0"><b>1986-0401 Public Program (Hindi), Day 2, Ghanaśhyām das Birla Sabhaghar, 29 Ashutosh Choudhry Avenue, Near Birla Mandir, Ballygunge, Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Śhrī Rām is, as described by Socrates, a benevolent king, a benevolent king, who believes in benevolence. Welfare of people is the only goal of Śhrī Rām, as described by Socrates."</font><br>
+<font size="+0"><b>1986-0402 Public Program (Hindi), Day 3, Samast Chakras or Sahaja Yog Se Lābh (About All Chakras or Benefits of Sahaja Yoga), Ghanaśhyām das Birla Sabhaghar, 29 Ashutosh Choudhry Avenue, Near Birla Mandir, Ballygunge, Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1986-0522 Public Program, Day 1, Colegio Mayor, Universitario Isabel de España, Madrid, Spain</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1986-0530 Public Program, Day 1, Pyramid, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"The authority with which Moses talked, authority with which Socrates talked, authority with which Lao Tze talked ... All these great Ādi Gurus, from Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism] to Sāī Nāth, They didn't say, 'If you do this way will be good,' or, 'That way would be good.' No! "This is what it is, you better do it!"<br></font>
+This is what it is!"<br>
+<font size="+0"><b>1986-0706 Guru Pūjā, Cosmic Consciousness, Hall, Kongresshaus Toscana, Toscanapark und Ruhe, Johann Orth-Allee 23, Gmunden (75 kms E of Salzburg), Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"When Śhrī Viṣhṇu incarnated as Śhrī Rām, then He came in a very significant role in this world, and as Socrates has described a benevolent king, Śhrī Rām came to represent this benevolent king."</font><br>
+<font size="+0"><b>1986-1013 Public Program (Hindi), Viśhuddhi Chakra, Lions Club Safari Park, Southern Avenue, Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1987-0102 Talk to Sahaja Yogis (English + Marathi), Beauty Must Have Auspiciousness, before the Evening Program, Session 1 (before Dinner), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -366,13 +526,6 @@ Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Hi
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
 <font color="red">"As we had very great people ... uh ... on this Earth, I have given you the names, as we said there are, there have been Ten Gurus, uh ... starting from Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had Confucius, we had Socrates, and later on we had Abraham, Moses and also up to Śhirḍī Sāī Nāth, we had about Ten Great Gurus, now we have so many here sitting down. They are all gurus, and they have to behave like gurus and they have to the ... do the job of great gurus."</font><br>
 <font size="+0"><b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font>
 </p>
@@ -381,7 +534,42 @@ Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Hi
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1987-1102 Public Program, Day 1, Power that Comes with Your Second Birth and Know the Truth, Salle C, Maison de la Mutualité, 24 Rue Saint-Victor, 5th Arrondissement, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1988-0000 Public Program, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1988-0609 Public Program, Day 2, Kongresshaus, 5, Margaretengürtel 138-140, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1989-0524 Śhrī Pallas Athena Pūjā, The Origins and Role of Greece, House of Stamatis Boudouris, Athens, Greece</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -399,6 +587,34 @@ We can say that on the Tree of Life there were one or two flowers in the beginni
 <p>
 <font color="red">""</font><br>
 <font size="+0"><b>1989-0525 Public Program, Day 2, Ballroom, Hotel Grande Bretagne, 1  Vasileos Georgiou A, Syntagma Square Str, Athens, Greece</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1989-0526 Public Program, Country House, Parc Emirgân Korusu, Istanbul, Turkey</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1989-0814 Śhrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1989-1029 Diwālī Pūjā (Diwālī Pāḍavā), Be Honest to Yourself, Auditorium, Gymnasium, Montecatini Terme, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-0107 Pūjā (English + Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>

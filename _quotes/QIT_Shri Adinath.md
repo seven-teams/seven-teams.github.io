@@ -62,7 +62,12 @@ But as we have made mess of everything, we have made mess of Them also. All of u
 "Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again.<br>
 <font color="red">In India we can say the Ādināth, we had one Ādināth, the Guru long time back.</font> Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth.<br>
 We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius.<br>
-All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization."<br>
+All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.<br>
+You must understand: everyone has one's own job.<br>
+See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
+But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>
+So, these Ten Principles, as I told you, They established [dharma].<br>
+They are created in the Void."<br>
 <font size="+0"><b>1980-0728 Public Program, The Principle of Guru (Moderation Is the Way We Really Solve the Problem and The Innocence Is in the Center), Sea is the Guru (The Sea Is to Be Worshiped and So Much to Learn from the Sea) and Your Dharma Is the Way Your Attention Is (Dharma Is Balancing), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 

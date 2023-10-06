@@ -350,6 +350,40 @@ All of Them have said that: "You have to lead a moral life." None of Them have s
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again.</font><br>
+In India we can say the Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had one Ādināth, the Guru long time back. Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth.<br>
+We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius.<br>
+<font color="red">All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.<br>
+You must understand: everyone has one's own job.</font><br>
+See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
+<font color="red">But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>
+So, these Ten Principles, as I told you, They established [dharma].<br>
+They are created in the Void.</font><br>
+As you see here the Void part, this part is made out of the water element. <font color="red">So, whatever miracles They did, had something to do with water, like They could create water anywhere They wanted to. They would not cure people. All of Them have created water in the desert or in the places where ... like in ... Nāṇaka has created a Pan̄jā Sāhab they call it, or everywhere They have been able to create water. Whatever They touched, They could create water out of it.</font><br>
+Water is the life, life force which sustains us. Without water we cannot live! The is the sustainance [sustenance].<br>
+<font color="red">But, They actually are symbolized in an ocean, in the ocean, because They give us the salt, the salt of life, which gives us the sustainance [sustenance].</font> If you see the salt, if we do not have salt in our body, we'll have no sustainance [sustenance]."<br>
+<font size="+0"><b>1980-0728 Public Program, The Principle of Guru (Moderation Is the Way We Really Solve the Problem and The Innocence Is in the Center), Sea is the Guru (The Sea Is to Be Worshiped and So Much to Learn from the Sea) and Your Dharma Is the Way Your Attention Is (Dharma Is Balancing), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Everything that has happened before has to be proved today. <font color="red">Everything that is said about sustainance [sustenance] and all that is to be proved today: Moses has to be proved, Socrates has to be proved, Abraham has to be proved, everyone has to be proved.</font><br>
+<font color="red">But this is not necessary. Why should anybody prove Them‽<br>
+Only in Realization you yourself you have to accept, [laughing:] because without taking Their names the Kuṇḍalinī won't rise. They are true to Kuṇḍalinī: She proves. She proves it to you, that They all were absolutely true people and They wanted you to receive Their Truth.</font>"<br>
+<font size="+0"><b>1980-1020 Public Program, The Way of Kuṇḍalinī, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
@@ -413,6 +447,25 @@ So this knowledge was known to people but was not put down on the paper, was not
 And the trick of the trade one has to learn, one has to educate. There's nothing wrong in getting educated.<br>
 So we know that we have to educate ourself, first point, and secondly, we have to know, that for that, we have to be humble. The humility should be such: that, 'I have to learn. I have to learn. I have to educate. Nothing ... nothing wrong in it.'<br>
 <font size="+0"><b>1982-0321 Birthday Pūjā, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Surrounding this stomach is the area where one has to cross.<br>
+<font color="red">And this area is actually the Area of the Masters. All the Primordial Masters were born in this area, like Moses, Socrates.</font><br>
+<font color="red">There are main basic Ten Primordial Beings, who came on this Earth, who came to give us an idea as to our seeking, what we have to do. Basically, They came here to teach us how to balance ourselves: how to balance so we can ascend.</font><br>
+<font color="red">Now all these Great Prophets or Primordial Beings, we should say They were the Ones who were the Masters, They came to inform us that if you cross too much onto the left side or too much on the right side, then you will be falling in your sustainance [sustenance], in your quality as a human being.</font><br>
+As a human being, you have to have a sustainance [sustenance], and this is the center that gradually unfolds the sustainance [sustenance] from animal to higher animals and to human stage, where a person starts realizing that these sustenances exist within us. That's how all our laws have come. The Ten Commandments of the Bible are the Ten Sustenances that are within us.<br>
+<font color="red">These are the Ten Gurus who came on this Earth to save human beings from getting out of the Middle Path, going more to the left and more to the right.</font>"<br>
+<font size="+0"><b>1982-0710 Public Program, Day 1, We Have to Know Something More (Modern Times Are the Times of Confusion, Experience of Your Awareness, and You Become the Spirit), Derby, Derbyshire, UK</b></font>
 </p>
 
 <div class="para-divider"></div>

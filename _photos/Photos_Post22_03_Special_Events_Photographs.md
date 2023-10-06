@@ -1,0 +1,24 @@
+---
+title: 'Photos Post 22: Special Events (after 1975), Part 03'
+date: 2023-10-06
+permalink: /photos/2023/1006-a
+tags:
+  - blue @ Special Events Photographs
+  - crimson @ Photographs of Shri Mataji
+  - green @ Updates
+---
+
+<p>
+<br>
+Dear Sahaja Yogis and Sahaja Yoginīs,<br>
+<br>
+We are pleased to let you know that 1 Photo from the special event <font color="Crimson"><b>1995-0806 Public Program, Prague, Czech Republic</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
+The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/David-Bur%C5%A1a-Collection/1995/"> Collection 1995</a>.<br>
+The event has as well 1 photo Moments of Joy which can be seen in the smallest gallery at the link <a href="https://eternalmoments.smugmug.com/Collections/David-Bur%C5%A1a-Collection/Moments-of-Joy"> Collection Moments of Joy</a>.<br> 
+Please kindly share the link with all our brothers and sisters.<br>
+
+<br>
+Jay Śhrī Mātājī!<br>
+<br>
+The Photo Subteam
+</p>
