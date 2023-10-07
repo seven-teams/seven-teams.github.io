@@ -4,6 +4,8 @@ date: 2019-09-12
 permalink: /festivity/2019/0912
 tags:
   - maroon @ Anant Chaturdashi
+  - orange @ Shri Ganesha Puja
+  - deeppink @ Shri Ganesha
 ---
 
 ![PICTURE 1](/images/image1.png)
@@ -28,9 +30,9 @@ Victory to You, O Lord God, Victory to God.<br>
 Sahaja Yogi: Today it’s said it’s Anant Chaturdaśhī.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b> Ah?</font><br>
 Sahaja Yogi: Anant Chaturdaśhī.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b> Today? Ah-ah! That’s great! Yes must be. I was wondering Anant Chaturdaśhī. Anant Chaturdaśhī is the day when we ‘visarjan’ – dissolve Śhrī Gaṇeśha in the water.
+<font color="DarkRed"><b>Śhrī Mātājī:</b> Today? Ah-ah! That’s great! Yes must be. I was wondering Anant Chaturdaśhī. Anant Chaturdaśhī is the day when we visarjan – dissolve Śhrī Gaṇeśha in the water.<br>
 Gaṇeśhjī ko chodte hai na pani mein – it’s that day we put the Gaṇeśha in to the water.<br>
-Because He’s established for ten days and after ten days, He’s born on the fourth, after ten days He’s dissolved in the water so that everywhere His Power is spread through the water.
+Because He’s established for ten days and after ten days, He’s born on the fourth, after ten days He’s dissolved in the water so that everywhere His Power is spread through the water.<br>
 That’s why no wonder there was a Pūjā.<br>
 Gaṇeśha settled down into the water. That is Ananta Chaturdaśhī. Ananta is the, is Śhrī Gaṇeśha.<br>
 Ananta means which cannot be destroyed. Innocence cannot be destroyed. And that is why is the Gaṇeśh Chaturdaśhī means the day when Gaṇeśha is dissolved in the water, in the ocean or He is created, worshiped for ten days and again given back. So it’s a very great day today, I should say, like the Resurrection of Christ that you are, you had Christ here, He lived with you, and then went back to His Father. Father is the ocean and that’s what in India they do, establish Him on the fourth day and on the tenth day they put Him back to the ocean."</font><br>

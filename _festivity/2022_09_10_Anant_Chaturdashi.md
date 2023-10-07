@@ -4,6 +4,8 @@ date: 2022-09-10
 permalink: /festivity/2022/09/10
 tags:
   - maroon @ Anant Chaturdashi
+  - orange @ Shri Ganesha Puja
+  - deeppink @ Shri Ganesha
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
