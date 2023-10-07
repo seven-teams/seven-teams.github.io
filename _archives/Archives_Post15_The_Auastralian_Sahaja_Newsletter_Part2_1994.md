@@ -1,5 +1,5 @@
 ---
-title: 'Archive Post 14: The Australian Sahaja Newsletter, Part 2 (1992)'
+title: 'Archive Post 15: The Australian Sahaja Newsletter, Part 2 (1994)'
 date: 2023-10-07
 permalink: /archives/2023/1007
 tags:
