@@ -40,7 +40,11 @@ Ananta means which cannot be destroyed. Innocence cannot be destroyed. And that 
 <div style="text-align: center"><img src="/images/image1230.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
+<font color="Red"><b>Gananayakaya Ganadaivataya Ganadhyakshaya Dhimahi<br>
+Guna Shariraya Guna Manditaya Guneshanaya Dhimahi<br>
+Gunatitaya Gunadhishaya Guna Pravishthaya Dhimahi<br>
+Ekadantaya Vakratundaya Gauri Tanayaya Dhimahi<br>
+Gajeshanaya Balachandraya Shri Ganeshaya Dhimahi</b></font><br>
 <font size="+0"><b>The Leader of the [Bhūta]-Gana, the Lord of the people, the representative of the people, I meditate on You.<br>
 The embodiment of Guṇa (the three qualities of Sattva, Rāja, and Tamas), the One adorned with Guṇa, the Lord of Guṇas, I meditate on You.<br>
 The one beyond Guṇa, the controller of Guṇa, the one in whom Guṇa pervades, I meditate on You.<br>
