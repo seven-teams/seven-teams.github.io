@@ -12,7 +12,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 2 jpgs of <font color="Crimson"><b>1991-0200 Letter (Hindi)</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 medium resolutions from the Named Collections.<br>
-The direct link to the image in the smallest gallery of handwritings: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/Handwritings"> Collection Handwritings</a>.<br>
+The direct link to the 2 jpgs in the smallest gallery of handwritings: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/Handwritings"> Collection Handwritings</a>.<br>
 [Note: title changed to 1990-0000 Letter (Hindi), London, UK on 2023-0927.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
