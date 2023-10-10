@@ -15,7 +15,8 @@ tags:
 <br>
 <font color="DarkGreen"><b>Translation by Pandit S. Subrahmanya Sastri and T. R. Srinivasa Ayyangar, published by The Theosophical Publishing House, Madras India, sixth printing 1985</b></font><br>
 <br>
-<font color="blue"><b>Translation by Poornima Damodaran</b></font><br>
+<font color="blue"><b>Translation by Poornima Damodaran</b></font><br> 
+[Download Saundarya Lahari by Poornima Damodaran here](http://seven-teams.github.io/files/Saundarya_Lahari_by_Poornima_Damodaran.pdf)<br>
 <br>
 <font color="purple"><b>Transliterations</b> <a href="https://vignanam.org/english/soundarya-lahari.html">link 1</a> and <a href="https://www.symb-ol.org/sacred-books/">link 2</a></font><br>
 </p>
@@ -97,8 +98,8 @@ Nimagnānāṁ daṁṣhṭrā mura ripu-varāhasya bhavati</font>
 
 <p>
 <b>3 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">...... (Thou art) the steam, ever flowing with the honey of the cluster-of-flowers of consciousness, for the dull-witted; (Thou art) the Chintā-maṇi-duplicate (in bestowing their heart's desire) on the destitute; ......</font><br>
+<font color="blue">...... It forms the cluster of flower buds, from which gushes forth the nectar of intelligence, enlivening the dull-witted. It is a veritable necklace of wish-yielding gems for the poverty-stricken. ......</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -113,8 +114,8 @@ Bhayāt trātuṁ dātuṁ phalam api cha vāñchhā samadhikaṁ<br>
 
 <p>
 <b>4 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">...... For, Thy Feet, by themselves, are proficient in affording immunity from fear and bestowing boons transcending (one's) desire.</font><br>
+<font color="blue">...... For, O Refuge of All, Thy very feet (without any demonstration) are themselves inherently capable of sheltering devotees from the great fear of Samsara and of giving them much more than what they pray for!</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -125,12 +126,6 @@ Bhayāt trātuṁ dātuṁ phalam api cha vāñchhā samadhikaṁ<br>
 Purā nārī bhūtvā pura-ripum api kṣhobham anayat<br>
 Smaro-'pi tvāṁ natvā rati nayana lehyena vapuṣhā<br>
 Munīnām apy'antaḥ prabhavati hi mohāya mahatām</font>
-</p>
-
-<p>
-<b>5 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -145,8 +140,8 @@ Apāṅgāt te labdhvā jagad idam anaṅgo vijayate</font>
 
 <p>
 <b>6 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">...... having obtained some grace from Thy side-glance, [Anaṅga, the formless Manmatha] conquers all this world single-handed.</font><br>
+<font color="blue"> ...... he is Anaṅga, the bodiless one. ...... blessed by Thy gracious side glance he, by himself alone, is victorious over the whole world.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -161,8 +156,7 @@ Purastād āsthāṁ naḥ pura mathitur āho-puruṣhikā</font>
 
 <p>
 <b>7 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue"> ...... the Mother with Her slender waist girdled with jingling mini-bells, ......, with Her face resembling the autumnal moon, and with Her hand sporting a bow, arrows, noose and a goad!</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -177,8 +171,8 @@ bhajanti tvāṁ dhanyāḥ katichana chid-ānanda-laharīm</font>
 
 <p>
 <b>8 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">Blessed are the few that serve Thee, the flood of Consciousness and Bliss, ......</font><br>
+<font color="blue">Fortunate indeed are the few who adore Thee, the Inundation of Bliss-Consciousness, ......</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -225,8 +219,8 @@ Tri-rekhābhiḥ sārdhaṁ tava śharaṇa koṇāḥ pariṇatāḥ</font>
 
 <p>
 <b>11 Translation</b><br>
-<font color="DarkGreen">The angles contained in what constitutes Thy mansion (the <i>Śhrī Chakra</i>), which is built of the nine Mūlaprakṛitis (the basic triangles), namely the four Śhrī-kaṇṭhas (with apex downward) and the five Śhiva-yuvatis (with apex upward), all lying apart from Śhaṃbhu (the <i>Bindu</i>), along with a lotus of eight petals, one of sixteen petals, the three circles and the three lines, turn out to be fourty-three (in number).</font><br>
-<font color="blue">The four Śhrī-kaṇṭhas (Śhiva Chakras) and the five Śhiva-yuvatis (Śhakti Chakras) are the nine Mūlaprakṛitis or basic manifestations, and these are apart from Śhambhu (the Bindu or small circle in the centre). Then there are two lotuses, one of eight petals and another of sixteen, besides three surrounding circles and three lines.  This forms Thy mansion with forty-four Koṇas (triangles).</font><br>
+<font color="DarkGreen">The angles contained in what constitutes Thy mansion (the <i>Śhrī Chakra</i>), which is built of the nine Mūlaprakṛitis (the basic triangles), namely the four Śhrī-kaṇṭhas (with apex downward) and the five Śhiva-yuvatis (with apex upward), all lying apart from Śhaṃbhu (the <i>Bindu</i>), along with a lotus of eight petals, one of sixteen petals, the three circles and the three lines, turn out to be forty-three (in number).</font><br>
+<font color="blue">The four Śhrī-kaṇṭhas (Śhiva Chakras) and the five Śhiva-yuvatis (Śhakti Chakras) are the nine Mūla-prakṛitis or basic manifestations, and these are apart from Śhambhu (the Bindu or small circle in the centre). Then there are two lotuses, one of eight petals and another of sixteen, besides three surrounding circles and three lines.  This forms Thy mansion with forty-four Koṇas (triangles).</font><br>
 </p>
 
 <div class="para-divider"></div>
