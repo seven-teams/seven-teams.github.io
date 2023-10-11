@@ -15,7 +15,7 @@ tags:
 <br>
 <font color="DarkGreen"><b>Translation by Pandit S. Subrahmanya Sastri and T. R. Srinivasa Ayyangar, published by The Theosophical Publishing House, Madras India, sixth printing 1985</b></font><br>
 <br>
-<font color="blue"><b>Translation by Poornima Damodaran</b></font><br> 
+<font color="blue"><b>Translation by Poornima Damodaran in pdf format</b></font><br> 
 
 [Download pdf here](http://seven-teams.github.io/files/Saundarya_Lahari_by_Poornima_Damodaran.pdf)
 
