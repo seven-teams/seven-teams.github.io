@@ -9,7 +9,7 @@ tags:
   - peru @ Advaita
 ---
 
-<p>
+
 <br>
 <font color="red"><b>Śhrī Mātājī's words on Saundaryalaharī</b></font><br>
 <br>
@@ -21,7 +21,6 @@ tags:
 
 <br>
 <font color="purple"><b>Transliterations</b> <a href="https://vignanam.org/english/soundarya-lahari.html">link 1</a> and <a href="https://www.symb-ol.org/sacred-books/">link 2</a></font><br>
-</p>
 
 <div class="para-divider"></div>
 
