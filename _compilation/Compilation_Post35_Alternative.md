@@ -252,15 +252,59 @@ And the enjoyment lies in that. Not in judging or finding alternatives. You try!
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"So, you have to be under complete obedience of the Divine. Which is: one cannot understand sometimes that how to be like that, because we have not been brought up that way. We don't know how to do it and it's very difficult.<br>
+So many people say, "Mother, it is very difficult to surrender." Is not that they don't want to surrender. <font color="DarkRed">But they say, think that, 'We are still, you see, popping up somewhere. Mother says something but we start questioning Her. Mother says this, then mm we think that we should, mm-mm mm we can suggest to Mother there's another alternative and this and that.'<br>
+But there is no alternative. You see, there's no alternative for a person who is a sensible person.</font><br>
+If he knows that Divine is only thinking of your hita, of your well-being, and whatever It sees and does, you see, knows much more than you do, much, much more. And in so many dimensions that, if somebody says so that, 'Do like this,' best is to do like [that].<br>
+Sometimes it shocks people.<br>
+People have ideas about sympathies, ideas about being, you see, kind to others and to be compa-ssionate to others. But what is a human compassion? He doesn't do anything, he just talks!<br>
+While the God's compassion works! It works! It works on people. It doesn't talk that, 'Oh, I am very compassionate! I am full of compassion!', nothing. It just works, it manifests itself.<br>
+So, one should understand: to be a complete egoless personality, one should try to obey the Self within yourself.<br>
+Now how do you obey your Self within yourself? It is through vibratory awareness. Try to obey through your vibratory awareness. Any question you want to ask, anything you want to do, you must obey it through your vibratory awareness.<br>
+Now some people are not so sensitive, that's true. The reason why they are not sensitive is because they think about it.<br>
+Now you think with your brain, all right? If your brain can be enlightened, then you will think as the Divine thinks and your sensitivity will improve, because sensitivity comes from the central nervous system. Now, in the central nervous system, if there is any blockage it is actually in the brain, because all the centers are represented in the brain.<br>
+So, the best thing is to say that, 'Mother, come in my brain. Please reside in my brain. Please make Your room in this brain. You be the controller of this brain. Let this brain be guided by Your Divine Wisdom.' And you don't think for yourself.<br>
+And this word 'I think' should be dropped completely from Sahaja Yogi[s]. 'I think' means, goes on, you see, funny ways. It can be anything, you see.<br>
+Like once we went out and we had one of My very stupid uh-uh-uh relations staying with us, a girl. And the, as I was going out, we had no servants that day, so I, I was cooking, but that day when we were going out so I tell her, "I'm going in the morning, can you make a little bit of khichaṛī for us? When we come back we'll have that."<br>
+That's the only cooking she did in her lifetime, maybe she did not do [that] also.<br>
+So [laughing:] when we came back, uh-uh-uh-uh she told Me that she has not cooked. So I said, "Why? Why didn't you cook? Because we were supposed to take our food here." She said, "I, I thought that maybe you may not come, maybe you're not hungry, maybe you may not like to eat, maybe I may not do well." <font color="DarkRed">You see, it's all these four alternatives not to do the cooking.</font> But I said, "Why didn't you think, that we may be hungry [laughter], that we will eat? Why didn't you think this way?"<br>
+But, "I thought." You see, this is an explanation for uh not having one in the brain, I should say, that there is no Divine uh Guidance in the brain. Then the guidance comes from your ego or from your superego, which said, 'I, I thought that this might happen.' But to how, why, why did you think like that? I ... why not the other way round? Why didn't you think the other way round?<br>
+But that is how it is.<br>
+<font color="DarkRed">And when these things happen, we really are so much used to this kind of justification and alternative-s to be offered, that this becomes again the habit of the brain, and the brain gets separated from the Divine.</font><br>
+So, you tell your brain, 'But, but why? Why did you think like that? Now will you stop thinking about these things in, on these lines? Let us think of the positive thinking.'<br>
+Now positive thinking is nothing but is a thinking, as according to Sahaja Yoga, is not aggressive thinking, but it means that a thinking which helps to manifest the Divine. That is what is positive thinking. And the ... and the ...<br>
+[Aside:] It's all right, you see.<br>
+And, and the result of that is that: your nerves start opening out, and you start feeling the-eh ... feeling the manifestations of Divine Power in your fingers, in your being.<br>
+And this is the basic thing that doesn't happen in the West or in the Western culture, because we have a very big idea of always giving an explanation for anything."<br>
+......<br>
+So, one should not be extremely uh on the thought waves and on the depending on their thinking. Because, you see, thinking has an alternative. Thinking always has an alternative.<br>
+<font color="DarkRed">You can say, 'I was thinking this,' or, 'I was thinking that.' But whom are you blaming? It was you who were thinking so you are responsible for that. So, if you take the responsibility for your thinking, then you may not do such a thing as to say that, 'I thought, if I had done this thing it would have been.' Because you are responsible for your thinking!</font><br>
+Supposing an engine driver decides that, 'I thought I better go by [laughing:] the other route,' and had a big accident [some laughter]. People will ask him, 'Why did you think like that? What was the thing that made you think like that?'<br>
+But in everything day-to-day life I find human beings are always saying, 'I think,' 'I think,' 'I think,' all the time giving alternatives. And that's why they go up and down, up and down, up and down like that.<br>
+<font color="DarkRed">But for fire, or for water, or for Mother Earth there is no alternative, no more alternative. If I just touch the Mother Earth and I say, 'Suck in their problems, please!', She sucks them. If I tell the fire, 'Now, come along, you have been ignited.' I don't even tell! I don't even tell, they immediately suck in. Their Kuṇḍalinī rises you can say. You put a fire in front of My Photograph, it's vibrated. You put a light, it's vibrated. It has no alternatives! It doesn't think, it has no alternatives, is just enlightened, it has its own quality of enlightenment in the purest sense.<br>
+Because thinking makes it impure. Your enlighten-ment becomes impure by your thinking, by giving explanation, by giving all these nonsensical mh-mh-mh alternatives.</font><br>
+<font color="DarkRed">So one should know: for Divine there is no alternative. In Sanskrit the word is paryāy: there is no paryāy for Divine, Divine Instrument. There's nothing like that.</font><br>
+Supposing, you don't want to accept it, you'll have problems. And then you'll say: that, 'Mother, how did we have problems?'<br>
+As you saw in Delhi [end of January, beginning of February]: I told these people, many a times, that, "Please do not have any program for eight days, and let all these people stay with s-some friends."<br>
+They wouldn't listen to Me. They arranged their program in that flat business. And they were thinking they will have a big uh pandal in which they'll give you ... give them the food to eat and all that.<br>
+But you know what happened? It rained, and rained, and rained. Now rain knew what I wanted!<br>
+[As laughter starts:] And -- because it had to rain for the rabi core ... uh crop! You see, you can, I ca[n], you see, you have to look after the whole universe!<br>
+And that's why I said that, "For these eight days don't allow them to stay in this because it will be difficult for them to move out, better keep them with some other people so they can carry them along and do that."<br>
+But they did not listen.<br>
+Ultimately, it turned out to be a fiasco: they had to arrange for the stay of all other people into some houses.<br>
+So this is this situation there.<br>
+Now, they might say that, 'Mother, You better stop the rain.' I will not. Because it isn't, they must know that the question of rabi crop is also equally important for Me, and they have to have their share. After all, they are human beings and they are to be helped!<br>
+But why didn't you listen to Me?<br>
+And then he came to Me and he said that, "Mother, will You please stop the rain tomorrow?" I said, "All right. Tomorrow I will."<br>
+He went back and he told the other gentleman, he said: that, "Let's put up the śhāmiyānā, let's put up the pandal, and the uh-uh-uh ... let the ... uh, let us cook there." He said, "But no, it will rain." He said, "No! It will not because I have take ... told God Himself." Uh she [he] said, "Where did you meet God?" He said, "I did meet Her. And now is done."<br>
+The next [day] it was, he got up at five o'clock, the other fellow, to see the thing. And he saw the whole sky so clear, he said, "Look at that! You have told God, and God has listened to you." [Laughs.]<br>
+So, this is it.<br>
+Then when you are that much one with God, I mean, if you tell anything it will work out, anything. Anything you ask for it will work out.<br>
+But we are not! We are all the ... always finding alternatives, you see. And these alternatives is the game the, all these people have played with you, all the gi... time giving you alternatives.<br>
+You see, see now, in the market if you go, just now I asked him about how, "What car you have here? So he told Me, "There are so many combinations, this, that, if with cylinder this, that, so you go mad. You say, 'All right, bābā, give me something, whatever it is.' "<br>
+And then, you see, they ... this is all playing with your brains, all the time giving you alternatives: 'Whether you want this or that.'<br>
+And you feel that you are really a great personality that you can decide about: 'I'll have this color and that thing!' Very seriously people do it!
 <font size="+0"><b>1983-0304 Pūjā, Mother You Be in Our Brain, Rented House, Adelaide, SA, Australia</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -320,7 +364,13 @@ In the same way what happens that everything that you do becomes nothing but you
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"<font color="DarkRed">So this is one of the greatest problems, of today: is that whatever you say, eem ... everybody must answer, everybody must argue, everybody must say, 'No, this could be that way, that could be, there are alternatives, this, that,' everything goes on. There is no need, at all, [laughing:] to do all that.<br>
+And when you start doing that, then all the Gods and Goddesses get angry one by one, and that's how you start losing your light within yourself.<br>
+So this is the most displeasing thing for Gods and Goddesses, that you don't recognize Me. That you don't recognize Me fully. That you still argue with Me. Still you start asking questions, still you start giving Me alternatives. Absolutely, this is just not necessary for you to go on arguing, to go on discussing it.<br></font>
+It is just that you assimilate whatever I am saying, and that assimilation itself will open out those new dimensions within you, which God wants to be opened out.<br>
+So better surrender, in that way, your ego. Ego is the one that makes you say something, argue something, discuss something.<br>
+And this is what is the biggest problem, what that I have seen when the first day of the waxing [waning] star[ts].<br>
+So today is the first day [laugghing:] when we should say that oh ... phu ... that our ego should not start that drooping down."<br>
 <font size="+0"><b>1984-0218 Śhrī Chandramā Pūjā (Marathi + English + Marathi), Vaitarna, Maharashtra, India</b></font>
 </p>
 
@@ -380,7 +430,7 @@ But still to be aware at that time, to have presence of mind at that very moment
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"<font color="DarkRed">Now there's a very big trend that according to the newspapers, that people are taking to alternate religions now: they are fed up with Christianity.</font> They are going to Buddhism and other things. So one has to talk to them: that, 'Buddhism, what Buddhists have got? Nothing!' They are so much indebted."<br>
 <font size="+0"><b>1992-0222 Talk to Sahaja Yogis, On Departure, Airport, Brisbane, Queensland, Australia</b></font>
 </p>
 
