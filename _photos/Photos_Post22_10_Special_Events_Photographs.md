@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 Photos from the special event <font color="Crimson"><b>994-0914 Public Talk, Saint Petersburg, Russia</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 low resolution from the Named Collections.<br>
+We are pleased to let you know that 2 Photos from the special event <font color="Crimson"><b>1994-0914 Public Talk, Saint Petersburg, Russia</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 low resolution from the Named Collections.<br>
 The direct link to the 25 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Russia/1994"> Russia 1994</a>.<br> 
 Please kindly share the link with all our brothers and sisters.<br>
 

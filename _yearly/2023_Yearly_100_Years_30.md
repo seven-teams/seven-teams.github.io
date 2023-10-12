@@ -23,7 +23,7 @@ I, it's better that you discover Me than I tell you, because Christ was crucifie
 I have told them, I had never said this on .. from a ...<br>
 <b>Lady:</b> Platform.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> ... platform.<br>
-And I told ... they, they have been telling Me: ``Mother, You must say that once." I said, ``In America I'll declare [it]."<br>
+And I told ... they, they have been telling Me: "Mother, You must say that once." I said, "In America I'll declare [it]."<br>
 So, ah today I declare that I am the Holy Ghost, I am the Holy Spirit, who has incarnated on this Earth for your Realization.<br>
 May God bless you."<br>
 <font color="blue"><b>1981-0930 Public Program, Day 7 (2nd Day and 3rd Day of Navarātri), I Am the Holy Ghost, Christ Church (United Methodist), 524 Park Avenue, Manhattan, New York City, NY, U.S.A.</b></font><br>
