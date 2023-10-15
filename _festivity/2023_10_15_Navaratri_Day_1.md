@@ -10,7 +10,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"...... Navarātri is very good because these nine nights represent the main Nine Incarnations. Where the Goddess took the form of Śhakti and killed the negative people.<br>
+<font color="DarkRed">"...... <b>Navarātri is very good because these nine nights represent the main Nine Incarnations</b>. Where the Goddess took the form of Śhakti and killed the negative people.<br>
 But those were easier days because negativity was understood by people and nobody sympathized.<br>
 So this is what one has to understand that don't sympathize with negativity. You'll spoil them all. And always you'll find such sympathies bring forth your character also that you are also slightly negative.<br>
 Because to fight negativity in modern times is a very difficult task. You cannot kill anyone: if you kill somebody, then may be that such a person is a brother or a sister or something of somebody. Or such a person would be himself or herself a seeker.<br>
@@ -34,25 +34,25 @@ With complete reverence and full attention, we make obeisance to Her.</font><br>
 <br>
 <font color="DarkGreen"><font size="+0"><b>Navarātri Song</b></font><br>
 (9 descriptions of the 9 Avatārs of the Goddess and 10th is when She sits on the lion)</font><br>
-<a href="">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="DarkGreen">"Today is the first day of Navarātri. Today your attention should be on Śhrī Gaṇeśha. [{\bf Variant:} Today on the first day of Navarātri your attention should be on Śhrī Gaṇeśha.] His devotion is infinite. He has never worshiped anybody else except Mother. Hence He is so great. All other Gods appear very strong. Everyone has some specialty. What is Mother's specialty? Her ego (aham) is nowhere felt by others. Hence Śhrī Gaṇeśha who has surrendered to such Mother, is so wise and venerable, Mother has nothing with Her. Her very name begins with Ni, e.g., Niṣhakāñchan[ā] having no wealth, Nirlepā unaffected; Nirvichārā thoughtless; Niṣhprayojanā having no motives, Nigarvitā egoless, Niricchā desireless, etc. Therefore, surrendering to such Mother, who has nothing with Her, needs some kind of subtle thought, in that, Mother has nothing with Her and therefore, nothing can be asked from Her. It shows how Śhrī Gaṇeśha by himself, is fully satisfied. Where does this contentment of Śhrī Gaṇeśha come from? It is own power."</font><br>
+<font color="DarkGreen">"<b>Today is the first day of Navarātri. Today your attention should be on Śhrī Gaṇeśha.</b> His devotion is infinite. He has never worshiped anybody else except Mother. Hence He is so great. All other Gods appear very strong. Everyone has some specialty. What is Mother's specialty? Her ego (aham) is nowhere felt by others. Hence Śhrī Gaṇeśha who has surrendered to such Mother, is so wise and venerable, Mother has nothing with Her. Her very name begins with Ni, e.g., Niṣhakāñchan[ā] having no wealth, Nirlepā unaffected; Nirvichārā thoughtless; Niṣhprayojanā having no motives, Nigarvitā egoless, Niricchā desireless, etc. Therefore, surrendering to such Mother, who has nothing with Her, needs some kind of subtle thought, in that, Mother has nothing with Her and therefore, nothing can be asked from Her. It shows how Śhrī Gaṇeśha by himself, is fully satisfied. Where does this contentment of Śhrī Gaṇeśha come from? It is own power."</font><br>
 <font size="+0"><b>1978-1002 Letter to All Sahaja Yogis (Marathi) (1st Day of Navarātri), London, UK from Nirmala Yoga, Issue 11 (September-October 1982), Pages 25 and 26</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1233.png" /></div>
 
 <p style="text-align:center;">
-<font size="+0"><b>"Śhrī Gaṇeśha, I am going to be worthy of Your attention.<br>
+<font color="DarkRed"><b>"Śhrī Gaṇeśha, I am going to be worthy of Your attention.<br>
 Please make me innocent, so that I am in Your attention.<br>
 Śhrī Mother, You who are Śhrī Gaṇeśha please give me wisdom and discrimination."</b></font><br>
-<font color="DarkRed"><b>1900-0000 Prayer to Śhrī Gaṇeśha, Āśhram, Rome, Italy from the 2012 edition of Sahaja Yoga Mantra Book, Page 29</b></font>
+<font size="+0"><b>1900-0000 Prayer to Śhrī Gaṇeśha, Āśhram, Rome, Italy from the 2012 edition of Sahaja Yoga Mantra Book, Page 29</b></font>
 </p>
 
 <p>
-<font color="DarkRed">In the first and the second phase of evolution matter was created. At this point, Śhrī Ādi Śhakti separated from Śhrī Sadāśhiva and She created Lord Gaṇeśha to bless Her creation with innocence and auspiciousness. Hence, the first prayer to the Goddess is addressed to Lord Gaṇeśha in the first night of the nine phases of the moon in the period of worship called Navarātri or nine nights of worship. Lord Gaṇeśha's Power removes all obstacles and also purifies us for undertaking the prayers to the Goddess. The Blessings of the moon which is also on the left side, also arise from the same source. This is the stage of Mūlādhāra chakra in us.</font><br>
+<font color="DarkRed">In the first and the second phase of evolution matter was created. At this point, Śhrī Ādi Śhakti separated from Śhrī Sadāśhiva and She created Lord Gaṇeśha to bless Her creation with innocence and auspiciousness. Hence, <b>the first prayer to the Goddess is addressed to Lord Gaṇeśha in the first night of the nine phases of the moon in the period of worship called Navarātri or nine nights of worship. Lord Gaṇeśha's Power removes all obstacles and also purifies us for undertaking the prayers to the Goddess</b>. The Blessings of the moon which is also on the left side, also arise from the same source. This is the stage of Mūlādhāra chakra in us.</font><br>
 <font size="+0"><b>(Excerpt from the book '9 Nights of worship to the Goddess'</b></font>
 </p>
 
@@ -71,7 +71,7 @@ Living in the Vindhya mountains, Charming Lord Viṣhṇu, triumphant,<br>
 Abode of all Divine qualities, Whose home overflows with plenty.<br>
 <b>Jaya, jaya, he Mahishāsura Mardini, Ramya kapardinī Shaila-sute.</b><br>
 Victory to the Killer of Mahiṣhāsura, O Beautiful matted-haired Daughter of the Mountain.<br>
-(Śhrī Ādi Śhaṅkarāchārya's Praise of the Divine Mother)</font><br>
+<b>(Śhrī Ādi Śhaṅkarāchārya's Praise of the Divine Mother)</b></font><br>
 <a href="https://youtu.be/wx07p-jo-nA?list=PL391B5651D1805358">video</a>
 </p>
 
@@ -142,7 +142,7 @@ With the closing and opening of Thine Eyes,<br>
 Thine Eyes are bereft of winking,<br>
 With a view to saving from dissolution this entire universe,<br>
 Which has its origin in the opening of Thine Eyes.</b></font><br>
-<font size="+0">(Saundaryalaharī by Śhrī Ādi Śhaṅkarāchārya)</font><br>
+<font color="Purple"><font size="+0">(Saundaryalaharī by Śhrī Ādi Śhaṅkarāchārya)</font></font><br>
 <br>  
 <font color="DarkRed">"<b>But Pūjā is also an external offering. Even your heart has said so. But you should understand how you get the reward or blessings of the Pūjā and its prasād.</b><br>
 A Pūjā or a prayer grows from your heart. Mantras are the words of your Kuṇḍalinī. But if Pūjā is not performed from heart or if Kuṇḍalinī is not associated with recitation of Mantras then that Pūjā becomes a ritual.<br>
