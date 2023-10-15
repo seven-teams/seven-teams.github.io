@@ -1622,7 +1622,7 @@ Mahā-māyā viśhvaṁ bhramayasi Parabrahma-mahiṣhi</font>
 
 <p>
 <b>98 Translation</b><br>
-<font color="DarkGreen">O Queen of the Parabrahman! The knowers of the Āgamas call only Thee as the goddess of letters who is the wife of Druhiṇa; they call only Thee as Padmā who is the wife of Hari; they call only Thee the partner of Hara, the daughter of the Mountain; while Thou perplexest the world, as the transcendent fourth entity unattainable, and with Thy boundless splendour, as the Great Illusory Being and the fountain of all chastity.</font><br>
+<font color="DarkGreen">O Queen of the Parabrahman! The knowers of the Āgamas call only Thee as the goddess of letters who is the wife of Druhiṇa; they call only Thee as Padmā who is the wife of Hari; they call only Thee the partner of Hara, the daughter of the Mountain; while Thou perplexest the world, as the transcendent fourth entity unattainable, and with Thy boundless splendor, as the Great Illusory Being and the fountain of all chastity.</font><br>
 <font color="blue">O Consort of Parabhraman! The scholars who know the real meaning of the Āgamas (Scriptures) describe Thee as Saraswatī, the Goddess of Learning and the Consort of Brahmā.  Besides, they speak of Thee as the lotus-born Lakṣhmī, the Consort of Viṣhṇu, as also as the Daughter of the Mountain, Pārvatī, and the Consort of Hara, Śhiva. But Thou art however the Fourth (the unique Power that is the source of the three Deities mentioned) of inconceivable and limitless majesties – the indeterminable Mahāmāyā who revolves the wheel of this world.</font><br>
 </p>
 
