@@ -129,7 +129,7 @@ Mahālakṣhmī Mahāsaraswatī Mahākālī Triguṇātmika Ādi Kuṇḍalinī 
 </p>
 
 <p>
-<font color="green"><b>Jay Ganapati Vandan Gan nayak</b></font><br>
+<font color="green"><b>Jay Gaṇapati Vandan Gan nayak</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
