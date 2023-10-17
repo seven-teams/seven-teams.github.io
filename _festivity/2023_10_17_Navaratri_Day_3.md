@@ -36,7 +36,7 @@ In the same way, Sahaja Yogis who are bestowed with this Power of Love have to h
 
 <div style="text-align: center"><img src="/images/image1242.png" /></div>
 
-<p style="text-align:center;"
+<p style="text-align:center;">
 <font color="DarkGreen">Drushyanté rathmãrudhã devyah krodh-samãkulãh.<br>
 Shankham chakram gadãm shaktim halam cha muslãyudham. Khétakam tomaram chaiv parshum-pãsha-méva cha.<br> 
 Kuntãyudham trishulam cha shãrangam-ãyudham-uttamam. Daityãnãm deha-nãshãya bhaktã-nama-bhayaya cha.<br>
@@ -56,7 +56,7 @@ This protection in the modern times has taken another form.<br>
 In those days, the evil was trying to harm, to destroy the people who were righteous, who were bhaktas, who were doing good things, who wanted to lead a very religious life. So <b>to save them, She incarnated. To protect them, She incarnated.</b> But they knew what was good, they knew what was wrong. And they wanted to preserve their good life, their precious life. They didn't care for money, they didn't care for power, but just they wanted their life, means they wanted to be alive to worship the Goddess. And when they were troubled or harmed or destroyed by these evil forces, She had to manifest.<br>
 But in modern times, it's become very complicated, as the modern times are complicated. First of all, in the mind, in the lifestyle, in the society, of good human beings, righteous human beings, fear of the wrong has entered.<br>
 Like, they are afraid, say, of their pries-sts [priests], of their churches, of their temples, of their mosques, which are all false! They are not afraid of God.<br>
-They don't believe in God. They think that they have created God, and they can manage God. `So who is God?' The way they behave, you can see clearly, that they do not recognize the existence of God, God Almighty who is a wrathful God. They are not at all worried as to what will happen to them."</font><br>
+They don't believe in God. They think that they have created God, and they can manage God. 'So who is God?' The way they behave, you can see clearly, that they do not recognize the existence of God, God Almighty who is a wrathful God. They are not at all worried as to what will happen to them."</font><br>
 <font size="+0"><b>1991-1013 Navarātri Pūjā (6th Day), False Religion and Recognize Me, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -85,26 +85,36 @@ Saa ghanta patu no devi papebhyo nah sutaniva.</b></font><br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="green"><b>Apne Panah Mein Hame Rakhna</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Maiyā tere Charano kī</b></font><br>
+<a href="https://youtu.be/2LmBT0q9f2M">video</a> 
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Ādimāyā Ambābai</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Mahāmāyā Mahākālī, Jay Śherawālī</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <div style="text-align: center"><img src="/images/image1244.png" /></div>
+
+<p style=" text-align:center;">
+<font color="DarkRed"><b>Now, what we call as <b>the Charaṇāmṛut is, means the Ambrose</b> then a ... a Ambrose, Ambrose of My Feet, or you can say Ambrose of My Feet, is not meant for everyone. Neither the blessings of the Pūjā are not meant for everyone. So try to avoid people who are not e yet fully equipped. First thing they will start is doubting. If they do not doubt, also, there will be a problem with the protocol. They won't be able to accept it with that protocol.</b></font><br>
+<font size="+0"><b>1980-0505 Sahasrāra Pūjā, Collective Spirit and Complete Integration (Active Sincerity and Patience and Sincerity Is the Key of Your Success), Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
+</p>
+
+<p>
+<font color="DarkRed">"<b>Pūjā is one of the things by which you can excite the forms into formless.</b> Now, your centers are the centers of energies. But they, too, have a guiding Deity sitting on all these chakras. They are also the formless made into forms. And when you do the Pūjā, the forms melt into Formless Energy, and this Formless Energy then starts flowing, and that then blows the wind. [Everyone laughs as the wind blows with a noise.] And that's how this misidentification, superimpositions on the Spirit are removed."</font><br>
+<font size="+0"><b>1983-0618 Havan, Importance of Pūjā and Havan, before Śhrī Rājalakṣhmī Pūjā, Garden, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), Île-de-France, France</b></font>
+</p>
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>

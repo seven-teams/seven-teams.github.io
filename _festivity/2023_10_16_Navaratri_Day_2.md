@@ -93,7 +93,7 @@ Very good for ego. And also superego. Is very good for people who suffer from eg
 <font color="DarkRed"><b>Sruteenaam moordhaano dadhati tava yau saekhara tayā<br>
 mama apyaetou Matah sirasi dayayaa dhehi charanou,<br>
 yayoh paadyam paathah Pashupati jata joota tatinee<br>
-yayorlakshaa Lakshmeer aruna Hari Choodamani ruchih.</b><br>
+yayorlakshaa Lakshmeer aruna Hari Choodamani ruchih.</b></font><br>
 <br>
 <font size="+0"><b>O Jagan Mātā! Thy two Feet are adored as the crowns on the peaks (Upaniṣhads) of the Vedas.<br>
 The water that washes Your Feet is the celestial River Gaṅgā in the matted hairlocks of Lord Paśhupati.<br>
