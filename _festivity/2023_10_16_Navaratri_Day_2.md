@@ -84,16 +84,16 @@ My God himself is Truth and Love<br>
 
 <div style="text-align: center"><img src="/images/image1239.png" /></div>
 
-<p>
-<font color="DarkRed">"<b>Now what are good My Feet for?<br>
+<p style="text-align:center;">
+<b>Now what are good My Feet for?<br>
 ......<br>
 Very good for ego. And also superego. Is very good for people who suffer from ego or superego, My Feet. Because, such people are very gross. And the Feet solve the problem. So just use My Feet.</b>"</font><br>
 <font size="+0"><b>1980-0517 Talk to Sahaja Yogis, Preparation for Becoming, Seminar, Day 1, Session 2 (evening), Old Alresford (13 kms ENE of Winchester), Hampshire, UK</b></font><br>
 <br>
-<font color="DarkRed"><b>Sruteenaam moordhaano dadhati tava yau saekhara tayā<br>
+<font color="DarkRed"><b>Srutīnām mūrdhāno dadhati tava yau saekhara tayā<br>
 mama apyaetou Matah sirasi dayayaa dhehi charanou,<br>
-yayoh paadyam paathah Pashupati jata joota tatinee<br>
-yayorlakshaa Lakshmeer aruna Hari Choodamani ruchih.</b></font><br>
+yayoh paadyam paathah Paśhupati jata jūta tatinī<br>
+yayorlakshā Lakshmír aruna Hari Chūdamani ruchih.</b></font><br>
 <br>
 <font size="+0"><b>O Jagan Mātā! Thy two Feet are adored as the crowns on the peaks (Upaniṣhads) of the Vedas.<br>
 The water that washes Your Feet is the celestial River Gaṅgā in the matted hairlocks of Lord Paśhupati.<br>
