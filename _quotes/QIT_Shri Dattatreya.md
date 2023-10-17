@@ -369,6 +369,29 @@ Now after He is gone, they are worshipping Him. But you have given immense respe
 <div class="para-divider"></div>
 
 <p>
+"Today I would like to say about this chakra especially that is the ... what we call the Nābhī chakra, is the central path of our evolution where you start your seeking and youge [you] cross over to [the] other side.<br>
+Now, surrounding this you will find there is the Ocean of Illusion. <font color="red">And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya -- is the Primordial Master. And He incarnated on this Earth many a times. At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze. Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.<br>
+So the same Great Principle of this Primordial Master has incarnated because without a master, how will you be taken away from in ... this illusion? How you are going to be exposed to that reality which you do not feel?</font><br>
+What has to happen to you is that you have to become more sensitive, more open, awakened, enlightened to feel that's All-pervading Power around you.<br>
+<font color="redNow, these [masters] came again and again and told you that you must look after your dharma.<br>
+Dharma doesn't mean any religion that is being established in the names of these people, because human beings know how to make a pickle out of everyone. They are great `experts'.<br>
+All of Them in essence are one and the same.</font><br>
+But like flowers on the same tree can be taken away from time to time and then when they become ugly and they become completely spoilt, then people can claim, `This is my flower,' `This is my flower.' Everybody has become a contractor of this thing.<br>
+<font color="redActually these people belong to the whole universe, They are universal beings and They came on this Earth to give us a sustainance [sustenance] within us, a sustainance [sustenance].</font><br>
+Dharma means a sustainance [sustenance], that is we can say, that is quality that is ... that is human."<br>
+<font size="+0"><b>1981-1015 Public Program, Day 4, Reorganized Church of Jesus Christ, 18480 Nordoff Street, Panorama City (32 kms N-NW of Los Angeles), CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red"><b>Śhrī Mātājī:</b></font> Is not only that, I'm saying on the whole, a shee ... worship is a tradition which has come to us from great Seers and ancient Sages. <font color="red">Anybody, even, say, Moses, you can say Socrates, you can say Dattātreya, or Mārkaṇḍeya, or any one of these people, have found out the ways and methods how to tune our instruments to the Divine to achieve the maximum joy.</font><br>
 'How to please the Deities,'' that's the main point is, how to please the Deities. But it's a crude word pleases, but how to ... [laughing:] I don't know what should I say, innovation they say, or what do you call that? How to spark them, ...<br>
 <b>Sahaja Yogi:</b> Invoke.<br>

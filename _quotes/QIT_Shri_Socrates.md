@@ -269,7 +269,16 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Today I would like to say about this chakra especially that is the ... what we call the Nābhī chakra, is the central path of our evolution where you start your seeking and youge [you] cross over to [the] other side.<br>
+Now, surrounding this you will find there is the Ocean of Illusion. And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya -- is the Primordial Master. And He incarnated on this Earth many a times. <font color="red">At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze.</font> Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.<br>
+So the same Great Principle of this Primordial Master has incarnated because without a master, how will you be taken away from in ... this illusion? How you are going to be exposed to that reality which you do not feel?<br>
+What has to happen to you is that you have to become more sensitive, more open, awakened, enlightened to feel that's All-pervading Power around you.<br>
+Now, these [masters] came again and again and told you that you must look after your dharma.<br>
+Dharma doesn't mean any religion that is being established in the names of these people, because human beings know how to make a pickle out of everyone. They are great `experts'.<br>
+All of Them in essence are one and the same.<br>
+But like flowers on the same tree can be taken away from time to time and then when they become ugly and they become completely spoilt, then people can claim, `This is my flower,' `This is my flower.' Everybody has become a contractor of this thing.<br>
+Actually these people belong to the whole universe, They are universal beings and They came on this Earth to give us a sustainance [sustenance] within us, a sustainance [sustenance].<br>
+Dharma means a sustainance [sustenance], that is we can say, that is quality that is ... that is human."<br>
 <font size="+0"><b>1981-1015 Public Program, Day 4, Reorganized Church of Jesus Christ, 18480 Nordoff Street, Panorama City (32 kms N-NW of Los Angeles), CA, U.S.A.</b></font>
 </p>
 
@@ -336,14 +345,18 @@ As soon as the Kuṇḍalinī rises, you start manifesting your grandeur, your g
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"You see, they are physically sake [sick] uh because they have lost their roots, they have gone to e-extremes and imbalances.<br>
+We cannot go to imbalance, you see. Religion is to keep yourself in balance.<br>
+There are Ten Religions in the human being, like ten valencies. As carbon has four valencies, we have ten valencies about which all the Primordial Masters, who came on this Earth, have taught. <font color="red">Like Lao Tze, like Socrates, we can say Abraham, Moses, and many in India also.</font><br>
+They came and told us that we should keep the balance. Balance of our wife [life]. Keep in the center, for the ascent. If you are not balanced you cannot ascend.<br>
+But people have gone to extremes. They are faddist[s]. Whatever you tell them: if you tell them that, `You see, now you are not well, so you do something,' they will do it so much that they'll outwit [laughing:] everything, I can see. They always go to the extreme of everything."<br>
 <font size="+0"><b>1983-0308 Public Program, Day 1, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">Really, the unity within us lies when you become collectively conscious. All this work has been done in the ancient times. As Muhammad was One of the Prophets who came out of the Ten Prophets: Moses, Abraham, Lao Tze, then we had also people like other Prophets, Socrates.</font> Recently we had in India the last One: is the Sāī Nāth, not the Sathya one, but the Sāī Nāth who lived, who was representing this Great Principle of Primordial Master."<br>
 <font size="+0"><b>1983-0310 Public Program, Day 3, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
@@ -359,7 +372,7 @@ The ... we call it Ten Incarnations of the Primordial Master. There are many who
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"But now, today I am going to tell you the mastery over the Power of Love: love which is without any lust and greed, which is detached love. <font color="red">About which Socrates has talked to you: that He said, `The politicians have to be detached politicians.' How can they be detached?</font>"<br>
 <font size="+0"><b>1983-1017 Public Program, Day 1, The Community Church, 40 East and 35th Street, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -390,7 +403,11 @@ He went barefoot in the forest so that the earth can be vibrated by His Feet. He
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Only the one who can control is beyond. The one who is in it cannot control it.<br>
+If you have to pull out the ship, you have to be on the shore.<br>
+The one who has gone behind ... beyond can only do that. So, you go beyond, that is atīt.<br>
+But, when it comes to the knowledge about such a person, you cannot think, because such a person is beyond thinking. You cannot describe, because such a person cannot [be] describe[d]. You cannot say why Socrates agreed to take the poison, why Christ agreed to get crucified. That's beyond human comprehension.<br>
+That's how you behave, beyond human comprehension, and you are not to take certificates from human beings. Your certificates come from God Almighty and not from these human beings who are at a lower level. It would be like a dog writing about human beings."</font><br>
 <font size="+0"><b>1985-0505 Sahasrāra Pūjā, State of Absolute (Nirānanda Absolute Joy, Absolute Love, Absolute Compassion, Absolute Power), Laxenburg Castle, Vienna, Austria</b></font>
 </p>
 
@@ -533,7 +550,7 @@ Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Hi
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So, you can imagine how much advanced people were there at the time of Śhrī Rāma and His kingdom. The reason was the king was an Incarnation, also He was a benevolent king as described by Socrates."</font><br>
 <font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Switzerland</b></font>
 </p>
 

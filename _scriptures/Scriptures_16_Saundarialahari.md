@@ -398,8 +398,8 @@ Kuchābhyām ānamraṁ kuṭila śhaśhi chūḍāla makuṭam</font>
 
 <p>
 <b>23 Translation</b><br>
-<font color="DarkGreen">I fancy that the other (half) as well, of Śhambhu's frame, has been absorbed by Thee with Thy mind, not satisfied with having absorbed that left one; for, this, Thy form, is entirely of a red color, has three eyes, is slightly bent with (the weight of) the breasts, and wears over its crown the crescent moon.</font><br>
-<font color="blue">I have a feel that, unsatisfied, even after having appropriated the left half of Śhambhu (Śhiva) as Ardhanārīśhwara (a form half man and half woman), Thou hast also invaded his right half; for Thy form that shines in my heart is totally crimson in complexion and slightly bent by the weight of the two breasts, besides having three eyes and the crescent moon in the diadem.</font><br>
+<font color="DarkGreen">I fancy that the other (half) as well, of Śhambhu's frame, has been absorbed by Thee with Thy mind, not satisfied with having absorbed that left one; for, this, Thy form, is entirely of a red color, has three eyes, is slightly bent ......, and wears over its crown the crescent moon.</font><br>
+<font color="blue">I have a feel that, unsatisfied, even after having appropriated the left half of Śhambhu (Śhiva) as Ardhanārīśhwara (a form half man and half woman), Thou hast also invaded his right half; for Thy form that shines in my heart is totally crimson in complexion and slightly bent ......, besides having three eyes and the crescent moon in the diadem.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -431,8 +431,8 @@ Sthitā hy'ete śhaśhvan mukulita karottaṁsa makuṭāḥ</font>
 
 <p>
 <b>25 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Spuse of Śhiva! the homage rendered to Thy Feet becomes by itself the homage rendered to the three gods born of Thy three Guṇas. It is, therefore, meet that these (gods) ever stand by the jeweled seat on which Thy Feet rest, with their folded hands adorning their crowns.</font><br>
+<font color="blue">The worship done at Thy Feet, O Consort of Śhiva, is also the worship of all the three Deities Brahmā, Viṣhṇu and Śhiva, who have their origin in Thy three Guṇas (Rājas, Sattva and Tamas). They require no special worship, because they are ever waiting with their joined palms held above Their diademed heads in salutation to Thee by the side of the foot-stool of diamonds that bear Thy Feet.</font><br>
 </p>
 
 <div class="para-divider"></div>

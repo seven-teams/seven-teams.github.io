@@ -440,6 +440,29 @@ So this knowledge was known to people but was not put down on the paper, was not
 <div class="para-divider"></div>
 
 <p>
+"Today I would like to say about this chakra especially that is the ... what we call the Nābhī chakra, is the central path of our evolution where you start your seeking and youge [you] cross over to [the] other side.<br>
+Now, surrounding this you will find there is the Ocean of Illusion. And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya -- is the Primordial Master. And He incarnated on this Earth many a times. <font color="red">At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze.</font> Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.<br>
+So the same Great Principle of this Primordial Master has incarnated because without a master, how will you be taken away from in ... this illusion? How you are going to be exposed to that reality which you do not feel?<br>
+What has to happen to you is that you have to become more sensitive, more open, awakened, enlightened to feel that's All-pervading Power around you.<br>
+Now, these [masters] came again and again and told you that you must look after your dharma.<br>
+Dharma doesn't mean any religion that is being established in the names of these people, because human beings know how to make a pickle out of everyone. They are great `experts'.<br>
+All of Them in essence are one and the same.<br>
+But like flowers on the same tree can be taken away from time to time and then when they become ugly and they become completely spoilt, then people can claim, `This is my flower,' `This is my flower.' Everybody has become a contractor of this thing.<br>
+Actually these people belong to the whole universe, They are universal beings and They came on this Earth to give us a sustainance [sustenance] within us, a sustainance [sustenance].<br>
+Dharma means a sustainance [sustenance], that is we can say, that is quality that is ... that is human."<br>
+<font size="+0"><b>1981-1015 Public Program, Day 4, Reorganized Church of Jesus Christ, 18480 Nordoff Street, Panorama City (32 kms N-NW of Los Angeles), CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red"><b>Śhrī Mātājī:</b></font> Is not only that, I'm saying on the whole, a shee ... worship is a tradition which has come to us from great Seers and ancient Sages. <font color="red">Anybody, even, say, Moses, you can say Socrates, you can say Dattātreya, or Mārkaṇḍeya, or any one of these people, have found out the ways and methods how to tune our instruments to the Divine to achieve the maximum joy.</font><br>
 'How to please the Deities,'' that's the main point is, how to please the Deities. But it's a crude word pleases, but how to ... [laughing:] I don't know what should I say, innovation they say, or what do you call that? How to spark them, ...<br>
 <b>Sahaja Yogi:</b> Invoke.<br>
@@ -466,6 +489,31 @@ So we know that we have to educate ourself, first point, and secondly, we have t
 As a human being, you have to have a sustainance [sustenance], and this is the center that gradually unfolds the sustainance [sustenance] from animal to higher animals and to human stage, where a person starts realizing that these sustenances exist within us. That's how all our laws have come. The Ten Commandments of the Bible are the Ten Sustenances that are within us.<br>
 <font color="red">These are the Ten Gurus who came on this Earth to save human beings from getting out of the Middle Path, going more to the left and more to the right.</font>"<br>
 <font size="+0"><b>1982-0710 Public Program, Day 1, We Have to Know Something More (Modern Times Are the Times of Confusion, Experience of Your Awareness, and You Become the Spirit), Derby, Derbyshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"You see, they are physically sake [sick] uh because they have lost their roots, they have gone to e-extremes and imbalances.<br>
+We cannot go to imbalance, you see. Religion is to keep yourself in balance.<br>
+There are Ten Religions in the human being, like ten valencies. As carbon has four valencies, we have ten valencies about which all the Primordial Masters, who came on this Earth, have taught. <font color="red">Like Lao Tze, like Socrates, we can say Abraham, Moses, and many in India also.</font><br>
+They came and told us that we should keep the balance. Balance of our wife [life]. Keep in the center, for the ascent. If you are not balanced you cannot ascend.<br>
+But people have gone to extremes. They are faddist[s]. Whatever you tell them: if you tell them that, `You see, now you are not well, so you do something,' they will do it so much that they'll outwit [laughing:] everything, I can see. They always go to the extreme of everything."<br>
+<font size="+0"><b>1983-0308 Public Program, Day 1, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">Really, the unity within us lies when you become collectively conscious. All this work has been done in the ancient times. As Muhammad was One of the Prophets who came out of the Ten Prophets: Moses, Abraham, Lao Tze, then we had also people like other Prophets, Socrates.</font> Recently we had in India the last One: is the Sāī Nāth, not the Sathya one, but the Sāī Nāth who lived, who was representing this Great Principle of Primordial Master."<br>
+<font size="+0"><b>1983-0310 Public Program, Day 3, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
