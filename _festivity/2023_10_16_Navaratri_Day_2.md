@@ -53,7 +53,7 @@ Now, just introspect if you have these qualities within you or not, because they
 ......<br>
 It is a state of mind where you are not involved. It is a different thing, that you just load somebody with an idea that You should become, absolutely a brahmachārī or a brahmachāriṇī or you should lead a celibate life, forcing them.</font><br>
 ......<br>
-<b>Celibacy must come from within, the purity must come from within."</b><br>
+<font color="DarkGreen"><b>Celibacy must come from within, the purity must come from within.</b>"</font><br>
 <font size="+0"><b>1983-0203 Public Program (English + Hindi + English), Day 5, The Āgñyā Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
 </p>
 
