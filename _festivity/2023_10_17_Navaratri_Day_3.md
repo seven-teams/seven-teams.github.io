@@ -46,7 +46,7 @@ They are wielding conch, discus, mace, plow, club, javelin, axe, noose, barbed d
 These Goddesses are wielding their weapons, for destroying the bodies of demons, for the protection of their devotees, and for the benevolence of Gods.</b></font><br>
 <font size="+0"><b>(Kavacha of the Devī)</b></font><br>
 <br>
-<font color="DarkRed"><b>Now the kavach. You have to take for your protection every morning when you go out, and before sleeping you should put your attention here and sleep off.</b></font><br>
+<font color="DarkRed"><b>"Now the kavach. You have to take for your protection every morning when you go out, and before sleeping you should put your attention here and sleep off."</b></font><br>
 <font size="+0"><b>1991-1207 Public Program, Day 2, Geetha Bhawan, 133 Lloyds Road, Ganapathy Colony, Gopalapuram, Chennai, Tamil Nadu, India</b></font>
 </p>
 
@@ -107,7 +107,7 @@ Saa ghanta patu no devi papebhyo nah sutaniva.</b></font><br>
 <div style="text-align: center"><img src="/images/image1244.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b>Now, what we call as <b>the Charaṇāmṛut is, means the Ambrose</b> then a ... a Ambrose, Ambrose of My Feet, or you can say Ambrose of My Feet, is not meant for everyone. Neither the blessings of the Pūjā are not meant for everyone. So try to avoid people who are not e yet fully equipped. First thing they will start is doubting. If they do not doubt, also, there will be a problem with the protocol. They won't be able to accept it with that protocol.</b></font><br>
+<font color="DarkRed">"Now, what we call as <b>the Charaṇāmṛut is, means the Ambrose</b> then a ... a Ambrose, Ambrose of My Feet, or you can say Ambrose of My Feet, is not meant for everyone. Neither the blessings of the Pūjā are not meant for everyone. So try to avoid people who are not e yet fully equipped. First thing they will start is doubting. <b>If they do not doubt, also, there will be a problem with the protocol. They won't be able to accept it with that protocol.</b>"/font><br>
 <font size="+0"><b>1980-0505 Sahasrāra Pūjā, Collective Spirit and Complete Integration (Active Sincerity and Patience and Sincerity Is the Key of Your Success), Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
