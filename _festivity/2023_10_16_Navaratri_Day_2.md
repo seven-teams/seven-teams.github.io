@@ -16,7 +16,7 @@ So when we read about the Devī, about Her Incarnations -- how She came on this 
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Lucerne, Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1241.png" /></div>
+<div style="text-align: center"><img src="/images/image1237.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 <b>Ā wahanam Janami</b><br>
@@ -46,7 +46,7 @@ Now, just introspect if you have these qualities within you or not, because they
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image1242.png" /></div>
+<div style="text-align: center"><img src="/images/image1238.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">"You cannot make anyone brahmachārī or brahmachāriṇī. It is a state, avasthā, where a person has to rise, like Yogeśhwara, like Śhrī Kṛiṣhṇa.<br>
@@ -82,7 +82,7 @@ My God himself is Truth and Love<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image1243.png" /></div>
+<div style="text-align: center"><img src="/images/image1239.png" /></div>
 
 <p>
 <font color="DarkRed">"<b>Now what are good My Feet for?<br>
@@ -123,7 +123,7 @@ O Mother, please place them on my head too, taking mercy on me<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image1244.png" /></div>
+<div style="text-align: center"><img src="/images/image1240.png" /></div>
 
 <p>
 <font color="DarkRed">"<b>Now what happens actually when you project this Pūjā?</b><br>
@@ -137,7 +137,7 @@ Once the instrument is all right, then you project outside. <b>And now how do yo
 <font color="DarkGreen"><b>Salutations to You O Devī Nārāyanī, 
 who took the form of Brahmanī (the Śhakti of Brahmadeva) 
 and sprinkled water with kuśha grass while riding in the heavenly car (aeroplane Vimāna) of the swan</b></font><br>
-<font color="DarkGreen"><font size="+0">(Mahālakṣhmī Hymn, Chapter 11 of Devī Mahātmya)</font></font><br>
+<font color="DarkGreen"><font size="+0">(Mahālakṣhmī Hymn, Chapter 11 of Devī Māhātmyam)</font></font><br>
 <br>
 <font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Brahmachāriṇī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
 O Divine Mother, You are verily Śhrī Brahmachāriṇī, the One who observes the state of celibacy!
