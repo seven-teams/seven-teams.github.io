@@ -310,14 +310,20 @@ And you feel that you are really a great personality that you can decide about: 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"Now when we come to this point of Realization, we have to know that the problems of this world are due to one fact: that we have not achieved our Absolute.<br>
+<font color="DarkRed">Some people think: 'By doing alternate work, we'll be happier.'</font> Is supposing somebody is a capitalist, he become[s] a communist. Then if he's a [laughing:]communist he become[s] a socialist. These are all manufactures of this brain.<br>
+But actually, if you ask, I uh ... [am a] complete capitalist because I have all the powers, and I sm a complete communist because I can't live without giving it to you.<br>
+So, how the communism and capitalism, which is so artificial outside, becomes a reality with you, that you become empowered with your real powers and not unreal powers. Because possessions and things are unreal. They are not real powers.<br>
+And once you get these real powers, you want to share it with others, you want to give it to others, you want to work it out for others."<br>
 <font size="+0"><b>1983-0307 Public Program, Day 2, Meeting Room, Town Hall, 128 King William Street and Pirie Street, Adelaide, SA, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"Today, in the world if you see, everywhere I go there are so many seekers, so many seekers!<br> 
+Such a time was never there before, say about fifty years back, we did not know the word seekers. People did not believe that there are seekers.<be>
+<font color="DarkRed">But today you find so many seekers all over the world: they have gone to all kinds of other alternative things, they have tried to find out if they can find truth by altering their lives by doing this or by doing that.</font> The reason is: they are not at all satisfied with what they see. They're intelligent enough to see that is not the end of our lives and we don't live just for insurances."<br>
 <font size="+0"><b>1983-0308 Public Program, Day 1, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
@@ -336,14 +342,20 @@ In the same way what happens that everything that you do becomes nothing but you
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"<font color="DarkRed">So many people in this country have taken to lives which are alternate lives, as they call it, and also their dress is changed, everything changed, but some outside. And by that they felt that they have achieved a kind of a change within themselves, but is not true, is not true.</font><br>
+The unreal must drop out. The whole unreal must drop out.<br>
+Once it drops out, then only you become the real personality. By changing outside, nothing changes. And that has to happen to all of you, to all the seekers of the world."<br>
 <font size="+0"><b>1983-0520 Public Program, The Danger of This Horrible Ego which We Have Created of Our Own (Sensitivity to Reality, Why People Don't Progress in Sahaja Yoga, The Situation of Today's Seekers, How We Break These Ego and Superego Barriers Within Human Beings, and The Solution of All the Problems of the World), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"We have been working in Brighton for quite some time, and it has done lot of good to many people, because I always felt that Brighton is a place where there are many seekers, and they are seeking the Truth very earnestly.<br>
+Their seeking has tremendous power behind it, but some or other they are misled.<br>
+Like I have found so many lost in so many cults. If not the cults, then the drugs and all such things.<br>
+These are all signs that they are seekers. They are seeking something beyond.<br>
+<font color="DarkRed">Nothing wrong with them, because there was no alternative.</font> They might have done some mistakes, they might have gone to a wrong thing, but as long as they are seeking the Truth, they'll find it. That's what it is."<br>
 <font size="+0"><b>1983-0525 Public Program, Within Us there Is a Power Which Can Fulfill Our Seeking, Lewes Town Council, High Street, Lewes, East Sussex, UK</b></font>
 </p>
 
@@ -357,7 +369,17 @@ In the same way what happens that everything that you do becomes nothing but you
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"Now, to know the Truth, people have gone to various type of enterprises. <font color="DarkRed">And also to feel joy, they have tried all kind of alternatives, which, now, so many realize was not all right. Because they have landed now in a very precarious position: any day it might explode to ruin this world.</font><br>
+For example, first man thought that if he was a powerful country, or a powerful human being, he can overpower others and can grab them, and by that he can enjoy the power. But somehow, at present time, we don't think much of such people who are aggressive.<br>
+Then people started thinking that joy lies in accumulating lot of uh ... possessions, money, wealth. And ultimately people found out that that's not really giving joy at all, on the contrary it is [a] headache to have money.<br>
+So, some of them thought of having a political uh-uh-uh ... uh-uh-uh ... change in the subtra [supra] structure. But that also has it's limitations, because something else has to happen within us, in our consciousness, so that we achieve our Spirit first.<br>
+That means Truth lies much beyond these enterprises.<br>
+So far, whatever we have worked out, our solutions, are on mental level.<br>
+And even the religion has become a s-s... just a mental projection of human beings. Uh they believe in something blindly, and it is just an artificial sort of ritualism tthrough which we go and we are quite surprised: 'How can it be like that?'<br>
+And the mental projection always makes a man extre-mist. <font color="DarkRed">And the only alternative they can cling on to fanaticism of the worst type, where people do not want to even listen to something that is sensible.<br>
+So, running away from these religions is also not a proble... not a solution or alternative.<br>
+So what is the alternative left for the whole human beings? Perhaps the awakening, the awareness that we have to find the real alternative is very, very uh much uh ... allowed everywhere in the whole world.</font><br>
+That shows that so many people, who are thinking, who are of a higher evolution, a special category, are seeking solutions beyond what they have so far tried."<br>
 <font size="+0"><b>1983-0908 Public Program, Day 1, You Are the Spirit, Sala Borromini, Biblioteca Vallicelliana, Piazza della Chiesa Nuova, 18, Rome, Italy</b></font>
 </p>
 
