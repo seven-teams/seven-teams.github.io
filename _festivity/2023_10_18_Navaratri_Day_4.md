@@ -12,8 +12,7 @@ tags:
 <p>
 <font color="DarkRed">"<b>Nine are the days, in the night, when the Goddess had to fight the demons and to save Her children from the effects of negativity.</b><br>
 On one side She was Ocean of Love and Compassion, and on the other side She was protecting them like a tigress; because the times were such that nobody could meditate, nobody could take the name of God, nobody could think even of Self-realization. But those who are sitting here today, you have been there also in those days, and you were all saved for today, for this day, so that you can achieve your Self-realization.<br>
-The form of the Goddess in those days was not Māyā Swarūpi[n]. She was in Her real form and that created a great awe, even among the disciples. So the question of giving them Self-realization was not there. First of all they were to be saved. 
-"</font><br>
+The form of the Goddess in those days was not Māyā Swarūpi[n]. She was in Her real form and that created a great awe, even among the disciples. So the question of giving them Self-realization was not there. First of all they were to be saved."</font><br>
 <font size="+0"><b>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
 </p>
 
@@ -50,6 +49,10 @@ Kavachénã-vruto nityam yatra-yatraiva gachchhati.<br>
 Tatra tatrartha labhashcha Vijayah sarvakamikah,<br>
 Yam yam chintayété kãmam tam tam prãpnoti nishchitam.<br>
 Parmaishvaryam-tulam prãpasyaté bhutalé pumãna.</b><br>
+ One should invariably cover oneself with this Kavacha (by reading) wherever one goes, and should not walk even a step without it if one desires auspiciousness.<br> 
+Then one is successful everywhere, and all one’s desires are fulfilled and that person enjoys great prosperity on the earth.<br>
+<b>Nirbhayo jāyate martyaḥ, saṅgrāmeṣhv’aparājitaḥ<br>
+Trailokye tu bhavet-pūjyaḥ, kavachen'āvṛitaḥ pumān</b><br>
 The person who covers himself with Kavach becomes fearless, and is never defeated<br>
 In battle, And becomes worthy of being worshipped in the three worlds.<br>
 <font size="+0"><b>(In short now it is a bandhan, it is the same thing as Kavacha)</b></font><br>
@@ -90,8 +93,8 @@ SAKAL JAGAT MEIN YAH TERA PASARA<br>
 The whole universe is but your form</b></font><br> 
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <br>  
-<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Kuṣhmāṇḍā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
-O Divine Mother, You are verily Śhrī Kuṣhmāṇḍā, the one whose void contains the universe! Salutations to You!
+<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Kuṣhmāṇḍā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
+O Divine Mother, You are verily Śhrī Kuṣhmāṇḍā, the one whose void contains the universe! Salutations to You!</font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
@@ -101,7 +104,7 @@ O Divine Mother, You are verily Śhrī Kuṣhmāṇḍā, the one whose void con
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Devī Kavacha</b></font><br>
+<font color="green"><b>Devī Kavacha</b> (English)</font><br>
 <a href="https://youtu.be/wJJXnDabTes">video</a>
 </p>
 
