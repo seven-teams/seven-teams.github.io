@@ -111,7 +111,7 @@ O Divine Mother, You are verily Śhrī Kuṣhmāṇḍā, the one whose void con
 </p>
  
 <p>
-<font color="MediumVioletRed"><b>Ankhe band karu</b></font><br>
+<font color="green"><b>Ankhe band karu</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
