@@ -17,7 +17,7 @@ The form of the Goddess in those days was not Māyā Swarūpi[n]. She was in Her
 <font size="+0"><b>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1245.png" /></div>
+<div style="text-align: center"><img src="/images/image1249.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Nṛisiṁha rūpeṇ‛ogreṇa</b></font><br>
@@ -61,7 +61,7 @@ In battle, And becomes worthy of being worshipped in the three worlds.<br>
 <font size="+0"><b>1989-1008 Navarātri Pūjā (cusp between 8th Day and 9th Day), The Content Within (How Deeply You Have Touched the Feet of the Divine), Butlins Grand Hotel, Margate (123 kms ESE of London), UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1246.png" /></div>
+<div style="text-align: center"><img src="/images/image1250.png" /></div>
 
 <p>
 <font color="DarkRed">"I would say, with this, today's special celebration of Navarātri. Like yesterday you saw Śhrī Durgā's Nine Forms, also. In that, <b>one is Kuṣhmāṇḍā, is one of the forms, that you absorb all the filth in yourself, in your stomach.<br>
@@ -71,7 +71,7 @@ Enjoyment is only possible when you are beyond your mind. With your mind you can
 <font size="+0"><b>1995-1001 Navarātri Pūjā (cusp between 7th Day and 8th Day), You Must Project Your Depth and Not Reflect, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1247.png" /></div>
+<div style="text-align: center"><img src="/images/image1251.png" /></div>
 
 <p style="text-align:center;">
 <font color="Indigo"><b>Visṛistau sṛisti-rūpā Tvam sthiti-rūpā cha pālane,<br>
@@ -120,7 +120,7 @@ O Divine Mother, You are verily Śhrī Kuṣhmāṇḍā, the one whose void con
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image1248.png" /></div>
+<div style="text-align: center"><img src="/images/image1252.png" /></div>
 
 <p style="text-align:center;">
 <font color="Red"><b>"See the Swastika became cross at the time of Christ, Swastika is symbol of Gaṇesh ......"</b></font><br>
