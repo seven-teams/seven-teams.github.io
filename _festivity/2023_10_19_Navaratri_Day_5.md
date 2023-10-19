@@ -20,10 +20,12 @@ She's placed in the center of two hearts, which is a very important point. Now a
 <div style="text-align: center"><img src="/images/image1245.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b>"She gives us the protection. She's the Protector. And She's the Mother of this world, Jagadambā."</b></font><br>
+<font color="DarkRed"><b>"She gives us the protection. She's the Protector.<br> 
+And She's the Mother of this world, Jagadambā."</b></font><br>
 <font size="+0"><b>1977-0222 Public Program, Day 1, About Different Chakras and Their Deities, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Jay Jagadambe</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<br>
 <font color="DarkGreen"><b>Yashasã vardhate so-api keertimandita bhootale. Japet-saptaśhtim Chandim krutvã tu kavacham purã.</b><br>
 That person receives more and more glory and prowess. On the earth he rises in prosperity and fame by reading the Kavacha and Saptaśhatī.<br> 
 <b>Jay twam Devī Chãmuṇḍe jaiy bhutãrtihãrini,<br>
@@ -50,7 +52,7 @@ When this glāni takes place, then Incarnations are born to solve the problem."<
 What is your destiny? Your destiny is to achieve the spiritual success [spiritual ascent].<br>
 The Devī destroyed Chaṇḍā and Muṇḍa, that is why She is called Chāmuṇḍā. They are all back in this Kali Yuga, all of them.</font><br>
 [Prayer to the Devī: 'O Devī, please give us the spiritual personality, the victory, the spiritual ascent and destroy our enemies'.]<br>
-<font color="DarkRed"><b>"Saint Eknāth comes from Pratiṣhṭhān. Pratiṣhṭhān comes from Paiṭhaṇ.<br>
+<font color="DarkGreen"><b>"Saint Eknāth comes from Pratiṣhṭhān. Pratiṣhṭhān comes from Paiṭhaṇ.<br>
 And he is the one, who has written this 'Jogawa', means the Yoga ......"</b></font><br>
 <font size="+0"><b>1988-1015 Talk to Sahaja Yogis, Your Destiny Is to Achieve the Spiritual Success and Have I Fulfilled My Destiny, Navarātri Celebrations (5th Day), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font><br>
 <font size="+0"><b>Jagawa</b></font><br>
@@ -62,7 +64,7 @@ Who wore a garland of human skulls as an ornament and killed the demon Muṇḍa
 </p>
 
 <p>
-<font color="DarkRed">"You come up now to the Heart chakra. Heart chakra is divided into three parts. In the center of the Heart chakra resides Jagadambā Herself. But [in] the left side as I have told you resides Śhiva and His Power is Pārvatī. When Pārvatī Herself separates Her identity with Her Lord and enters in the center to save Her children from the domination of the evil spirits, then She resides in the center and She is the Jagadambā. This is called as ``Sacred Heart" in the Bible. She resides as Jagadambā. She has taken many Incarnations to save.<br>
+<font color="DarkRed">"You come up now to the Heart chakra. Heart chakra is divided into three parts. In the center of the Heart chakra resides Jagadambā Herself. But [in] the left side as I have told you resides Śhiva and His Power is Pārvatī. <b>When Pārvatī Herself separates Her identity with Her Lord and enters in the center to save Her children from the domination of the evil spirits, then She resides in the center and She is the Jagadambā. This is called as ``Sacred Heart" in the Bible. She resides as Jagadambā. She has taken many Incarnations to save.</b><br>
 Today there was Lalitā Pañchamī, they sang the song of Lalitā. The way She took Her Incarnations to fight the evil forces, to save the bhaktas from the domination of satanic and depraving personalities. She is there within you also, if not awakened She can be awakened. She is all the time there to save you from those satanic forces."</font><br>
 <font size="+0"><b>1976-0205 Public Program (Vasant Pañchamī), Day 2, Description of Kuṇḍalinī, after Śhrī Viṣhnu Havan, New Delhi, India</b></font>
 </p>
@@ -79,7 +81,7 @@ May You protect the universe!</font><br>
 <font size="+0"><b>1980-0719 Comments on the Reading from Devī Māhātmyam, before the Talk on the Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font><br>
 <br>
 <font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Skandamātā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
-O Divine Mother, You are verily the Mother of Śhrī Kārttikeya<br>
+O Divine Mother, You are verily the Mother of Śhrī Kārttikeya!<br>
 Salutations to You!</font>
 </p>
 
@@ -94,12 +96,12 @@ Salutations to You!</font>
 It fills My heart to see how since long the seekers have been asking for this Union with the Divine. What a search! What a seeking!"</font><br>
 <font size="+0"><b>1988-0610 Public Program, University, Graz, Austria</b></font>
 <font color="green"><b></b></font><br>
-<a href="">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
 <font color="green"><b>Śhrī Jagadambe Aye re</b></font><br>
-<a href="https://youtu.be/6tionHDqJo4">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
  
  <p>
@@ -108,7 +110,7 @@ It fills My heart to see how since long the seekers have been asking for this Un
 </p>
 
 <p>
-<font color="green"><b>Śhrī Argala Stotram</b></font><br>
+<font color="green"><b>Śhrī Argala Stotram</b> (English)</font><br>
 <a href="https://youtu.be/rkHsdWAiL4Y">video</a> 
 </p>
 
