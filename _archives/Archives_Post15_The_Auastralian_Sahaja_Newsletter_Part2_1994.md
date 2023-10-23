@@ -25,15 +25,19 @@ sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
 
-<font color="DarkGreen"><b>1994THEAUSSAHNEW1.</b></font> <b>1994-0121 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007)
+<font color="DarkGreen"><b>1994THEAUSSAHNEW1.</b></font> <b>1994-0121 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007 as 2 pages and on 2023-1023 as 5 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1994-0121_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
+<iframe src="/pdf/?usedownload=true#/files/1994-0121_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
 <br>
 
-<font color="DarkGreen"><b>1994THEAUSSAHNEW2.</b></font> <b>1994-0128 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007)
+<font color="DarkGreen"><b>1994THEAUSSAHNEW2.</b></font> <b>1994-0128 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007 as 2 pages and on 2023-1023 as 5 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1994-0128_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1994-0128_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
