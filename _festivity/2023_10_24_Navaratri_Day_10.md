@@ -1,5 +1,5 @@
 ---
-title: '2023 Celebrating Navarātri Festival: "" '
+title: '2023 Celebrating Navarātri Festival: "Now the tenth Navarātri today is to celebrate actually the Ādi Śhakti." '
 date: 2023-10-24
 permalink: /festivity/2023/10/24
 tags:
