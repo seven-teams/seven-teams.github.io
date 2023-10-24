@@ -14,11 +14,11 @@ tags:
 But if you people go only on the Āgñyā move on Āgñyā, you cannot rise any higher. People have been lost on that chakra. So, that's a very important chakra for ......<br>
 Sixth, Ṣhaṣhṭhī of the Goddess, is regarded as a very important thing and they say that, `Goddess comes on a nāv,' on a boat, Calcutta [Kolkata] people believe it because the sixth day is very big to cross it. That is what today is the problem with all of us that we have this sixth day still sitting on our heads and we cannot get out it. So to come to the ninth stage, though we may do Pūjā, we may do anything, but we are still on the sixth. So it is just outwardly that we are doing Pūjā. Seventh day is the day, where I am there. But 7th and 8th and 9th has to be achieved by crossing your sixth."</font><br>
 <font size="+0"><b>1988-1019 Navarātri Pūjā (9th Day), Raise above Āgñyā (Left Āgñyā and Right Āgñyā), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font><br>
-<font color="DarkGreen">"<b>Nav Durgā Kī</b>"</font><br>
+<font color="DarkGreen"><b>Nav Durgā Kī</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image12665.png" /></div>
+<div style="text-align: center"><img src="/images/image1265.png" /></div>
 
 <p style="text-align:center;">
 <b>Sahaja Yogi [reads]:</b> <font color="Maroon"><b>What is Your prowess to be compared to? Where can one find this beauty (of Yours) most charming, (yet) striking fear in enemies? Compassion in heart and relentlessness in battle are seen, O Devī, O Bestower of boons, only in You in all the three worlds!</b></font><br>
@@ -36,8 +36,8 @@ O Divine Mother, You are verily Siddhidātrī, the One who is the bestower of Si
 <div style="text-align: center"><img src="/images/image1266.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">The siddhis that people attempt to achieve are: Aṇima, Laghima, Mahima, Īśhatva, Vaśhitva, Prākāmya, Bhukti, Icchā, Prāpti, Mukti. Aṇima is to become like a small particle. Laghima is to become small, Mahima is to have a big form, Īśhatva is to create Gods out of human beings, Vaśhitva is the attraction, Prākāmya is the manifestation, Bhukti is the enjoyment, [Icchā] fulfillment of desire. Prāpti is the attainment, Mukti is the salvation.<br>
-<b>These are all the siddhis that Sahaja Yogis can have.</b></font><br>
+<font color="DarkRed">"The siddhis that people attempt to achieve are: Aṇima, Laghima, Mahima, Īśhatva, Vaśhitva, Prākāmya, Bhukti, Icchā, Prāpti, Mukti. Aṇima is to become like a small particle. Laghima is to become small, Mahima is to have a big form, Īśhatva is to create Gods out of human beings, Vaśhitva is the attraction, Prākāmya is the manifestation, Bhukti is the enjoyment, [Icchā] fulfillment of desire. Prāpti is the attainment, Mukti is the salvation.<br>
+<b>These are all the siddhis that Sahaja Yogis can have."</b></font><br>
 <font size="+0"><b>1978-0907 Talk to Sahaja Yogis, Bīja Mantras, Śhrī Lalitā, Śhrī Chakra, 56 Ashley Gardens, Ambrosden Avenue (near Victoria Station), London, UK</b></font>
 </p>
 
@@ -88,12 +88,12 @@ Now you have had nine Pūjās here and out of these nine Pūjās have we improve
 
 <p>
 <font color="green"><b>Śhrī Durgā Ādi Śhakti</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://youtu.be/IZxG3j1wUyE">video</a>
 </p>
 
 <p>
 <font color="green"><b>Śhrī Mātājī playing harmonium as Sahaja Yogis sing Devī Bhajans</b></font><br>
-<a href="https://youtu.be/5e0z7vrmYiU">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <div style="text-align: center"><img src="/images/image1268.png" /></div>
