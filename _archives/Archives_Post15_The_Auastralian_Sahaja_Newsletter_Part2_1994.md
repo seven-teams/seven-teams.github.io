@@ -88,15 +88,21 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 <iframe src="/pdf/?usedownload=true#/files/1994-0325_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 <br>
 
-<font color="DarkGreen"><b>1994THEAUSSAHNEW11.</b></font> <b>1994-0422 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007)
+<font color="DarkGreen"><b>1994THEAUSSAHNEW11.</b></font> <b>1994-0422 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007 as 2 pages and on 2023-1024 as 5 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1994-0422_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
+<iframe src="/pdf/?usedownload=true#/files/1994-0422_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+
 <br>
 
-<font color="DarkGreen"><b>1994THEAUSSAHNEW12.</b></font> <b>1994-0429 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007)
+<font color="DarkGreen"><b>1994THEAUSSAHNEW12.</b></font> <b>1994-0429 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007 as 2 pages and on 2023-1024 as 5 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1994-0429_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1994-0429_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
 
 <br>
 
@@ -106,9 +112,12 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>1994THEAUSSAHNEW14.</b></font> <b>1994-0527 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007)
+<font color="DarkGreen"><b>1994THEAUSSAHNEW14.</b></font> <b>1994-0527 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007 as 2 pages and on 2023-1024 as 5 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1994-0527_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1994-0527_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
 
 <br>
 
@@ -254,8 +263,10 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 <iframe src="/pdf/?usedownload=true#/files/1994-1125_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 <br>
 
-<font color="DarkGreen"><b>1994THEAUSSAHNEW39.</b></font> <b>1994-1209 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007)
+<font color="DarkGreen"><b>1994THEAUSSAHNEW39.</b></font> <b>1994-1209 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007 as 2 pages and on 2023-1024 as 5 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1994-1209_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1994-1209_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>

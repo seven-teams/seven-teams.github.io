@@ -110,7 +110,7 @@ Whose face is pleasing,<br>
 Who grants all boons and protection,<br>
 Who is three-eyed, Who wears red clothes, and<br>
 Who fulfills the desires of Her devotees.</b></font><br>
-Śhrī Devī Atharva Śhīrṣha
+<font size="+0">(Śhrī Devī Atharva Śhīrṣha)</font>
 </p>
 
 <p>
