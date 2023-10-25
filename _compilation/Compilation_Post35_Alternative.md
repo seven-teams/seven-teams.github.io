@@ -466,7 +466,11 @@ But still to be aware at that time, to have presence of mind at that very moment
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"When I see Western people seeking, I find that there is a basic reason ... why there's such a strong desire to seek. Because we are born with a faith within ourselves. It is there, innately built in. We have faith in our future, and innately we have the faith that there is something divine.<br>
+While in the East we have so much talk about the ascent.<br>
+But in the West, when the science challenged your faith, you did not know how to cope with it. Also, the religion could not provide the answer. And people started asking question[s]. This mental process made them struggle to use some sort of a means by which they could resolve this struggle between the faith and these challenges. <font color="DarkRed">And they had no alternatives.</font><br>
+So when such a market started expressing itself, people from the East, also from the West, came as fake masters. Because you were not aware as to what is [there] to seek, what is [there] to achive, they just made money out of you, and did[n't] give you anything that they were claiming. Like all the religions, they were money-oriented or power-oriented.<br>
+Because of this deviation, all the religions became fundamentalist. They could not see that all religions are born like flowers on a tree, the Tree of Spirituality, at different times. But they plucked the flowers, and started fighting among themselves with those dead flowers, that, 'This is mine,' 'This is mine.' "<br>
 <font size="+0"><b>1992-0701 Public Program, Day 1, Cultureel Centrum 'Artemis' (now Rijksmonument), Keizersgracht 676 (at the Vijzelstraat), Amsterdam, Netherlands</b></font>
 </p>
 
@@ -480,21 +484,33 @@ But still to be aware at that time, to have presence of mind at that very moment
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed"><b>Śhrī Mātājī</b></font>: Our country is poor because we are not patriotic. Even the politicians are not patriotic here. When we become patriotic we will become prosperous.<br>
+The World Bank grants donations to our country, but much of it goes into Swiss bank accounts. One quarter of the resources are here, and three quarters are in Swiss banks. The World Bank then gets us loans from the Swiss banks, and then we become indebted. This is how the debt increases. Then how will we become prosperous?<br>
+You only elect people who are known thieves and notorious. What to do? It's entirely your fault. During elections, they distribute cash and get reelected.<br>
+<b>Gentleman:</b> [<font color="orange">unclear</font>]<br>
+<font color="DarkRed"><b>Śhrī Mātājī</b></font>: Kyā kare?<br>
+<b>Sahaja Yogi [repeats]:</b> "We don't have any alternatives."
+<font color="DarkRed"><b>Śhrī Mātājī</b></font>: <font color="DarkRed">Brother, you are the alternatives. Now, you people need to become the alternative to this situation.</font><br>
+One day I said that, "Sahaja Yogis will enter politics." So many newspaper journalists came to Me to ask about this. I said, "Oh My God!" I said, "No! No! If you people are going to follow us like this, we won't enter politics." Everything is all right but there is a limit to everything.<br>
 <font size="+0"><b>1993-0322 Public Program (Hindi), Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"Despite all these so-called religions, we have had so many problems with the fundamentalist[s].<br>
+<font color="DarkRed">But some people do see but they don't know [that] there is an alternative. There is an alternative: that you are to be born-again, that you have to ascend and transcend this human awareness to a higher level.</font><br>
+Surprisingly, Gnostics as they were in those days, Thomas also has written a beautiful treatise in [Nag] Hammadi."<br>
 <font size="+0"><b>1993-0718 Public Program, Alpheusdal (now Zaal Apollo), Filip Williotstraat 22, Berchem (5 kms SSE of Antwerp), Belgium</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"Above all, you jump into the Ocean of Joy.<br>
+Joy is singular.<br>
+When our ego is happy we become happy, when it is punctured we feel unhappy. So we move from happiness to unhappiness and happiness to unhappiness.<br>
+<font color="DarkRed">But joy is-s-s an experience, which is ... which has no alternative.</font> You can enjoy everything, and you can find solutions to everything."</font><br>
 <font size="+0"><b>1994-0719 Public Program, Saal F (Floor 0), Austria Center, Vienna, Austria</b></font>
 </p>
 
@@ -517,7 +533,8 @@ Their situation becomes so bad that I feel that if anyone gets some disease, at 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"<font color="DarkRed">The other day in America, in a very big organization called as I... IM...U [NIH], something like that, which is working out all kinds of uh-uh-uhm ... all kinds of uh-uh [medical] alternatives, and there when doctor asked one Sahaja Yoginī, who was not a doctor: "All right, tell me on your fingertips what's wrong with me." And she said: "You have a bad heart. There's problem in your heart." He was surprised because he said: "Only one month back I had a bypass, bypass surgery."</font><br> 
+So you can imagine: how on fingertips you can say what's wrong with you and what's wrong with other[s[. Absolute Truth, you can feel it on your fingertips."</font><br>
 <font size="+0"><b>2000-0926 Public Program, Day 1, Royal Albert Hall, Kensington Gore, London SW7, UK</b></font>
 </p>
 

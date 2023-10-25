@@ -12,10 +12,11 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 3 Photos from the special events during the <font color="Crimson"><b>1984-1000 Visit, Beijing, China</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections and 1 medium resolution from the Unnanmed Collections.<br>
+We are pleased to let you know that 4 Photos from the special events during the <font color="Crimson"><b>1984-1000 Visit, Beijing, China</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 high resolutions from the Named Collections and 1 medium resolution from the Unnanmed Collections.<br>
 The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/China/1984/"> China 1984</a>.<br>
 [Note 1: original title of 1988-0000 was changed on 2023-0519.]<br>
-[Note 2:  the medium resolution upload on 2023-0530.]<br>
+[Note 2: the medium resolution upload on 2023-0530.]<br>
+[Note 3: one high resolution was uploaded on 2023-1025.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>

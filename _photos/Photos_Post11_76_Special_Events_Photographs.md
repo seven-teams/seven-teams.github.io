@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 18 Photos from the special event <font color="Crimson"><b>1984-1000 Sightseeing, Xi'An, Shaanxi, China</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 18 high resolutions from the Named Collections.<br>
+We are pleased to let you know that 18 Photos from the special event <font color="Crimson"><b>1984-1000 Sightseeing, Xi'An, Shaanxi, China</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 18 high resolutions (tif-neg) from the Named Collections.<br>
 The direct link to the 19 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1984/"> Collection 1984</a>.<br>
 The event has as well 4 photos Moments of Joy which can be seen in the smallest gallery at the link <a href="https://eternalmoments.smugmug.com/Countries/China/Moments-of-Joy"> China Moments of Joy</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
