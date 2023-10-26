@@ -32,21 +32,31 @@ One who bestows benedictions and rules over the entire world.<br>
 <p>
 <font color="DarkRed">"Today, we have gathered here to do the Devī Pūjā.<br>
 This Pūjā was performed many a times and the Devī was requested by the Devas to save them from the tyranny of devilish people. <b>Today I feel the same way, that we are now in the grip of a funny situation; that there are people who are themselves devils, I think, -- and also [who are] mesmerized by them -- who are trying to do something which they should never have done. But they don't know that there is a climax of everything. And that point has arrived where all the good people, especially the Sahaja Yogis should put all their mind to the destruction of these horrible personalities like Mahiṣhāsura.</b><br>
-In those days, it was very simple because devils came as devils and you could see them, that they are devils, and all their behavior proved that they were devils. Why they did it? Why were they cruel? Because so-called `human beings' as they are -- they are not -- they are by nature devilish and they want to do something by which they can destroy human beings, and good human beings. It is evident that the time has come for them to be destroyed."</font><br>
+In those days, it was very simple because devils came as devils and you could see them, that they are devils, and all their behavior proved that they were devils. Why they did it? Why were they cruel? Because so-called 'human beings' as they are -- they are not -- they are by nature devilish and they want to do something by which they can destroy human beings, and good human beings. It is evident that the time has come for them to be destroyed."</font><br>
 <font size="+0"><b>2001-1021 Navarātri Pūjā (5th Day), You Should Become Really Soldiers of Love and Peace (Overcome Hatred with Love or To Hate is a Very Bad Quality), Sportcamp, Avras, Loutraki, Greece</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1258.png" /></div>
 
-<p style="text-align:center;">
-<font size="-1"><font color="DarkGreen"><b></b><br>
-</font></font><br>
-<a href="">video</a>
+<p style="color:DarkRed; text-align:center;">
+<b>Tãmagnivarnã tapasã jwalanti. Vairochanim karma faleshu jushtãm.<br>
+Durgã Devim sharanam prapadyã mahe asurannash yitraye te namah.<br>
+We all surrender to Dévi Durga.</b><br>
+Who is having the complexion like the flames of burning fire,<br>
+who is resplendent with the knowledge, who rewards the actions.<br>
+Salutations to the destroyer of demons.<br>
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"So for today's Navarātri, I have to tell you that ... <b>just try to keep in mind that today you are worshiping the Ādi Śhakti and not only Durgā</b>. And you are worshiping Durgā and all these Goddesses to thank them because, if they had not saved you that time, you had been so frightened, you would have become bad people and would not have been here. That is why we are thankful to them for saving us and giving us this protection at that time when we were very helpless.<br>
+May God bless you!"</font><br>
+<font size="+0"><b>1991-1013 Navarātri Pūjā (6th Day), False Religion and Recognize Me, Tent, Cabella Ligure, Alessandria, Italy</b></font>
+</p>
+
+<p>
+<font color="DarkRed">"...... Mahākālī and Mahāsaraswatī, both are the Powers of Śhrī Sadāśhiva. Ādi Śhakti first formed Herself into Mahākālī, which is the Power of Desire. But all these powers are nothing but the Power of God's Love. So, in the series of this Great Love of God, Ādi Śhakti had to first become the Power of Desire.<br>
+In the same way, <b>Sahaja Yogis who are bestowed with this Power of Love have to have full desire in their heart. Desire to love. That desire is very different from the other kinds of human love we have known.</b> In other kinds of human love, when we have relations with others, we have expectations, and that's why it is very disappointing."</font><br>
+<font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Lucerne, Switzerland</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1259.png" /></div>

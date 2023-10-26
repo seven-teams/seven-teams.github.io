@@ -38,7 +38,7 @@ Who fulfills the desires of Her devotees.</b></font><br>
 <font color="DarkRed">"<b>Now you enter into the Kingdom of God. Then the Śhakti makes you sit on different beautiful positions, and some are sitting in the Heart of God, some are sitting in the Sahasrāra of God, in the Kingdom of God.</b><br>
 Now you should assume your power. On Navarātri now, you should understand that it has now crossed the limit and now we are on the tenth position, where you must assume. I have told you many a times, now believe that you are Sahaja Yogis. Believe that you are, you have entered into the Kingdom of God. You cannot judge God, you cannot say why She does that, why She does that, why He does that. You cannot say that -- that's different. But when you sit there, then it is not an assembly, it is not like a politician fighting, no; it is that you have entered into the Kingdom of God, blessed by God, looked after, protected, nourished, and made knowledgeable.<br>
 ......<br>
-So Navarātri's -- <b>now, the tenth day of Navarātri, which is the most important for all of you, is where this Paramachaitanya has become active. And by its activity you should know it is become very powerful, and that now anybody who tries to be nasty with you, tries to trouble you -- ``I don't have to worry at all." It will take care of it.</b>"</font><br>
+So Navarātri's -- <b>now, the tenth day of Navarātri, which is the most important for all of you, is where this Paramachaitanya has become active. And by its activity you should know it is become very powerful, and that now anybody who tries to be nasty with you, tries to trouble you -- "I don't have to worry at all." It will take care of it.</b>"</font><br>
 <font size="+0"><b>1992-0927 Navarātri Pūjā (1st Day), 10th Position or Divine Knowledge is the Reality, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -46,14 +46,21 @@ So Navarātri's -- <b>now, the tenth day of Navarātri, which is the most import
 <div style="text-align: center"><img src="/images/image1270.png" /></div>
 
 <p style="text-align:center;">
-<font size="-1"><font color="DarkGreen"><b></b><br>
-</font></font><br>
-<a href="">video</a>
+<font color="DarkRed">"...... on this day of this Pūjā, <b>it's such a combination that it's the Dussehra, I am here and also you can call it the last day of the Devī Pūjā</b>. We have to see within ourselves, introspect, 'What have I done for Sahaja Yoga?"</font><br>
+<font size="+0"><b>1993-1024 Navarātri Pūjā (Dussehra Day), Reintrospect Yourself, Tent, Cabella Ligure, Alessandria, Italy</b></font><br>
+<br>
+<font color="Indigo"><b>Jay jay Raghuvīra Samartha</b><br>
+Victory to the all-powerful Śhrī Rāma!<br>
+<b>Auṃ Twameva sākṣhāt Śhrī Rāma sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
+O Divine Mother, You are verily Śhrī Rāma. Salutations to You! 
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> So today is Dussehra, is a very big day in India. They say on this day Rāvaṇa was killed. He was the worst enemy of human beings, and he was killed. But whatever it is then, as a memory of that great man, Śhrī Rām, they celebrate today Dussehra. And on this day, they say, those who are duṣhṭas, means bad people or we can say negative, they are killed. Can you imagine? [Chuckles.]<br>
+So this day is regarded as a very important day in India, and they make a big statue of Rāvaṇa. You all know who was Rāvaṇa, ...<br>
+<b>Sahaja Yogis:</b> Yes, Śhrī Mātājī.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> ... whom Śhrī Rāma killed. He was a horrible fellow and he took away the wife of Śhrī Rām, Sītā, by force. But she was such a chaste woman that he couldn't touch Her. He tried, he couldn't touch Her. He couldn't achieve any power over Her. On the contrary, She was very powerful. </font><br>
+<font size="+0"><b>2007-1021 Navarātri Pūjā (Dussehra Day), Sydney, New South Wales, Australia</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1271.png" /></div>
