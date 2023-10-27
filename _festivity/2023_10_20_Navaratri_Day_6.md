@@ -72,61 +72,66 @@ Salutations be to You, O Kātyāyanī</font><br>
 
 <div style="text-align: center"><img src="/images/image1255.png" /></div>
 
-<p>
-<font color="DarkRed">""</font><br>
+<p style="text-align:center;">
+<font color="DarkRed"><b></b></font><br>
 <font size="+0"><b></b></font>
 </p>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"<b>To all devotees and followers of truth, who have assembled here for the Pūjā, I offer My protection.</b><br>
+In this Kali Yug of today, when so much devotion and homage for the Mother, and so much love comes into the hearts of human beings, then we can know that Satya Yuga has begun.<br>
+This is a most fortunate and divine coincidence for Me also, that on a Ṣhaṣhṭhī Day I came to Kolkata [arrival on 196-1009]. Because, in the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day. <b>Ṣhaṣhṭhī Day is of Śhākambharī Devī</b>, and on that day the whole nature should be green and lush. "</font><br>
+<font size="+0"><b>1986-1010 Navarātri Pūjā (Hindi) (7th Day), Lions Club Safari Park, Southern Avenue, Kolkata, West Bengal, India</b></font><br>
+<br>
+<font color="DarkGreen"><b>AMBE TU PĀRVATĪ PARAMEŚHWARĪ<br>
+MAHALAKSHMI TU SAPTAŚHṚIṄGĪ TU JAY JAY ŚHĀKAMBHARĪ</b><br>
+You are Mahālakṣhmī, You are Saptaśhṛiṅgī, Victory to Śhākambharī (The Bearer of the Greens)<br>
+<b>JAY JOGEŚHWARĪ JAY MAHEHŚWARĪ JAY JAY PRAṆEŚHWARĪ</b><br>
+Victory to Jogeśhwarī (Goddess of Yoga), Victory to Maheśhwarī (Goddess of Shri Shiva), Victory to Praṇeśhwarī (Goddess of vital breath)</font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b></b></font>
-<a href=""> video</a><br>
+<font size="+0"><b>1985-1020 Havan, Blessed Are Those Who Are Sahaja Yogis, the day after Navarātri Pūjā (8th Day), Rūtli Kaltbad Mountain, Weggis (19 kms E of Luzern on Luzern Lake), Lucerne, Switzerland</b></font>
+<a href="https://vimeo.com/117133344"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b></b></font><br>
-<br>
-<br>
-<br>
-<a href=""> video</a><br>
-</p>
-
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
-</p>
-
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="green"><b>Durgā Ādi Śhakti Śhrī Mātājī</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>He Bhavānī Bhagavatī</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Namostute Bhagavatī Śhrī Mātājī</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Jay Durge Durgati Pariharini</b></font><br>
+<a href="https://youtu.be/F68hoY8ZhOI">video</a> 
 </p>
 
 <div style="text-align: center"><img src="/images/image1256.png" /></div>
+
+<p style="text-align:center;">
+<font color="DarkGreen">"Belgium has a speciality that it creates glass bangles for the Mother. That is, <b>the bangles which are used as a beautiful musical accompaniment to the gait, to all the movements of the Goddess.</b> It brings a delicacy in a woman; and gives a consciousness to the man or the men that there are ladies around. And the ladies are around who are married ladies, are very auspicious. And this auspiciousness is the one that is going to bring in this country or in any country whatsoever all the blessings.<br>
+<b>Also in Sanskrit language a bangle is called as valaya, and that is the last stage which one has to reach in one's ascent. That means the complete.</b>"</font><br>
+<font size="+0"><b>1986-0921 Śhrī Mahālakṣhmī Pūjā, Śhrī Jaldevatā, Oude Stadsfeestzaal, Mechelen (27 kms S of Antwerp), Belgium</b></font>
+</p>
+
+<p>
+<font color="DarkRed">"<b>Now for Pūjā, one has to understand. But without Realization, Pūjā has no meaning. Because you are not ana-nya. Means: you have to become aware of your whole.</b><br>
+Kṛiṣhṇa's description of bhakti is ananya. He says, ``I will give you Ananya Bhakti," He wants Ananya Bhakti, means when there is not the other, means when we are realized.<br>
+Otherwise He says ``Puṣhpaṃ, phalaṃ, toyaṃ" [part of Bhagavad Gītā 9.26, line 1], <b>"A flower, a fruit and a water: whatever you give me I accept." But when it comes to giving, He says, ``You have to come to Me with Ananya Bhakti," means: when you have become one with Me, then you should have the devotion, not before that. Before that, you are not connected.</b><br>
+Now Pūjā is the left-hand side projection. It's the neutralization of the right side, very much. Specially for people who are very right-handed, atmosphere which is very right-handed, <b>Pūjā is</b> ideal for them. <b>Is the bhakti, is the devotion ... that you project.</b>"</font><br>
+<font size="+0"><b>1980-0719 Talk to Sahaja Yogis, The Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font>
+</p>
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>

@@ -61,61 +61,75 @@ In the same way, <b>Sahaja Yogis who are bestowed with this Power of Love have t
 
 <div style="text-align: center"><img src="/images/image1259.png" /></div>
 
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<p style="text-align:center;">
+<font color="DarkGreen"><b>Kālarātri Braham stutām vaishnavi skanda mātaram.<br>
+Saraswatim-aditim-daksha-duhitaram namāmah pāvnam śhivām.<br>
+Salutations to the Goddess, who is the last night, who is praised by Brahmadeva,<br>
+who is the power of Śhrī Viṣhṇu, the mother of Śhrī Kārttikeya, Śhrī Saraswatī, Śhrī Aditi (Mother of Gods), the daughter of Dākṣha and the consort of Śhrī Śhiva.</b></font><br>
+<br>
+<font color="Indigo"><b>Jaya Tvam Devī Chāmuṇḍe jaya bhū-tāpa-hāriṇi,<br>
+Jaya Sarva-gate Devī Kālarātrī namostute</b>
+Victory be to You, O Devi Chamunda,<br>
+Victory be to You Who destroys the suffering of all living beings.<br>
+Victory be to You, O Devī Who is present everywhere.<br>
+Salutations to you O Kālarātrī (the longest night)</b></font><br>
+(from Argala Strotram)<br>
+<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Kālarātrī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
+<b>O Divine Mother, You are verily Śhrī Kālarātrī, the One who is the dark night of dissolution, Salutations to You!</b>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b></b></font>
-<a href=""> video</a><br>
+<font size="+0"><b>1989-1008 Navarātri Pūjā (cusp between 8th Day and 9th Day), The Content Within (How Deeply You Have Touched the Feet of the Divine), Butlins Grand Hotel, Margate (123 kms ESE of London), Kent, UK</b></font>
+<a href="https://vimeo.com/72573127"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b></b></font><br>
-<br>
-<br>
-<br>
-<a href=""> video</a><br>
+<font color="green"><b>Jay Bhagavatī</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="green"><b>Parameśhwarī Bhagavatī Nirmalā</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="green"><b>Ajit Kadkade Rāg Durgā Heart Anahata Chakra</b></font><br>
+<a href="https://youtu.be/HgN42YkSHkY">video</a>
+</p>
+
+<p>
+<font color="green"><b>Bhavānī Aṣhṭakam</b></font><br>
+<a href="https://youtu.be/JQ3ibqZWgDI">video</a>
 </p>
  
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Mahāmāyā Mahākālī, Jay Śherawālī</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font size="+0">Śhrī Durgā Chalisa</font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Devī Atharva Śhīrṣha</b></font><br>
+<a href="https://youtu.be/h8LHLwZHCQM">video</a> 
 </p>
 
 <div style="text-align: center"><img src="/images/image1260.png" /></div>
+
+<p style="text-align:center;">
+<b>Sahaja Yogi:</b> <font size="+0"><font color="DarkGreen"><b>You are the Queen of the Universe. And we are Your devotees, we are Your disciples. So if we are allowed to crown You, it means that we have to have complete adherence, allegiance and surrender.</b></font></font><br>
+<font size="+0"><b>1987-1004 Talk to Sahaja Yogis (Dussehra Day), before, during and after the Evening Program, after Śhrī Rāma Pūjā, Centre International, Les Avants, Vaud, Switzerland</b></font>
+</p>
+
+<p>
+<font color="DarkRed">"<b>But this Pūjā is to be done with full understanding, and with full recognition that it's a great fortune.</b> Even the Devas are jealous of you, all the Ṛiṣhis are jealous of you, so many people are jealous of you. The greatest advantage for you, greatest fortune. Make full use of it. And they are very simple things that can please, very simple. You know your Mother can be pleased with very, very simple things. It's like that only. It's how much heart you have put into it, is the point. "</font><br>
+<font size="+0"><b>1980-0719 Talk to Sahaja Yogis, The Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font>
+</p>
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>
