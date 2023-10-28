@@ -86,103 +86,103 @@ I surrender at the feet of Shri Rama-chandra.<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="blue"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="green"><b>Namostute</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>He Ādi Mā, He Anti Mā</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Nirmal Mā Nirmal Prān Karo</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Ayi Giri Nandini</b></font><br>
+<a href="https://youtu.be/dSIEMZflZa0">video</a> 
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="green"><b>Śhrī Jagadambe Ayi Re</b></font><br>
+<a href="https://youtu.be/BUcvc6e_9-E">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="green"><b>Nirmal Mā Jagdambe Mā</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Jay Bhagavatī</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Durgati Harini Durgā Ambe</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Jay Jagadambe</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font color="green"><b> Anyatha Sharnam Nāsti</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
+<font size="+0"><b>Jay He Jay He Jay He Devī</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+</p>
+
+<p>
+<font color="green"><b>Sarva Mangala</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+</p>
+
+<p>
+<font color="green"><b>Mātā O Mātā</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+</p>
+
+<p>
+<font color="green"><b>Isi Liye Mātājī Hamako</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+</p>
+
+<p>
+<font color="green"><b>Kindle My Heart</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+</p>
+
+<p>
+<font color="green"><b>Viśhwa Vandita</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+</p>
+
+<p>
+<font color="green"><b>Āratī and the Three Great Mantras</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Raghu Pati Raghav</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
-</p>
-
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
-</p>
-
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
-</p>
-
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
-</p>
- 
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
-</p>
-
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
-</p>
-
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Man Ram Rangi Rangle By Bhimsen Joshi</b></font><br>
+<a href="https://youtu.be/o-_qx6VXMA4">video</a> 
 </p>
 
 <div style="text-align: center"><img src="/images/image1272.png" /></div>
