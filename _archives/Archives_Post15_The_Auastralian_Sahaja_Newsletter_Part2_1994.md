@@ -145,19 +145,25 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>1994THEAUSSAHNEW16.</b></font> <b>1994-0610 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007)
+<font color="DarkGreen"><b>1994THEAUSSAHNEW16.</b></font> <b>1994-0610 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007 as 2 pages and on 2023-1028 as 5 pages)
+
+<iframe src="/pdf/?usedownload=true#/files/1994-0610_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <iframe src="/pdf/?usedownload=true#/files/1994-0610_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1994THEAUSSAHNEW17.</b></font> <b>1994-0617 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007)
+<font color="DarkGreen"><b>1994THEAUSSAHNEW17.</b></font> <b>1994-0617 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007 as 2 pages and on 2023-1028 as 5 pages)
+
+<iframe src="/pdf/?usedownload=true#/files/1994-0617_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <iframe src="/pdf/?usedownload=true#/files/1994-0617_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1994THEAUSSAHNEW18.</b></font> <b>1994-0624 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007)
+<font color="DarkGreen"><b>1994THEAUSSAHNEW18.</b></font> <b>1994-0624 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1007 as 2 pages and on 2023-1028 as 4 pages)
+
+<iframe src="/pdf/?usedownload=true#/files/1994-0624_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <iframe src="/pdf/?usedownload=true#/files/1994-0624_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
