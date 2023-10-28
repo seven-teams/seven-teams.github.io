@@ -42,7 +42,6 @@ We bow to Her who is welfare.</b></font><br>
 <font color="Indigo"><b>Mātā O Mātā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
-</p>
 
 <p>
 <font color="DarkRed">"...... today we do, is a very great Pūjā of Aṣhṭamī [eighth day]: is the day when the Goddess killed nine rākṣhasas together with Her eight hands. <b>So today is a very special day for which a very special attention is needed.<br>
@@ -109,27 +108,30 @@ So enjoy yourself. "</font><br>
 <div style="text-align: center"><img src="/images/image1263.png" /></div>
 
 <p style=" text-align:center;">
-<font color="Indigo">He Mahādevī, He Kalyāṇī,</font><br>
+<font color="Indigo"><b>He Mahādevī, He Kalyāṇī,</b></font><br>
 O Great Goddess, You are the benefactress<br>
-<font color="Indigo">Dushto Ka Samhar. Karo</font><br>
+<font color="Indigo"><b>Dushto Ka Samhar. Karo</b></font><br>
 Please kill the the devils and bad people<br>
-<font color="Indigo">Mangal.May Var.Dan Do Maiya,</font><br>
+<font color="Indigo"><b>Mangal.May Var.Dan Do Maiya,</b></font><br>
 Mother give us the auspicious blessings<br>
-<font color="Indigo">Bhav. Se Beda Par. Karo, Mā</font><br>
+<font color="Indigo"><b>Bhav. Se Beda Par. Karo, Mā</b></font><br>
 Take us away from the illusions<br>
-<font color="Indigo">Bhav. Bhakti Me Sharanan. Ae</font><br>
+<font color="Indigo"><b>Bhav. Bhakti Me Sharanan. Ae</b></font><br>
 We have come to Your Lotus Feet with our devotions<br>
-<font color="Indigo">Bin.ti Ma Swikar. Karo</font><br>
+<font color="Indigo"><b>Bin.ti Ma Swikar. Karo</b></font><br>
 Please accept our prayers<br>
-<font color="Indigo">Teri Jayjaykar. Ho</font><br>
+<font color="Indigo"><b>Teri Jayjaykar. Ho</b></font><br>
 We pay our salutations to You!<br>
 <font size="+0"><b>Durgati Harini Durgā Ambe</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
+<font color="IndianRed"><b>We pray to the Supreme Goddess today<br>
+<i>O Devi, O Mahadevi, please protect us.</i></b><br>
+<font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Mahāgaurī Mātā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>2001-1021 Navarātri Pūjā (5th Day), You Should Become Really Soldiers of Love and Peace (Overcome Hatred with Love or To Hate is a Very Bad Quality), Sportcamp, Avras, Loutraki, Greece</b></font>
-<a href="https://vimeo.com/155726822"> video</a><br>
+<a href="https://vimeo.com/25792785"> video</a><br>
 
 <p>
 <font color="green"><b>Devī Mahātmyam Eighth Night</b></font><br>
@@ -139,7 +141,7 @@ We pay our salutations to You!<br>
 <div style="text-align: center"><img src="/images/image1264.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed">"Now you want to give Me a sāṛī. In Marathi it is called as 'pot zakaych', means they're covering the womb of the Goddess, the stomach of the Mother. 'Because She's put us there, She has given us birth, so we must give Her something to cover it,' is a very humble way of saying it. Now you give Me a sāṛī -- I don't know when I'm going to wear all these, but whatever it is -- just give Me a sāṛī with a feeling, and maybe I may never wear it, I may wear it also. <b>But the progeny will see what you have given to your Mother. I'm not going to carry it with Me, nobody's going to carry the matter with them. But it had a purpose, it had a meaning, it had emotions behind it. It was given in a Pūjā when so many people gathered, you gave to your Mother.</b>"</font><br>
+<font color="DarkRed">"Now you want to give Me a sāṛī. <b>In Marathi it is called as 'pot zakaych', means they're covering the womb of the Goddess, the stomach of the Mother.</b> 'Because She's put us there, She has given us birth, so we must give Her something to cover it,' is a very humble way of saying it. Now you give Me a sāṛī -- I don't know when I'm going to wear all these, but whatever it is -- just give Me a sāṛī with a feeling, and maybe I may never wear it, I may wear it also. <b>But the progeny will see what you have given to your Mother. I'm not going to carry it with Me, nobody's going to carry the matter with them. But it had a purpose, it had a meaning, it had emotions behind it. It was given in a Pūjā when so many people gathered, you gave to your Mother.</b>"</font><br>
 <font size="+0"><b>1987-0503 Talk to Sahaja Yogis, before, during and after the Evening Program after Sahasrāra Pūjā, Thredbo Village, Kosciuszko National Park, New South Wales, Australia</b></font><br>
 <br>
 <font color="Indigo"><b>Mazhya Manichi Ga, Mazhya Manichi Manas. Puja,</b><br>
@@ -151,7 +153,7 @@ They offer coconut and an embroidered silk cloth as 'Oti' (asking for blessings)
 <b>Bhakt. Yetil. Dar.shanas</b><br>
 Devotees all come to receive Your Darshan</font><br>
 <font color="DarkGreen"><font size="+0"><b>Māhūra Gaḍāvarī</b></font></font><br>
-<a href="">video</a><br>
+<a href="https://youtu.be/EWoUoau4BOw">video</a><br>
 <font size="+0">(Saundaryalaharī by Śhrī Ādi Śhaṅkarāchārya)</font>
 </p>
 
