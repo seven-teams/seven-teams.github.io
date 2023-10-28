@@ -18,7 +18,7 @@ Besides the thirty-three crores of Devas, there are many Śhaktis. But we can sa
 <div style="text-align: center"><img src="/images/image1253.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"<b>Navarātri is the day to give you the balance.</b> Those whose right hand is tired will get the power in the left hand. Those who have the left hand tired will get the power on the right hand to share the load."</font><br>
+<font color="Red">"<b>Navarātri is the day to give you the balance.</b> Those whose right hand is tired will get the power in the left hand. Those who have the left hand tired will get the power on the right hand to share the load."</font><br>
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Lucerne, Switzerland</b></font>
 </p>
 
@@ -73,11 +73,6 @@ Salutations be to You, O Kātyāyanī</font><br>
 <div style="text-align: center"><img src="/images/image1255.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<p>
 <font color="DarkRed">"<b>To all devotees and followers of truth, who have assembled here for the Pūjā, I offer My protection.</b><br>
 In this Kali Yug of today, when so much devotion and homage for the Mother, and so much love comes into the hearts of human beings, then we can know that Satya Yuga has begun.<br>
 This is a most fortunate and divine coincidence for Me also, that on a Ṣhaṣhṭhī Day I came to Kolkata [arrival on 196-1009]. Because, in the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day. <b>Ṣhaṣhṭhī Day is of Śhākambharī Devī</b>, and on that day the whole nature should be green and lush. "</font><br>

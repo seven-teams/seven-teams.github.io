@@ -22,8 +22,8 @@ This is what has happened in this area before also. They were many kings who rul
 <div style="text-align: center"><img src="/images/image1257.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
-<b>Te devā abruvana - Namo Devyai Mahādevya shivãi satatam namah.<br>
-Namah prakrutyai Bhadrāyai niyatãh prantãh sm-tāam.</b><br>
+<b>Te devā abruvana - Namo Devyai Mahādevya shivāi satatam namah.<br>
+Namah prakrutyai Bhadrāyai niyatāh prantāh sm-tām.</b><br>
 The Gods spoke thus, Salutations to the Great Goddess, the bestower of auspiciousness.<br>
 We all humbly surrender and obeise to the Prakruti (mother of the entire creation).<br>
 One who bestows benedictions and rules over the entire world.<br>
@@ -39,8 +39,8 @@ In those days, it was very simple because devils came as devils and you could se
 <div style="text-align: center"><img src="/images/image1258.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
-<b>Tãmagnivarnã tapasã jwalanti. Vairochanim karma faleshu jushtãm.<br>
-Durgã Devim sharanam prapadyã mahe asurannash yitraye te namah.<br>
+<b>Tāmagnivarnā tapasā jwalanti. Vairochanim karma faleshu jushtām.<br>
+Durgā Devim sharanam prapadyā mahe asurannash yitraye te namah.<br>
 We all surrender to Dévi Durga.</b><br>
 Who is having the complexion like the flames of burning fire,<br>
 who is resplendent with the knowledge, who rewards the actions.<br>
@@ -74,7 +74,7 @@ Victory be to You Who destroys the suffering of all living beings.<br>
 Victory be to You, O Devī Who is present everywhere.<br>
 Salutations to you O Kālarātrī (the longest night)</b></font><br>
 (from Argala Strotram)<br>
-<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Kālarātrī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
+<font color="Brown"><b>Auṃ Twameva sākṣhāt Śhrī Kālarātrī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 <b>O Divine Mother, You are verily Śhrī Kālarātrī, the One who is the dark night of dissolution, Salutations to You!</b>
 </p>
 
@@ -110,7 +110,7 @@ Salutations to you O Kālarātrī (the longest night)</b></font><br>
 </p>
 
 <p>
-<font size="+0">Śhrī Durgā Chalisa</font><br>
+<font color="green"><b>Śhrī Durgā Chalisa</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
