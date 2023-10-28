@@ -139,7 +139,7 @@ We pay our salutations to You!<br>
 <div style="text-align: center"><img src="/images/image1264.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed">"Now you want to give Me a sāṛī. In Marathi it is called as `pot zakaych', means they're covering the womb of the Goddess, the stomach of the Mother. `Because She's put us there, She has given us birth, so we must give Her something to cover it,' is a very humble way of saying it. Now you give Me a sāṛī -- I don't know when I'm going to wear all these, but whatever it is -- just give Me a sāṛī with a feeling, and maybe I may never wear it, I may wear it also. <b>But the progeny will see what you have given to your Mother. I'm not going to carry it with Me, nobody's going to carry the matter with them. But it had a purpose, it had a meaning, it had emotions behind it. It was given in a Pūjā when so many people gathered, you gave to your Mother.</b>"</font><br>
+<font color="DarkRed">"Now you want to give Me a sāṛī. In Marathi it is called as 'pot zakaych', means they're covering the womb of the Goddess, the stomach of the Mother. 'Because She's put us there, She has given us birth, so we must give Her something to cover it,' is a very humble way of saying it. Now you give Me a sāṛī -- I don't know when I'm going to wear all these, but whatever it is -- just give Me a sāṛī with a feeling, and maybe I may never wear it, I may wear it also. <b>But the progeny will see what you have given to your Mother. I'm not going to carry it with Me, nobody's going to carry the matter with them. But it had a purpose, it had a meaning, it had emotions behind it. It was given in a Pūjā when so many people gathered, you gave to your Mother.</b>"</font><br>
 <font size="+0"><b>1987-0503 Talk to Sahaja Yogis, before, during and after the Evening Program after Sahasrāra Pūjā, Thredbo Village, Kosciuszko National Park, New South Wales, Australia</b></font><br>
 <br>
 <font color="Indigo"><b>Mazhya Manichi Ga, Mazhya Manichi Manas. Puja,</b><br>
@@ -150,7 +150,7 @@ Out of love, they make this offering to the eight-handed Goddess:<br>
 They offer coconut and an embroidered silk cloth as 'Oti' (asking for blessings)<br>
 <b>Bhakt. Yetil. Dar.shanas</b><br>
 Devotees all come to receive Your Darshan</font><br>
-<font color="DarkGreen"><font size="+0"><b>Māhūra Gaḍāvarī/b></font></font><br>
+<font color="DarkGreen"><font size="+0"><b>Māhūra Gaḍāvarī</b></font></font><br>
 <a href="">video</a><br>
 <font size="+0">(Saundaryalaharī by Śhrī Ādi Śhaṅkarāchārya)</font>
 </p>
