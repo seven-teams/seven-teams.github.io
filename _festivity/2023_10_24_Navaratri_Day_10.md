@@ -11,7 +11,7 @@ tags:
 
 <p>
 <font color="DarkRed">"Don't worry about anything, just know that I am the Ādi Śhakti. That all the Powers of God and Goddesses and all that are within Me and they are within Me and they are all looking after you. But if that recognition is not there, they are not going to recognize you either.<br>
-So for today's Navarātri, I have to tell you that -- just try to keep in mind that today you are worshiping the Ādi Śhakti and not only Durgā. And you are worshiping Durgā and all these Goddesses to thank them because, if they had not saved you that time, you had been so frightened, you would have become bad people and would not have been here. That is why we are thankful to them for saving us and giving us this protection at that time when we were very helpless.<br>
+<b>So for today's Navarātri, I have to tell you that -- just try to keep in mind that today you are worshiping the Ādi Śhakti and not only Durgā.</b> And you are worshiping Durgā and all these Goddesses to thank them because, if they had not saved you that time, you had been so frightened, you would have become bad people and would not have been here. That is why we are thankful to them for saving us and giving us this protection at that time when we were very helpless.<br>
 May God bless you!"</font><br>
 <font size="+0"><b>1991-1013 Navarātri Pūjā (6th Day), False Religion and Recognize Me, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
@@ -51,22 +51,22 @@ So Navarātri's -- <b>now, the tenth day of Navarātri, which is the most import
 <br>
 <font color="Indigo"><b>Jay jay Raghuvīra Samartha</b><br>
 Victory to the all-powerful Śhrī Rāma!<br>
-<b>Auṃ Twameva sākṣhāt Śhrī Rāma sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
+<b>Auṃ Twameva sākṣhāt Śhrī Rāma sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 O Divine Mother, You are verily Śhrī Rāma. Salutations to You! 
 </p>
 
 <p>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> So today is Dussehra, is a very big day in India. They say on this day Rāvaṇa was killed. He was the worst enemy of human beings, and he was killed. But whatever it is then, as a memory of that great man, Śhrī Rām, they celebrate today Dussehra. And on this day, they say, those who are duṣhṭas, means bad people or we can say negative, they are killed. Can you imagine? [Chuckles.]<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">So today is Dussehra, is a very big day in India. They say on this day Rāvaṇa was killed. He was the worst enemy of human beings, and he was killed. But whatever it is then, as a memory of that great man, Śhrī Rām, they celebrate today Dussehra. And on this day, they say, those who are duṣhṭas, means bad people or we can say negative, they are killed. Can you imagine? [Chuckles.]</font><br>
 So this day is regarded as a very important day in India, and they make a big statue of Rāvaṇa. You all know who was Rāvaṇa, ...<br>
 <b>Sahaja Yogis:</b> Yes, Śhrī Mātājī.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> ... whom Śhrī Rāma killed. He was a horrible fellow and he took away the wife of Śhrī Rām, Sītā, by force. But she was such a chaste woman that he couldn't touch Her. He tried, he couldn't touch Her. He couldn't achieve any power over Her. On the contrary, She was very powerful. </font><br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">... whom Śhrī Rāma killed. He was a horrible fellow and he took away the wife of Śhrī Rām, Sītā, by force. But she was such a chaste woman that he couldn't touch Her. He tried, he couldn't touch Her. He couldn't achieve any power over Her. On the contrary, She was very powerful.</font><br>
 <font size="+0"><b>2007-1021 Navarātri Pūjā (Dussehra Day), Sydney, New South Wales, Australia</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1271.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
+<font color="DarkRed">"That's why I have to tell you that on this day of Dussehra, let us decide that we are going to have Rām Rāj in Sahaja Yoga, where there is benevolence, there is love, compassion, security, peace, joy, discipline among ourselves."</font><br>
 <font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Vaud, Switzerland</b></font><br>
 <font color="Indigo"><b>Śhrī Rāmachandra charanau manasā smarāmi</b></font><br>
 I worship the feet of Shri Rama-chandra in my heart.<br>
@@ -76,7 +76,7 @@ Shrī Rāma-chandra charanau shirasā namāmi<br>
 I bow at the feet of Shri Rama-chandra.<br>
 Shrī Rāma-chandra charanau sharanam prapadye<br>
 I surrender at the feet of Shri Rama-chandra.<br>
-<font size="+0"><b>(Shri Rama-raksha stotram)</b></b>
+<font size="+0"><b>(Shri Rama-raksha stotram)</b></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
