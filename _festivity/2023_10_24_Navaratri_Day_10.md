@@ -56,8 +56,8 @@ O Divine Mother, You are verily Śhrī Rāma. Salutations to You!
 </p>
 
 <p>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">So today is Dussehra, is a very big day in India. They say on this day Rāvaṇa was killed. He was the worst enemy of human beings, and he was killed. But whatever it is then, as a memory of that great man, Śhrī Rām, they celebrate today Dussehra. And on this day, they say, those who are duṣhṭas, means bad people or we can say negative, they are killed. Can you imagine? [Chuckles.]</font><br>
-So this day is regarded as a very important day in India, and they make a big statue of Rāvaṇa. You all know who was Rāvaṇa, ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"><b>So today is Dussehra, is a very big day in India.</b> They say on this day Rāvaṇa was killed. He was the worst enemy of human beings, and he was killed. But whatever it is then, as a memory of that great man, Śhrī Rām, they celebrate today Dussehra. And on this day, they say, those who are duṣhṭas, means bad people or we can say negative, they are killed. Can you imagine? [Chuckles.]<br>
+So this day is regarded as a very important day in India, and they make a big statue of Rāvaṇa. You all know who was Rāvaṇa, ...</font><br>
 <b>Sahaja Yogis:</b> Yes, Śhrī Mātājī.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">... whom Śhrī Rāma killed. He was a horrible fellow and he took away the wife of Śhrī Rām, Sītā, by force. But she was such a chaste woman that he couldn't touch Her. He tried, he couldn't touch Her. He couldn't achieve any power over Her. On the contrary, She was very powerful.</font><br>
 <font size="+0"><b>2007-1021 Navarātri Pūjā (Dussehra Day), Sydney, New South Wales, Australia</b></font>
@@ -86,7 +86,7 @@ I surrender at the feet of Shri Rama-chandra.<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="blue"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
+<font color="green"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
