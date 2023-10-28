@@ -65,33 +65,99 @@ So this day is regarded as a very important day in India, and they make a big st
 
 <div style="text-align: center"><img src="/images/image1271.png" /></div>
 
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<p style="text-align:center;">
+<font color="DarkRed"><b></b></font><br>
+<font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Vaud, Switzerland</b></font><br>
+<font color="Indigo"><b>Śhrī Rāmachandra charanau manasā smarāmi</b></font><br>
+I worship the feet of Shri Rama-chandra in my heart.<br>
+Shrī Rāma-chandra charanau vachasā gṛunāmi<br>
+Through my songs and prayers I praise the feet of Shri Rama-chandra.<br>
+Shrī Rāma-chandra charanau shirasā namāmi<br>
+I bow at the feet of Shri Rama-chandra.<br>
+Shrī Rāma-chandra charanau sharanam prapadye<br>
+I surrender at the feet of Shri Rama-chandra.<br>
+<font size="+0"><b>(Shri Rama-raksha stotram)</b></b>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b></b></font>
-<a href=""> video</a><br>
+<font size="+0"><b>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
+<a href="https://vimeo.com/76751298"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
 <font color="green"><b></b></font><br>
-<br>
-<br>
-<br>
-<a href=""> video</a><br>
+<a href="">video</a>
+</p>
+
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a>
+</p>
+ 
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a> 
+</p>
+
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a> 
+</p>
+
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a> 
+</p>
+
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a>
+</p>
+
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a>
+</p>
+ 
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a> 
+</p>
+
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a> 
+</p>
+
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a> 
+</p>
+
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a>
+</p>
+
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a>
+</p>
+ 
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a> 
+</p>
+
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a> 
+</p>
+
+<p>
+<font color="green"><b></b></font><br>
+<a href="">video</a> 
 </p>
 
 <p>
@@ -120,6 +186,18 @@ So this day is regarded as a very important day in India, and they make a big st
 </p>
 
 <div style="text-align: center"><img src="/images/image1272.png" /></div>
+
+<p style="text-align:center;">
+<font color="DarkGreen">"<b>When you offer Me flowers or anything else like water then the elements are happy, and the Deities are happy within their chakras so that they emit vibrations of their qualities and their blessings upon you.</b> They will give you their qualities and their blessings because this is how the Divine acts, and gradually after a Pūjā you will feel the whole thing is working out."</font><br>
+<font size="+0"><b>1986-0524 Śhrī Mahālakṣhmī Pūjā, The Importance of Pūjā, House of Juan Antonio Delgado, Madrid, Spain</b></font>
+</p>
+
+<p>
+<font color="DarkRed">"<b>I've told you before also but again today I want to tell you the significance of Pūjā. The significance is this: that when you do the Pūjā you recognize Me. By your recognition, and your surrendering, the Deities get happy.</b> They're overjoyed that you have recognized it, you are fully identified yourself, that you are understanding Me in My full form, that you are coming closer to Them. Like elder brothers feel happy when the younger ones are coming to meet them. So, They start releasing My vibrations with a greater force, much greater force.<br>
+You have seen that after Pūjā, sometimes when you do not absorb the vibrations, I get little tired because the vibrations start coming out of all the chakras and you do not absorb, so the give-and-take process is not balanced.<br>
+The identification in the West is very slow because of mental activity. Your attachment to your mental activity and to your rationality is very great. With Pūjā, the vibrations try to detach you from your mental activity, from your rationality. And then you ... you are station into the Realm of Divine Existence."</font><br>
+<font size="+0"><b>1980-0420 Pūjā, Significance of Pūjā, Flat of Marie Rouger, 175 Av. Ledru Rollin, 11th Arrondissement, Paris, France</b></font>
+</p>
 
 <p>
 <font size="+0">Jai Śhrī Mātājī!<br>
