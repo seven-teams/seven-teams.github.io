@@ -637,11 +637,250 @@ We can say that on the Tree of Life there were one or two flowers in the beginni
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font color="red">"Great Sages and Saints were forthright and spoke openly about the untruth -- Socrates was poisoned for speaking the Truth."</font><br>
+<font size="+0"><b>1990-0223 Śhivarātri Pūjā (Hindi), Ātma-sākṣhātkārī kī Viśheṣhatāeṃ (Attributes of Self-realization), Flora Palace, Pune, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-0305 Interview with a Greek Lady Journalist for a TV Station, Interview with Frances Kelly for `The Herald' Newspaper, and Talk to Sahaja Yogis, Garden, House of Greg and Cheryl Bradshaw, East Burwood, Melbourne, Victoria, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<b>Sahaja Yogi:</b> [Summarizes a gentleman:] "Is Kuṇḍalinī the only force in this particular time, that will do this particular job?"<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> No, all the time this was the force, all the time. Is all the time, this was the force. It's called, also, in the Bible it is said, that, about the Tree of Life, is this mechanism. Also said that, "I'll p... appear before you as tongues of flames," is the Kuṇḍal... the ... when the Kuṇḍalinī rises, then your centers look like that. So many things there are even in the Bible. In everything, in Qur'ān it is called as 'Asas. The names are different, but it is so.<br>
+Like Tao is the Kuṇḍalinī. Tao as described, is also Kuṇḍalinī.<br> 
+Zen system, Zen also means the same, Dhyāna, is the same thing.<br> 
+<font color="red">Confucius talked of the same thing, Socrates talked of the same thing.</font><br>
+But only thing it was not so said so clearly. Because there were not people intelligent as you are today, to understand [laughing:] it, I think, that it was not said so clearly.<br>  
+<font size="+0"><b>1990-0314 Public Program, Day 2, Auckland, New Zealand</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-0324 Talk to Sahaja Yogis, Democracy, Communism, Human Laws and the Spirit, Birthday Felicitations, Bhaidas Hall, Gulmohar Road, (U-1) J.V.P.D, Near Mithibai College, Vile Parle West, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"And you will not believe like this Greece is described in our Purāṇas as the Maṇipūr, Maṇipūr Devī, basic Nābhī given, already described [in] ancient times. Is the Navel of the Universe and there resides Athena, is described, is the Ādi Śhakti, is described. So many things are described which I'm carrying when I came before. Everything is there still, just the same.<br>
+And it is a Devalok, means this, this is the ... uh ... area of the Gods. But the mistake was, I think, that all the Gods were brought to the human level. Instead of ascending to their level, they were brought to human level. But India we don't do that way. Is inauspicious. We have to rise up to their level.<br>
+<font color="red">But you had Socrates, I mean, He was the Primordial Master.<br>
+[Related to the Greek translation:] We, too, call Him Sukarāt, as you call, we call Sukarāt.</font> There's so many things common.<br>
+And you'll be surprised that thousands of years back, even before Alexander's, with the so many Greeks lived in India.<br>
+So it should not be difficult for us to understand the deeper meanings of our lives because you have such a traditional history."<br>
+<font size="+0"><b>1990-0621 Public Program, Day 2, Athens, Greece</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-0725 Press Conference, Sheraton Sofia Hotel Balkan, pl. Sveta Nedelya 5, 1000 Sofia Center, Sofia, Bulgaria</b></font>
+</p>
+
+<div class="para-divider"></div>
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-0817 Talk to Sahaja Yogis, before the Evening Program, the Friday before Śhrī Kṛiṣhṇa Pūjā, Hallowtree Scout Campsite, Nacton, Ipswich IP10 0JP, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-0831 Śhrī Hanumāna Pūjā, Electromagnetic Force, Schloss Schwetzingen, Frankfurt, Hesse, Germany</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-1221 Śhrī Mahālakṣhmī Pūjā (Hindi + English), Hall, Kolhapur, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Maryādā Puruṣhottam is a characteristic: a great example was given to us that the person who rules, who is the king, he should look after well-being. <font color="red">As Socrates has told, Benevolent King, as an example of that Śhrī Rām came into this world.</font>"<br>
+<font size="+0"><b>1991-0228 Talk to Sahaja Yogis (Hindi + English), Raṃgavalī Holī Celebrations, Pandal, opposite side from the Sahaja Yoga Temple, C-17, Shaheed Jeet Singh Marg, Block C, Qutab Institutional Area (behind Qutub Hotel), New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi) (the day after Rāma Navamī Day), If You Believe in Śhrī Rāma Follow His Ideal (Our Nature Can Change because He Is Our Ideal and You All Become Ideals for this World), Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1991-0404 Interview with a Lady Journalist, Airport, Brisbane, Queensland, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1991-0728 Guru Pūjā, Four Psychological Problems, Tent, Cabella Ligure, Alessandria, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1991-1009 Talk to Sahaja Yogis (2nd Day of Navarātri), Creation, From Swādhiṣhṭhān ..., Palazzo Doria, Cabella Ligure, Alessandria, Italy}</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"And Sahaj Yog is in vogue from time immemorial in our country.<br>
+Guru Nāṇak said about Sahaja Samādhi.<br>
+Which Saint has not talked about Sahaj?<br>
+If you see Lao Tze, He said the same thing.<br>
+<font color="red">If you see Socrates, He talked about the same thing.</font><br>
+But we are like we have closed our eyes.<br>
+That is why Kabīr has said, "How to make one understand when the whole world is blind?" "<br>
+<font size="+0"><b>1991-1216 Public Program (Hindi + Marathi), Day 1, Kuṇḍalinī Eka Mahāna Śhakti (Kuṇḍalinī Is a Great Power), Grounds, New English School, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0221 Public Program, Day 2, Brisbane, Queensland, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"......<br>
+......<br>This-s old science is not only from India. It comes from everywhere. <font color="red">As I told you Confucius knew this, Socrates knew this, and, also, many people like William Blake and C.S. Lewis, all these people knew about it.</font><br>
+But nobody could put it through to people because, I think, people did not want to accept it."<br>
+<font size="+0"><b>1992-0226 Public Program, Christchurch Town Hall (now Christchurch Town Hall of the Performing Arts), 86 Kilmore Street, Christchurch Central City, Christchurch, New Zealand</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0228 Public Program, Newcastle (160 kms N of Sydney), New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0703 Public Program, Day 1, Ballroom, Hotel Metropole, Pl. De Brouckère 31, Brussels, Belgium</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0704 Śhrī Viṣhṇumāyā Pūjā, Viṣhṇumāyā's Powers, Āśhram, Everbeek, Belgium</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-0428 Public Program advertised as 'The Goddess Athena Proved to Be Reality', Theatro Akropol, Athens, Greece</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Alessandria, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-1113 Interview with Prof. Yuriy A. Voronov, Moscow, Russia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-1211 Śhrī Kṛiṣhṇa Pūjā, Yamunānagar, Haryana, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-1203 Talk to Sahaja Yogis, Release of Sir C.P.'s book \textcolor{greeny}{\it Lal Bahadur Shastri: A Life of Truth in Politics}, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1995-1205 Śhrī Ādi Śhakti Pūjā (Hindi), The Śhakti of Satya Yuga, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1996-1110 Diwālī Pūjā (Diwālī Day), What State You Have to Reach, Quinta do Mar, Sintra (29 kms NW of Lisbon), Portugal</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1996-1125 Public Talk, World Philosophers Meet on the 700th Birthday of Śhrī Gyāneśhwara, M.I.T. College, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+[Śhrī Rām was the ideal husband where as Śhrī Sītājī was an ideal wife and the children born to them, known as Lav and Kuśha, were also the ideal sons. Śhrī Rāma wanted to establish the high ideas to be emulated by humanity. <font color="red">Socrates, as you all know called Him a benevolent king.</font>]<br>
+<font size="+0"><b>1998-0405 Śhrī Rāma Pūjā (Rāma Navamī), House, Noida, Uttar Pradesh, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1999-0616 Public Program (also Follow On to Public Talk to VIPs), The Town Hall, 123 West and 43rd Street, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>2001-0728 Conversation with Sahaja Yogis, after the Evening Program, the day before Śhrī Kṛiṣhṇa Pūjā, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>2001-1023 Public Program, Novotel Athenes, 4, Michail Voda Str, Athens, Greece</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>2001-1225 Christmas Pūjā, Gaṇapatīpuḷe, Maharashtra, India</b></font>
+</p>
 
 <p>
 "The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. <font color="red">In China He was born as Confucius and as Lao Tze, and in Greece as Socrates.</font> He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."<br>
