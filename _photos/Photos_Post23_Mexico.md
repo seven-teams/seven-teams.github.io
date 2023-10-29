@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 23: Mexico'
-date: 2023-07-21
-permalink: /photos/2023/0721-c
+date: 2023-10-29
+permalink: /photos/2023/1029-c
 tags:
   - blue @ Countries First Photos
   - green @ Updates
