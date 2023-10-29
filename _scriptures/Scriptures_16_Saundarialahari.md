@@ -56,10 +56,10 @@ Everybody people are talking of vibrations but they do not know what they're tal
 
 <p>
 <b>1 Transliteration</b><br>
-<font color="purple">Śhivaḥ śhaktyā yukto yadi bhavati śhaktaḥ prabhavituṁ<br> 
-Na ched evaṁ devo na khalu kuśhalaḥ spanditum api<br>
-Atas-tvām ārādhyāṁ hari-hara-viriñch'ādibhir api<br> 
-Praṇantuṁ stotuṁ vā katham akṛita-puṇyaḥ prabhavati</font>
+<font color="purple">śhivaḥ śhaktyā yukto yadi bhavati śhaktaḥ prabhavituṁ<br> 
+Na ched evaṁ devo na khalu kuśhalaḥ spanditum api<br>
+Atas-tvām ārādhyāṁ hari-hara-viriñch'ādibhir api<br> 
+Praṇantuṁ stotuṁ vā katham akṛita-puṇyaḥ prabhavati</font>
 </p>
 
 <p>
@@ -383,7 +383,7 @@ Mukunda brahm'endra sphuṭa makuṭa nīrājita padām</font>
 <p>
 <b>22 Translation</b><br>
 <font color="DarkGreen">When one, desirous of earnestly beseeching Thee with the word, 'O Bhavānī! mayest Thou cast Thy merciful glance on me, Thy servant,' pronounces the words, 'Bhavānī twam,' (may I be Thou), that very moment, Thou bestowest on him the status identically Thine own, rendered lustrous by the brilliant crowns worn by Mukunda, Brahman and Indra.</font><br>
-<font color="blue">Whoever, desiring to pray to Thee in terms like, 'O Bhavānī, bestow Thy gracious glance on me, Thy servant,' even before he utters, 'Bhavānī twam’ (May I) become Thou', Thou art wont to bestow on him the status of oneness with Thy Feet, at which Divinities like Viṣhṇu, Brahmā and Indra are performing the lustration ceremony with the brilliance of their diadems as they bow down their heads in prostration.</font><br>
+<font color="blue">Whoever, desiring to pray to Thee in terms like, 'O Bhavānī, bestow Thy gracious glance on me, Thy servant,' even before he utters, 'Bhavānī twam' (May I) become Thou', Thou art wont to bestow on him the status of oneness with Thy Feet, at which Divinities like Viṣhṇu, Brahmā and Indra are performing the lustration ceremony with the brilliance of their diadems as they bow down their heads in prostration.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -447,8 +447,9 @@ Mahāsaṁhāre-'smin viharati sati tvat patir asau</font>
 
 <p>
 <b>26 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Queen of chastity! Viriñchi goes back to teh five elements; Hari ceases to exist; Kīnāśha meets with destruction; Kubera perishes; the array of the ever-wakeful eyes of Mahendra is also closed (forever); in this great deluge, this Lord of Thine (alone) has His diversion.</font><br>
+<font color="blue">Viriñchi (Brahmā) is reduced into elements: Hari (Viṣhṇu) retires into passivity: Kīnāśha (Yama the God of Death) himself dies; Kubera the God of Wealth meets with his end; and Indra with all his followers closes his eyes in destruction. When such, O Satī (chaste consort of Śhiva) is the state of all beings at the time of the total dissolution (Mahāsaṃsāra) of the universe, Thy husband Sadāśhiva alone is sporting.
+</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -480,8 +481,8 @@ Na śhambhos tan mūlaṁ tava janani tāṭaṅka mahimā</font>
 
 <p>
 <b>28 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen"> O Mother~ all the denizens of the ecelestial regions, such as Vidhi, Śhatamakha and others, perish even after drinking nectar, which is reputed to cnfer immunity from terroble old age and death. If the period of life of Śhaṃbhu, who has swallowed virulent poison, is beyond computation, it is all due to the peculiar virtue of Thy Tāṭaṅkas (ear-ornaments)</font><br>
+<font color="blue">Even after consuming Amṛuta (nectar), which confers freedom from the fear-inspiring decrepitude of old age and of death, Deities like Brahmā and Indra perish finally at the time of cosmic dissolution. But, even in spite of taking the terrible poison of Kālakūṭa, Thy Consort Śhiva enjoys a life-span that has no end. The cause of this, O Mother, is indeed the unique glory of Thy ear ornament!</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -496,8 +497,8 @@ Bhavasy'ābhy'utthāne tava parijan'oktir vijayate</font>
 
 <p>
 <b>29 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">Glory to the words (of caution) of Thy servants: 'Pray avoid the crown of Viriñchi (lying) afore Theee!' 'You will topple over the hard crest of the slayer of Kaiṭabha!' 'Please keep off from the head-gear of the foe of Jambha!' &#8211; all these three lay prostrate before Thee &#8211; when, all of a sudden, Thou startedst to receive Bhava, who had come to Thy abode!</font><br>
+<font color="blue">On Thy Consort Bhava approaching Thy abode unannounced, Thou springest up in such great haste to receive Him, whereupon Thy attendants, in their concern for Thy safety and possible injury, caution Thee, crying out, ‘Deign to keep away from the diadem of Viriñchi (Brahmā); avoid tumbling over the heavy crown of Kaiṭabhari (Viṣhṇu); beware the crest of Jambhāri (Indra).</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -512,88 +513,88 @@ Mahā-saṁvart'āgnir virachayati nīrājana vidhim</font>
 
 <p>
 <b>30 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">(O Goddes!) who art eternal and art served all around by the rays, Aṇimā and others emanating from Thine own frame! What is there to wonder at, if the Fire of the great Deluge should perform the ritual of offering lights before whosoever conceives Thee always as 'I am (Thou)', treating the wealth of Trinayana as mere straw?</font><br>
+<font color="blue">O Mother eternal and adored of all! By ever meditating with a feeling of identification with Thee, who art surrounded by divine powers like Aṇimā, which are only rays emanating from Thy Feet, a devotee attains to glories far above even those of Śhiva. What wonder then that even the conflagration of Cosmic Dissolution proves only to be the rite of Nīrājana to him.</font><br>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <b>31 Transliteration</b><br>
-<font color="purple">Chatuḥ-ṣhaṣhṭyā tantraiḥ sakalam ati-saṁdhāya bhuvanaṁ<br>
-  Sthitas tat tat-siddhi prasava para-tantraiḥ paśhu-patiḥ<br>
-Punas tvan-nirbandhād akhila puruṣh’ārth’aika ghaṭanā-<br>
-Sva-tantraṁ te tantraṁ kṣhiti talam avātītarad idam</font>
+<font color="purple">Chatuḥ-ṣhaṣhṭyā tantraiḥ sakalam ati-saṁdhāya bhuvanaṁ<br>
+Sthitas tat tat-siddhi prasava para-tantraiḥ paśhu-patiḥ<br>
+Punas tvan-nirbandhād akhila puruṣh'ārth'aika ghaṭanā-<br>
+Sva-tantraṁ te tantraṁ kṣhiti talam avātītarad idam</font>
 </p>
 
 <p>
 <b>31 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">Paśhupati, having deluded all the worlds with the sixty-four Tanttras, which have as their sole purpose the confering of the several Siddhis attributed to each, has once again brought down to this world, on account of Thy persuasion, Thy Tantra, which, of its own accordd, would bring about the several ends and aims of human existence.</font><br>
+<font color="blue">Paśhupati (Śhiva) at first remained satisfied after 'deluding' (atisaṁdhāya) the world, by giving out the sixty-four Tantras, which expound practices conferring only one or another of the various psychic powers and worldly fulfilments. Afterwards, on Thy special insistence, He revealed this Thy own Tantra to the world, independent of all the others and capable of conferring all the Puruśhārthas - Dharma, Artha, Kāma and Mokṣha – on the votaries, by itself.</font><br>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <b>32 Transliteration</b><br>
-<font color="purple">Śhivaḥ śhaktiḥ kāmaḥ kṣhitir atha raviḥ śhīta-kiraṇaḥ<br>
-Smaro haṁsaḥ śhakras tadanu cha par’āmāra harayaḥ<br>
-Amī hṛillekhābhis tisṛibhir avasāneṣhu ghaṭitā<br>
-Bhajante varṇās te tava janani nām’āvayavatām</font>
+<font color="purple">śhivaḥ śhaktiḥ kāmaḥ kṣhitir atha raviḥ śhīta-kiraṇaḥ<br>
+Smaro haṁsaḥ śhakras tadanu cha par'āmāra harayaḥ<br>
+Amī hṛillekhābhis tisṛibhir avasāneṣhu ghaṭitā<br>
+Bhajante varṇās te tava janani nām'āvayavatām</font>
 </p>
 
 <p>
 <b>32 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Mother! Śhiva, Śhakti, Kāma and Kṣhiti; and then Ravi, Śhītakiraṇa, Smara, Haṁsa; these (three sets of) syllabes, when conkoined severally at their ends with the three Hṛillekhās, become the components of Thy name.</font><br>
+<font color="blue">O Mother! The parts that combine to form Thy name (Mantra) are three groups of syllables – first, the group Ka, e, i and la indicated by the words Śhiva, Śhakti, Kāma and Kṣhiti; second, the group ha, sa, ka, ha and la denoted by Ravi, Śhītakiraṇa, Smara, Haṁsa and Śhakra; and third, the group Sa, Ka and la denoted by Para, Māra and Hari together with Hṛillekhā (syllable Hṛim) added at the end of each of the three groups of syllables.</font><br>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <b>33 Transliteration</b><br>
-<font color="purple">Smaraṁ yoniṁ lakṣhmīṁ tritayam idam ādau tava manor<br>
-Nidhāy’aike nitye niravadhi mahā-bhoga rasikāḥ<br>
-Bhajanti tvāṁ chintā-maṇi guna nibaddh’ākṣha valayāḥ<br>
-Śhiv’āgnau juhv’antaḥ surabhi ghṛita dhār’āhuti śhataiḥ</font>
+<font color="purple">Smaraṁ yoniṁ lakṣhmīṁ tritayam idam ādau tava manor<br>
+Nidhāy'aike nitye niravadhi mahā-bhoga rasikāḥ<br>
+Bhajanti tvāṁ chintā-maṇi guna nibaddh'ākṣha valayāḥ<br>
+śhiv'āgnau juhv'antaḥ surabhi ghṛita dhār'āhuti śhataiḥ</font>
 </p>
 
 <p>
 <b>33 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Goddess eternal! having placed this triad of Smara, Yoni and Lakṣhmī before Thy Mantra, some (devotees of Thine), bent on the bountless enjoyment of Beatitude, worship Thine with rosaries strung with Chintāmaṇi beads, while offering hundreds of oblations with streams of Surabhi's ghee, on the fire of Śhivā 9triangle)</font><br>
+<font color="blue">Some connoisseurs of the highest Enjoyment (Mahābhogarasikāḥ), adding before the beginning of Thy Mantra (verse 32) the Bīja-syllables of Kāmarāja (Klīm), Bhuvaneśhwarī (Hrīm) and Śhrī (Śhrīm) and adorned with a necklace of Chintāmaṇi, worship Thee with oblation consisting of countless streams of Kāmadhenu's ghee in the purified fire of Śhivā (i.e., Śhakti established as the Trikoṇa in the Anāhata chakra).</font><br>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <b>34 Transliteration</b><br>
-<font color="purple">Śharīraṁ tvaṁ śhambhoḥ śhaśhi-mihira vakṣh’oruha yugaṁ<br>
-Tav’ātmānaṁ manye Bhagavati nav’ātmānam anagham<br>
-Ataḥ śheṣhaḥ śheṣh’īty’ayam ubhaya sādhāraṇatayā<br>
-Sthitaḥ saṁbandho vāṁ samarasa par’ānanda parayoḥ</font>
+<font color="purple">śharīraṁ tvaṁ śhambhoḥ śhaśhi-mihira vakṣh'oruha yugaṁ<br>
+Tav'ātmānaṁ manye Bhagavati nav'ātmānam anagham<br>
+Ataḥ śheṣhaḥ śheṣh'īty'ayam ubhaya sādhāraṇatayā<br>
+Sthitaḥ saṁbandho vāṁ samarasa par'ānanda parayoḥ</font>
 </p>
 
 <p>
 <b>34 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Glorious Goddess! Thou art the frame of Śhaṃbhu with the Sun and the Moon as the breasts. I conceive Thy flawless frame to be Navātman (Śhaṃbhu). Hence the relationship of the essential and the acccessory, in the case of Ye both, equipped of Transcendent Bliss and Transcendent (Consciousness), strands even.</font><br>
+<font color="blue">O Bhagavatī! Thou art verily the body of Śhaṃbhu with the sun and the moon as the two breasts. And Thy being is verily the flawless Śhaṃbhu, having nine aspects (navātman). Therefore in the matter of relationship of Śheṣha (the accessory or the subservient factor) and Śheṣh (the principal or essential entity), both Parānanda (Ānandabhairava) and Para (Ānandabhairavī) stand on an equal footing.</font><br>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <b>35 Transliteration</b><br>
-<font color="purple">Manas-tvaṁ vyoma tvaṁ marud asi marut sārathir asi<br>
-Tvam āpas-tvaṁ bhūmis-tvayi pari-ṇatāyāṁ na hi param<br>
-Tvameva sv’ātmānaṁ pari-ṇamayituṁ viśhva vapuṣhā<br>
-Chid-ānand’ākāraṁ śhiva-yuvati bhāvena bibhṛiṣhe</font>
+<font color="purple">Manas-tvaṁ vyoma tvaṁ marud asi marut sārathir asi<br>
+Tvam āpas-tvaṁ bhūmis-tvayi pari-ṇatāyāṁ na hi param<br>
+Tvameva sv'ātmānaṁ pari-ṇamayituṁ viśhva vapuṣhā<br>
+Chid-ānand'ākāraṁ śhiva-yuvati bhāvena bibhṛiṣhe</font>
 </p>
 
 <p>
 <b>35 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O youthful spouse of Śhiva! Thou art the Mind, Thou the Eterr, Thou the Air, Thou the Fire, Thou the Water, and Thou the Earth. When Thou hast transformed Thyself, with a view to manifesting Thyself in the form of the Universe, inwardly assumest in the form of Consciousness and Bliss.</font><br>
+<font color="blue">Thou art the Mind, Thou art Ākāśha. Thou art also Fire. Thou are Water and Earth too. When Thou has transformed Thyself in this way into the form of the universe, there is nothing beyond not included in Thee. It is to transform Thyself into the universe that Thou assumest this form of Consciousness-Bliss as Śhiva's Consort and Śhakti.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -698,10 +699,10 @@ Sanāthābhyāṁ jagñye janaka-jananī-maj jagad idam</font>
 
 <p>
 <b>42 Transliteration</b><br>
-<font color="purple">Gatair māṇikyatvaṁ gagana maṇibhiḥ sāndra ghaṭitaṁ<br>
-Kirīṭaṁ te haimaṁ Hima-giri-sute kīrtayati yaḥ<br>
-Sa nīḍeyaḥ chhāyāḥ chhuraṇa śhabalaṁ chandra śhakalaṁ<br>
-Dhanuḥ śhaunāsīraṁ kim iti na nibadhnāti dhiṣhaṇām</font>
+<font color="purple">Gatair māṇikyatvaṁ gagana maṇibhiḥ sāndra ghaṭitaṁ<br>
+Kirīṭaṁ te haimaṁ Hima-giri-sute kīrtayati yaḥ<br>
+Sa nīḍeyaḥ chhāyāḥ chhuraṇa śhabalaṁ chandra śhakalaṁ<br>
+Dhanuḥ śhaunāsīraṁ kim iti na nibadhnāti dhiṣhaṇām</font>
 </p>
 
 <p>
@@ -714,10 +715,10 @@ Dhanuḥ śhaunāsīraṁ kim iti na nibadhnāti dhiṣhaṇām</font>
 
 <p>
 <b>43 Transliteration</b><br>
-<font color="purple">Dhunotu dhvāntaṁ nas tulita dalit’endīvara vanaṁ<br>
-Ghana snigdhaḥ-lakṣhṇaṁ chikura nikurumbaṁ tava śhive<br>
-Yad’īyaṁ saurabhyaṁ sahajam upalabdhuṁ sumanaso<br>
-Vasanty’asmin manye vala mathana vāṭī viṭapinām</font>
+<font color="purple">Dhunotu dhvāntaṁ nas tulita dalit'endīvara vanaṁ<br>
+Ghana snigdhaḥ-lakṣhṇaṁ chikura nikurumbaṁ tava śhive<br>
+Yad'īyaṁ saurabhyaṁ sahajam upalabdhuṁ sumanaso<br>
+Vasanty'asmin manye vala mathana vāṭī viṭapinām</font>
 </p>
 
 <p>
@@ -730,10 +731,10 @@ Vasanty’asmin manye vala mathana vāṭī viṭapinām</font>
 
 <p>
 <b>44 Transliteration</b><br>
-<font color="purple">Tanotu kṣhemaṁ nas tava vadana saundarya-laharī<br>
-Parīvāha srotaḥ saraṇir iva sīmanta saraṇiḥ<br>
-Vahantī sindūraṁ prabala kabarī bhāra timira<br>
-Dviṣhāṁ vṛindair bandī-kṛitam iva navīn’ārka kiraṇam</font>
+<font color="purple">Tanotu kṣhemaṁ nas tava vadana saundarya-laharī<br>
+Parīvāha srotaḥ saraṇir iva sīmanta saraṇiḥ<br>
+Vahantī sindūraṁ prabala kabarī bhāra timira<br>
+Dviṣhāṁ vṛindair bandī-kṛitam iva navīn'ārka kiraṇam</font>
 </p>
 
 <p>
@@ -746,10 +747,10 @@ Dviṣhāṁ vṛindair bandī-kṛitam iva navīn’ārka kiraṇam</font>
 
 <p>
 <b>45 Transliteration</b><br>
-<font color="purple">Arālaiḥ sv’ābhāv’yād alika-labha saśhrībhir alakaiḥ<br>
-Parītaṁ te vaktraṁ parihasati paṅkeruha ruchim<br>
-Dara-smere yasmin daśhana ruchi kiñjalka ruchire<br>
-Sugandhau mādyanti smara-dahana chakṣhur madhu-lihaḥ</font>
+<font color="purple">Arālaiḥ sv'ābhāv'yād alika-labha saśhrībhir alakaiḥ<br>
+Parītaṁ te vaktraṁ parihasati paṅkeruha ruchim<br>
+Dara-smere yasmin daśhana ruchi kiñjalka ruchire<br>
+Sugandhau mādyanti smara-dahana chakṣhur madhu-lihaḥ</font>
 </p>
 
 <p>
@@ -763,10 +764,10 @@ Sugandhau mādyanti smara-dahana chakṣhur madhu-lihaḥ</font>
 <p>
 <b>46 Transliteration</b><br>
 <font color="purple">
-Lalāṭaṁ lāvaṇya dyuti vimalam ābhāti tava yad<br>
-Dvitīyaṁ tan manye makuṭa ghaṭitaṁ chandra śhakalam<br>
-Viparyāsa nyāsād ubhayam api saṁbhūya cha mithaḥ<br>
-Sudhā-lepa syūtiḥ pariṇamati rākā hima-karaḥ</font>
+Lalāṭaṁ lāvaṇya dyuti vimalam ābhāti tava yad<br>
+Dvitīyaṁ tan manye makuṭa ghaṭitaṁ chandra śhakalam<br>
+Viparyāsa nyāsād ubhayam api saṁbhūya cha mithaḥ<br>
+Sudhā-lepa syūtiḥ pariṇamati rākā hima-karaḥ</font>
 </p>
 
 <p>
@@ -780,9 +781,9 @@ Sudhā-lepa syūtiḥ pariṇamati rākā hima-karaḥ</font>
 <p>
 <b>47 Transliteration</b><br>
 <font color="purple">Bhruvau bhugne kiṁ-chid bhuvana-bhaya-bhaṅga vyasanini<br>
-  Tvadīye netrābhyāṁ madhu-kara ruchibhyāṁ dhṛita-guṇam<br>
-  Dhanur-manye savy’etara kara-gṛihītaṁ rati-pateḥ<br>
-Prakoṣhṭhe muṣhṭau cha sthagayati nigūḍh’āntaram Ume</font>
+  Tvadīye netrābhyāṁ madhu-kara ruchibhyāṁ dhṛita-guṇam<br>
+  Dhanur-manye savy'etara kara-gṛihītaṁ rati-pateḥ<br>
+Prakoṣhṭhe muṣhṭau cha sthagayati nigūḍh'āntaram Ume</font>
 </p>
 
 <p>
@@ -795,10 +796,10 @@ Prakoṣhṭhe muṣhṭau cha sthagayati nigūḍh’āntaram Ume</font>
 
 <p>
 <b>48 Transliteration</b><br>
-<font color="purple">Ahaḥ sūte savyaṁ tava nayanam ark’ātma-katayā<br>
-Triyāmāṁ vāmaṁ te sṛijati rajanī nayaka tayā<br>
-Tṛitīyā te dṛiṣhṭir daradalita hem’āmbuja ruchiḥ<br>
-Sam’ādhatte saṁdhyāṁ divasa niśhayor antara charīm</font>
+<font color="purple">Ahaḥ sūte savyaṁ tava nayanam ark'ātma-katayā<br>
+Triyāmāṁ vāmaṁ te sṛijati rajanī nayaka tayā<br>
+Tṛitīyā te dṛiṣhṭir daradalita hem'āmbuja ruchiḥ<br>
+Sam'ādhatte saṁdhyāṁ divasa niśhayor antara charīm</font>
 </p>
 
 <p>
@@ -811,10 +812,10 @@ Sam’ādhatte saṁdhyāṁ divasa niśhayor antara charīm</font>
 
 <p>
 <b>49 Transliteration</b><br>
-<font color="purple">Viśhālā kalyāṇī sphuṭa ruchir ayodhyā kuvalayaiḥ<br>
-Kṛipā-dhār’ādhārā kim api madhur’ābhoga-vatikā<br>
-Avantī dṛiṣhṭis te bahu-nagara vistāra vijayā<br>
-Dhruvaṁ tat-tan-nāma vyava-haraṇa yogyā vijayate</font>
+<font color="purple">Viśhālā kalyāṇī sphuṭa ruchir ayodhyā kuvalayaiḥ<br>
+Kṛipā-dhār'ādhārā kim api madhur'ābhoga-vatikā<br>
+Avantī dṛiṣhṭis te bahu-nagara vistāra vijayā<br>
+Dhruvaṁ tat-tan-nāma vyava-haraṇa yogyā vijayate</font>
 </p>
 
 <p>
@@ -827,10 +828,10 @@ Dhruvaṁ tat-tan-nāma vyava-haraṇa yogyā vijayate</font>
 
 <p>
 <b>50 Transliteration</b><br>
-<font color="purple">Kavīnāṁ saṁdarbha stabaka makarand’aika rasikaṁ<br>
-Kaṭākṣha vyākṣhepa bhramara kalabhau karṇa yugalam<br>
-Amuñchantau dṛiṣhṭvā tava nava-ras’āsvāda taralāu<br>
-Asūyā saṁsargād alika-nayanaṁ kiṁ-chid aruṇam</font>
+<font color="purple">Kavīnāṁ saṁdarbha stabaka makarand'aika rasikaṁ<br>
+Kaṭākṣha vyākṣhepa bhramara kalabhau karṇa yugalam<br>
+Amuñchantau dṛiṣhṭvā tava nava-ras'āsvāda taralāu<br>
+Asūyā saṁsargād alika-nayanaṁ kiṁ-chid aruṇam</font>
 </p>
 
 <p>
@@ -843,10 +844,10 @@ Asūyā saṁsargād alika-nayanaṁ kiṁ-chid aruṇam</font>
 
 <p>
 <b>51 Transliteration</b><br>
-<font color="purple">Śhive śhṛiṅgār’ārdrā tad itara-jane kutsana-parā<br>
-Saroṣhā gaṅgāyāṁ giriśha-charite vismayavatī<br>
-Har’āhibhyo bhītā sarasiruha saubhāgya jananī<br>
-Sakhīṣhu smerā te mayi Jananī dṛiṣhṭiḥ sakaruṇā</font>
+<font color="purple">śhive śhṛiṅgār'ārdrā tad itara-jane kutsana-parā<br>
+Saroṣhā gaṅgāyāṁ giriśha-charite vismayavatī<br>
+Har'āhibhyo bhītā sarasiruha saubhāgya jananī<br>
+Sakhīṣhu smerā te mayi Jananī dṛiṣhṭiḥ sakaruṇā</font>
 </p>
 
 <p>
@@ -859,10 +860,10 @@ Sakhīṣhu smerā te mayi Jananī dṛiṣhṭiḥ sakaruṇā</font>
 
 <p>
 <b>52 Transliteration</b><br>
-<font color="purple">Gate karṇ’ābhy’arṇaṁ garuta iva pakṣhmāṇi dadhatī<br>
-Purāṁ bhettuśh chitta praśhama rasa vidrāvaṇa phale<br>
-Ime netre gotr’ādhara pati kul’ottaṁsa Kalike<br>
-Tav’ākarṇ’ākṛiṣhṭa smara śhara vilāsaṁ kalayataḥ</font>
+<font color="purple">Gate karṇ'ābhy'arṇaṁ garuta iva pakṣhmāṇi dadhatī<br>
+Purāṁ bhettuśh chitta praśhama rasa vidrāvaṇa phale<br>
+Ime netre gotr'ādhara pati kul'ottaṁsa Kalike<br>
+Tav'ākarṇ'ākṛiṣhṭa smara śhara vilāsaṁ kalayataḥ</font>
 </p>
 
 <p>
@@ -875,10 +876,10 @@ Tav’ākarṇ’ākṛiṣhṭa smara śhara vilāsaṁ kalayataḥ</font>
 
 <p>
 <b>53 Transliteration</b><br>
-<font color="purple">Vibhakta trai-varṇyaṁ vyati-karita līl’āñjanatayā<br>
-Vibhāti tvan netra tritayam idam Īśhāna-dayite<br>
-Punaḥ sraṣhṭuṁ devān druhiṇa hari rudrān uparatān<br>
-Rajaḥ sattvaṁ bibhrat-tama iti guṇānāṁ trayam iva</font>
+<font color="purple">Vibhakta trai-varṇyaṁ vyati-karita līl'āñjanatayā<br>
+Vibhāti tvan netra tritayam idam īśhāna-dayite<br>
+Punaḥ sraṣhṭuṁ devān druhiṇa hari rudrān uparatān<br>
+Rajaḥ sattvaṁ bibhrat-tama iti guṇānāṁ trayam iva</font>
 </p>
 
 <p>
@@ -891,10 +892,10 @@ Rajaḥ sattvaṁ bibhrat-tama iti guṇānāṁ trayam iva</font>
 
 <p>
 <b>54 Transliteration</b><br>
-<font color="purple">Pavitrī-kartuṁ naḥ paśhu-pati parādhīna hṛidaye<br>
-Dayā-mitrair netrair aruṇa-dhavala śhyāma ruchibhiḥ<br>
-Nadaḥ śhoṇo gaṅgā tapana-tanay’eti dhruvam amuṁ<br>
-Trayāṇāṁ tīrthānām upanayasi saṁbhedam anagham</font>
+<font color="purple">Pavitrī-kartuṁ naḥ paśhu-pati parādhīna hṛidaye<br>
+Dayā-mitrair netrair aruṇa-dhavala śhyāma ruchibhiḥ<br>
+Nadaḥ śhoṇo gaṅgā tapana-tanay'eti dhruvam amuṁ<br>
+Trayāṇāṁ tīrthānām upanayasi saṁbhedam anagham</font>
 </p>
 
 <p>
@@ -907,10 +908,10 @@ Trayāṇāṁ tīrthānām upanayasi saṁbhedam anagham</font>
 
 <p>
 <b>55 Transliteration</b><br>
-<font color="purple">Nimeṣh’onmeṣhā-bhyāṁ pralayam udayaṁ yāti jagatī<br>
-Tav’ety’āhuḥ santo Dharaṇi-dhara-rājanya-tanaye<br>
-Tvad unmeṣhāj-jātaṁ jagad idam aśheṣhaṁ pralayataḥ<br>
-Paritrātuṁ śhaṅke parihṛita nimeṣhās tava dṛiśhaḥ</font>
+<font color="purple">Nimeṣh'onmeṣhā-bhyāṁ pralayam udayaṁ yāti jagatī<br>
+Tav'ety'āhuḥ santo Dharaṇi-dhara-rājanya-tanaye<br>
+Tvad unmeṣhāj-jātaṁ jagad idam aśheṣhaṁ pralayataḥ<br>
+Paritrātuṁ śhaṅke parihṛita nimeṣhās tava dṛiśhaḥ</font>
 </p>
 
 <p>
@@ -923,10 +924,10 @@ Paritrātuṁ śhaṅke parihṛita nimeṣhās tava dṛiśhaḥ</font>
 
 <p>
 <b>56 Transliteration</b><br>
-<font color="purple">Tav’āparṇe karṇe japa nayana paiśhunya chakitā<br>
-Nilīyante toye niyatam animeṣhāḥ śhapharikāḥ<br>
-Iyaṁ cha śhrīr baddhach-chhada puṭa kavāṭaṁ kuvalayam<br>
-Jahāti pratyūṣhe niśhi cha vighaṭay-ya praviśhati</font>
+<font color="purple">Tav'āparṇe karṇe japa nayana paiśhunya chakitā<br>
+Nilīyante toye niyatam animeṣhāḥ śhapharikāḥ<br>
+Iyaṁ cha śhrīr baddhach-chhada puṭa kavāṭaṁ kuvalayam<br>
+Jahāti pratyūṣhe niśhi cha vighaṭay-ya praviśhati</font>
 </p>
 
 <p>
@@ -940,10 +941,10 @@ Jahāti pratyūṣhe niśhi cha vighaṭay-ya praviśhati</font>
 <p>
 <b>57 Transliteration</b><br>
 <font color="purple">
-Dṛiśhā drāghīyasyā dara-dalita nīl’otpala ruchā<br>
-Davīyāṁsaṁ dīnaṁ snapaya kṛipayā mām api Śhive<br>
-Anenāyaṁ dhanyo bhavati na cha te hānir iyatā<br>
-Vane vā harmye vā sama-kara-nipāto hima-karaḥ</font>
+Dṛiśhā drāghīyasyā dara-dalita nīl'otpala ruchā<br>
+Davīyāṁsaṁ dīnaṁ snapaya kṛipayā mām api śhive<br>
+Anenāyaṁ dhanyo bhavati na cha te hānir iyatā<br>
+Vane vā harmye vā sama-kara-nipāto hima-karaḥ</font>
 </p>
 
 <p>
@@ -956,10 +957,10 @@ Vane vā harmye vā sama-kara-nipāto hima-karaḥ</font>
 
 <p>
 <b>58 Transliteration</b><br>
-<font color="purple">Arālaṁ te pālī-yugalam aga-rājanya tanaye<br>
-Na keṣhām ādhatte kusuma śhara kodaṇḍa kutukam<br>
-Tiraśh-chīno yatra śhravaṇa patham ullaṅghya vilasan<br>
-Napāṅga-vyāsaṅgo diśhati śhara saṁdhāna dhiṣhaṇām</font>
+<font color="purple">Arālaṁ te pālī-yugalam aga-rājanya tanaye<br>
+Na keṣhām ādhatte kusuma śhara kodaṇḍa kutukam<br>
+Tiraśh-chīno yatra śhravaṇa patham ullaṅghya vilasan<br>
+Napāṅga-vyāsaṅgo diśhati śhara saṁdhāna dhiṣhaṇām</font>
 </p>
 
 <p>
@@ -972,10 +973,10 @@ Napāṅga-vyāsaṅgo diśhati śhara saṁdhāna dhiṣhaṇām</font>
 
 <p>
 <b>59 Transliteration</b><br>
-<font color="purple">Sphurad gaṇḍ’ābhoga pratiphalita tāṭaṅka yugalaṁ<br>
-Chatuśh-chakraṁ manye tava mukham idaṁ manmatha ratham<br>
-Yam’āruhya druhyaty’avani-ratham ark’endu charaṇaṁ<br>
-Mahāvīro māraḥ pramatha-pataye sajjitavate</font>
+<font color="purple">Sphurad gaṇḍ'ābhoga pratiphalita tāṭaṅka yugalaṁ<br>
+Chatuśh-chakraṁ manye tava mukham idaṁ manmatha ratham<br>
+Yam'āruhya druhyaty'avani-ratham ark'endu charaṇaṁ<br>
+Mahāvīro māraḥ pramatha-pataye sajjitavate</font>
 </p>
 
 <p>
@@ -988,10 +989,10 @@ Mahāvīro māraḥ pramatha-pataye sajjitavate</font>
 
 <p>
 <b>60 Transliteration</b><br>
-<font color="purple">Sarasvatyāḥ sūktīr amṛita laharī kauśhala harīḥ<br>
-Pibantyāḥ Śharvāṇi śhravaṇa chulukābhyām aviralam<br>
-Chamat-kāra śhlāghā-chalita śhirasaḥ kuṇḍala-gaṇo<br>
-Jhaṇat-kārais tāraiḥ prati vachanam āchaṣhṭa iva te</font>
+<font color="purple">Sarasvatyāḥ sūktīr amṛita laharī kauśhala harīḥ<br>
+Pibantyāḥ śharvāṇi śhravaṇa chulukābhyām aviralam<br>
+Chamat-kāra śhlāghā-chalita śhirasaḥ kuṇḍala-gaṇo<br>
+Jhaṇat-kārais tāraiḥ prati vachanam āchaṣhṭa iva te</font>
 </p>
 
 <p>
@@ -1004,10 +1005,10 @@ Jhaṇat-kārais tāraiḥ prati vachanam āchaṣhṭa iva te</font>
 
 <p>
 <b>61 Transliteration</b><br>
-<font color="purple">Asau nāsā vaṁśhas tuhina giri-vaṁśha dhvaja-paṭi<br>
-Tvadīyo nedīyaḥ phalatu phalam asmākam uchitam<br>
-Vahann antar-muktāḥ śhiśhira-tara niśhvāsa galitaṁ<br>
-Samṛiddhyā yat tāsāṁ bahir api cha muktāmaṇi dharaḥ</font>
+<font color="purple">Asau nāsā vaṁśhas tuhina giri-vaṁśha dhvaja-paṭi<br>
+Tvadīyo nedīyaḥ phalatu phalam asmākam uchitam<br>
+Vahann antar-muktāḥ śhiśhira-tara niśhvāsa galitaṁ<br>
+Samṛiddhyā yat tāsāṁ bahir api cha muktāmaṇi dharaḥ</font>
 </p>
 
 <p>
@@ -1020,10 +1021,10 @@ Samṛiddhyā yat tāsāṁ bahir api cha muktāmaṇi dharaḥ</font>
 
 <p>
 <b>62 Transliteration</b><br>
-<font color="purple">Prakṛity’ārakt’āyās tava sudati Dantach-chhada-rucheḥ<br>
-Pravakṣhye sādṛiśhyaṁ janayatu phalaṁ vidruma-latā<br>
-Na bimbaṁ tad bimba prati-phalana rāgād aruṇitaṁ<br>
-Tulām adhy’āroḍhuṁ katham iva vilajjeta kalayā</font>
+<font color="purple">Prakṛity'ārakt'āyās tava sudati Dantach-chhada-rucheḥ<br>
+Pravakṣhye sādṛiśhyaṁ janayatu phalaṁ vidruma-latā<br>
+Na bimbaṁ tad bimba prati-phalana rāgād aruṇitaṁ<br>
+Tulām adhy'āroḍhuṁ katham iva vilajjeta kalayā</font>
 </p>
 
 <p>
@@ -1036,10 +1037,10 @@ Tulām adhy’āroḍhuṁ katham iva vilajjeta kalayā</font>
 
 <p>
 <b>63 Transliteration</b><br>
-<font color="purple">Smita jyotsnā jālaṁ tava vadana-chandrasya pibatāṁ<br>
-Chakorāṇām āsīd ati-rasatayā chañchu jaḍimā<br>
-Atas te śhīt’āṁśhor amṛita laharīm amla ruchayaḥ<br>
-Pibanti svach-chhandaṁ niśhi niśhi bhṛiśhaṁ kāñjika dhiyā</font>
+<font color="purple">Smita jyotsnā jālaṁ tava vadana-chandrasya pibatāṁ<br>
+Chakorāṇām āsīd ati-rasatayā chañchu jaḍimā<br>
+Atas te śhīt'āṁśhor amṛita laharīm amla ruchayaḥ<br>
+Pibanti svach-chhandaṁ niśhi niśhi bhṛiśhaṁ kāñjika dhiyā</font>
 </p>
 
 <p>
@@ -1052,10 +1053,10 @@ Pibanti svach-chhandaṁ niśhi niśhi bhṛiśhaṁ kāñjika dhiyā</fon
 
 <p>
 <b>64 Transliteration</b><br>
-<font color="purple">Aviśhrāntaṁ patyur guṇa-gaṇa-kath’āmreḍana japā<br>
-Japā puṣhpach-chhāyā tava Janani jihvā jayati sā<br>
-Yad agrāsīnāyāḥ sphaṭika dṛiṣhad achchhach chhavi mayī<br>
-Sarasvatyā mūrtiḥ pari-ṇamati māṇikya vapuṣhā</font>
+<font color="purple">Aviśhrāntaṁ patyur guṇa-gaṇa-kath'āmreḍana japā<br>
+Japā puṣhpach-chhāyā tava Janani jihvā jayati sā<br>
+Yad agrāsīnāyāḥ sphaṭika dṛiṣhad achchhach chhavi mayī<br>
+Sarasvatyā mūrtiḥ pari-ṇamati māṇikya vapuṣhā</font>
 </p>
 
 <p>
@@ -1068,10 +1069,10 @@ Sarasvatyā mūrtiḥ pari-ṇamati māṇikya vapuṣhā</font>
 
 <p>
 <b>65 Transliteration</b><br>
-<font color="purple">Raṇe jitvā daityān apahṛita śhirastraiḥ kavachibhir<br>
-Nivṛittaiḥ-chaṇḍ’āṁśha tripura-hara nirmālya vimukhaiḥ<br>
-Viśhākh’endr’opendraiḥ śhaśhi viśhada karpūra śhakalā<br>
-Vilīyante mātas tava vadana tāmbūla kabalāḥ</font>
+<font color="purple">Raṇe jitvā daityān apahṛita śhirastraiḥ kavachibhir<br>
+Nivṛittaiḥ-chaṇḍ'āṁśha tripura-hara nirmālya vimukhaiḥ<br>
+Viśhākh'endr'opendraiḥ śhaśhi viśhada karpūra śhakalā<br>
+Vilīyante mātas tava vadana tāmbūla kabalāḥ</font>
 </p>
 
 <p>
@@ -1084,10 +1085,10 @@ Vilīyante mātas tava vadana tāmbūla kabalāḥ</font>
 
 <p>
 <b>66 Transliteration</b><br>
-<font color="purple">Vipañchyā gāyantī vividham apadānaṁ puraripos<br>
-Tvay’ārabdhe vaktuṁ chalita śhirasā sadhu-vachane<br>
-Tadīyair mādhuryair apalapita tantrī kala-ravāṁ<br>
-Nijāṁ vīṇāṁ vāṇī nichulayati cholena nibhṛitam</font>
+<font color="purple">Vipañchyā gāyantī vividham apadānaṁ puraripos<br>
+Tvay'ārabdhe vaktuṁ chalita śhirasā sadhu-vachane<br>
+Tadīyair mādhuryair apalapita tantrī kala-ravāṁ<br>
+Nijāṁ vīṇāṁ vāṇī nichulayati cholena nibhṛitam</font>
 </p>
 
 <p>
@@ -1101,10 +1102,10 @@ Nijāṁ vīṇāṁ vāṇī nichulayati cholena nibhṛitam</font>
 <p>
 <b>67 Transliteration</b><br>
 <font color="purple">
-Kar’āgreṇa spṛiṣhṭaṁ tuhina giriṇā vatsala tayā<br>
-Girīśhen’odastaṁ muhur adhara pān’ākulatayā<br>
-Kara-grāhyaṁ śhambhor mukha mukura vṛintaṁ Giri-sute<br>
-Kathaṅ-kāraṁ brūmas tava chibukam aupamya rahitam</font>
+Kar'āgreṇa spṛiṣhṭaṁ tuhina giriṇā vatsala tayā<br>
+Girīśhen'odastaṁ muhur adhara pān'ākulatayā<br>
+Kara-grāhyaṁ śhambhor mukha mukura vṛintaṁ Giri-sute<br>
+Kathaṅ-kāraṁ brūmas tava chibukam aupamya rahitam</font>
 </p>
 
 <p>
@@ -1117,10 +1118,10 @@ Kathaṅ-kāraṁ brūmas tava chibukam aupamya rahitam</font>
 
 <p>
 <b>68 Transliteration</b><br>
-<font color="purple">Bhujā-śhleṣhān nityaṁ pura damayituḥ kaṇṭaka-vatī<br>
-Tava grīvā dhatte mukha kamala-nāla śhriyam iyam<br>
-Svataḥ śhvetā kāl’āguru bahula jambāla malinā<br>
-Mṛiṇālī lālityam vahati yad adho hāra latikā</font>
+<font color="purple">Bhujā-śhleṣhān nityaṁ pura damayituḥ kaṇṭaka-vatī<br>
+Tava grīvā dhatte mukha kamala-nāla śhriyam iyam<br>
+Svataḥ śhvetā kāl'āguru bahula jambāla malinā<br>
+Mṛiṇālī lālityam vahati yad adho hāra latikā</font>
 </p>
 
 <p>
@@ -1133,10 +1134,10 @@ Mṛiṇālī lālityam vahati yad adho hāra latikā</font>
 
 <p>
 <b>69 Transliteration</b><br>
-<font color="purple">Gale rekhās tisro Gati-gamaka-gīt’aika-nipuṇe<br>
-Vivāha vyānaddha praguṇa guṇa saṁkhyā pratibhuvaḥ<br>
-Virājante nānā vidha madhura rāg’ākara bhuvāṁ<br>
-Trayāṇāṁ grāmāṇāṁ sthiti niyama sīmāna iva te</font>
+<font color="purple">Gale rekhās tisro Gati-gamaka-gīt'aika-nipuṇe<br>
+Vivāha vyānaddha praguṇa guṇa saṁkhyā pratibhuvaḥ<br>
+Virājante nānā vidha madhura rāg'ākara bhuvāṁ<br>
+Trayāṇāṁ grāmāṇāṁ sthiti niyama sīmāna iva te</font>
 </p>
 
 <p>
@@ -1149,10 +1150,10 @@ Trayāṇāṁ grāmāṇāṁ sthiti niyama sīmāna iva te</font>
 
 <p>
 <b>70 Transliteration</b><br>
-<font color="purple">Mṛiṇālī mṛidvīnāṁ tava bhuja-latānāṁ chatasṛiṇāṁ<br>
-Chaturbhiḥ saundaryaṁ sarasija-bhavaḥ stauti vadanaiḥ<br>
-Nakhebhyaḥ santrasyan prathama mathanā dandhaka ripoḥ<br>
-Chaturṇāṁ śhīrṣhāṇāṁ samam abhaya hast’ārpaṇa dhiyā</font>
+<font color="purple">Mṛiṇālī mṛidvīnāṁ tava bhuja-latānāṁ chatasṛiṇāṁ<br>
+Chaturbhiḥ saundaryaṁ sarasija-bhavaḥ stauti vadanaiḥ<br>
+Nakhebhyaḥ santrasyan prathama mathanā dandhaka ripoḥ<br>
+Chaturṇāṁ śhīrṣhāṇāṁ samam abhaya hast'ārpaṇa dhiyā</font>
 </p>
 
 <p>
@@ -1165,10 +1166,10 @@ Chaturṇāṁ śhīrṣhāṇāṁ samam abhaya hast’ārpaṇa dhiyā<
 
 <p>
 <b>71 Transliteration</b><br>
-<font color="purple">Nakhānām uddyotair nava nalina rāgaṁ vihasatāṁ<br>
-Karāṇāṁ te kāntiṁ kathaya kathayāmaḥ katham Ume<br>
-Kayā-chid vā sāmyaṁ bhajatu kalayā hanta kamalaṁ<br>
-Yadi krīḍal lakṣhmī charaṇa tala lākṣhā rasa chhaṇam</font>
+<font color="purple">Nakhānām uddyotair nava nalina rāgaṁ vihasatāṁ<br>
+Karāṇāṁ te kāntiṁ kathaya kathayāmaḥ katham Ume<br>
+Kayā-chid vā sāmyaṁ bhajatu kalayā hanta kamalaṁ<br>
+Yadi krīḍal lakṣhmī charaṇa tala lākṣhā rasa chhaṇam</font>
 </p>
 
 <p>
@@ -1181,10 +1182,10 @@ Yadi krīḍal lakṣhmī charaṇa tala lākṣhā rasa chhaṇam</font>
 
 <p>
 <b>72 Transliteration</b><br>
-<font color="purple">Samaṁ Devi skanda dvipa vadana pītaṁ stana yugaṁ<br>
-Tav’edaṁ naḥ khedaṁ haratu satataṁ prasnuta mukham<br>
-Yad ālokyā śhaṅk’ākulita hṛidayo hāsa janakaḥ<br>
-Sva-kumbhau herambaḥ pari-mṛiśhati hastena jhaḍ-iti</font>
+<font color="purple">Samaṁ Devi skanda dvipa vadana pītaṁ stana yugaṁ<br>
+Tav'edaṁ naḥ khedaṁ haratu satataṁ prasnuta mukham<br>
+Yad ālokyā śhaṅk'ākulita hṛidayo hāsa janakaḥ<br>
+Sva-kumbhau herambaḥ pari-mṛiśhati hastena jhaḍ-iti</font>
 </p>
 
 <p>
@@ -1197,10 +1198,10 @@ Sva-kumbhau herambaḥ pari-mṛiśhati hastena jhaḍ-iti</font>
 
 <p>
 <b>73 Transliteration</b><br>
-<font color="purple">Amū te vakṣhojāv’amṛita-rasa māṇikya kutupau<br>
-Na saṁdeha spando Naga-pati-patāke manasi naḥ<br>
-Pibantau tau yasmād avidita vadhū saṅga rasikau<br>
-Kumār’āvady’āpi dvirada vadana krauñcha dalanau</font>
+<font color="purple">Amū te vakṣhojāv'amṛita-rasa māṇikya kutupau<br>
+Na saṁdeha spando Naga-pati-patāke manasi naḥ<br>
+Pibantau tau yasmād avidita vadhū saṅga rasikau<br>
+Kumār'āvady'āpi dvirada vadana krauñcha dalanau</font>
 </p>
 
 <p>
@@ -1213,10 +1214,10 @@ Kumār’āvady’āpi dvirada vadana krauñcha dalanau</font>
 
 <p>
 <b>74 Transliteration</b><br>
-<font color="purple">Vahaty’amba stamb’erama danuja kumbha prakṛitibhiḥ<br>
-Sam’ārabdhāṁ muktā-maṇibhir amalāṁ hāra latikām<br>
-Kuch’ābhogo bimb’ādhara ruchibhir antaḥ śhabalitāṁ<br>
-Pratāpa vyāmiśhrāṁ pura damayituḥ kīrtim iva te</font>
+<font color="purple">Vahaty'amba stamb'erama danuja kumbha prakṛitibhiḥ<br>
+Sam'ārabdhāṁ muktā-maṇibhir amalāṁ hāra latikām<br>
+Kuch'ābhogo bimb'ādhara ruchibhir antaḥ śhabalitāṁ<br>
+Pratāpa vyāmiśhrāṁ pura damayituḥ kīrtim iva te</font>
 </p>
 
 <p>
@@ -1229,10 +1230,10 @@ Pratāpa vyāmiśhrāṁ pura damayituḥ kīrtim iva te</font>
 
 <p>
 <b>75 Transliteration</b><br>
-<font color="purple">Tava stanyaṁ manye Dharaṇi-dhara-kanye hṛidayataḥ<br>
-Payaḥ pārāvāraḥ pari-vahati sārasvatam iva<br>
-Dayāvatyā dattaṁ draviḍa-śhiśhur āsvādya tava yat<br>
-Kavīnāṁ prauḍhānām ajani kamanīyaḥ kavayitā</font>
+<font color="purple">Tava stanyaṁ manye Dharaṇi-dhara-kanye hṛidayataḥ<br>
+Payaḥ pārāvāraḥ pari-vahati sārasvatam iva<br>
+Dayāvatyā dattaṁ draviḍa-śhiśhur āsvādya tava yat<br>
+Kavīnāṁ prauḍhānām ajani kamanīyaḥ kavayitā</font>
 </p>
 
 <p>
@@ -1246,10 +1247,10 @@ Kavīnāṁ prauḍhānām ajani kamanīyaḥ kavayitā</font>
 <p>
 <b>76 Transliteration</b><br>
 <font color="purple">
-Hara krodha jvāl’āvalibhir ava-līḍhena vapuṣhā<br>
-Gabhīre te nābhī-sarasi kṛita-saṅgo manasi-jaḥ<br>
-Samutta-sthau tasmād Achala-tanaye dhūma latikā<br>
-Janas tāṁ jānīte tava janani rom’āvalir iti</font>
+Hara krodha jvāl'āvalibhir ava-līḍhena vapuṣhā<br>
+Gabhīre te nābhī-sarasi kṛita-saṅgo manasi-jaḥ<br>
+Samutta-sthau tasmād Achala-tanaye dhūma latikā<br>
+Janas tāṁ jānīte tava janani rom'āvalir iti</font>
 </p>
 
 <p>
@@ -1262,10 +1263,10 @@ Janas tāṁ jānīte tava janani rom’āvalir iti</font>
 
 <p>
 <b>77 Transliteration</b><br>
-<font color="purple">Yad etat kālindī tanu tara taraṅg’ākṛiti Śhive<br>
-Kṛiśhe madhye kiṁ-chij-janani tava yad bhāti sudhiyām<br>
-Vimardād anyo’nyaṁ kucha kalaśhayor antara-gataṁ<br>
-Tanū bhūtaṁ vyoma praviśhad iva nābhiṁ kuhariṇīm</font>
+<font color="purple">Yad etat kālindī tanu tara taraṅg'ākṛiti śhive<br>
+Kṛiśhe madhye kiṁ-chij-janani tava yad bhāti sudhiyām<br>
+Vimardād anyo'nyaṁ kucha kalaśhayor antara-gataṁ<br>
+Tanū bhūtaṁ vyoma praviśhad iva nābhiṁ kuhariṇīm</font>
 </p>
 
 <p>
@@ -1279,10 +1280,10 @@ Tanū bhūtaṁ vyoma praviśhad iva nābhiṁ kuhariṇīm</font>
 <p>
 <b>78 Transliteration</b><br>
 <font color="purple">
-Sthiro gaṅg’āvartaḥ stana mukula romāvali latā<br>
-Kalāvālaṁ kuṇḍaṁ kusuma-śhara tejo huta bhujaḥ<br>
-Rater līl’āgāraṁ kim api tava nābhir giri-sute<br>
-Bila-dvāraṁ siddher giriśha nayanānāṁ vijayate</font>
+Sthiro gaṅg'āvartaḥ stana mukula romāvali latā<br>
+Kalāvālaṁ kuṇḍaṁ kusuma-śhara tejo huta bhujaḥ<br>
+Rater līl'āgāraṁ kim api tava nābhir giri-sute<br>
+Bila-dvāraṁ siddher giriśha nayanānāṁ vijayate</font>
 </p>
 
 <p>
@@ -1295,10 +1296,10 @@ Bila-dvāraṁ siddher giriśha nayanānāṁ vijayate</font>
 
 <p>
 <b>79 Transliteration</b><br>
-<font color="purple">Nisarga kṣhīṇasya stana taṭa bhareṇa klama juṣho<br>
-Naman mūrter nārī tilaka śhanakais truṭyata iva<br>
-Chiraṁ te madhyasya truṭita taṭinī tīra taruṇā<br>
-Samāvasth’āsthemno bhavatu kuśhalaṁ Śhaila-tanaye</font>
+<font color="purple">Nisarga kṣhīṇasya stana taṭa bhareṇa klama juṣho<br>
+Naman mūrter nārī tilaka śhanakais truṭyata iva<br>
+Chiraṁ te madhyasya truṭita taṭinī tīra taruṇā<br>
+Samāvasth'āsthemno bhavatu kuśhalaṁ śhaila-tanaye</font>
 </p>
 
 <p>
@@ -1311,10 +1312,10 @@ Samāvasth’āsthemno bhavatu kuśhalaṁ Śhaila-tanaye</font>
 
 <p>
 <b>80 Transliteration</b><br>
-<font color="purple">Kuchau sadyaḥ svidyat taṭa ghaṭita kūrpāsa bhid-urau<br>
-Kaṣhantau dormūle kanaka kalaśh’ābhau kalayatā<br>
-Tava trātuṁ bhaṅgād alam iti valagnaṁ tanu-bhuvā<br>
-Tridhā naddhaṁ devi trivali lavalī vallibhir iva</font>
+<font color="purple">Kuchau sadyaḥ svidyat taṭa ghaṭita kūrpāsa bhid-urau<br>
+Kaṣhantau dormūle kanaka kalaśh'ābhau kalayatā<br>
+Tava trātuṁ bhaṅgād alam iti valagnaṁ tanu-bhuvā<br>
+Tridhā naddhaṁ devi trivali lavalī vallibhir iva</font>
 </p>
 
 <p>
@@ -1327,10 +1328,10 @@ Tridhā naddhaṁ devi trivali lavalī vallibhir iva</font>
 
 <p>
 <b>81 Transliteration</b><br>
-<font color="purple">Guru-tvaṁ vistāraṁ kṣhiti-dhara patiḥ pārvati nijān<br>
-Nitamb’ādāch-chhidya tvayi haraṇa rūpeṇa nidadhe<br>
-Atas te vistīrṇo gurur ayam aśheṣhāṁ vasumatīṁ<br>
-Nitamba prāg-bhāraḥ sthagayati laghutvaṁ nayati cha</font>
+<font color="purple">Guru-tvaṁ vistāraṁ kṣhiti-dhara patiḥ pārvati nijān<br>
+Nitamb'ādāch-chhidya tvayi haraṇa rūpeṇa nidadhe<br>
+Atas te vistīrṇo gurur ayam aśheṣhāṁ vasumatīṁ<br>
+Nitamba prāg-bhāraḥ sthagayati laghutvaṁ nayati cha</font>
 </p>
 
 <p>
@@ -1343,10 +1344,10 @@ Nitamba prāg-bhāraḥ sthagayati laghutvaṁ nayati cha</font>
 
 <p>
 <b>82 Transliteration</b><br>
-<font color="purple">Kar’īndrāṇāṁ śhuṇḍān kanaka kadalī kāṇḍa paṭalīm<br>
-Ubhābhyām ūrubhyām ubhayam api nir-jitya bhavatī<br>
-Su-vṛittābhyāṁ patyuḥ praṇati kaṭhinābhyāṁ Giri-sute<br>
-Vidhigñye jānubhyāṁ vibudha kari-kumbha dvayam asi</font>
+<font color="purple">Kar'īndrāṇāṁ śhuṇḍān kanaka kadalī kāṇḍa paṭalīm<br>
+Ubhābhyām ūrubhyām ubhayam api nir-jitya bhavatī<br>
+Su-vṛittābhyāṁ patyuḥ praṇati kaṭhinābhyāṁ Giri-sute<br>
+Vidhigñye jānubhyāṁ vibudha kari-kumbha dvayam asi</font>
 </p>
 
 <p>
@@ -1359,10 +1360,10 @@ Vidhigñye jānubhyāṁ vibudha kari-kumbha dvayam asi</font>
 
 <p>
 <b>83 Transliteration</b><br>
-<font color="purple">Parājetuṁ rudraṁ dvi-guṇa śhara garbhau Giri-sute<br>
-Niṣhaṅgau jaṅghe te viṣhama viśhikho bāḍham akṛita<br>
-Yad-agre dṛiśhyante daśha-śhara phalāḥ pāda yugalī<br>
-Nakh’āgrach-chhadmānaḥ sura makuṭa śhāṇ’aika niśhitāḥ</font>
+<font color="purple">Parājetuṁ rudraṁ dvi-guṇa śhara garbhau Giri-sute<br>
+Niṣhaṅgau jaṅghe te viṣhama viśhikho bāḍham akṛita<br>
+Yad-agre dṛiśhyante daśha-śhara phalāḥ pāda yugalī<br>
+Nakh'āgrach-chhadmānaḥ sura makuṭa śhāṇ'aika niśhitāḥ</font>
 </p>
 
 <p>
@@ -1375,10 +1376,10 @@ Nakh’āgrach-chhadmānaḥ sura makuṭa śhāṇ’aika niśhitāḥ</f
 
 <p>
 <b>84 Transliteration</b><br>
-<font color="purple">Śhrutīnāṁ mūrdhāno dadhati tava yau śhekhara-tayā<br>
-  Mam’āpy’etau mātaḥ śhirasi dayayā dhehi charaṇau<br>
-Yayoḥ pādyaṁ pāthaḥ paśhu-pati jaṭā jūṭa taṭinī<br>
-Yayor lākṣhā lakṣhmīr aruṇa hari chūḍā-maṇi ruchiḥ</font>
+<font color="purple">śhrutīnāṁ mūrdhāno dadhati tava yau śhekhara-tayā<br>
+  Mam'āpy'etau mātaḥ śhirasi dayayā dhehi charaṇau<br>
+Yayoḥ pādyaṁ pāthaḥ paśhu-pati jaṭā jūṭa taṭinī<br>
+Yayor lākṣhā lakṣhmīr aruṇa hari chūḍā-maṇi ruchiḥ</font>
 </p>
 
 <p>
@@ -1391,10 +1392,10 @@ Yayor lākṣhā lakṣhmīr aruṇa hari chūḍā-maṇi ruchiḥ</font>
 
 <p>
 <b>85 Transliteration</b><br>
-<font color="purple">Namo-vākaṁ brūmo nayana ramaṇī-yāya padayos<br>
-Tavāsmai dvandvāya sphuṭa ruchi ras’ālakta kavate<br>
-Asūyaty’atyantaṁ yad abhi-hananāya spṛihayate<br>
-Paśhūnām īśhānaḥ pramada vana kaṅkeli tarave</font>
+<font color="purple">Namo-vākaṁ brūmo nayana ramaṇī-yāya padayos<br>
+Tavāsmai dvandvāya sphuṭa ruchi ras'ālakta kavate<br>
+Asūyaty'atyantaṁ yad abhi-hananāya spṛihayate<br>
+Paśhūnām īśhānaḥ pramada vana kaṅkeli tarave</font>
 </p>
 
 <p>
@@ -1407,10 +1408,10 @@ Paśhūnām īśhānaḥ pramada vana kaṅkeli tarave</font>
 
 <p>
 <b>86 Transliteration</b><br>
-<font color="purple">Mṛiṣhā kṛitvā gotra skhalanam atha vailakṣhya namitaṁ<br>
-Lalāṭe bhartāraṁ charaṇa-kamale tāḍayati te<br>
-Chirād antaḥ-śhalyaṁ dahana kṛitam unmūlita vatā<br>
-Tulā koṭi kvāṇaiḥ kili kilitam īśhāna ripuṇā</font>
+<font color="purple">Mṛiṣhā kṛitvā gotra skhalanam atha vailakṣhya namitaṁ<br>
+Lalāṭe bhartāraṁ charaṇa-kamale tāḍayati te<br>
+Chirād antaḥ-śhalyaṁ dahana kṛitam unmūlita vatā<br>
+Tulā koṭi kvāṇaiḥ kili kilitam īśhāna ripuṇā</font>
 </p>
 
 <p>
@@ -1423,10 +1424,10 @@ Tulā koṭi kvāṇaiḥ kili kilitam īśhāna ripuṇā</font>
 
 <p>
 <b>87 Transliteration</b><br>
-<font color="purple">Himānī hantavyaṁ hima-giri nivās’aika-chaturau<br>
-Niśhāyāṁ nidrāṇaṁ niśhi charama-bhāge cha viśhadau<br>
-Varaṁ lakṣhmī-pātraṁ śhriyam ati-sṛijantau samayināṁ<br>
-Sarojaṁ tvat-pādau Janani jayataśh chitram iha kim</font>
+<font color="purple">Himānī hantavyaṁ hima-giri nivās'aika-chaturau<br>
+Niśhāyāṁ nidrāṇaṁ niśhi charama-bhāge cha viśhadau<br>
+Varaṁ lakṣhmī-pātraṁ śhriyam ati-sṛijantau samayināṁ<br>
+Sarojaṁ tvat-pādau Janani jayataśh chitram iha kim</font>
 </p>
 
 <p>
@@ -1440,10 +1441,10 @@ Sarojaṁ tvat-pādau Janani jayataśh chitram iha kim</font>
 <p>
 <b>88 Transliteration</b><br>
 <font color="purple">
-Padaṁ te kīrtīnāṁ prapadam apadaṁ Devi vipadāṁ<br>
-Kathaṁ nītaṁ sadbhiḥ kaṭhina kamaṭhī karpara tulām<br>
-Kathaṁ vā bāhubhyām upa-yamana kāle pura-bhidā<br>
-Yad ādāya nyastaṁ dṛiṣhadi daya mānena manasā</font>
+Padaṁ te kīrtīnāṁ prapadam apadaṁ Devi vipadāṁ<br>
+Kathaṁ nītaṁ sadbhiḥ kaṭhina kamaṭhī karpara tulām<br>
+Kathaṁ vā bāhubhyām upa-yamana kāle pura-bhidā<br>
+Yad ādāya nyastaṁ dṛiṣhadi daya mānena manasā</font>
 </p>
 
 <p>
@@ -1456,10 +1457,10 @@ Yad ādāya nyastaṁ dṛiṣhadi daya mānena manasā</font>
 
 <p>
 <b>89 Transliteration</b><br>
-<font color="purple">Nakhair nāka-strīṇāṁ kara kamala saṁkocha śhaśhibhis<br>
-  Tarūṇāṁ divyānāṁ hasata iva te Chaṇḍi charaṇau<br>
-Phalāni svaḥ-sthebhyaḥ kisalaya karāgreṇa dadatāṁ<br>
-Daridrebhyo bhadrāṁ śhriyam aniśham ahnāya dadatau</font>
+<font color="purple">Nakhair nāka-strīṇāṁ kara kamala saṁkocha śhaśhibhis<br>
+  Tarūṇāṁ divyānāṁ hasata iva te Chaṇḍi charaṇau<br>
+Phalāni svaḥ-sthebhyaḥ kisalaya karāgreṇa dadatāṁ<br>
+Daridrebhyo bhadrāṁ śhriyam aniśham ahnāya dadatau</font>
 </p>
 
 <p>
@@ -1472,10 +1473,10 @@ Daridrebhyo bhadrāṁ śhriyam aniśham ahnāya dadatau</font>
 
 <p>
 <b>90 Transliteration</b><br>
-<font color="purple">Dadāne dīnebhyaḥ śhriyam aniśham āśhānu-sadṛiśhīm<br>
+<font color="purple">Dadāne dīnebhyaḥ śhriyam aniśham āśhānu-sadṛiśhīm<br>
 Amandaṁ saundarya prakara makarandam vikirati<br>
-Tav’āsmin mandāra stabaka subhage yātu charaṇe<br>
-Nimajjan majjīvaḥ karaṇa-charaṇaḥ ṣhaṭ charaṇatām</font>
+Tav'āsmin mandāra stabaka subhage yātu charaṇe<br>
+Nimajjan majjīvaḥ karaṇa-charaṇaḥ ṣhaṭ charaṇatām</font>
 </p>
 
 <p>
@@ -1488,10 +1489,10 @@ Nimajjan majjīvaḥ karaṇa-charaṇaḥ ṣhaṭ charaṇatām</font>
 
 <p>
 <b>91 Transliteration</b><br>
-<font color="purple">Pada nyāsa krīḍā pari-chayam iv’ārabdhu manasaḥ<br>
-Skhalantas te khelaṁ bhavana kala haṁsā na jahati<br>
-Atas teṣhāṁ śhikṣhāṁ subhaga maṇi mañjīra raṇitaḥ<br>
-Chhalādā chakṣhāṇaṁ charaṇa-kamalaṁ chāru charite</font>
+<font color="purple">Pada nyāsa krīḍā pari-chayam iv'ārabdhu manasaḥ<br>
+Skhalantas te khelaṁ bhavana kala haṁsā na jahati<br>
+Atas teṣhāṁ śhikṣhāṁ subhaga maṇi mañjīra raṇitaḥ<br>
+Chhalādā chakṣhāṇaṁ charaṇa-kamalaṁ chāru charite</font>
 </p>
 
 <p>
@@ -1504,10 +1505,10 @@ Chhalādā chakṣhāṇaṁ charaṇa-kamalaṁ chāru charite</font>
 
 <p>
 <b>92 Transliteration</b><br>
-<font color="purple">Gatās te mañchatvaṁ druhiṇa hari-rudr’eśhvara bhṛitaḥ<br>
-Śhivaḥ svachchhach-chhāyā ghaṭita kapaṭa prachchhada paṭaḥ<br>
-Tvadīyānāṁ bhāsāṁ prati-phalana rāg’āruṇatayā<br>
-Śharīrī śhṛiṅgāro-rasa iva dṛiśhāṁ dogdhi kutukam</font>
+<font color="purple">Gatās te mañchatvaṁ druhiṇa hari-rudr'eśhvara bhṛitaḥ<br>
+śhivaḥ svachchhach-chhāyā ghaṭita kapaṭa prachchhada paṭaḥ<br>
+Tvadīyānāṁ bhāsāṁ prati-phalana rāg'āruṇatayā<br>
+śharīrī śhṛiṅgāro-rasa iva dṛiśhāṁ dogdhi kutukam</font>
 </p>
 
 <p>
@@ -1521,10 +1522,10 @@ Śharīrī śhṛiṅgāro-rasa iva dṛiśhāṁ dogdhi kutukam</font>
 <p>
 <b>93 Transliteration</b><br>
 <font color="purple">
-Arālā keśheṣhu prakṛiti-saralā manda hasite<br>
-Śhirīṣh’ābhā chitte dṛiṣhad upala śhobhā kucha-taṭe<br>
-Bhṛiśhaṁ tanvī madhye pṛithur urasij’āroha viṣhaye<br>
-Jagat trātuṁ śhambhor-jayati karuṇā kāchid aruṇā</font>
+Arālā keśheṣhu prakṛiti-saralā manda hasite<br>
+śhirīṣh'ābhā chitte dṛiṣhad upala śhobhā kucha-taṭe<br>
+Bhṛiśhaṁ tanvī madhye pṛithur urasij'āroha viṣhaye<br>
+Jagat trātuṁ śhambhor-jayati karuṇā kāchid aruṇā</font>
 </p>
 
 <p>
@@ -1553,10 +1554,10 @@ Nirātaṅkaṃ chandrān nija-hṛidaya-paṅkeruham iva</font>
 
 <p>
 <b>95 Transliteration</b><br>
-<font color="purple">Kalaṅkaḥ kastūrī rajani kara bimbaṁ jalamayaṁ<br>
-Kalābhiḥ karpūrair marakata karaṇḍaṁ nibiḍitam<br>
+<font color="purple">Kalaṅkaḥ kastūrī rajani kara bimbaṁ jalamayaṁ<br>
+Kalābhiḥ karpūrair marakata karaṇḍaṁ nibiḍitam<br>
 Atas tvad-bhogena prati-dinam idaṁ rikta kuharaṁ<br>
-Vidhir bhūyo bhūyo nibiḍayati nūnaṁ tava kṛite</font>
+Vidhir bhūyo bhūyo nibiḍayati nūnaṁ tava kṛite</font>
 </p>
 
 <p>
@@ -1585,10 +1586,10 @@ Tava dvār'opānta sthitibhir aṇim'ādyābhir amarāḥ</font>
 
 <p>
 <b>97 Transliteration</b><br>
-<font color="purple">Kalatraṁ vaidhātraṁ kati kati bhajante na kavayaḥ<br>
-Śhriyo devyāḥ ko vā na bhavati patiḥ kairapi dhanaiḥ<br>
-Mahādevaṁ hitvā tava Sati-satīnām-acharame<br>
-Kuchābhyām āsaṅgaḥ kuravaka taror apy’asulabhaḥ</font>
+<font color="purple">Kalatraṁ vaidhātraṁ kati kati bhajante na kavayaḥ<br>
+śhriyo devyāḥ ko vā na bhavati patiḥ kairapi dhanaiḥ<br>
+Mahādevaṁ hitvā tava Sati-satīnām-acharame<br>
+Kuchābhyām āsaṅgaḥ kuravaka taror apy'asulabhaḥ</font>
 </p>
 
 <p>
@@ -1651,10 +1652,10 @@ Kadā dhatte vāṇī mukha kamala tāmbūla rasatām</font>
 <p>
 <b>101 Transliteration</b><br>
 <font color="purple">
-Sarasvatyā lakṣhmyā vidhi hari sa-patno viharate<br>
-Rateḥ pāti-vratyaṁ śhithi-layati ramyeṇa vapuṣhā<br>
-Chiraṁ jīvann eva kṣhapita paśhu-pāśha vyati-karaḥ<br>
-Par’ānand’ābhikhyam rasayati rasaṁ tvad bhajanavān</font>
+Sarasvatyā lakṣhmyā vidhi hari sa-patno viharate<br>
+Rateḥ pāti-vratyaṁ śhithi-layati ramyeṇa vapuṣhā<br>
+Chiraṁ jīvann eva kṣhapita paśhu-pāśha vyati-karaḥ<br>
+Par'ānand'ābhikhyam rasayati rasaṁ tvad bhajanavān</font>
 </p>
 
 <p>
