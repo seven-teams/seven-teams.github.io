@@ -21,7 +21,7 @@ This month new Photos were uploaded to 12 Pūjas as follows.<br>
 (vii) 1992-0419 Easter Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1992"> <font color="DarkGreen"><b>Italy 1992</b></font></a>.<br>
 (viii) 1993-0704 Guru Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1993"> <font color="DarkGreen"><b>Italy 1993</b></font></a>.<br>
 (ix) 1993-0815 Śhrī Kṛiṣhṇa Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1993"> <font color="DarkGreen"><b>Italy 1993</b></font></a>.<br>
-(x) 1993-1010 Śhrī Virāṭa Virāṭaṅganā Pūjā,: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/U.S.A./1993"> <font color="DarkGreen"><b>U.S.A. 1993</b></font></a>.<br>
+(x) 1993-1010 Śhrī Virāṭa Virāṭaṅganā Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/U.S.A./1993"> <font color="DarkGreen"><b>U.S.A. 1993</b></font></a>.<br>
 (xi) 1998-0906 Śhrī Gaurī Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1998"> <font color="DarkGreen"><b>Italy 1998</b></font></a>.<br>
 (xii) 2000-0702 Śhrī Ādi Śhakti Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/2000"> <font color="DarkGreen"><b>Italy 2000</b></font></a>.<br>
 Please kindly share the news and the links with all our brothers and sisters.<br>
