@@ -362,7 +362,9 @@ These are all signs that they are seekers. They are seeking something beyond.<br
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"In ... in Switzerland, I found the Catholics are the greatest drunkards. I really tell you, I'm sorry to say but horrible condition. They ... they ... they ... [as laughter starts after a short extra translation:] they drink ... I really tell you, oh because I happened to meet some of them and I was amazed that Catholics: they will drink on Christmas Day, they will drink on Easter Day, somebody dies they will drink, and somebody is born they will drink, at the least, you see. Some of them start drinking since morning till evening.<br>
+Surprising, I can't understand. <font color="DarkRed">If you follow Christianity, how can you take to such an alternative to escape life?</font><br>
+Their religion is alcoholism, not Christianity by any chance. And that can be in any religion."<br>
 <font size="+0"><b>1983-0906 Public Program, Day 3, Mittlerer Saal, Urania Volkshochschulen, Volksbildungshaus, Uraniastraße 1, Vienna, Austria</b></font>
 </p>
 
@@ -399,7 +401,9 @@ So today is the first day [laugghing:] when we should say that oh ... phu ... th
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"In the light of the Spirit, you understand immediately what is good for you. All kinds of mental processes, which have made us stupid, drop out.<br>
+For example, a person who is not realized does not know who is right person, who is a wrong person. If he's a futuristic man, he will say: 'All right, I have to buy this house. But maybe, it may not be available, maybe available, maybe this problem, that problem.' He will think about the problems first, waste all his energy before is facing the thing, situation. <font color="DarkRed">All the alternatives he'll give of problems.</font><br>
+As a result of that mental activity you really create problems. Because whatever is in the mind, takes the form."<br>
 <font size="+0"><b>1985-0613 Public Program, Day 2, Session 2 (evening), All Great Incarnations Are just One, Salle Centrale, Geneva, Switzerland</b></font>
 </p>
 
@@ -430,14 +434,17 @@ At that time all harassed Me with their different ideas that now I have decided 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"I must say: AIDS patients have been cured with Sahaj Yog. I must say! Is a fact! No doubt1<br>
+But what we can do in this country I don't know. I have no idea because I don't want to get arrested. [Some soft laughter.] [<font color="orange">unclear</font>].<br>
+<font color="DarkRed">But in England, alternate uh-uh-uh medicines are allowed.</font> And if people could reach England, we might be able to help them."<br>
 <font size="+0"><b>1990-0531 Public Program, Day 2, Hall, Cafe Del Rey Moro, Balboa Park, San Diego, CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"I am just telling you because we are not aware as to how these entrepreneurs are befooling us. <font color="DarkRed">There's no alternative left for us to be befooled, that's all, I think.</font><br>
+If you come to Sahaj Yog, you develop that age-old wisdom, which is there stored up in your head. Because when the Kuṇḍalinī comes up here, She enlightens you completely. Then you understand how mad this world is, and then you realize how you can be benevolent to yourself, how ... how .... how you can bring benevolence to everybody else, because you get empowered."<br>
 <font size="+0"><b>1991-0802 Public Program, Day 2, The Liver, Its Problems and Treatment, Koningszaal, Artis (Natura Artis Magistra), Plantage Middenlaan 41 A, Amsterdam, Netherlands</b></font>
 </p>
 
@@ -459,7 +466,9 @@ But still to be aware at that time, to have presence of mind at that very moment
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"Thirdly, look after your body properly. Your chakras, your Sahasrāra, head, everything, is so important.<br>
+Now, the about the children also, they have found out that the [laughs] children in the West are very wild. And they think is better to keep these children in Dharamśhālā [Dharmaśhālā], because also their immunity system is very poor. What I learnt that, here, from their very childhood, people start, doctors start giving them antibiotics. That is how they develop this immunity system uh in such a, I mean, such a bad shape. And is very dangerous. Because they catch everything! Somebody is coughing, they start coughing. Somebody has cold, they catch cold. I mean, everything. So their immunity system we'll try to develop.<br>
+<font color="DarkRed">So you have to remember not to tank [take] any medicine, homeopathic, or, say-ee, any other alternative medicine or allopathic medicine, unless and until you have consulted your leader or Me.</font>"<br>
 <font size="+0"><b>1992-0412 Talk to Children and Sahaja Yogis, The Responsibility Has to Be Taken with Wisdom and with your Powers and On Medical Matters, Nirmala House, Sant'Angelo Romano (7 kms N of Guidonia), Italy</b></font>
 </p>
 
