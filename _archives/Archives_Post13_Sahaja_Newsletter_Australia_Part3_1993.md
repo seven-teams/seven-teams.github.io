@@ -130,33 +130,43 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>1993SAHNEWAUS14.</b></font> <b>1993-0507 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907)
+<font color="DarkGreen"><b>1993SAHNEWAUS14.</b></font> <b>1993-0507 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1102 as 5 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1993-0507_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
+<iframe src="/pdf/?usedownload=true#/files/1993-0507_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
 <br>
 
-<font color="DarkGreen"><b>1993SAHNEWAUS15.</b></font> <b>1993-0514 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907)
+<font color="DarkGreen"><b>1993SAHNEWAUS15.</b></font> <b>1993-0514 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1102 as 5 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1993-0514_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
+<iframe src="/pdf/?usedownload=true#/files/1993-0514_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
 <br>
 
-<font color="DarkGreen"><b>1993SAHNEWAUS16.</b></font> <b>1993-0521 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907)
+<font color="DarkGreen"><b>1993SAHNEWAUS16.</b></font> <b>1993-0521 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1102 as 5 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1993-0521_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
+<iframe src="/pdf/?usedownload=true#/files/1993-0521_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
 <br>
 
-<font color="DarkGreen"><b>1993SAHNEWAUS17.</b></font> <b>1993-0528 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907)
+<font color="DarkGreen"><b>1993SAHNEWAUS17.</b></font> <b>1993-0528 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1102 as 5 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1993-0528_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
+<iframe src="/pdf/?usedownload=true#/files/1993-0528_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
 <br>
 
-<font color="DarkGreen"><b>1993SAHNEWAUS18.</b></font> <b>1993-0604 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907)
+<font color="DarkGreen"><b>1993SAHNEWAUS18.</b></font> <b>1993-0604 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1102 as 5 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1993-0604_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1993-0604_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
