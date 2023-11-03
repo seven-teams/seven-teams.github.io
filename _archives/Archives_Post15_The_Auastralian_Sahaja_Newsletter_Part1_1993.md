@@ -36,9 +36,11 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>1993THEAUSSAHNEW3.</b></font> <b>1993-1001 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-0914)
+<font color="DarkGreen"><b>1993THEAUSSAHNEW3.</b></font> <b>1993-1001 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-0914 as 2 pages and on 1102 as 4 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1993-1001_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1993-1001_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
