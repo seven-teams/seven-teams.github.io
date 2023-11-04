@@ -757,15 +757,18 @@ That is why Kabīr has said, "How to make one understand when the whole world is
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"I never read Scriptures, [laughs] I don't think I have to read them because I know them, but I was reading uh the Qur'ān and also the Bible uh from this science, Christian science thing. All other scriptures also. I mean, what they are saying is absolutely true, that you have to be righteous, you have to be above vi[o]lence, you have to be detached. 
+All these things are absolutely the same, no doubt. There's no change. In all these Scriptures they say the same thing. <font color="red">This was said about eight thousand] [8,000] years back by Śhrī Rāma, then by Śhrī Kṛiṣhṇa, then it was said by Socrates, Lao Tze, Abraham. All of Them have said the same thing.</font> Then Muhammad Sāhab said the same thing, Nāṇaka said the same thing."<br>
 <font size="+0"><b>1992-0221 Public Program, Day 2, Brisbane, Queensland, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-"......<br>
-......<br>This-s old science is not only from India. It comes from everywhere. <font color="red">As I told you Confucius knew this, Socrates knew this, and, also, many people like William Blake and C.S. Lewis, all these people knew about it.</font><br>
+"<font color="red">Those who were Saints, in any country, take it Lao Tze, you can take from Socrates onward this side, Muhammad Sāhab, Nāṇak Sāhab, all of these people, you will be amazed to find that all these people behaved in such a manner that we cannot find faults with them. I mean if you want to find, you may with your ignorance. But the kind of life if They led, how is it that They were like that? What was so great? It was Their Divinity which expressed.</font><br>
+While we all have this Divinity within ourselves, we have all these powers within ourselves, only thing: we have to use those powers, we have to manifest them. And for that manifestation, is ... is important that we have to become self-realized, in the sense that you have to get your Second Birth. <br>
+......<br>
+This-s old science is not only from India. It comes from everywhere. <font color="red">As I told you Confucius knew this, Socrates knew this, and, also, many people like William Blake and C.S. Lewis, all these people knew about it.</font><br>
 But nobody could put it through to people because, I think, people did not want to accept it."<br>
 <font size="+0"><b>1992-0226 Public Program, Christchurch Town Hall (now Christchurch Town Hall of the Performing Arts), 86 Kilmore Street, Christchurch Central City, Christchurch, New Zealand</b></font>
 </p>
@@ -773,7 +776,8 @@ But nobody could put it through to people because, I think, people did not want 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+This is the area [void] which we say is-ss within us built up by the-ee Great Prophets. <font color="red">"You can start, say, Abraham, Moses, Socrates, Lao Tze, all these Great Prophets have built this area within us.</font><br>
+And this represents ten valencies, like Ten Commandments. Carbon has got four valencies, we have got ten valencies. And these ten valenji-cies [valencuies] are our real actual human nature, which we can call is the religion within ourselves."<br>
 <font size="+0"><b>1992-0228 Public Program, Newcastle (160 kms N of Sydney), New South Wales, Australia</b></font>
 </p>
 
@@ -794,7 +798,7 @@ But nobody could put it through to people because, I think, people did not want 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Like Socrates was one of Them, who was a Primordial Master, and They have created this center [of masatery]."</font><br>
 <font size="+0"><b>1993-0428 Public Program advertised as 'The Goddess Athena Proved to Be Reality', Theatro Akropol, Athens, Greece</b></font>
 </p>
 

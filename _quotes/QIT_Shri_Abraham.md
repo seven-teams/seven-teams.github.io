@@ -527,6 +527,20 @@ Their job was just to give awakening to people."<br>
 <div class="para-divider"></div>
 
 <p>
+"I never read Scriptures, [laughs] I don't think I have to read them because I know them, but I was reading uh the Qur'ān and also the Bible uh from this science, Christian science thing. All other scriptures also. I mean, what they are saying is absolutely true, that you have to be righteous, you have to be above vi[o]lence, you have to be detached. 
+All these things are absolutely the same, no doubt. There's no change. In all these Scriptures they say the same thing. <font color="red">This was said about eight thousand] [8,000] years back by Śhrī Rāma, then by Śhrī Kṛiṣhṇa, then it was said by Socrates, Lao Tze, Abraham. All of Them have said the same thing.</font> Then Muhammad Sāhab said the same thing, Nāṇaka said the same thing."<br>
+<font size="+0"><b>1992-0221 Public Program, Day 2, Brisbane, Queensland, Australia</b></font>
+</p>
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "In every religion there is some sort of a stupid stuff pushed forward, in every. Nobody could really stop it. Because those people who are in charge of religion have no enlightenment, they have nothing to k... do with it, anywhere.<br>
 And that's how, I have seen, people, say, in Japan, they follow one religion, and in uh-uh-uh China they follow another religion, both are just the same: one is Zen, another is Tao. But the misunderstanding is that they think, 'We are ex-xu-xu-xclusive [exclusive].' They are not! None of them are exclusive!.<br>
 <font color="red">Muhammad Sāhab described all of Them: from Abraham to Moses, to Christ, to the Mother of Christ. And He said, :There have been more than one lākh Nabīs on this Earth."</font><br>

@@ -1408,6 +1408,39 @@ Lao Tze said the same thing, if you say, start from Confucius to Lao Tze, to thi
 <div class="para-divider"></div>
 
 <p>
+"I never read Scriptures, [laughs] I don't think I have to read them because I know them, but I was reading uh the Qur'ān and also the Bible uh from this science, Christian science thing. All other scriptures also. I mean, what they are saying is absolutely true, that you have to be righteous, you have to be above vi[o]lence, you have to be detached. 
+All these things are absolutely the same, no doubt. There's no change. In all these Scriptures they say the same thing. This was said about eight thousand] [8,000] years back by Śhrī Rāma, then by Śhrī Kṛiṣhṇa, then it was said by Socrates, Lao Tze, Abraham. All of Them have said the same thing. <font color="red">Then Muhammad Sāhab said the same thing, Nāṇaka said the same thing.</font>"<br>
+<font size="+0"><b>1992-0221 Public Program, Day 2, Brisbane, Queensland, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">Those who were Saints, in any country, take it Lao Tze, you can take from Socrates onward this side, Muhammad Sāhab, Nāṇak Sāhab, all of these people, you will be amazed to find that all these people behaved in such a manner that we cannot find faults with them. I mean if you want to find, you may with your ignorance. But the kind of life if They led, how is it that They were like that? What was so great? It was Their Divinity which expressed.</font><br>
+While we all have this Divinity within ourselves, we have all these powers within ourselves, only thing: we have to use those powers, we have to manifest them. And for that manifestation, is ... is important that we have to become self-realized, in the sense that you have to get your Second Birth. <br>
+......<br>
+This-s old science is not only from India. It comes from everywhere. <font color="red">As I told you Confucius knew this, Socrates knew this, and, also, many people like William Blake and C.S. Lewis, all these people knew about it.</font><br>
+But nobody could put it through to people because, I think, people did not want to accept it."<br>
+<font size="+0"><b>1992-0226 Public Program, Christchurch Town Hall (now Christchurch Town Hall of the Performing Arts), 86 Kilmore Street, Christchurch Central City, Christchurch, New Zealand</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Muslims, Hindus, Christians, we do not accept. For us, we are all Sahaja Yogis, and we have faith in all the religion[s]. Not a samabhāv [sympathy, like nature]! We have faith in everyone. <font color="red">As well as we worship Rāma, we worship Muhammad Sāhab also. Same way! No less! As we worship Brahmadeva, or as we worship, let's say, Dattātreya, we worship Zoroaster. There's no difference at all. Same way!</font><br>
 There's a big difference in having just the same ... uh-uh-uh, uh what you call, the same uh respect. Is not that! But we worship the same way.<br>
 So there's no question of differentiating each other, nor on countrywise, nothing."<br>
