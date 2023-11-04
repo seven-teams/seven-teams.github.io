@@ -36,7 +36,7 @@ tags:
 <font color="red">[Śhrī Mātājī looks similar in every Incarnation. This is why the description of Her in the Saundaryalaharī is so accurate.]</font><br>
 <b>1908-0000 Advices from the book Eternally Inspired Recollections of our Divine Mother, Volume 1, Pages 295--297</b><br>
 <br>
-<font color="red">When this thing enters through this into that subtle form you start feeling from your hands a Cool Breeze flowing. This is described in our Scriptures. If you read even Christ has said, ``Something passed out of My body when somebody touched Me." [Luke 8.46.] But in our Scriptures it's given very, very clearly. Here, in some of them, for example I would say Śhaṅkara -- Śhaṅkarāchārya described that as Saundaryalaharī. He called it as Saundaryalaharī this force somewhere. He called as vibrations. So many people are talking of vibrations but they don't know what they're talking.</font><br>
+<font color="red">When this thing enters through this into that subtle form you start feeling from your hands a Cool Breeze flowing. This is described in our Scriptures. If you read even Christ has said, "Something passed out of My body when somebody touched Me." [Luke 8.46.] But in our Scriptures it's given very, very clearly. Here, in some of them, for example I would say Śhaṅkara -- Śhaṅkarāchārya described that as Saundaryalaharī. He called it as Saundaryalaharī this force somewhere. He called as vibrations. So many people are talking of vibrations but they don't know what they're talking.</font><br>
 <b>1977-1121 Public Program, Tantrism, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b><br>
 <br>
 <font color="red">When this thing enters through this into that subtle form, you start feeling from your hands a Cool Breeze flowing. This is described in our Scriptures.<br>
@@ -821,8 +821,8 @@ Dhruvaṁ tat-tan-nāma vyava-haraṇa yogyā vijayate</font>
 
 <p>
 <b>49 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">Thy glance of Thine eyes is al-comprehensive (Viśhālā); seplls prosperity (Kalyāṇī); serenely dazzles and (as such) cannot be faced in battle (Ayodhyā) by blue lilies; is the fountain-head of the stream of mercy (Dhārā); is superbly sweet (Madhurā); enjoys immense happiness (Bhogavatī); is the savior (Avantī) o fthe devoted); out-rivals <i>in extenso</i> (Vijayā, nay) several (other) cities; and is indeed capable of being (appropriately) indicated by their respectove names. All glory to it!</font><br>
+<font color="blue">All glory to Thy eyes which are wide (viśhālā); auspicious (kalyāṇī) because of being brilliantly clear; undefeated (ayodhyā) even by blue lilies; shedding a continuous flow of grace (kṛipādhārā-dhārā); sweet without display (Avyakta-madhura); long (Abhogavati); and offering protection to the world (Avantī). Surpassing (Vijayā) all these great cities in their uniqueness, Thy eyes deserve to be denoted by all the names mentioned above.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -837,8 +837,8 @@ Asūyā saṁsargād alika-nayanaṁ kiṁ-chid aruṇam</font>
 
 <p>
 <b>50 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">The (third) eye on Thy forehead is somehwat red, (as though) influenced by jealousy, seeing taht Thy two young bee0like obliquely glancing (eyes), in their eagerness to swallow the nine Rasas (poetic sentiments), do not leave off Thy pair of ears, which cheifly delight in the honesty of the cluster of flowers of poetic compositions.</font><br>
+<font color="blue">The two honey-bees of Thy long eyes are unceasingly hovering about Thy ear, ever absorbed in imbibing the honey dripping from the flower bunch of the nine poetic sentiments poured into them by poet-devotees (singing hymns on Thee). Seeingthis good fortune of the two eyes, Thy third eye in the forehead looks slightly red out of jealous hostility.</font><br>
 </p>
 
 <div class="para-divider"></div>
