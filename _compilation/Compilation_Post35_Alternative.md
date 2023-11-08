@@ -410,7 +410,7 @@ As a result of that mental activity you really create problems. Because whatever
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"Lastly, oh we are all now they're going for many marriages. Again, ah there are about sixty-five already, and maybe some more may be added, but I would say keep it at sixty-five, is [a] better idea, and for others we'll have it next year. But, and this I would say, you shouldn't make anybody marry unless and until that person is reasonably ah understood by the leaders and is certified. Anybody purs... anyone who has even little doubt one should not try it. It can always do it next year. <font color="DarkRed">Because the first alternative is there, that if they cannot get along, they can marry again. Or they can give up.</font> But supposing you marry them first, then the second alternative is horrible: they have to divorce, they have to run away, or do all kinds of things. And we have seen [that] there are some mishaps. So, I would suggest that you must judge your fiancé, or anybody you call, and see how it works out."<br>
 <font size="+0"><b>1987-1230 Talk to Sahaja Yogis, On Different Matters and Marriages, before the Evening Program Organized by the Mayor of Kolhapur and Western Sahaja Yogis, Kolhapur, Maharashtra, India</b></font>
 </p>
 
@@ -486,13 +486,6 @@ Because of this deviation, all the religions became fundamentalist. They could n
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b>1993-0319 Press Conference (Medical and Scientific), Meridian Hotel, New Delhi, India</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
 <font color="DarkRed"><b>Śhrī Mātājī</b></font>: Our country is poor because we are not patriotic. Even the politicians are not patriotic here. When we become patriotic we will become prosperous.<br>
 The World Bank grants donations to our country, but much of it goes into Swiss bank accounts. One quarter of the resources are here, and three quarters are in Swiss banks. The World Bank then gets us loans from the Swiss banks, and then we become indebted. This is how the debt increases. Then how will we become prosperous?<br>
 You only elect people who are known thieves and notorious. What to do? It's entirely your fault. During elections, they distribute cash and get reelected.<br>
@@ -526,7 +519,7 @@ When our ego is happy we become happy, when it is punctured we feel unhappy. So 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"<font color="DarkRed">Now, what I am saying, you should also have alternate methods as I told you, through economic uh ... uh ... development of handmade things and all that. You can have that.</font> But you should try to propagate that we all have to become Spirits." [Concludes with the right palm on the sofa.]<br>
 <font size="+0"><b>1995-0725 Public Talk to Representatives of Ecoforum and the Vice-minister of Health, Sofia, Bulgaria</b></font>
 </p>
 
@@ -545,13 +538,6 @@ Their situation becomes so bad that I feel that if anyone gets some disease, at 
 "<font color="DarkRed">The other day in America, in a very big organization called as I... IM...U [NIH], something like that, which is working out all kinds of uh-uh-uhm ... all kinds of uh-uh [medical] alternatives, and there when doctor asked one Sahaja Yoginī, who was not a doctor: "All right, tell me on your fingertips what's wrong with me." And she said: "You have a bad heart. There's problem in your heart." He was surprised because he said: "Only one month back I had a bypass, bypass surgery."</font><br> 
 So you can imagine: how on fingertips you can say what's wrong with you and what's wrong with other[s[. Absolute Truth, you can feel it on your fingertips."</font><br>
 <font size="+0"><b>2000-0926 Public Program, Day 1, Royal Albert Hall, Kensington Gore, London SW7, UK</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b>2001-0800 Interview with a Lady, Marina di Pietrasanta, Versilia, Tuscany, Italy</b></font>
 </p>
 
 <div class="para-divider"></div>
