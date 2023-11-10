@@ -38,7 +38,7 @@ The significance and the days of Deepavali are listed below:</font><br>
 <b>Day 1 (Friday, November 10th) – Dhanteras or Dhanvantri Jayanti</b><br>
 <font color="DarkRed">"The first day is the thirteenth day where it is the gṛuhalakṣhmī's day. Is a ṛughalakṣhmī's [gṛuhalakṣhmī's] day, that is the day when the gṛuhalakṣhmī is worshiped. But a gṛuhalakṣhmī has to be worship ... worthy of the worship, and then some utensil is given to the gṛuhalakṣhmī."</font><br>
 <font size="+0"><b>1992-1025 Diwālī Pūjā (Diwālī Day), Sala Olimpia (Olympia Sports Hall), Timişoara, Romania</b></font><br>
-<font size="+0">It is the first day of the five days celebration of Diwālī. The day when Śhrī Lakṣhmī is worshiped in Her form of Śhrī Gṛuhalakṣhmī. It is also called the Dhanvantri Jayanti, the day when Goddess Dhanvantri is born.<br>
+<font size="+0">It is the first day of the five days celebration of Diwālī. The day when Śhrī Lakṣhmī is worshiped in Her form of Śhrī Gṛuhalakṣhmī. It is also called the Dhanvantri Jayanti, the day when Goddess Dhanvantri is born.</font><br>
 <br>
 <b>Day 2 (Saturday, November 11th) – Naraka Chaturdaśhī</b><br> 
 <font color="DarkRed">"Horrible Narakāsura [Tārakāsura] as you know him. But actually that day many rākṣhasas are killed in many ... That's a day fixed for killing rākṣhasas."</font><br>
