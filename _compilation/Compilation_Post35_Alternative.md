@@ -322,7 +322,7 @@ And once you get these real powers, you want to share it with others, you want t
 
 <p>
 "Today, in the world if you see, everywhere I go there are so many seekers, so many seekers!<br> 
-Such a time was never there before, say about fifty years back, we did not know the word seekers. People did not believe that there are seekers.<be>
+Such a time was never there before, say about fifty years back, we did not know the word seekers. People did not believe that there are seekers.<br>
 <font color="DarkRed">But today you find so many seekers all over the world: they have gone to all kinds of other alternative things, they have tried to find out if they can find truth by altering their lives by doing this or by doing that.</font> The reason is: they are not at all satisfied with what they see. They're intelligent enough to see that is not the end of our lives and we don't live just for insurances."<br>
 <font size="+0"><b>1983-0308 Public Program, Day 1, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
@@ -512,7 +512,7 @@ Surprisingly, Gnostics as they were in those days, Thomas also has written a bea
 "Above all, you jump into the Ocean of Joy.<br>
 Joy is singular.<br>
 When our ego is happy we become happy, when it is punctured we feel unhappy. So we move from happiness to unhappiness and happiness to unhappiness.<br>
-<font color="DarkRed">But joy is-s-s an experience, which is ... which has no alternative.</font> You can enjoy everything, and you can find solutions to everything."</font><br>
+<font color="DarkRed">But joy is-s-s an experience, which is ... which has no alternative.</font> You can enjoy everything, and you can find solutions to everything."<br>
 <font size="+0"><b>1994-0719 Public Program, Saal F (Floor 0), Austria Center, Vienna, Austria</b></font>
 </p>
 
@@ -536,7 +536,7 @@ Their situation becomes so bad that I feel that if anyone gets some disease, at 
 
 <p>
 "<font color="DarkRed">The other day in America, in a very big organization called as I... IM...U [NIH], something like that, which is working out all kinds of uh-uh-uhm ... all kinds of uh-uh [medical] alternatives, and there when doctor asked one Sahaja Yoginī, who was not a doctor: "All right, tell me on your fingertips what's wrong with me." And she said: "You have a bad heart. There's problem in your heart." He was surprised because he said: "Only one month back I had a bypass, bypass surgery."</font><br> 
-So you can imagine: how on fingertips you can say what's wrong with you and what's wrong with other[s[. Absolute Truth, you can feel it on your fingertips."</font><br>
+So you can imagine: how on fingertips you can say what's wrong with you and what's wrong with other[s[. Absolute Truth, you can feel it on your fingertips."<br>
 <font size="+0"><b>2000-0926 Public Program, Day 1, Royal Albert Hall, Kensington Gore, London SW7, UK</b></font>
 </p>
 
