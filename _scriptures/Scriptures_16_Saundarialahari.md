@@ -28,7 +28,7 @@ tags:
 <b>1900-0000 Quote from the book Divine Knowledge through Vibrations (1992) by P.T. Rajasekharan and R. Venkatesan, Pages 73 and 74</b><br>
 <br>
 <font color="red">Śhrī Ādi Śhaṅkarāchārya lived in sixth century A.D. He wrote many texts: Saundaryalaharī, Upadeśhasāhasri, Vivekachūḍāmaṇi, Ātmabodh, etc. In most of these texts, there are various references to Kuṇḍalinī awakening, as some of the following stanzas [10 and 9 from Saundaryalaharī] will illustrate:<br>
-[Having in-filled in the pathway of the nāḍīs with the streaming shower of Nectar flowing from Thy pair of Feet (Lotus Feet), having resumed Thine own position from out of resplendent lunar regions, and Thyself assuming the form of a serpent of three and a half coils, sleepest Thou in the hollow of the Kulakuṇḍa.] [Kulakuṇḍa=the hollow of the Mūlādhāra -- sacrum bone.]<br>
+[Having in-filled in the pathway of the nāḍīs with the streaming shower of Nectar flowing from Thy pair of Feet (Lotus Feet), having resumed Thine own position from out of resplendent lunar regions, and Thyself assuming the form of a serpent of three and a half coils, sleepest Thou in the hollow of the Kulakuṇḍa.] [Kulakuṇḍa=the hollow of the Mūlādhāra - sacrum bone.]<br>
 [Thou art diverting (residing) in secrecy with Thy Lord (the Spirit) in the thousand-petalled Lotus, having pierced through the Earth situated in Mūlādhāra, the Water in the Maṇipūra, the Fire abiding in the Swādhiṣhṭhāna, the Air in the Heart (Anāhata), the Ether above (the Viśhuddhi) and Manas between the eyebrows (Āgñyā) and thus broken the entire Kula path.]<br>
 Śhrī Ādi Śhaṅkarāchārya propounded that it is the Kuṇḍalinī who has to be awakened and unless and until you get your Realization you are nowhere near religion. Śhrī Ādi Śhaṅkarāchārya also had given a very befitting answer to the so-called proponents of Haṭha Yoga, Gyān Yoga, Karma Yoga or Rāj Yoga. "Neither by Yoga, nor philosophy, nor by work, nor by learning but by the Realization of one's identity with the Brahman is liberation possible and by no other means.</font><br>
 <font size="+0"><b>1900-0000 Two Quotes from the book Divine Knowledge through Vibrations (1992) by P.T. Rajasekharan and R. Venkatesan, Pages 75 and 76</b></font><br>
@@ -36,7 +36,7 @@ tags:
 <font color="red">[Śhrī Mātājī looks similar in every Incarnation. This is why the description of Her in the Saundaryalaharī is so accurate.]</font><br>
 <b>1908-0000 Advices from the book Eternally Inspired Recollections of our Divine Mother, Volume 1, Pages 295--297</b><br>
 <br>
-<font color="red">When this thing enters through this into that subtle form you start feeling from your hands a Cool Breeze flowing. This is described in our Scriptures. If you read even Christ has said, "Something passed out of My body when somebody touched Me." [Luke 8.46.] But in our Scriptures it's given very, very clearly. Here, in some of them, for example I would say Śhaṅkara -- Śhaṅkarāchārya described that as Saundaryalaharī. He called it as Saundaryalaharī this force somewhere. He called as vibrations. So many people are talking of vibrations but they don't know what they're talking.</font><br>
+<font color="red">When this thing enters through this into that subtle form you start feeling from your hands a Cool Breeze flowing. This is described in our Scriptures. If you read even Christ has said, "Something passed out of My body when somebody touched Me." [Luke 8.46.] But in our Scriptures it's given very, very clearly. Here, in some of them, for example I would say Śhaṅkara - Śhaṅkarāchārya described that as Saundaryalaharī. He called it as Saundaryalaharī this force somewhere. He called as vibrations. So many people are talking of vibrations but they don't know what they're talking.</font><br>
 <b>1977-1121 Public Program, Tantrism, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b><br>
 <br>
 <font color="red">When this thing enters through this into that subtle form, you start feeling from your hands a Cool Breeze flowing. This is described in our Scriptures.<br>
@@ -853,8 +853,8 @@ Sakhīṣhu smerā te mayi Jananī dṛiṣhṭiḥ sakaruṇā</font>
 
 <p>
 <b>51 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Mother! Thy look is soft with love towards Śhiva; scornful towards other folks; spiteful towards Gaṅgā; expressive of wonder at Giriśha's exploits; full of dread (when confronted) with the snakes (ornaments) of Hara; eclipses the beautiful color of the lotus; smiles on Thy comrades; and is full of grace towards me.</font><br>
+<font color="blue">O Mother! The expression of Thy look at Śhiva is characterised by the sentiment of love; at others with that of dislike; at the co-wife Gaṅgā with that of anger; at the hearing of the great deeds of Śhiva, with that of wonder; at the great serpents forming the ornament of Śhiva, with that of dread; at the sight of Thy comrades, with that of light-hearted sympathy characterised by a patronising smile; and at me, a devotee, with that of a compassionate expression. And besides, Thy look has the red-tinged loveliness of a lotus flower, indicating heroism.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -869,8 +869,8 @@ Tav'ākarṇ'ākṛiṣhṭa smara śhara vilāsaṁ kalayataḥ</font>
 
 <p>
 <b>52 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Crest-bud of the dinasty of the King of the Mountains! these two eyes of Thine, finged with feather-like eyelashes, reaching Thine ears, and causing disturance in the profound mental placidity of the Destroyer of the Coties (Śhiva), play the part of Smara's arrows, drawn up to the ear.</font><br>
+<font color="blue">O Mother! Thou the flower bud placed on the crest of the Mountain King's dynasty! These long eyes of Thine, which extend up to the ears, with eye lashes resembling the feather wings attached to arrows which are engaged in disturbing the placidity of the mind of Śhiva look like the arrows of cupid aimed and drawn up to the ear.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -885,8 +885,8 @@ Rajaḥ sattvaṁ bibhrat-tama iti guṇānāṁ trayam iva</font>
 
 <p>
 <b>53 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Beloved of Īśhana! this triad of Thine eyes, displaying the three colors severally, smeared as it is with collyrium, shines out as if possessing the triad of of Guṇas - Rajas, Sattva and Tamas - so as to create once again the Devas - Druhiṇa, Hari and Rudra - when They cease to exists. </font><br>
+<font color="blue">O Consort of Īśhwara ! Thy three eyes look tri-colored when the black of the beautifying collyrium shines by the side of their natural white and reddish tinges, each keeping its distinctiveness. It looks as if these three colors represent the three Guṇas of Rajas, Sattva and Tamas, which Thou assumest with a view to revive Brahmā, ṣhṇu and Rudra after Their dissolution in the Pralaya, and start Them once again on the creative activity.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -901,8 +901,8 @@ Trayāṇāṁ tīrthānām upanayasi saṁbhedam anagham</font>
 
 <p>
 <b>54 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O (Goddess) with a heart entirely devoted to Paśhupati! Thou verily bringest about with Thy merciful eyes, which are red, white and dark in color, this hallowed (sin-washing) confluence of the three sacred streams of the Rivers - Śhoṇā, Gaṅgā and Tapana-tanayā - to sacnctify us all.</font><br>
+<font color="blue">O Mother who art ever devoted to Śhiva! It seems certain that with Thy kindly eyes having the three colors of red, white and black, Thou presentest to us the confluence of the holy rivers of Śhoṇā, Gaṅgā and Yamunā to sanctify ourselves by getting immersed in them.</font><br>
 </p>
 
 <div class="para-divider"></div>
