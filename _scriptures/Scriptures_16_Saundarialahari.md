@@ -917,8 +917,8 @@ Paritrātuṁ śhaṅke parihṛita nimeṣhās tava dṛiśhaḥ</font>
 
 <p>
 <b>55 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">...... the Sages say that the world has (its) dissolution and genesis with the cloning and opening of Thine eyes. Methings, Thine eyes are bereft of winking, with a view to save from dissolution this entire universe, which had its origin in the opening of Thine eyes.</font><br>
+<font color="blue">...... Great men say that the closing and opening of Thy eyelids mark the dissolution and creation of this universe. Therefore it must be to prevent this universe, that has sprung at the opening of Thy eyes, from going into dissolution that Thou dost not wink but keepest Thy eyes always open.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -933,8 +933,8 @@ Jahāti pratyūṣhe niśhi cha vighaṭay-ya praviśhati</font>
 
 <p>
 <b>56 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Aparṇā!  the (glittering) Śhapharikā fish[es] ever hide themselves under water without winking, afraid of the tell-tale nature of Thine eyes, which are so close to Thine ears. The Goddess of Beauty, again, leaves the blue lily at daybreak when its doorlike petals close, and forces an entrance (into it) at nightfall.</font><br>
+<font color="blue">O Aparṇā! The Śhapharikās (female fish) hide themselves in water in fear, afraid of the tell-tale activities of Thy eyes against them, their rivals; and Śhrī, the Goddess of Beauty, abandons the closed petals of the blue lily during the day in order to reside in Thy lotus-like eyes, and returns again at night to the blooming bluelily, when Thy eyes are closed in sleep.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -950,8 +950,8 @@ Vane vā harmye vā sama-kara-nipāto hima-karaḥ</font>
 
 <p>
 <b>57 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen"> O Spuse of Śhiva! may Thou graciously bathe even me, who stands helpless at a far off distance, with Thy far-reaching glance, beautiful like the slightly blossomed blue lily. This (mortal) will derive the <i>summum bonum</i> existence from such (action). By such action, no loss is after all sustained by Thee. The snow-beamed (Moon) sheds the selfsame lustre on a forest as qwell as on a mansion.</font><br>
+<font color="blue">O Consort of Śhiva, Grace my miserable self too, in spite of my being far removed from Thee through lack of devotion, with the long-ranging and compassionate look of Thy eyes, which defeat the slightly blooming blue water lily in beauty. By this my humble self shall feel blessed, while to Thee it involves no loss. The rays of the moon fall alike, indeed, on a mansion and a wilderness.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -966,8 +966,8 @@ Napāṅga-vyāsaṅgo diśhati śhara saṁdhāna dhiṣhaṇām</font>
 
 <p>
 <b>58 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Daughter of the King of Mountains! to whom would the arched pair of ridges (between Thine eyes and ears) not convey the grace of the bow of the flower-arrowed (god of love)? For, Thy long side-glance, directed across which (ridges) and reaching the vicinity of Thine ear, creates the impression of the mounting of an arrow (on the bow-string).</font><br>
+<font color="blue">O Daughter of the Mountain King! Who will not perceive the graces of the bow of Kāma, the flower-arrowed god of love, on seeing Thy pair of arched ridges between the eyes and the ears. For, Thy long-sided glances across the ridges reaching up to Thy ears give the impression of an arrow mounted on a bow string.</font><br>
 </p>
 
 <div class="para-divider"></div>
