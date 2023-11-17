@@ -33,7 +33,7 @@ Best is worshiping in the heart. If, the Photo by looking at it, can be placed i
 "Now instead of thinking and planning, if they realize the planning of the Almighty, then they don't have to take that headache upon themselves. First understand God. Meaning, His All-pervading Power is doing all the planning by Itself. If you abide by that planning then all your tasks will work out beautifully. <font color="DarkRed">If instead you take it upon yourself, then you will always encounter some hindrances and obstacles.</font> You can see for yourself the state of our country due to the existing planning. "
 <br>
 <b>Version 2:</b><br><br>
-"Now instead of thinking and planning themselves, if they understand the planning of the Almighty, then they don't have to take that trouble upon themselves. First understand God. Meaning, His All-pervading Power is doing all the planning by Itself. If you abide by that planning, then all your tasks will work out properly and beautifully. <font color="DarkRed">If instead you take it upon yourself, then you will plan, evaluate alternatives and work out the solutions where there will always be obstacles.</font>"
+"Now instead of thinking and planning themselves, if they understand the planning of the Almighty, then they don't have to take that trouble upon themselves. First understand God. Meaning, His All-pervading Power is doing all the planning by Itself. If you abide by that planning, then all your tasks will work out properly and beautifully. <font color="DarkRed">If instead you take it upon yourself, then you will plan, evaluate alternatives and work out the solutions where there will always be obstacles.</font>"<br>
 <font size="+0"><b>1979-0223 Public Program (Marathi), Kuṇḍalinī Śhakti ani Sat Chakra (Kuṇḍalinī Śhakti and the Seven Chakras), Ahmednagar, Maharashtra, India</b></font>
 </p>
 
@@ -303,7 +303,7 @@ Then when you are that much one with God, I mean, if you tell anything it will w
 But we are not! We are all the ... always finding alternatives, you see. And these alternatives is the game the, all these people have played with you, all the gi... time giving you alternatives.<br>
 You see, see now, in the market if you go, just now I asked him about how, "What car you have here? So he told Me, "There are so many combinations, this, that, if with cylinder this, that, so you go mad. You say, 'All right, bābā, give me something, whatever it is.' "<br>
 And then, you see, they ... this is all playing with your brains, all the time giving you alternatives: 'Whether you want this or that.'<br>
-And you feel that you are really a great personality that you can decide about: 'I'll have this color and that thing!' Very seriously people do it!
+And you feel that you are really a great personality that you can decide about: 'I'll have this color and that thing!' Very seriously people do it!"<br>
 <font size="+0"><b>1983-0304 Pūjā, Mother You Be in Our Brain, Rented House, Adelaide, SA, Australia</b></font>
 </p>
 
