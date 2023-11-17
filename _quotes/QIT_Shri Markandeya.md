@@ -293,16 +293,17 @@ They had the True Knowledge of the Kuṇḍalinī and went as far as Bolivia and
 <div class="para-divider"></div>
 
 <p>
-"It's very interesting to see: how ah the spirituality spread into these countries, and he ... then how it died out.<br>
+"Is very interesting to see: how uh the spirituality spread into these countries, and had then how it died out.<br>
 All these things happened, but then They were born again and again. They were born as Mahāvīra and Buddha. They are the same. They are born as Mārkaṇḍeya. They are born as Kabīra, as Ādi Śhaṅkarāchārya.<br>
 It was Buddha who was born as Ādi Śhaṅkarāchārya, just to correct Himself. Buddha was shocked the way people were going towards Nirākāra, that He had to be born as Śhaṅkarāchārya to tell people, "Oh God! What are you doing?" It was only Buddha who came to correct Himself as Śhaṅkarāchārya.<br>
 It is so [laughing:] surprising, that people are fighting, Buddhist and Hindus are great uh enemies of each other. But they do not know that the person who really re-established Hinduism was the same who established Buddhism.<br>
-So, imagine the same personality coming in and agai... coming, coming again and again on this Earth, tries to correct uh-uh-uh His disciples, again finds that there are two groups He has created: it's a big problem.<br>
+So, imagine the same personality coming in and agai... coming ... coming again and again on this Earth, tries to correct uh-uh-uh His disciples, again finds that there are two groups He has created: it's a big problem. <br>
 <font color="red">Now, Mahāvīra also was one of Them, who ... who was born again and again, and He was Mārkaṇḍeya, and He was Kabīra.</font><br>
-The way Kabīra lashes people, you can see that He is tremendous! He is like Bhairava.<br>
+The way Kabīra lashes people, you can see that He is tremendous! He is like Bhairava!<br>
 And the Power of Bhairava, Kabīra has used in His language, but for Hindi poets it is Sadhukaddi [vernacular dialect of Hindi+Punjabi+Māravāṛī in medieval North India] and they have made fun of it.<br>
 The best thing of a person who doesn't want to face reality, is to make fun of everyone. That is the best way.<br>
-They said, "What is this talk, 'Iḍā, Piṅgalā, Suṣhumṇā'? Who is He? What does He think of Himself?" But He was appreciated, very much, by the Saints and specially by Guru Nāṇaka, who included all His poetry in His Grantha Sāhab.<br>
+They said, "What is this talk, 'Iḍā, Piṅgalā, Suṣhumṇā'? Who is He? What does He think of Himself?"<br>
+But He was appreciated, very much, by the Saints and specially by Guru Nāṇaka, who included all His poetry in His Grantha Sāhab.<br>
 He's included so many of these poetry from all the realized Souls from Ma... Maharashtra, also."<br>
 <font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>

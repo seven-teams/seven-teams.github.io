@@ -225,7 +225,8 @@ Only in Realization you yourself you have to accept, [laughing:] because without
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"This is the story of Great Incarnations on this Earth.<br>
+<font color="red">There are so many of Them who were born, I have no time to tell you, but Socrates was the same. His disciple was one of these two.</font> Abraham, Moses, who are propagating Jews."<br>
 <font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
@@ -248,7 +249,8 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now, two persons are really to be followed in this.<br>
+One of them is Śhrī Rām. Śhrī Rām resides on the right Heart and is the Father. He is the Father and He is the Fatherhood. He is the One who came on this Earth to teach us how to be a father as a king. <font color="red">He is a father king, He is a benevolent king, which was described [by Socrates] before uh Plato.</font> He is the Benevolent King. He was the ideal who came on this Earth to teach us: `How to be responsible to others, how to respect others, how to understand the feelings of others.' To such an extent He went, that He had to sacrifice His own wife for the sake of His own state. He did that! And He had to ask His wife, who was pregnant, to go and live with a very great Sage. One may say that, `What was He ... what was He doing about His wife?' She was the Goddess. She was so remarkable that He was not bothered about Her. He was so sure of Her Powers that He did it! And there is nothing wrong in leaving things to the Goddess to do, instead of meddling with Her all the time. But this gentleman, Śhrī Rāma, understood the responsibility of a king. And that responsibility is lacking in us: that responsibility towards ourselves and towards others."<br>
 <font size="+0"><b>1981-0518 Public Program, The Right Side, Sense of Responsibility (You Have to Be Alert and Active, Responsible and Respectable, Decide that Every Moment and Movement of Your Life You Are Going to Feel Responsible as Hanumāna Does and I Have to Be Responsible from My Heart) and I Want You to Be Really Honored in the Kingdom of God as Great Sons of Your Mother (I Want You to Have Your Due: All the Heralds and All the Glory), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
@@ -262,7 +264,10 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"[Pointing down from Viśhuddhi chakra to Nābhī chakra on the Chakra Chart:] The connection is that this seeking [slowly makes three and a half clockwise circles inside the Void around the Nābhī chakra on the Chakra Chart:] goes in developing and there are Ten Principles which are described as the Ten Commandments, you can say, or we have got Ten Sūtras is, in Sanskrit language they are called as Ten Sūtras.<br>
+Gāndhījī [laughing:] put one more, by saying that, `We should use only Indian ... Indian things, not foreign things, because then they will dominate us.' So he put ekādeśha [ekādaśha=eleven], he put one more.<br>
+But there are Ten, which are here, which are described as [the] Ten Commandments in the Bible.<br>
+<font color="red">And [doing a clockwise bandhan from right top to bottom and to left top inside the Void on the Chakra Chart:] these are the Ten Primordial Masters who were born on this Earth. Say we can start from Socrates, then we can think of other, in India was Dattātreya, is the ... Dattātreya is the essence, and He is born as Socrates, He is born as Lao Tze, He is born as Abraham, as Moses, He is born as, up till now we can say, Muhammad Sāhab, Nāṇaka, latest is the Sāī Nāth of Śhirḍī.</font> He is the One who [pointing with one more circle inside the Void on the Chakra Chart:] represents, They all represent, this Primordial Master's Principle of Religion."<br>
 <font size="+0"><b>1981-0928 Public Program, Day 5, Christ Church (United Methodist), 524 Park Avenue, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -296,7 +301,10 @@ So we know that we have to educate ourself, first point, and secondly, we have t
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"You will be sursprised [surprised] if I tell you the whole history of the relationship between Them. Between Christ and Kṛiṣhṇa, between Muhammad and Christ and Kṛiṣhṇa, there's a big relationship. They are all related to each other, very closely, which you'll find out in Kuṇḍalinī also. It['s] very interesting how They are related, now They have played the game. And They are all settled down within us, you see: all brother sisters, husband wife, all sorts of relationship They have. Is very interesting to see.<br>
+But it is not only a story but you can see it yourself, that They are within you.<br>
+To say, say, for example if I say that Muhammad Sāhab was the same as Nāṇak, Guru Nāṇak. Imagine: the Sikhs are breaking the necks of Muslims, and Muslims are breaking the uh-uh-uh heads of uh-uh-uh0uh Sikhs, you see. It's a big quarrel going on. But Nāṇak came after Muhammad to teach Muslim-Hindu unity. Because He was surprised the way Muslims are!<br>
+<font color="red">But They are one! They are one personality, born again and again: Moses, Abraham, Socrates, all of Them are the same.</font>"<br>
 <font size="+0"><b>1982-0622 Public Program, You All Have to Become Holy People and Attention Becomes Enlightened (Have I Become a Prophet), Reading, Berkshire, UK</b></font>
 </p>
 
@@ -389,8 +397,13 @@ He went barefoot in the forest so that the earth can be vibrated by His Feet. He
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b>1984-0830 Public Program, Lausanne, Vaud, Switzerland}\label{1984-0830 Public Program, Lausanne, Vaud, Switzerland</b></font>
+"Now whatever Arneau has told you, or  whatever I am going to tell you, is the knowledge of the roots, which was kept secret for thousands of years. And first time in the sixth century people started talking openly about it and telling: what are we inside ourselves.<br>
+But all the Great Incarnations who came in this tradition of spirituality, one by one manifested, every time, a new awareness in the human dimension.<br>
+In the ancient time when they followed Patañjali Yoga, that time, they were hardly one or two people whom Realization was given. Like Rāja Janaka gave Realization to one person, who was the father-in-law of Śhrī Rām.<br>
+Then came Moses, Abraham, all these Great Prophets who tried to establish wit... within us the Divine Laws. They told us what are these Divine Laws within us which act, what are our valances as any element has. <font color="red">Invariably, all of Them, from Socrates onward, They all said that there are ten valances within us, like Ten Commandments, which we have to keep them intact.</font><br>
+Out of these people, the Prophets, came oh most of the religions of early times. Like Judaism and other, Zoroastrism, Lao Tze, all these people were saying the same and same thing, that, 'We must have a balance within ourselves to establish the Divine Laws within ourselves.'<br>
+But when Moses saw that the people were so much anti-God and so much anti-Divinity, He put forward a very strong type of a law which we call as śharīat. These laws were made for Jews, but actually they are followed by Muslim people."<br>
+<font size="+0"><b>1984-0830 Public Program, Lausanne, Vaud, Switzerland</b></font>
 </p>
 
 <div class="para-divider"></div>

@@ -369,6 +369,23 @@ Now after He is gone, they are worshipping Him. But you have given immense respe
 <div class="para-divider"></div>
 
 <p>
+"[Pointing down from Viśhuddhi chakra to Nābhī chakra on the Chakra Chart:] The connection is that this seeking [slowly makes three and a half clockwise circles inside the Void around the Nābhī chakra on the Chakra Chart:] goes in developing and there are Ten Principles which are described as the Ten Commandments, you can say, or we have got Ten Sūtras is, in Sanskrit language they are called as Ten Sūtras.<br>
+Gāndhījī [laughing:] put one more, by saying that, `We should use only Indian ... Indian things, not foreign things, because then they will dominate us.' So he put ekādeśha [ekādaśha=eleven], he put one more.<br>
+But there are Ten, which are here, which are described as [the] Ten Commandments in the Bible.<br>
+<font color="red">And [doing a clockwise bandhan from right top to bottom and to left top inside the Void on the Chakra Chart:] these are the Ten Primordial Masters who were born on this Earth. Say we can start from Socrates, then we can think of other, in India was Dattātreya, is the ... Dattātreya is the essence, and He is born as Socrates, He is born as Lao Tze, He is born as Abraham, as Moses, He is born as, up till now we can say, Muhammad Sāhab, Nāṇaka, latest is the Sāī Nāth of Śhirḍī. He is the One who [pointing with one more circle inside the Void on the Chakra Chart:] represents, They all represent, this Primordial Master's Principle of Religion.</font>"<br>
+<font size="+0"><b>1981-0928 Public Program, Day 5, Christ Church (United Methodist), 524 Park Avenue, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Today I would like to say about this chakra especially that is the ... what we call the Nābhī chakra, is the central path of our evolution where you start your seeking and youge [you] cross over to [the] other side.<br>
 Now, surrounding this you will find there is the Ocean of Illusion. <font color="red">And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya -- is the Primordial Master. And He incarnated on this Earth many a times. At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze. Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.<br>
 So the same Great Principle of this Primordial Master has incarnated because without a master, how will you be taken away from in ... this illusion? How you are going to be exposed to that reality which you do not feel?</font><br>

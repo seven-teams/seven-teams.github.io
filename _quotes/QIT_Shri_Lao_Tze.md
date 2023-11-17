@@ -114,10 +114,11 @@ Guru Nāṇaka has said, "O, madman, where are you traveling? It is in your hear
 <font size="+0"><b>1981-0911 Public Program, Day 2, Paris, France</b></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
-<font color="red">""</font><br>
+"[Pointing down from Viśhuddhi chakra to Nābhī chakra on the Chakra Chart:] The connection is that this seeking [slowly makes three and a half clockwise circles inside the Void around the Nābhī chakra on the Chakra Chart:] goes in developing and there are Ten Principles which are described as the Ten Commandments, you can say, or we have got Ten Sūtras is, in Sanskrit language they are called as Ten Sūtras.<br>
+Gāndhījī [laughing:] put one more, by saying that, `We should use only Indian ... Indian things, not foreign things, because then they will dominate us.' So he put ekādeśha [ekādaśha=eleven], he put one more.<br>
+But there are Ten, which are here, which are described as [the] Ten Commandments in the Bible.<br>
+<font color="red">And [doing a clockwise bandhan from right top to bottom and to left top inside the Void on the Chakra Chart:] these are the Ten Primordial Masters who were born on this Earth. Say we can start from Socrates, then we can think of other, in India was Dattātreya, is the ... Dattātreya is the essence, and He is born as Socrates, He is born as Lao Tze, He is born as Abraham, as Moses, He is born as, up till now we can say, Muhammad Sāhab, Nāṇaka, latest is the Sāī Nāth of Śhirḍī.</font> He is the One who [pointing with one more circle inside the Void on the Chakra Chart:] represents, They all represent, this Primordial Master's Principle of Religion."<br>
 <font size="+0"><b>1981-0928 Public Program, Day 5, Christ Church (United Methodist), 524 Park Avenue, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -254,6 +255,27 @@ But people have gone to extremes. They are faddist[s]. Whatever you tell them: i
 The ... we call it Ten Incarnations of the Primordial Master. There are many who came, but the Ones who came in India was called as Brahmadeva uh ... was called as Dattātreya, Janaka, Rāja Janaka, the father of Sītā. <font color="red">In China, Lao Tze, Confucius.</font> In uh, in the Bible, Abraham and Moses. And later on, in the uh form of uh Muhammad Sāhab. And then Janaka. No, no, Nāṇaka, I'm sorry, Nāṇaka. Nāṇak Sāhab. And in Greece, it was Socrates. They took birth on all these places. In the end, about fifty years back, or hundred years back, was born Great Primordial Master, in India, in Śhirḍī.<br>
 [Helping with the translation:] In Śhirḍī."<br>
 <font size="+0"><b>1983-0831 Public Program, Day 3, Geneva, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<div class="para-divider"></div>
+
+<p>
+"Now whatever Arneau has told you, or  whatever I am going to tell you, is the knowledge of the roots, which was kept secret for thousands of years. And first time in the sixth century people started talking openly about it and telling: what are we inside ourselves.<br>
+But all the Great Incarnations who came in this tradition of spirituality, one by one manifested, every time, a new awareness in the human dimension.<br>
+In the ancient time when they followed Patañjali Yoga, that time, they were hardly one or two people whom Realization was given. Like Rāja Janaka gave Realization to one person, who was the father-in-law of Śhrī Rām.<br>
+Then came Moses, Abraham, all these Great Prophets who tried to establish wit... within us the Divine Laws. They told us what are these Divine Laws within us which act, what are our valances as any element has. Invariably, all of Them, from Socrates onward, They all said that there are ten valances within us, like Ten Commandments, which we have to keep them intact.<br>
+Out of these people, the Prophets, came oh most of the religions of early times. <font color="red">Like Judaism and other, Zoroastrism, Lao Tze, all these people were saying the same and same thing, that, 'We must have a balance within ourselves to establish the Divine Laws within ourselves.'</font><br>
+But when Moses saw that the people were so much anti-God and so much anti-Divinity, He put forward a very strong type of a law which we call as śharīat. These laws were made for Jews, but actually they are followed by Muslim people."<br>
+<font size="+0"><b>1984-0830 Public Program, Lausanne, Vaud, Switzerland</b></font>
 </p>
 
 <div class="para-divider"></div>

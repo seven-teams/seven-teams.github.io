@@ -202,7 +202,7 @@ The elders there keep thinking day and night that how to commit suicide. They ha
 
 <p>
 <font color="DarkRed">""</font><br>
-<font size="+0"><b>1985-0129 Pūjā (English+Marathi), Brahmapuri, Maharashtra, India}\label{1985-0129 Pūjā (English+Marathi), Brahmapuri, Maharashtra, India</b></font>
+<font size="+0"><b>1985-0129 Pūjā (English+Marathi), Brahmapuri, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>

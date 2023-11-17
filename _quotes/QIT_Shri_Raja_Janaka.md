@@ -459,6 +459,25 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <div class="para-divider"></div>
 
 <p>
+"Now whatever Arneau has told you, or  whatever I am going to tell you, is the knowledge of the roots, which was kept secret for thousands of years. And first time in the sixth century people started talking openly about it and telling: what are we inside ourselves.<br>
+But all the Great Incarnations who came in this tradition of spirituality, one by one manifested, every time, a new awareness in the human dimension.<br>
+In the ancient time when they followed Patañjali Yoga, that time, they were hardly one or two people whom Realization was given. <font color="red">Like Rāja Janaka gave Realization to one person, who was the father-in-law of Śhrī Rām.</font><br>
+Then came Moses, Abraham, all these Great Prophets who tried to establish wit... within us the Divine Laws. They told us what are these Divine Laws within us which act, what are our valances as any element has. Invariably, all of Them, from Socrates onward, They all said that there are ten valances within us, like Ten Commandments, which we have to keep them intact.<br>
+Out of these people, the Prophets, came oh most of the religions of early times. Like Judaism and other, Zoroastrism, Lao Tze, all these people were saying the same and same thing, that, 'We must have a balance within ourselves to establish the Divine Laws within ourselves.'<br>
+But when Moses saw that the people were so much anti-God and so much anti-Divinity, He put forward a very strong type of a law which we call as śharīat. These laws were made for Jews, but actually they are followed by Muslim people."<br>
+<font size="+0"><b>1984-0830 Public Program, Lausanne, Vaud, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Sahaja Yoga is not a new thing. In the tradition of spirituality, it is mentioned, about fourteen thousand years back, by Mārkaṇḍeya, that, 'Ultimately it is the force, within you, of the Holy Ghost, which is called as Kuṇḍalinī, residing in the triangular beau ... bone, has to give the Realization.'<br>
 But for that happening, human being had to be prepared. People had to be balanced.<br>
 <font color="red">And that is how many Prophets came on this Earth, after that, in the same tradition, to prepare people to have that balance. Right from Abraham, Moses, we see Them, follow Them up up ... up to Rāja Janaka, who was the father-in-law of Rāma, and later on we had so many others like Muhammad Sāhab, Nāṇak Sāhab, on this Earth, to tell us about having a balance in live. They taught us moderation, and not to go to extremes.</font>"<br>

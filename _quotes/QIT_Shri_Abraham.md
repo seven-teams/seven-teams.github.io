@@ -297,6 +297,21 @@ Only in Realization you yourself you have to accept, [laughing:] because without
 <div class="para-divider"></div>
 
 <p>
+"This is the story of Great Incarnations on this Earth.<br>
+There are so many of Them who were born, I have no time to tell you, but Socrates was the same. His disciple was one of these two. <font color="red">Abraham, Moses, who are propagating Jews.</font>"<br>
+<font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "And these Ten Sustainances [Sustenances] are represented by Great Prophets. The Principle is called as Ādi Guru, in Sanskrit language, the Primordial Master. <font color="red">He had incarnated on this Earth as Abraham, Moses, as Lao Tze, as Confucius, as Socrates.</font> Recently, He has been as Sāī Nāth of Śhirḍī, not the other fellow, and other great people have been like Nāṇaka, Janaka.<br>
 All these Great Saints can ... came on this Earth to tell us: how to keep in the center, how to keep our sustenance, how to be human beings.<br>
 As carbon has got four valances, we too have got ten valances. We have to maintain those ten valances within us! That's what they came to tell us."<br>
@@ -327,6 +342,23 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <div class="para-divider"></div>
 
 <p>
+"[Pointing down from Viśhuddhi chakra to Nābhī chakra on the Chakra Chart:] The connection is that this seeking [slowly makes three and a half clockwise circles inside the Void around the Nābhī chakra on the Chakra Chart:] goes in developing and there are Ten Principles which are described as the Ten Commandments, you can say, or we have got Ten Sūtras is, in Sanskrit language they are called as Ten Sūtras.<br>
+Gāndhījī [laughing:] put one more, by saying that, `We should use only Indian ... Indian things, not foreign things, because then they will dominate us.' So he put ekādeśha [ekādaśha=eleven], he put one more.<br>
+But there are Ten, which are here, which are described as [the] Ten Commandments in the Bible.<br>
+<font color="red">And [doing a clockwise bandhan from right top to bottom and to left top inside the Void on the Chakra Chart:] these are the Ten Primordial Masters who were born on this Earth. Say we can start from Socrates, then we can think of other, in India was Dattātreya, is the ... Dattātreya is the essence, and He is born as Socrates, He is born as Lao Tze, He is born as Abraham, as Moses, He is born as, up till now we can say, Muhammad Sāhab, Nāṇaka, latest is the Sāī Nāth of Śhirḍī.</font> He is the One who [pointing with one more circle inside the Void on the Chakra Chart:] represents, They all represent, this Primordial Master's Principle of Religion."<br>
+<font size="+0"><b>1981-0928 Public Program, Day 5, Christ Church (United Methodist), 524 Park Avenue, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Today I would like to say about this chakra especially that is the ... what we call the Nābhī chakra, is the central path of our evolution where you start your seeking and youge [you] cross over to [the] other side.<br>
 Now, surrounding this you will find there is the Ocean of Illusion. And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya -- is the Primordial Master. And He incarnated on this Earth many a times. <font color="red">At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze.</font> Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.<br>
 So the same Great Principle of this Primordial Master has incarnated because without a master, how will you be taken away from in ... this illusion? How you are going to be exposed to that reality which you do not feel?<br>
@@ -338,6 +370,23 @@ But like flowers on the same tree can be taken away from time to time and then w
 Actually these people belong to the whole universe, They are universal beings and They came on this Earth to give us a sustainance [sustenance] within us, a sustainance [sustenance].<br>
 Dharma means a sustainance [sustenance], that is we can say, that is quality that is ... that is human."<br>
 <font size="+0"><b>1981-1015 Public Program, Day 4, Reorganized Church of Jesus Christ, 18480 Nordoff Street, Panorama City (32 kms N-NW of Los Angeles), CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"You will be sursprised [surprised] if I tell you the whole history of the relationship between Them. Between Christ and Kṛiṣhṇa, between Muhammad and Christ and Kṛiṣhṇa, there's a big relationship. They are all related to each other, very closely, which you'll find out in Kuṇḍalinī also. It['s] very interesting how They are related, now They have played the game. And They are all settled down within us, you see: all brother sisters, husband wife, all sorts of relationship They have. Is very interesting to see.<br>
+But it is not only a story but you can see it yourself, that They are within you.<br>
+To say, say, for example if I say that Muhammad Sāhab was the same as Nāṇak, Guru Nāṇak. Imagine: the Sikhs are breaking the necks of Muslims, and Muslims are breaking the uh-uh-uh heads of uh-uh-uh0uh Sikhs, you see. It's a big quarrel going on. But Nāṇak came after Muhammad to teach Muslim-Hindu unity. Because He was surprised the way Muslims are!<br>
+<font color="red">But They are one! They are one personality, born again and again: Moses, Abraham, Socrates, all of Them are the same.</font>"<br>
+<font size="+0"><b>1982-0622 Public Program, You All Have to Become Holy People and Attention Becomes Enlightened (Have I Become a Prophet), Reading, Berkshire, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -379,6 +428,25 @@ But people have gone to extremes. They are faddist[s]. Whatever you tell them: i
 The ... we call it Ten Incarnations of the Primordial Master. There are many who came, but the Ones who came in India was called as Brahmadeva uh ... was called as Dattātreya, Janaka, Rāja Janaka, the father of Sītā. In China, Lao Tze, Confucius. <font color="red">In uh, in the Bible, Abraham and Moses.</font> And later on, in the uh form of uh Muhammad Sāhab. And then Janaka. No, no, Nāṇaka, I'm sorry, Nāṇaka. Nāṇak Sāhab. And in Greece, it was Socrates. They took birth on all these places. In the end, about fifty years back, or hundred years back, was born Great Primordial Master, in India, in Śhirḍī.<br>
 [Helping with the translation:] In Śhirḍī."<br>
 <font size="+0"><b>1983-0831 Public Program, Day 3, Geneva, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now whatever Arneau has told you, or  whatever I am going to tell you, is the knowledge of the roots, which was kept secret for thousands of years. And first time in the sixth century people started talking openly about it and telling: what are we inside ourselves.<br>
+But all the Great Incarnations who came in this tradition of spirituality, one by one manifested, every time, a new awareness in the human dimension.<br>
+In the ancient time when they followed Patañjali Yoga, that time, they were hardly one or two people whom Realization was given. Like Rāja Janaka gave Realization to one person, who was the father-in-law of Śhrī Rām.<br>
+<font color="red">Then came Moses, Abraham, all these Great Prophets who tried to establish wit... within us the Divine Laws. They told us what are these Divine Laws within us which act, what are our valances as any element has. Invariably, all of Them, from Socrates onward, They all said that there are ten valances within us, like Ten Commandments, which we have to keep them intact.<br>
+Out of these people, the Prophets, came oh most of the religions of early times. Like Judaism and other, Zoroastrism, Lao Tze, all these people were saying the same and same thing, that, 'We must have a balance within ourselves to establish the Divine Laws within ourselves.'<br>
+But when Moses saw that the people were so much anti-God and so much anti-Divinity, He put forward a very strong type of a law which we call as śharīat. These laws were made for Jews, but actually they are followed by Muslim people."<br>
+<font size="+0"><b>1984-0830 Public Program, Lausanne, Vaud, Switzerland</b></font>
 </p>
 
 <div class="para-divider"></div>

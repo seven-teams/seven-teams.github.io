@@ -194,6 +194,32 @@ So many religions have started, in the name of God, without going to the Truth, 
 <div class="para-divider"></div>
 
 <p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now whatever Arneau has told you, or  whatever I am going to tell you, is the knowledge of the roots, which was kept secret for thousands of years. And first time in the sixth century people started talking openly about it and telling: what are we inside ourselves.<br>
+But all the Great Incarnations who came in this tradition of spirituality, one by one manifested, every time, a new awareness in the human dimension.<br>
+In the ancient time when they followed Patañjali Yoga, that time, they were hardly one or two people whom Realization was given. Like Rāja Janaka gave Realization to one person, who was the father-in-law of Śhrī Rām.<br>
+Then came Moses, Abraham, all these Great Prophets who tried to establish wit... within us the Divine Laws. They told us what are these Divine Laws within us which act, what are our valances as any element has. Invariably, all of Them, from Socrates onward, They all said that there are ten valances within us, like Ten Commandments, which we have to keep them intact.<br>
+Out of these people, the Prophets, came oh most of the religions of early times. <font color="red">Like Judaism and other, Zoroastrism, Lao Tze, all these people were saying the same and same thing, that, 'We must have a balance within ourselves to establish the Divine Laws within ourselves.'</font><br>
+But when Moses saw that the people were so much anti-God and so much anti-Divinity, He put forward a very strong type of a law which we call as śharīat. These laws were made for Jews, but actually they are followed by Muslim people."<br>
+<font size="+0"><b>1984-0830 Public Program, Lausanne, Vaud, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "And that is what is dharma: is the ten valences within us. <font color="red">These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.</font><br>
 But despite all that, we do not know: we'll worship Dattātreya, and we will not follow Him.<br>
 This is the only problem we have. That: we have all the ideals, we have all the capacity to understand that this is something great, but we have no power to follow it. Because we are not Samartha, we are not equal to the meaning of a human being."<br>
