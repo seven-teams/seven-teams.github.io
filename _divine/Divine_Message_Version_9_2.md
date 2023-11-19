@@ -1,7 +1,7 @@
 ---
 title: 'Divine Message, Version 9.2'
-date: 2023-09-24
-permalink: /divine/2023/09/24-b
+date: 2023-11-19
+permalink: /divine/2023/11/19
 tags:
   - Divine Message
 ---
