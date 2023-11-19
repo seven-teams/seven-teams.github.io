@@ -250,7 +250,7 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 
 <p>
 "Now, two persons are really to be followed in this.<br>
-One of them is Śhrī Rām. Śhrī Rām resides on the right Heart and is the Father. He is the Father and He is the Fatherhood. He is the One who came on this Earth to teach us how to be a father as a king. <font color="red">He is a father king, He is a benevolent king, which was described [by Socrates] before uh Plato.</font> He is the Benevolent King. He was the ideal who came on this Earth to teach us: `How to be responsible to others, how to respect others, how to understand the feelings of others.' To such an extent He went, that He had to sacrifice His own wife for the sake of His own state. He did that! And He had to ask His wife, who was pregnant, to go and live with a very great Sage. One may say that, `What was He ... what was He doing about His wife?' She was the Goddess. She was so remarkable that He was not bothered about Her. He was so sure of Her Powers that He did it! And there is nothing wrong in leaving things to the Goddess to do, instead of meddling with Her all the time. But this gentleman, Śhrī Rāma, understood the responsibility of a king. And that responsibility is lacking in us: that responsibility towards ourselves and towards others."<br>
+One of them is Śhrī Rām. Śhrī Rām resides on the right Heart and is the Father. He is the Father and He is the Fatherhood. He is the One who came on this Earth to teach us how to be a father as a king. <font color="red">He is a father king, He is a benevolent king, which was described [by Socrates] before uh Plato.</font> He is the Benevolent King. He was the ideal who came on this Earth to teach us: 'How to be responsible to others, how to respect others, how to understand the feelings of others.' To such an extent He went, that He had to sacrifice His own wife for the sake of His own state. He did that! And He had to ask His wife, who was pregnant, to go and live with a very great Sage. One may say that, 'What was He ... what was He doing about His wife?' She was the Goddess. She was so remarkable that He was not bothered about Her. He was so sure of Her Powers that He did it! And there is nothing wrong in leaving things to the Goddess to do, instead of meddling with Her all the time. But this gentleman, Śhrī Rāma, understood the responsibility of a king. And that responsibility is lacking in us: that responsibility towards ourselves and towards others."<br>
 <font size="+0"><b>1981-0518 Public Program, The Right Side, Sense of Responsibility (You Have to Be Alert and Active, Responsible and Respectable, Decide that Every Moment and Movement of Your Life You Are Going to Feel Responsible as Hanumāna Does and I Have to Be Responsible from My Heart) and I Want You to Be Really Honored in the Kingdom of God as Great Sons of Your Mother (I Want You to Have Your Due: All the Heralds and All the Glory), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
@@ -265,7 +265,7 @@ One of them is Śhrī Rām. Śhrī Rām resides on the right Heart and is the Fa
 
 <p>
 "[Pointing down from Viśhuddhi chakra to Nābhī chakra on the Chakra Chart:] The connection is that this seeking [slowly makes three and a half clockwise circles inside the Void around the Nābhī chakra on the Chakra Chart:] goes in developing and there are Ten Principles which are described as the Ten Commandments, you can say, or we have got Ten Sūtras is, in Sanskrit language they are called as Ten Sūtras.<br>
-Gāndhījī [laughing:] put one more, by saying that, `We should use only Indian ... Indian things, not foreign things, because then they will dominate us.' So he put ekādeśha [ekādaśha=eleven], he put one more.<br>
+Gāndhījī [laughing:] put one more, by saying that, 'We should use only Indian ... Indian things, not foreign things, because then they will dominate us.' So he put ekādeśha [ekādaśha=eleven], he put one more.<br>
 But there are Ten, which are here, which are described as [the] Ten Commandments in the Bible.<br>
 <font color="red">And [doing a clockwise bandhan from right top to bottom and to left top inside the Void on the Chakra Chart:] these are the Ten Primordial Masters who were born on this Earth. Say we can start from Socrates, then we can think of other, in India was Dattātreya, is the ... Dattātreya is the essence, and He is born as Socrates, He is born as Lao Tze, He is born as Abraham, as Moses, He is born as, up till now we can say, Muhammad Sāhab, Nāṇaka, latest is the Sāī Nāth of Śhirḍī.</font> He is the One who [pointing with one more circle inside the Void on the Chakra Chart:] represents, They all represent, this Primordial Master's Principle of Religion."<br>
 <font size="+0"><b>1981-0928 Public Program, Day 5, Christ Church (United Methodist), 524 Park Avenue, Manhattan, New York City, NY, U.S.A.</b></font>
@@ -279,9 +279,9 @@ Now, surrounding this you will find there is the Ocean of Illusion. And this Oce
 So the same Great Principle of this Primordial Master has incarnated because without a master, how will you be taken away from in ... this illusion? How you are going to be exposed to that reality which you do not feel?<br>
 What has to happen to you is that you have to become more sensitive, more open, awakened, enlightened to feel that's All-pervading Power around you.<br>
 Now, these [masters] came again and again and told you that you must look after your dharma.<br>
-Dharma doesn't mean any religion that is being established in the names of these people, because human beings know how to make a pickle out of everyone. They are great `experts'.<br>
+Dharma doesn't mean any religion that is being established in the names of these people, because human beings know how to make a pickle out of everyone. They are great 'experts'.<br>
 All of Them in essence are one and the same.<br>
-But like flowers on the same tree can be taken away from time to time and then when they become ugly and they become completely spoilt, then people can claim, `This is my flower,' `This is my flower.' Everybody has become a contractor of this thing.<br>
+But like flowers on the same tree can be taken away from time to time and then when they become ugly and they become completely spoilt, then people can claim, 'This is my flower,' 'This is my flower.' Everybody has become a contractor of this thing.<br>
 Actually these people belong to the whole universe, They are universal beings and They came on this Earth to give us a sustainance [sustenance] within us, a sustainance [sustenance].<br>
 Dharma means a sustainance [sustenance], that is we can say, that is quality that is ... that is human."<br>
 <font size="+0"><b>1981-1015 Public Program, Day 4, Reorganized Church of Jesus Christ, 18480 Nordoff Street, Panorama City (32 kms N-NW of Los Angeles), CA, U.S.A.</b></font>
@@ -357,7 +357,7 @@ As soon as the Kuṇḍalinī rises, you start manifesting your grandeur, your g
 We cannot go to imbalance, you see. Religion is to keep yourself in balance.<br>
 There are Ten Religions in the human being, like ten valencies. As carbon has four valencies, we have ten valencies about which all the Primordial Masters, who came on this Earth, have taught. <font color="red">Like Lao Tze, like Socrates, we can say Abraham, Moses, and many in India also.</font><br>
 They came and told us that we should keep the balance. Balance of our wife [life]. Keep in the center, for the ascent. If you are not balanced you cannot ascend.<br>
-But people have gone to extremes. They are faddist[s]. Whatever you tell them: if you tell them that, `You see, now you are not well, so you do something,' they will do it so much that they'll outwit [laughing:] everything, I can see. They always go to the extreme of everything."<br>
+But people have gone to extremes. They are faddist[s]. Whatever you tell them: if you tell them that, 'You see, now you are not well, so you do something,' they will do it so much that they'll outwit [laughing:] everything, I can see. They always go to the extreme of everything."<br>
 <font size="+0"><b>1983-0308 Public Program, Day 1, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
@@ -380,7 +380,7 @@ The ... we call it Ten Incarnations of the Primordial Master. There are many who
 <div class="para-divider"></div>
 
 <p>
-"But now, today I am going to tell you the mastery over the Power of Love: love which is without any lust and greed, which is detached love. <font color="red">About which Socrates has talked to you: that He said, `The politicians have to be detached politicians.' How can they be detached?</font>"<br>
+"But now, today I am going to tell you the mastery over the Power of Love: love which is without any lust and greed, which is detached love. <font color="red">About which Socrates has talked to you: that He said, 'The politicians have to be detached politicians.' How can they be detached?</font>"<br>
 <font size="+0"><b>1983-1017 Public Program, Day 1, The Community Church, 40 East and 35th Street, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -658,7 +658,7 @@ We can say that on the Tree of Life there were one or two flowers in the beginni
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b>1990-0305 Interview with a Greek Lady Journalist for a TV Station, Interview with Frances Kelly for `The Herald' Newspaper, and Talk to Sahaja Yogis, Garden, House of Greg and Cheryl Bradshaw, East Burwood, Melbourne, Victoria, Australia</b></font>
+<font size="+0"><b>1990-0305 Interview with a Greek Lady Journalist for a TV Station, Interview with Frances Kelly for 'The Herald' Newspaper, and Talk to Sahaja Yogis, Garden, House of Greg and Cheryl Bradshaw, East Burwood, Melbourne, Victoria, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>

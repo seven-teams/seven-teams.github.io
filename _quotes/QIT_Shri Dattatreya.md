@@ -370,7 +370,7 @@ Now after He is gone, they are worshipping Him. But you have given immense respe
 
 <p>
 "[Pointing down from Viśhuddhi chakra to Nābhī chakra on the Chakra Chart:] The connection is that this seeking [slowly makes three and a half clockwise circles inside the Void around the Nābhī chakra on the Chakra Chart:] goes in developing and there are Ten Principles which are described as the Ten Commandments, you can say, or we have got Ten Sūtras is, in Sanskrit language they are called as Ten Sūtras.<br>
-Gāndhījī [laughing:] put one more, by saying that, `We should use only Indian ... Indian things, not foreign things, because then they will dominate us.' So he put ekādeśha [ekādaśha=eleven], he put one more.<br>
+Gāndhījī [laughing:] put one more, by saying that, 'We should use only Indian ... Indian things, not foreign things, because then they will dominate us.' So he put ekādeśha [ekādaśha=eleven], he put one more.<br>
 But there are Ten, which are here, which are described as [the] Ten Commandments in the Bible.<br>
 <font color="red">And [doing a clockwise bandhan from right top to bottom and to left top inside the Void on the Chakra Chart:] these are the Ten Primordial Masters who were born on this Earth. Say we can start from Socrates, then we can think of other, in India was Dattātreya, is the ... Dattātreya is the essence, and He is born as Socrates, He is born as Lao Tze, He is born as Abraham, as Moses, He is born as, up till now we can say, Muhammad Sāhab, Nāṇaka, latest is the Sāī Nāth of Śhirḍī. He is the One who [pointing with one more circle inside the Void on the Chakra Chart:] represents, They all represent, this Primordial Master's Principle of Religion.</font>"<br>
 <font size="+0"><b>1981-0928 Public Program, Day 5, Christ Church (United Methodist), 524 Park Avenue, Manhattan, New York City, NY, U.S.A.</b></font>
@@ -391,9 +391,9 @@ Now, surrounding this you will find there is the Ocean of Illusion. <font color=
 So the same Great Principle of this Primordial Master has incarnated because without a master, how will you be taken away from in ... this illusion? How you are going to be exposed to that reality which you do not feel?</font><br>
 What has to happen to you is that you have to become more sensitive, more open, awakened, enlightened to feel that's All-pervading Power around you.<br>
 <font color="redNow, these [masters] came again and again and told you that you must look after your dharma.<br>
-Dharma doesn't mean any religion that is being established in the names of these people, because human beings know how to make a pickle out of everyone. They are great `experts'.<br>
+Dharma doesn't mean any religion that is being established in the names of these people, because human beings know how to make a pickle out of everyone. They are great 'experts'.<br>
 All of Them in essence are one and the same.</font><br>
-But like flowers on the same tree can be taken away from time to time and then when they become ugly and they become completely spoilt, then people can claim, `This is my flower,' `This is my flower.' Everybody has become a contractor of this thing.<br>
+But like flowers on the same tree can be taken away from time to time and then when they become ugly and they become completely spoilt, then people can claim, 'This is my flower,' 'This is my flower.' Everybody has become a contractor of this thing.<br>
 <font color="redActually these people belong to the whole universe, They are universal beings and They came on this Earth to give us a sustainance [sustenance] within us, a sustainance [sustenance].</font><br>
 Dharma means a sustainance [sustenance], that is we can say, that is quality that is ... that is human."<br>
 <font size="+0"><b>1981-1015 Public Program, Day 4, Reorganized Church of Jesus Christ, 18480 Nordoff Street, Panorama City (32 kms N-NW of Los Angeles), CA, U.S.A.</b></font>
