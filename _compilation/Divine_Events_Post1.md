@@ -7,6 +7,8 @@ tags:
   - violet @ Miscellaneous
 ---
 
+<br>
+
 <p>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
@@ -27,4 +29,3 @@ The Comprehensive Compilations Team (CCT)<br>
 sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
-https://seven-teams.github.io/tag-events/
