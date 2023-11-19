@@ -6,6 +6,8 @@ tags:
   - Divine Message
 ---
 
+<br>
+
 <p>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
