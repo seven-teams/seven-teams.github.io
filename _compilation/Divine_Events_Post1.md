@@ -1,8 +1,9 @@
 ---
-title: 'Miscellaneous Post 5: 5,001 Divine Events Started'
+title: 'Divine Events Post 1: 5,001 Divine Events Started'
 date: 2023-11-19
 permalink: /compilation/2023/1119
 tags:
+  - pink @ Divine Events
   - violet @ Miscellaneous
 ---
 
