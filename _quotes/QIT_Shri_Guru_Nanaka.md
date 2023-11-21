@@ -1026,6 +1026,24 @@ But They are one! They are one personality, born again and again: Moses, Abraham
 <div class="para-divider"></div>
 
 <p>
+"Mostly I work in the villages of India. And one day I was going on a bullock cart... uh  with a gentleman who is a Sahaja Yogi. And I was amazed: He was talking like a great Saint! He's not educated. He has never seen the world. He lives in a village, but he talks like a Saint.<br>
+What university Christ went to? What university Nāṇaka went into? <font color="red">Where do They go to study, Socrates?</font> Nothing! They had all the knowledge within Themselves.<br>
+They sometimes ask Me: "Mother, are Your disciples all scholars?" I said, "No, they are very ordinary people."<br>
+......<br>
+"But they are connected with the True Knowledge, which is fantastic. And whatever they want to know, they know it. Because Spirit is connected with the True Source of Knowledge." "<br>
+<font size="+0"><b>1984-0917 Public Program, La Sala dei Congressi della Provincia di Milano, Via Filippo Corridoni 16, Milan, Lombardy, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now when this center is illumined, around it is illumined your sustainance [sustenance]. That's your Inner Religion.<br>
 The ... we call it Ten Incarnations of the Primordial Master. There are many who came, but the Ones who came in India was called as Brahmadeva uh ... was called as Dattātreya, Janaka, Rāja Janaka, the father of Sītā. In China, Lao Tze, Confucius. In uh, in the Bible, Abraham and Moses. And later on, in the uh form of uh Muhammad Sāhab. And then Janaka. <font color="red">No, no, Nāṇaka, I'm sorry, Nāṇaka. Nāṇak Sāhab.</font> And in Greece, it was Socrates. They took birth on all these places. In the end, about fifty years back, or hundred years back, was born Great Primordial Master, in India, in Śhirḍī.<br>
 [Helping with the translation:] In Śhirḍī."<br>

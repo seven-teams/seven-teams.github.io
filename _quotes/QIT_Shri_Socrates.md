@@ -337,7 +337,10 @@ As a human being, you have to have a sustainance [sustenance], and this is the c
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Though this Incarnation is such that It never dies. Even if They leave the body, They are always around. And They are the Ones who perform lots of miracles when any other Incarnation comes on this Earth. They help, support, guide that seekers to go to the Incarnations.<br>
+So, to celebrate His [Śhrī Guru Nāṇaka's] birthday, on such a date, is also a myth because He never died. He is eternally living: They never grow and They never die.<br>
+<font color="red">But His birth is important, because, symbolically, He came on this Earth not to propagate any particular type of the Void as Muhammad did, or, say, Moses did, David, Moses and then, before that Abraham, Lao Tze, or Socrates, which followed into a religion.</font> But He came to create amenity, amity we can say, to create understanding, to create unity between the religions. This was a very big step for Sahaja Yoga.<br>
+After that as you know, He was born again, God knows where, no one knows where He was born, but He appeared as Śhirḍī Sāī Nāth. He too said the same thing: that, 'To talk ill of any religion is a sin.' "<br>
 <font size="+0"><b>1982-1101 Talk to Sahaja Yogis (Śhrī Guru Nāṇaka Jayanti), Every Sahaja Yogi Has to Become a Guru, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>
 
@@ -409,7 +412,11 @@ But when Moses saw that the people were so much anti-God and so much anti-Divini
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Mostly I work in the villages of India. And one day I was going on a bullock cart... uh  with a gentleman who is a Sahaja Yogi. And I was amazed: He was talking like a great Saint! He's not educated. He has never seen the world. He lives in a village, but he talks like a Saint.<br>
+What university Christ went to? What university Nāṇaka went into? <font color="red">Where do They go to study, Socrates?</font> Nothing! They had all the knowledge within Themselves.<br>
+They sometimes ask Me: "Mother, are Your disciples all scholars?" I said, "No, they are very ordinary people."<br>
+......<br>
+"But they are connected with the True Knowledge, which is fantastic. And whatever they want to know, they know it. Because Spirit is connected with the True Source of Knowledge." "<br>
 <font size="+0"><b>1984-0917 Public Program, La Sala dei Congressi della Provincia di Milano, Via Filippo Corridoni 16, Milan, Lombardy, Italy</b></font>
 </p>
 
@@ -440,21 +447,36 @@ And the word Kuṇḍalinī also is ... has a meaning that it is a coiled-up ene
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So only by believing [laughing:] that you are great, you don't become great.<br>
+This Spirit, when It shines, you become the True Knowledge. The falsehood drops out. The whole veil of ignorance goes away, and you see the light of Truth.<br>
+None of the Great Saints have been to any universities, colleges, anywhere. They have been very simple people, and what knowledge! From where did this knowledge come in? They never read any books! How did they know? Lao Tze never went to any college. <font color="red">Socrates did not go to any college.</font> From where did they learn all this knowledge?<br>
+You yourself, you are the store of knowledge, only you are to be connected with it.<br>
+So when you get connected like this instrument, or any instrument, it starts working automatically."<br>
 <font size="+0"><b>1985-0509 Public Program, Day 2, Habit Comes to You from Matter, Münich, Bavaria, Germany</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"But, in the seeking, today the problem is: human being has become, not independent, but arbitrary. He has no relationship with the whole. And anybody who tries to find out a new method, a new idea, uh ... a new way, people jump at it. This is the character of the modern times.<br>
+Also media and everybody tries to support anything new [that] comes up.<br>
+In seeking also it has happened.<br>
+Whatever the ancient people, the Scriptures have found out for us is not to be wasted. We have to base our findings, our path, on the same experiences that they have had, and use them for our purpose, is a sensible thing.<br>
+Like a boy gets a lot of money, say from his parents, he uses that, and then builds up his own business. Very rarely he'll throw away all that, and start something new venture and end up into bankruptcy.<br>
+This is one of the problems we are facing. So I have seen that people suddenly take to new methods.<br>
+Like I was in Pune the other day, and I met some very learned Sanskrit scholars. And I was amazed: that they all were suffering from all kinds of diseases of a very serious nature. They said we have a guru, another said he had a guru. I said, "How is it you are suffering from disease? If you have a guru at least your health should be all right, at least minimum of minimum." "Oh," they said, "no! This is something we are doing very ... uh serious work." "What is that?" They started giving Me names: aruṇopāy, tar[u]ṇopāy, this, that. Buthey said: that, "Our guru gives us a śhaktipāt." I said, "What is all that? I have never heard [about] it. In what book have you found it? Is it in Vedas? Is it in Purāṇas? Is it in the Gītā? Or is it in the Bible or Qur'ān, where is it? <font color="red">Did Lao Tze talk about it or Socrates?</font> From where do you get this word śhaktipāt suddenly? I've never heard about it." So they said about sixty, seventy years back there was a gentleman called Viṣhṇu Tīrth, he has written a book, a book, and all this is based on that śhaktipāt business. I said, "I've never heard of this Viṣhṇu Tīrth."<br>
+And he started a new fad. And this fad you have accepted! Paying no attention to what Gītā has to say, no attention to what Vedas have to say, no attention to what other Scriptures have to say about your ascent. You accepted this gentleman out of the blue.<br>
+Last hundred years in India, we have had such funny people: they produced books after books, even in English language. All these books were translated in English, German and all these languages, which has no basis, no connection, no relevance whatsoever to the ancient books."<br>
 <font size="+0"><b>1985-0510 Public Program, Becoming the Light within, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"When I was once in India going by a bullock cart in a village, the bullock cart driver was absolutely uneducated. <font color="red">Ah and I started talking to him. And he was talking like Socrates, like Kabīra!</font> I was surprised: 'From where this knowledge is coming to this man who is just a bullock cart driver‽'<br>
+The Source of Knowledge is the Spirit.<br>
+You can see: Christ never went to any university, Kṛiṣhṇa never went eh to any university, Rāma never went into any university, none of the Saints went to any university or theological schools! From where did they get all the Knowledge? They got it from the Spirit which enlightened their brain.<br>
+And the storehouse of all that Knowledge is there, which your start knowing as soon as you become the light."<br>
 <font size="+0"><b>1985-0515 Public Program, La Sala dei Congressi della Provincia di Milano, Via Filippo Corridoni 16, Milan, Lombardy, Italy</b></font>
 </p>
 
@@ -464,8 +486,15 @@ And the word Kuṇḍalinī also is ... has a meaning that it is a coiled-up ene
 "<font color="red">When they talked, say, about the flowers, say, they talked that they are Gods, like Socrates talked about Gods, like Confucius talked about Gods. When they talked, 'We have to please our Gods,' we started doubting. 'What Gods He's talking about?' Whatever They saw we could not see. All right.<br>
 Then they thought, "No use talking about Gods. If you talk about Gods, then it becomes a, sort of a worship of something that is a flower. We talk about flower, then we think, 'We have become God.' And we talk about flower all the time!"</font>
 ......<br>
+The reflection of Holy Ghost within us is the Kuṇḍalinī, and the reflection of Christ within us is the Spirit.<br>
+[After 12 seconds:] But everybody has played the role. <font color="red">Like Moses, like Abraham, like Socrates, like Lao Tze, everybody has played the role to build up this drama.<br>
+They are all part and parcel of One Being.</font> This one you must understand.<br>
+When we said, "There is One God," He's not like Tock of Gibraltar. That, even Rock of Gibraltar has got different uh molecules, you see. But to ask, `God is one,' means, I don't know, I cannot think of [laughing:] something, just a one block. He's not. He has many aspects, and these aspects are expressed in these different ways.<br>
+Of course He's one, united, integrated, one. But all these aspects are there.<br>
+And this 'One God' is either in the pockets of the priests or the pockets of the Brahmins or the pockets of the mullahs or the pockets of someone. 'One God.'
 ......<br>
-......."<br>
+<font color="red">In Sahaja Yoga, you will have the politics of Ss-Socrates, of giving and of not taking. But we have to have that race raised into that personality, that global personality.</font><br>
+Can I do it alone? You all have to help Me."<br>
 <font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, UK</b></font>
 </p>
 
@@ -502,7 +531,9 @@ That was also important part. But that was forgot[ten]!<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"And also, in all Indian Scriptures it is described that you have to get your Self-realization, and that you feel a Cool Breeze of the Ādi Śhakti or, as described in the Bible, of the Holy Ghost.<br>
+Zen has talked about it, Lao Tze has talked about it, all of Them have talked about this. <font color="red">Even Socrates has talked about that.</font><br>
+But all these Saints, Prophets and Incarnations had to suffer a lot because of the ignorance and ego of human beings. They made the lives of all these Saints so miserable that they did not have any time to explain these things so clearly in those days. They were so arrogant and so cruel that they could not see Divinity in anyone. They'd no sensitivity to understand what was Divine."<br>
 <font size="+0"><b>1986-0522 Public Program, Day 1, Colegio Mayor, Universitario Isabel de España, Madrid, Spain</b></font>
 </p>
 
@@ -577,7 +608,10 @@ Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Hi
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"This is just anti-God activity and that's why when people start seeing these things happening in the religion, the way we have in our country, ill-treat the women, the way we have started this all kinds of satī business.<br>
+Like recently, I heard that in the śhāstras they say that satī is the right of a woman but she has no right to read śhāstras. It is all nonsense, absolute nonsense, because if you see that when Rāvaṇa died, this was eight thousand years hack, Śhrī Rāma married his wife to Vibhīṣhaṇa. That time He married a widow to Vibhīṣhaṇa. We have example of Śhrī Rāma before us that he did not care for this caste system.<br>
+We are the people, who are now trying to find faults with Śhrī Rāma, because we have become so egoistical, we don't understand how great He was.<br>
+Now Śhrī Rāma, they say, was a man, who discarded His wife and ill-treated Her. This was all a drama. They had to play particular type of drama at that time to show what a benevolent king He is. <font color="red">As described by Socrates that [what] the Benevolent King [is], you see in Śhrī Rāma.</font>"<br>
 <font size="+0"><b>1988-0000 Public Program, Mumbai, Maharashtra, India</b></font>
 </p>
 

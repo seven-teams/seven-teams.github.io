@@ -170,7 +170,10 @@ Dharma means a sustainance [sustenance], that is we can say, that is quality tha
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Though this Incarnation is such that It never dies. Even if They leave the body, They are always around. And They are the Ones who perform lots of miracles when any other Incarnation comes on this Earth. They help, support, guide that seekers to go to the Incarnations.<br>
+So, to celebrate His [Śhrī Guru Nāṇaka's] birthday, on such a date, is also a myth because He never died. He is eternally living: They never grow and They never die.<br>
+<font color="red">But His birth is important, because, symbolically, He came on this Earth not to propagate any particular type of the Void as Muhammad did, or, say, Moses did, David, Moses and then, before that Abraham, Lao Tze, or Socrates, which followed into a religion.</font> But He came to create amenity, amity we can say, to create understanding, to create unity between the religions. This was a very big step for Sahaja Yoga.<br>
+After that as you know, He was born again, God knows where, no one knows where He was born, but He appeared as Śhirḍī Sāī Nāth. He too said the same thing: that, 'To talk ill of any religion is a sin.' "<br>
 <font size="+0"><b>1982-1101 Talk to Sahaja Yogis (Śhrī Guru Nāṇaka Jayanti), Every Sahaja Yogi Has to Become a Guru, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>
 
@@ -178,7 +181,7 @@ Dharma means a sustainance [sustenance], that is we can say, that is quality tha
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b>1982-1226 Public Talk, Lions Club International, District 323-D, Pune, Maharashtra, India</b></font>
+<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -391,6 +394,23 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+"And also, in all Indian Scriptures it is described that you have to get your Self-realization, and that you feel a Cool Breeze of the Ādi Śhakti or, as described in the Bible, of the Holy Ghost.<br>
+<font color="red">Zen has talked about it, Lao Tze has talked about it, all of Them have talked about this.</font> Even Socrates has talked about that.<br>
+But all these Saints, Prophets and Incarnations had to suffer a lot because of the ignorance and ego of human beings. They made the lives of all these Saints so miserable that they did not have any time to explain these things so clearly in those days. They were so arrogant and so cruel that they could not see Divinity in anyone. They'd no sensitivity to understand what was Divine."<br>
+<font size="+0"><b>1986-0522 Public Program, Day 1, Colegio Mayor, Universitario Isabel de España, Madrid, Spain</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
 
 <p>
 <font color="red">"If you read Lao Tze, Confucius and all the great philosophers, they all have talked about achieving Self-realization.}"</font><br>
