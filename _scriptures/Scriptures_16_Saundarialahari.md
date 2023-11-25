@@ -1094,7 +1094,7 @@ Nijāṁ vīṇāṁ vāṇī nichulayati cholena nibhṛitam</font>
 
 <p>
 <b>66 Translation</b><br>
-<font color="DarkGreen">V, rendering upon the harp (songs recounting) the various past achievements of Puraripu, quietly covers with its sheath her own instruments, the sweet notes of whose strings being far excelled by the soft melody of the words of praise with which Thou began, shaking Thy head to applauud (her rendering).</font><br>
+<font color="DarkGreen">Vāṇī, rendering upon the harp (songs recounting) the various past achievements of Puraripu, quietly covers with its sheath her own instruments, the sweet notes of whose strings being far excelled by the soft melody of the words of praise with which Thou began, shaking Thy head to applauud (her rendering).</font><br>
 <font color="blue">When, on hearing the songs on the greatness and achievements of Śhiva tuned on the Vīṇā by Saraswatī, the Goddess of learning and fine arts, Thou beginnest to speak nodding Thy head in appreciation, the sweetness of Thy voice seems to cast ridicule on the soft melody of that musical instrument, and Saraswatī therefore secretly puts it in its case.</font><br>
 </p>
 
@@ -1128,8 +1128,8 @@ Mṛiṇālī lālityam vahati yad adho hāra latikā</font>
 
 <p>
 <b>68 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">This neck of Thine, horripilated often owng to the embrace of the vanquished of the (three_ Puras, assumes the aspect of the stalk of Thy lotus-ike face, for the reason thta the pearl necklace )worn) thereunder, itself white, but rendered dark owing to the profuse application of the blacl mud-like Aguru paste, attains the beauty of the tender of the lotus stalk.</font><br>
+<font color="blue">Thy neck, with horripilations caused by the constant embraces of Thy Consort, the Destroyer of the cities, resembles the thorny stalk of Thy lotus-like face. For, below Thy neck are Thy naturally white cluster of pearl necklaces which, being discoloured by the generously applied dark coloured Aguru paste on the chest, bears the comeliness of the tender bottom part of the stalk of Thy lotus-like face embedded in mire.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1144,8 +1144,8 @@ Trayāṇāṁ grāmāṇāṁ sthiti niyama sīmāna iva te</font>
 
 <p>
 <b>69 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Unique demonstrator of procedure, undulations and song! on Thy neck shone forth three lines, as though denoting the number of strings made of twisted threads auspiciously tied (round the neck) during (Thy) marriage forming as it weere the boundaries demarcating the positions of the three Grāmas, which constitute the treasure-mine of the various kinds of melodious modes of music.</font><br>
+<font color="blue">O Mistress of the musical technicalities of Gati (movement) Gamakam (undulations) and Gītam (song)! As though for the confirmation of the three-foldness of the strands of the auspicious string made by twisting several threads and tied round Thy neck (surrounding the maṅgalasūtra) by Thy Consort at the time of Thy marriage, shine forth the three lines of Thy neck, standing, as it were, as the boundaries demarcating the three musical scales (or Gamakas consisting of Ṣhaḍja, Mādhyama and Gāndhāra), which form the source of the various melodies of musical modes.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1160,8 +1160,8 @@ Chaturṇāṁ śhīrṣhāṇāṁ samam abhaya hast'ārpaṇa dhiyā</font>
 
 <p>
 <b>70 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">The lotus-born (Brahmā) praises the beauty of Thy four creaper-like arms, with his four faces, afraid of the nails of the enemy of Andhaka, one of their fellows (the fifth head) having been once chopped off, in the belief that (the Devī's arms) would vouchsafe safety to his four (remaining) heads at the same time.</font><br>
+<font color="blue">The lotus-born Brahmā, being afraid of the fingernails of Sadāśhiva, with which the latter, in former times, nipped off his fifth head, is now praising simultaneously with the remaining four heads the comeliness of Thy four creeper-like arms resembling the stalk of lotus in beauty, so that Thou might give those heads protection from the fear of a fate similar to that of the lost head.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1176,8 +1176,8 @@ Yadi krīḍal lakṣhmī charaṇa tala lākṣhā rasa chhaṇam</font>
 
 <p>
 <b>71 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Umā!  how shall we characterize the splendor of Thy hands  which, with the lustre of their finger-nails, throw into the background the bright hue of the newly bloomed lotus? Pray tell us. In the case the lotus (has) its petals turned red (from contact) with the lac-dye on the soles of Lakṣhmī's Feet playing upon it, then by all means let it (the lotus) somewhat resemble (Thy hands), as it cannot be helped.</font><br>
+<font color="blue">O Umā! Pray, tell us how we can describe the splendor of Thy hands which, being lit up with the radiance of Thy nails, surpasses the brightness of the morning’s lotus blooms. Perhaps these flowers can attain to some similarity with Thy nails when their redness is enhanced by contact with the lac-dye of the Feet of Goddess Lakṣhmī who sports in them.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1192,8 +1192,8 @@ Sva-kumbhau herambaḥ pari-mṛiśhati hastena jhaḍ-iti</font>
 
 <p>
 <b>72 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Goddess! may Thy breasts, ever blowing with milk and sucked simultaneously by Skanda and Dvipa-vandana - on seeing which Heramba, his mind distracted, with doubt, suddenly touches his own pair of frontal globes with his hand, creating laughter -  drive away our misery.</font><br>
+<font color="blue">O Mother! May we be relieved of all our sorrows by Thy breasts, from which milk is flowing always and which are being simultaneously sucked by both Skand and Gaṇeśha, Thy sons. All of a sudden Gaṇeśha (Heramba), looking at Thy breasts, feels with His hands whether the pair of frontal globes on His elephant face are there in their proper places (or whether they have disappeared to become Thy breasts present before his eyes), thus giving occasion for great fun (to His parents and onlookers).</font><br>
 </p>
 
 <div class="para-divider"></div>
