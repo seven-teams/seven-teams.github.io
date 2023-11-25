@@ -443,6 +443,23 @@ As carbon has got four valances, we too have got ten valances. We have to mainta
 <div class="para-divider"></div>
 
 <p>
+"In the same way, human beings have ten valences. These are described in the Ten Commandments.<br>
+This balancing takes place in this area which is shown with the green color.<br>
+This balancing is done by people who incarnate on this Earth as Great Prophets. <font color="red">We can say Abraham, Moses, Socrates, and many other Prophets like these, Muhammad, Nāṇak, Janak, all of Them came on this Earth: They were the Incarnations of the Primordial Master.</font> So took to talk about this balancing. And this balancing They told us, because without the balance there cannot be an ascent.<br>
+[Aside:] Gentleman, why are you disturbing everyone?"<br>
+<font size="+0"><b>1982-0928 Public Program, Day 3, Urania Volkshochschulen, Volksbildungshaus, Uraniastraße 1, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now when this center is illumined, around it is illumined your sustainance [sustenance]. That's your Inner Religion.<br>
 <font color="red">The ... we call it Ten Incarnations of the Primordial Master. There are many who came, but the Ones who came in India was called as Brahmadeva uh ... was called as Dattātreya, Janaka, Rāja Janaka, the father of Sītā.</font> In China, Lao Tze, Confucius. In uh, in the Bible, Abraham and Moses. And later on, in the uh form of uh Muhammad Sāhab. And then Janaka. No, no, Nāṇaka, I'm sorry, Nāṇaka. Nāṇak Sāhab. And in Greece, it was Socrates. They took birth on all these places. In the end, about fifty years back, or hundred years back, was born Great Primordial Master, in India, in Śhirḍī.<br>
 [Helping with the translation:] In Śhirḍī."<br>

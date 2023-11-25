@@ -257,7 +257,15 @@ One of them is Śhrī Rām. Śhrī Rām resides on the right Heart and is the Fa
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"I'll tell you one example, a simple example. There was a gentleman from Iran, he was a doctor, he came to see Me. I mean, it is now we cannot contact him because he's in Iran. But he came to see, Me he was a Muslim. And I told him that: "Muhammad Sāhab was born as Nāṇak Sāhab in India." He could not believe it. He said, "How can it be?"<br>
+Though Nāṇak Sāhab had said it, in a way, because Nāṇak Sāhab was sleeping, and somebody told Him that, "You are placing Your Feet towards Mecca." He said, "All right, I'll turn My Fee... Feet to's other side," and the Mecca came that side.<br>
+He said, "I can't believe it! I can't believe it." I [he] said, "But Muhammad Sāhab has said that He is the last." I said, "I'm not sure of that, but maybe He must have decided to come back, the way people are."<br>
+He could not believe it! And he had stomach cancer, which is caused by one of the reasons is fanaticism.<br>
+<font color="red">I told him, "You have to believe in Him. He was one of the Incarnations of the Primordial Master and He was the same, Abraham was the same, Moses was the same, Socrates was the same, and you have to believe it."</font> He said, "I can't believe it." I said, "I can't cure you."<br>
+Then he went back and he was very sick. His wife said, "Now, what is there? After all, you see, we became Muslims because our parents were Muslims. And they told us that, 'Muhammad Sāhab was the last.' After all you are to be saved."<br>
+Then he came and he said, "All right, Mother, whatever You say, I'm going to say." I said, "Now you pray to Nāṇak Sāhab, instead of Muhammad Sāhab, because it is Muhammad Sāhab who is angry with you."<br>
+He got cured. He's still living. He got cured.<br>
+Is so simple. We can't believe it: it is so fantastic. It is worth seeing yourself with your own eyes."<br>
 <font size="+0"><b>1981-0814 Public Program, The Scientific Viewpoint, Quaker Meeting House, 40 Bull Street, Birmingham B4 6AF, West Midlands, UK</b></font>
 </p>
 
@@ -323,7 +331,10 @@ As a human being, you have to have a sustainance [sustenance], and this is the c
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"In the same way, human beings have ten valences. These are described in the Ten Commandments.<br>
+This balancing takes place in this area which is shown with the green color.<br>
+This balancing is done by people who incarnate on this Earth as Great Prophets. <font color="red">We can say Abraham, Moses, Socrates, and many other Prophets like these, Muhammad, Nāṇak, Janak, all of Them came on this Earth: They were the Incarnations of the Primordial Master.</font> So took to talk about this balancing. And this balancing They told us, because without the balance there cannot be an ascent.<br>
+[Aside:] Gentleman, why are you disturbing everyone?"<br>
 <font size="+0"><b>1982-0928 Public Program, Day 3, Urania Volkshochschulen, Volksbildungshaus, Uraniastraße 1, Vienna, Austria</b></font>
 </p>
 
@@ -489,7 +500,7 @@ Then they thought, "No use talking about Gods. If you talk about Gods, then it b
 The reflection of Holy Ghost within us is the Kuṇḍalinī, and the reflection of Christ within us is the Spirit.<br>
 [After 12 seconds:] But everybody has played the role. <font color="red">Like Moses, like Abraham, like Socrates, like Lao Tze, everybody has played the role to build up this drama.<br>
 They are all part and parcel of One Being.</font> This one you must understand.<br>
-When we said, "There is One God," He's not like Tock of Gibraltar. That, even Rock of Gibraltar has got different uh molecules, you see. But to ask, `God is one,' means, I don't know, I cannot think of [laughing:] something, just a one block. He's not. He has many aspects, and these aspects are expressed in these different ways.<br>
+When we said, "There is One God," He's not like Tock of Gibraltar. That, even Rock of Gibraltar has got different uh molecules, you see. But to ask, 'God is one,' means, I don't know, I cannot think of [laughing:] something, just a one block. He's not. He has many aspects, and these aspects are expressed in these different ways.<br>
 Of course He's one, united, integrated, one. But all these aspects are there.<br>
 And this 'One God' is either in the pockets of the priests or the pockets of the Brahmins or the pockets of the mullahs or the pockets of someone. 'One God.'
 ......<br>
@@ -501,7 +512,15 @@ Can I do it alone? You all have to help Me."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"You'll be surprised when you get your spiritual awakening, your spiritual light, you will see that all of Them who came forward were all related to each other. They were all One Family, only the people who followed them made the mistake of plucking the flowers from the One Free.<br>
+So with the spiritual ascent, you rise into a New Religion of Universality.<br>
+<font color="red">So wher[e] Socrates, Lao Tze, Abraham, Moses to today's great philosophers, all reside together.</font><br>
+All the Incarnations, like Christ, Kṛiṣhṇa, Rāma, all of Them are related with each other. They came on this Earth to create a [the] milestones of our ascent.<br>
+And when you come to Sahaja Yoga, you will be amazed to know: that a new light is thrown in their lives and in the Real Religion.<br>
+By just talking about them you cannot believe into such things.<br>
+But when you get these Divine Vibrations, you ask the question. And when that is the truth, you start feeling the Cool Breeze flowing into your hands, and you'd know that that's the truth. Because this new awareness has not come in you, that's why you cannot definitely say that, 'This is this.'<br>
+It's everything relative at this stage. But at the stage where you become the Spirit, It being absolute, you get Absolute Knowledge.<br>
+So we respect all these Great Incarnations, and then understand what They have done for us."</font><br>
 <font size="+0"><b>1985-1009 Public Program, Nature of Truth, Salle de La Marseillaise, Palais des Fetes, 34 Boulevard Clemenceau, Strasbourg, France</b></font>
 </p>
 
@@ -564,13 +583,6 @@ This is what it is!"<br>
 <p>
 <font color="red">""</font><br>
 <font size="+0"><b>1987-0102 Talk to Sahaja Yogis (English + Marathi), Beauty Must Have Auspiciousness, before the Evening Program, Session 1 (before Dinner), Gaṇapatīpuḷe, Maharashtra, India</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>

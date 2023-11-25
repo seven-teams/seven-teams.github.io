@@ -396,6 +396,28 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
+"You'll be surprised when you get your spiritual awakening, your spiritual light, you will see that all of Them who came forward were all related to each other. They were all One Family, only the people who followed them made the mistake of plucking the flowers from the One Free.<br>
+So with the spiritual ascent, you rise into a New Religion of Universality.<br>
+<font color="red">So wher[e] Socrates, Lao Tze, Abraham, Moses to today's great philosophers, all reside together.</font><br>
+All the Incarnations, like Christ, Kṛiṣhṇa, Rāma, all of Them are related with each other. They came on this Earth to create a [the] milestones of our ascent.<br>
+And when you come to Sahaja Yoga, you will be amazed to know: that a new light is thrown in their lives and in the Real Religion.<br>
+By just talking about them you cannot believe into such things.<br>
+But when you get these Divine Vibrations, you ask the question. And when that is the truth, you start feeling the Cool Breeze flowing into your hands, and you'd know that that's the truth. Because this new awareness has not come in you, that's why you cannot definitely say that, 'This is this.'<br>
+It's everything relative at this stage. But at the stage where you become the Spirit, It being absolute, you get Absolute Knowledge.<br>
+So we respect all these Great Incarnations, and then understand what They have done for us."<br>
+<font size="+0"><b>1985-1009 Public Program, Nature of Truth, Salle de La Marseillaise, Palais des Fetes, 34 Boulevard Clemenceau, Strasbourg, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "And also, in all Indian Scriptures it is described that you have to get your Self-realization, and that you feel a Cool Breeze of the Ādi Śhakti or, as described in the Bible, of the Holy Ghost.<br>
 <font color="red">Zen has talked about it, Lao Tze has talked about it, all of Them have talked about this.</font> Even Socrates has talked about that.<br>
 But all these Saints, Prophets and Incarnations had to suffer a lot because of the ignorance and ego of human beings. They made the lives of all these Saints so miserable that they did not have any time to explain these things so clearly in those days. They were so arrogant and so cruel that they could not see Divinity in anyone. They'd no sensitivity to understand what was Divine."<br>

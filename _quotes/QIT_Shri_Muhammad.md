@@ -1151,6 +1151,28 @@ The same thing with us: you can't follow the Zen is Sahaja Yoga. What ... what Z
 <div class="para-divider"></div>
 
 <p>
+"I'll tell you one example, a simple example. There was a gentleman from Iran, he was a doctor, he came to see Me. I mean, it is now we cannot contact him because he's in Iran. But he came to see, Me he was a Muslim. <font color="red">And I told him that: "Muhammad Sāhab was born as Nāṇak Sāhab in India."</font> He could not believe it. He said, "How can it be?"<br>
+Though Nāṇak Sāhab had said it, in a way, because Nāṇak Sāhab was sleeping, and somebody told Him that, "You are placing Your Feet towards Mecca." He said, "All right, I'll turn My Fee... Feet to's other side," and the Mecca came that side.<br>
+He said, "I can't believe it! I can't believe it." <font color="red">I [he] said, "But Muhammad Sāhab has said that He is the last." I said, "I'm not sure of that, but maybe He must have decided to come back, the way people are."</font><br>
+He could not believe it! And he had stomach cancer, which is caused by one of the reasons is fanaticism.<br>
+I told him, "You have to believe in Him. He was one of the Incarnations of the Primordial Master and He was the same, Abraham was the same, Moses was the same, Socrates was the same, and you have to believe it." He said, "I can't believe it." I said, "I can't cure you."<br>
+Then he went back and he was very sick. His wife said, "Now, what is there? After all, you see, we became Muslims because our parents were Muslims. And they told us that, 'Muhammad Sāhab was the last.' After all you are to be saved."<br>
+Then he came and he said, "All right, Mother, whatever You say, I'm going to say." <font color="red">I said, "Now you pray to Nāṇak Sāhab, instead of Muhammad Sāhab, because it is Muhammad Sāhab who is angry with you."</font><br>
+He got cured. He's still living. He got cured.<br>
+Is so simple. We can't believe it: it is so fantastic. It is worth seeing yourself with your own eyes."<br>
+<font size="+0"><b>1981-0814 Public Program, The Scientific Viewpoint, Quaker Meeting House, 40 Bull Street, Birmingham B4 6AF, West Midlands, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "[Pointing down from Viśhuddhi chakra to Nābhī chakra on the Chakra Chart:] The connection is that this seeking [slowly makes three and a half clockwise circles inside the Void around the Nābhī chakra on the Chakra Chart:] goes in developing and there are Ten Principles which are described as the Ten Commandments, you can say, or we have got Ten Sūtras is, in Sanskrit language they are called as Ten Sūtras.<br>
 Gāndhījī [laughing:] put one more, by saying that, 'We should use only Indian ... Indian things, not foreign things, because then they will dominate us.' So he put ekādeśha [ekādaśha=eleven], he put one more.<br>
 But there are Ten, which are here, which are described as [the] Ten Commandments in the Bible.<br>
@@ -1217,6 +1239,25 @@ Now, your guidance is your Spirit, which is unlimited. So you don't have to brin
 But to stick on to one person is again a sign that you are not expanding."<br>
 <font size="+0"><b>1982-0926 Śhrī Durgā Pūjā, Mind Is just like a Donkey, House of Grégoire de Kalbermatten, Sternwartestrasse 62, Vienna, Austria</b></font>
 </p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"In the same way, human beings have ten valences. These are described in the Ten Commandments.<br>
+This balancing takes place in this area which is shown with the green color.<br>
+This balancing is done by people who incarnate on this Earth as Great Prophets. <font color="red">We can say Abraham, Moses, Socrates, and many other Prophets like these, Muhammad, Nāṇak, Janak, all of Them came on this Earth: They were the Incarnations of the Primordial Master.</font> So took to talk about this balancing. And this balancing They told us, because without the balance there cannot be an ascent.<br>
+[Aside:] Gentleman, why are you disturbing everyone?"<br>
+<font size="+0"><b>1982-0928 Public Program, Day 3, Urania Volkshochschulen, Volksbildungshaus, Uraniastraße 1, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
