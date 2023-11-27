@@ -31,8 +31,6 @@
     "sorter": { "enable": true }
   },
   "Link": {
-    "filter": { "type": true },
-    "sorter": { "enable": true },
     "format": "link",
     "formatParams": {
       "target": "_blank",
@@ -40,6 +38,8 @@
     }
   },
   "Link_Name": {
+    "filter": { "type": true },
+    "sorter": { "enable": true }
   },
   "Share": {
     "filter": { "type": true },
