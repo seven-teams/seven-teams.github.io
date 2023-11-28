@@ -4,6 +4,7 @@ date: 2019-12-02
 permalink: /festivity/2019/12/02
 tags:
   - crimson @ Shri Adi Guru Dattatreya Jayanti
+  - deeppink @ Shri Adi Guru Dattatreya
 ---
 
 ![PICTURE 1](/images/image1.png)

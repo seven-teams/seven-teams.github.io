@@ -4,6 +4,7 @@ date: 2020-11-30
 permalink: /festivity/2020/11/30
 tags:
   - crimson @ Shri Guru Nanaka Birthday
+  - deeppink @ Shri Adi Guru Dattatreya  
 ---
 
 <div style="text-align: left"><img src="/images/image00.png" width="250" /></div><br>

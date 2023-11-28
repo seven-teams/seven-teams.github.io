@@ -4,6 +4,7 @@ date: 2021-12-18
 permalink: /festivity/2021/12/18
 tags:
   - crimson @ Shri Adi Guru Dattatreya Jayanti
+  - deeppink @ Shri Adi Guru Dattatreya
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

@@ -4,6 +4,7 @@ date: 2019-11-12
 permalink: /festivity/2019/11/12
 tags:
   - crimson @ Shri Guru Nanaka Birthday
+  - deeppink @ Shri Adi Guru Dattatreya
 ---
 
 ![PICTURE 1](/images/image1.png)

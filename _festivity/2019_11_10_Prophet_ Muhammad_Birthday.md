@@ -4,6 +4,7 @@ date: 2019-11-10
 permalink: /festivity/2019/11/10
 tags:
   - crimson @ Eid-Ul-Milad
+  - deeppink @ Shri Adi Guru Dattatreya
 ---
 
 ![PICTURE 1](/images/image1.png)

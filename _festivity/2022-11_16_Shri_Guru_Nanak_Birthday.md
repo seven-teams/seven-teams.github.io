@@ -4,6 +4,7 @@ date: 2022-11-16
 permalink: /festivity/2022/11/16
 tags:
   - crimson @ Shri Guru Nanaka Birthday
+  - deeppink @ Shri Adi Guru Dattatreya
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

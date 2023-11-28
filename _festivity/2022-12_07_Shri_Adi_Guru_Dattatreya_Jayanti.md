@@ -4,6 +4,7 @@ date: 2022-12-07
 permalink: /festivity/2022/12/07
 tags:
   - crimson @ Shri Adi Guru Dattatreya Jayanti
+  - deeppink @ Shri Adi Guru Dattatreya
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
