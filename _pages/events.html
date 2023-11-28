@@ -10,7 +10,7 @@ redirect_from:
 {%- include base_path -%}
 {%- assign sectionYear = 'None' -%}
 
-{%- assign posts = site.events | sort_by_date -%}
+{%- assign posts = site.events | sort_by_date | reverse -%}
 {%- for post in posts -%}
   {%- assign year = post | get_year -%}
 
