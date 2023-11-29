@@ -23,9 +23,11 @@ tags:
 </p>
 
 <p>
-"There is one more thing. I was happy to learn that the great poet of this country, Blake, had prophesied about Me. And it is so beautifully done, that He said that England is going to be the Jerusalem. This is going to be the pilgrimage. The venue has shifted.<br>
-......<br>
-And that Jerusalem is going to be in England, not in India. And you are the people responsible for this Jerusalem."<br>
+"There's one more thing: I was happy to learn that the great poet of this country, Blake, had prophesied about Me.<br>
+And it is so beautifully done, that He said that: "England is going to be the Jerusalem." We, this is going to be the pilgrimage. The venue has shifted.<br>
+And then He has very beautifully -- have you got the thing to read? No. You haven't brought [it].<br>
+But what reading! That: He has said that first thing furnace will be burning in Surrey Hills, where I came first, and then He has mentioned Lambeth Vale, where we have got our Āśhram. Where the foundations will be laid, we have laid the foundations.<br>
+And that Jerusalem is going to be in England, not in India. And you are the people responsible for this Jerusalem. "<br>
 <font color="blue"><b>1980-1019 Havan, Navarātri Celebrations (Dussehra Day), To Solve All Your Problems Is to Surrender, Temple of All Faiths (now demolished, 11c Pond St), Belsize Park, Hampstead, London, UK</b></font><br>
 </p>
 
