@@ -69,7 +69,7 @@ When Nāṇaka came in, He saw that Hindus and Muslims were fighting. So He star
 
 <p>
 <font color="DarkRed">"Then came, you know Nāṇaka who preached that there should be no enmity between Hindus and Muslims, He preached that, because He saw the Muslims behaving in such a manner, they were such fanatics and they had become so funny that He could not understand, 'How is it? These are the people whom I have made Muslims and what are they doing here?'<br>
-Actually Mussulman means the person who is realized and Pīr is a person whose Realization is established so much so that He [Prophet Muhammad] said that, 'Those who have become Mussulman should be buried and not burnt,' because He thought they are all realized Souls, but Realization finished off with His son-in-law and His daughter, after that He had two sons [grandchildren] who were great Souls who are really the Reincarnation[s] of Lav and Kuśh."</font><br>
+Actually <b>Mussulman means the person who is realized and Pīr is a person whose Realization is established</b> so much so that He [Prophet Muhammad] said that, 'Those who have become Mussulman should be buried and not burnt,' because He thought they are all realized Souls, but Realization finished off with His son-in-law and His daughter, after that He had two sons [grandchildren] who were great Souls who are really the Reincarnation[s] of Lav and Kuśh."</font><br>
 <font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
