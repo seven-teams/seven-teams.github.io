@@ -45,7 +45,7 @@ Will succeed, says Nanak, that is sure.</b></font><br>
 <p>
 <font color="DarkRed">"<b>Today is the birthday of Śhrī Guru Nāṇaka. It is being celebrated throughout the world with so much of zeal that I have not seen in India.</b> For the first time it has been advertised in so many papers and by different means.<br>
 Guru Nāṇaka always talked of Sahaja Yoga. "Everything else," He said, "is just showing off." About religion He said that, "Observing fasts, going on pilgrimage, etc., are just meant to show off. Now you have to discover the power that is within you and establish it." Guru Nāṇaka kept on repeating the same thing again and again.<br>
-He never talked of rituals. "</font><br>
+He never talked of rituals."</font><br>
 <font size="+0"><b>1999-1123 Talk to Sahaja Yogis (Hindi) (Śhrī Guru Nāṇaka Jayanti), House, Noida, Uttar Pradesh, India</b></font>
 </p>
 
