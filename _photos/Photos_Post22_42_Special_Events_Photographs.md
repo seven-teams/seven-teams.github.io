@@ -1,5 +1,5 @@
 ---
-title: 'Photos Post 22: Special Events (after 1975), Part 42
+title: 'Photos Post 22: Special Events (after 1975), Part 42'
 date: 2023-11-26
 permalink: /photos/2023/1126-b
 tags:

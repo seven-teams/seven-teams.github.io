@@ -596,6 +596,41 @@ That was also important part. But that was forgot[ten]!<br>
 <div class="para-divider"></div>
 
 <p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"As a result, Kuṇḍalinī has started moving. So now, to enlarge the higher centers, and to give full confidence to the Kuṇḍalinī, we have to put our r... right hand in the upper part of the abdomen on the left-hand side and press it hard, and say here, will full confidence in yourself: 'Mother, I am my own master. Mother, I am my own guide.' Please say it with full confidence. There's no ego about it. With full confidence you must say, so the center of your mastery will open out and the Kuṇḍalinī can pass through well. It's effortless. Only thing we are helping the Kuṇḍalinī to have Her own way upward. This you have to say ten times because there are ten petals to this. <font color="red">This is actually the Ten Commandments which represent these ten petals and there were Ten Sadgurus in the past who came again and again on this Earth: like Prophets, like Moses, like Abraham, like Lao Tze, like Socrates.</font> [After 15 seconds:] Please say this ten times."<br>
+<font size="+0"><b>1986-0530 Public Program, Day 1, Pyramid, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">"Now, the Dharma, all the religion that is established by Great Prophets, starting right from Socrates, then Sei [Sāī] Nāth, Janaka, up to Guru Nāṇaka, you can say that that was just to establish the balance within us. Moses, Abraham, all of Them did that. They all tried to give us the idea of balancing, of temperance within us, for our ultimate purification."</font><br>
+<font size="+0"><b>1988-0609 Public Program, Day 2, Kongresshaus, 5, Margaretengürtel 138-140, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"As we had very great people ... uh ... on this Earth, I have given you the names, as we said there are, there have been Ten Gurus, uh ... starting from Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had Confucius, we had Socrates, and later on we had Abraham, Moses and also up to Śhirḍī Sāī Nāth, we had about Ten Great Gurus, now we have so many here sitting down. They are all gurus, and they have to behave like gurus and they have to the ... do the job of great gurus."</font><br>
 <font size="+0"><b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font>
 </p>

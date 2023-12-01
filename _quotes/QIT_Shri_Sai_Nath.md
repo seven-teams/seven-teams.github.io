@@ -572,6 +572,20 @@ The ... we call it Ten Incarnations of the Primordial Master. There are many who
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">"Now, the Dharma, all the religion that is established by Great Prophets, starting right from Socrates, then Sei [Sāī] Nāth, Janaka, up to Guru Nāṇaka, you can say that that was just to establish the balance within us. Moses, Abraham, all of Them did that. They all tried to give us the idea of balancing, of temperance within us, for our ultimate purification."</font><br>
+<font size="+0"><b>1988-0609 Public Program, Day 2, Kongresshaus, 5, Margaretengürtel 138-140, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"As we had very great people ... uh ... on this Earth, I have given you the names, as we said there are, there have been Ten Gurus, uh ... starting from Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had Confucius, we had Socrates, and later on we had Abraham, Moses and also up to Śhirḍī Sāī Nāth, we had about Ten Great Gurus, now we have so many here sitting down. They are all gurus, and they have to behave like gurus and they have to the ... do the job of great gurus."</font><br>
 <font size="+0"><b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font>
 </p>

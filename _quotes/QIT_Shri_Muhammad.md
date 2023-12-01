@@ -1451,6 +1451,23 @@ Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Hi
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"But everyone has talked about your Re-birth, whether it was Christ, or Muhammad Sāhab, Socrates, Lao Tze, anyone.</font> You are to be born-again, then you will know the reality.<br>
+But it is not some sort of a brand, or some sort of a[n] organization to which you belong and you's call yourself, 'I am a born-realized.' This is falsehood.<br>
+And, if you have to be compromising with falsehood, we cannot have the beauty and glory of reality.<br>
+We have to be honest to know the Truth. And that honesty is as simple as this: to say that, 'So far, I have not known the Truth. I've believed into this and that, but I have not known the truth.' "<br>
+<font size="+0"><b>1987-1102 Public Program, Day 1, Power that Comes with Your Second Birth and Know the Truth, Salle C, Maison de la Mutualité, 24 Rue Saint-Victor, 5th Arrondissement, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"Sahaja Yoga is your own religion. Within yourself you have a Kuṇḍalinī: you have this Power within yourself which is to be awakened. About which even Saint Thomas has said, about which Muhammad Sāheb has said, about which Zoroaster has said, about which Christ has said, about which of course, Śhrī Kṛiṣhṇa has said, in a way."</font><br>
 <font size="+0"><b>1988-0000 Public Program, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -1463,6 +1480,25 @@ Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Hi
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<font color="red"><b>Śhrī Mātājī:</b></font> Since long there has been talk about Truth. Socrates talked about it, and He was killed. Then came Christ, He talked about it, He was killed. <font color="red">Then came Prophet Muhammad Sāhab, and He was also, in a way, killed.</font><br>
+But today the human awareness is much better, and we are understanding that Truth has to be beyond our mental projections.<br>
+......<br>
+<b>Sahaja Yogi translator</b> [summarizes a gentleman]: Eh. Uh-uh-uh s-s-s ... You said that uh Socrates was killed, and also, in a way, uh Jesus Christ was killed, but coming to Prophet Muhammad, it's uh-uh ... gentleman uh doesn't seem to agree with You that uh oh ... requires through which a particular uh words of his that He was ... was supposed to be killed.
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Now, you must [take] 'supposed to be killed' in the sense that, you see, whatever He tried to preach and tried to do, people would not listen to Him. And He had to really struggle a lot all His life.</font><br>
+<font size="+0"><b>1989-0526 Public Program, Country House, Parc Emirgân Korusu, Istanbul, Turkey</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
 
 <p>
 "This is all absolutely traditional but is not a dead tradition.<br>

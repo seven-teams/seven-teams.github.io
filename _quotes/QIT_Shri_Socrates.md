@@ -559,7 +559,7 @@ But all these Saints, Prophets and Incarnations had to suffer a lot because of t
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"As a result, Kuṇḍalinī has started moving. So now, to enlarge the higher centers, and to give full confidence to the Kuṇḍalinī, we have to put our r... right hand in the upper part of the abdomen on the left-hand side and press it hard, and say here, will full confidence in yourself: 'Mother, I am my own master. Mother, I am my own guide.' Please say it with full confidence. There's no ego about it. With full confidence you must say, so the center of your mastery will open out and the Kuṇḍalinī can pass through well. It's effortless. Only thing we are helping the Kuṇḍalinī to have Her own way upward. This you have to say ten times because there are ten petals to this. <font color="red">This is actually the Ten Commandments which represent these ten petals and there were Ten Sadgurus in the past who came again and again on this Earth: like Prophets, like Moses, like Abraham, like Lao Tze, like Socrates.</font> [After 15 seconds:] Please say this ten times."<br>
 <font size="+0"><b>1986-0530 Public Program, Day 1, Pyramid, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
 </p>
 
@@ -613,7 +613,10 @@ Like Muhammad Sāhab said. "Let us not worship God as an idol. Let us worship Hi
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"But everyone has talked about your Re-birth, whether it was Christ, or Muhammad Sāhab, Socrates, Lao Tze, anyone.</font> You are to be born-again, then you will know the reality.<br>
+But it is not some sort of a brand, or some sort of a[n] organization to which you belong and you's call yourself, 'I am a born-realized.' This is falsehood.<br>
+And, if you have to be compromising with falsehood, we cannot have the beauty and glory of reality.<br>
+We have to be honest to know the Truth. And that honesty is as simple as this: to say that, 'So far, I have not known the Truth. I've believed into this and that, but I have not known the truth.' "<br>
 <font size="+0"><b>1987-1102 Public Program, Day 1, Power that Comes with Your Second Birth and Know the Truth, Salle C, Maison de la Mutualité, 24 Rue Saint-Victor, 5th Arrondissement, Paris, France</b></font>
 </p>
 
@@ -630,7 +633,7 @@ Now Śhrī Rāma, they say, was a man, who discarded His wife and ill-treated He
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">"Now, the Dharma, all the religion that is established by Great Prophets, starting right from Socrates, then Sei [Sāī] Nāth, Janaka, up to Guru Nāṇaka, you can say that that was just to establish the balance within us. Moses, Abraham, all of Them did that. They all tried to give us the idea of balancing, of temperance within us, for our ultimate purification."</font><br>
 <font size="+0"><b>1988-0609 Public Program, Day 2, Kongresshaus, 5, Margaretengürtel 138-140, Vienna, Austria</b></font>
 </p>
 
@@ -661,14 +664,23 @@ We can say that on the Tree of Life there were one or two flowers in the beginni
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Yesterday, they spoke to you about the different centers we have within ourselves.<br>
+These subtle centers were discovered thousands of years back by Great Saints. <font color="red">And Socrates also has talked about the Gods which reside within us.</font> And the knowledge about it was existent long time back.<br>
+......<br> 
+Majority of the people want Realization.<br>
+One or two persons here and there, you see. [Applause.]<br>
+So, one or two persons here and there should not disturb all of them. Is not proper, is not civil, is not decent.<br>
+I'm willing to answer [as some applause starts:] you, but you give it in writing, I'll answer you. I'm here to answer [you]. Yesterday I was sitting here for hours together! And the hotel people were so angry that they said they will not give the hotel tomorrow to us. It's so [to] such an extent.<br>
+<font color="red">Now, this is the country of Socrates, you cannot be childish.</font> [Laughs, some laughter.] [Before translation, laughing:] You cannot be childish.<br>
+Must understand!"<br>
 <font size="+0"><b>1989-0525 Public Program, Day 2, Ballroom, Hotel Grande Bretagne, 1  Vasileos Georgiou A, Syntagma Square Str, Athens, Greece</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Since long there has been talk about Truth. <font color="red">Socrates talked about it, and He was killed.</font> Then came Christ, He talked about it, He was killed. Then came Prophet Muhammad Sāhab, and He was also, in a way, killed.<br>
+But today the human awareness is much better, and we are understanding that Truth has to be beyond our mental projections."<br>
 <font size="+0"><b>1989-0526 Public Program, Country House, Parc Emirgân Korusu, Istanbul, Turkey</b></font>
 </p>
 
@@ -920,7 +932,13 @@ And this represents ten valencies, like Ten Commandments. Carbon has got four va
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"But if there was one Saint, all the people got after that Saint. If there was one Christ, they got after Him, they crucified Him. Anybody who talked of Truth had suffered. <font color="red">Socrates was given poison.</font><br>
+So you have seen the history only all such things were happening. Because they were singled out, they were single people.<br>
+But now, thousands can get their Self-realization, thousands can become Saints.<br>
+Is such a collective power. It's such a great association which is so subtle and so much one. This is the love which is collective.<br>
+This collective love we have never felt. We have never known this collective love. At the slightest pretext, a brother will fight another brother, the father will fight the mother, all kinds of things will go on.<br>
+But, once you get collectively connected, you become like drops in the ocean, but actually become the ocean.<br>
+It's really not the poetry I'm telling you, is reality I'm talking to [you about]."</font><br>
 <font size="+0"><b>1999-0616 Public Program (also Follow On to Public Talk to VIPs), The Town Hall, 123 West and 43rd Street, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 

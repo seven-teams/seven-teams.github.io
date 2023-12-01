@@ -554,6 +554,20 @@ That was also important part. But that was forgot[ten]!<br>
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">"Now, the Dharma, all the religion that is established by Great Prophets, starting right from Socrates, then Sei [Sāī] Nāth, Janaka, up to Guru Nāṇaka, you can say that that was just to establish the balance within us. Moses, Abraham, all of Them did that. They all tried to give us the idea of balancing, of temperance within us, for our ultimate purification."</font><br>
+<font size="+0"><b>1988-0609 Public Program, Day 2, Kongresshaus, 5, Margaretengürtel 138-140, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "During the Tretā Yuga, at the time of Śhrī Rāma, Ādi Śhakti incarnated in three separate human personalities, expressing Her three aspects:<br>
 <br>
 \; <font color="red">1. Sītā [Jānakī] (Mahālakṣhmī) as the daughter of Rāja Janaka</font><br>

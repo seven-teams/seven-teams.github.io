@@ -1176,6 +1176,20 @@ That was also important part. But that was forgot[ten]!<br>
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">"Now, the Dharma, all the religion that is established by Great Prophets, starting right from Socrates, then Sei [Sāī] Nāth, Janaka, up to Guru Nāṇaka, you can say that that was just to establish the balance within us. Moses, Abraham, all of Them did that. They all tried to give us the idea of balancing, of temperance within us, for our ultimate purification."</font><br>
+<font size="+0"><b>1988-0609 Public Program, Day 2, Kongresshaus, 5, Margaretengürtel 138-140, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "It is very essential for us that we keep a clear head because this could be a [<font color="orange">unclear</font> novel] thing for you.<br>
 If someone had talked about Kuṇḍalinī two hundred years ago, it would not be a new thing.<br>
 In twelfth century A.D., Gyāneśhwara talked about it. Mārkaṇḍeya talked about it, thousands of years ago. <font color="red">Kabīrdas talked about it, the Bible also talks about it, and Nāṇak Sāhab also talked about it.</font><br>
