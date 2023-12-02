@@ -938,7 +938,7 @@ But now, thousands can get their Self-realization, thousands can become Saints.<
 Is such a collective power. It's such a great association which is so subtle and so much one. This is the love which is collective.<br>
 This collective love we have never felt. We have never known this collective love. At the slightest pretext, a brother will fight another brother, the father will fight the mother, all kinds of things will go on.<br>
 But, once you get collectively connected, you become like drops in the ocean, but actually become the ocean.<br>
-It's really not the poetry I'm telling you, is reality I'm talking to [you about]."</font><br>
+It's really not the poetry I'm telling you, is reality I'm talking to [you about]."<br>
 <font size="+0"><b>1999-0616 Public Program (also Follow On to Public Talk to VIPs), The Town Hall, 123 West and 43rd Street, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
