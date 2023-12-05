@@ -77,7 +77,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <iframe src="/pdf/?usedownload=true#/files/1994-0304_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
-<iframe src="/pdf/?usedownload=true#/files/1994-0204_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#/files/1994-0304_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
