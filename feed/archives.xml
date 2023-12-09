@@ -1,6 +1,347 @@
-<?xml version="1.0" encoding="utf-8"?><feed xmlns="http://www.w3.org/2005/Atom" ><generator uri="https://jekyllrb.com/" version="3.9.2">Jekyll</generator><link href="https://seven-teams.github.io/feed/archives.xml" rel="self" type="application/atom+xml" /><link href="https://seven-teams.github.io/" rel="alternate" type="text/html" /><updated>2023-12-09T13:13:05-05:00</updated><id>https://seven-teams.github.io/feed/archives.xml</id><title type="html">Divine Treasures | Archives</title><subtitle>personal description</subtitle><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><entry><title type="html">Data Table</title><link href="https://seven-teams.github.io/archives/table.html" rel="alternate" type="text/html" title="Data Table" /><published>9999-12-31T00:00:00-05:00</published><updated>9999-12-31T00:00:00-05:00</updated><id>https://seven-teams.github.io/archives/tabletest</id><content type="html" xml:base="https://seven-teams.github.io/archives/table.html"><![CDATA[<div class="tableview">
+<?xml version="1.0" encoding="utf-8"?><feed xmlns="http://www.w3.org/2005/Atom" ><generator uri="https://jekyllrb.com/" version="3.9.2">Jekyll</generator><link href="https://seven-teams.github.io/feed/archives.xml" rel="self" type="application/atom+xml" /><link href="https://seven-teams.github.io/" rel="alternate" type="text/html" /><updated>2023-12-09T15:06:30-05:00</updated><id>https://seven-teams.github.io/feed/archives.xml</id><title type="html">Divine Treasures | Archives</title><subtitle>personal description</subtitle><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><entry><title type="html">Data Table</title><link href="https://seven-teams.github.io/archives/table.html" rel="alternate" type="text/html" title="Data Table" /><published>9999-12-31T00:00:00-05:00</published><updated>9999-12-31T00:00:00-05:00</updated><id>https://seven-teams.github.io/archives/tabletest</id><content type="html" xml:base="https://seven-teams.github.io/archives/table.html"><![CDATA[<div class="tableview">
   <iframe class="tableview" src="/tableview/?data=/files/table/data.json&amp;columns=/files/table/meta.json"></iframe>
-</div>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="red @ Archive" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Archive Post 15: The Australian Sahaja Newsletter, Part 2 (1994)</title><link href="https://seven-teams.github.io/archives/2023/1007" rel="alternate" type="text/html" title="Archive Post 15: The Australian Sahaja Newsletter, Part 2 (1994)" /><published>2023-10-07T00:00:00-04:00</published><updated>2023-10-07T00:00:00-04:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post15_The_Australian_Sahaja_Newsletter_Part2_1994</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/1007"><![CDATA[<p>
+</div>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="red @ Archive" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Archive Post 16: Australian Sahaja Newsletter, Part 4 (2000)</title><link href="https://seven-teams.github.io/archives/2023/1217" rel="alternate" type="text/html" title="Archive Post 16: Australian Sahaja Newsletter, Part 4 (2000)" /><published>2023-12-17T00:00:00-05:00</published><updated>2023-12-17T00:00:00-05:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post16_Australian_Sahaja_Newsletter_Part4_2000</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/1217"><![CDATA[<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ Australian Sahaja Newsletter" /><category term="red @ Archive" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Archive Post 16: Australian Sahaja Newsletter, Part 3 (1999)</title><link href="https://seven-teams.github.io/archives/2023/1216" rel="alternate" type="text/html" title="Archive Post 16: Australian Sahaja Newsletter, Part 3 (1999)" /><published>2023-12-16T00:00:00-05:00</published><updated>2023-12-16T00:00:00-05:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post16_Australian_Sahaja_Newsletter_Part3_1999</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/1216"><![CDATA[<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ Australian Sahaja Newsletter" /><category term="red @ Archive" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Archive Post 16: Australian Sahaja Newsletter, Part 2 (1998)</title><link href="https://seven-teams.github.io/archives/2023/1215" rel="alternate" type="text/html" title="Archive Post 16: Australian Sahaja Newsletter, Part 2 (1998)" /><published>2023-12-15T00:00:00-05:00</published><updated>2023-12-15T00:00:00-05:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post16_Australian_Sahaja_Newsletter_Part2_1998</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/1215"><![CDATA[<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ Australian Sahaja Newsletter" /><category term="red @ Archive" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Archive Post 16: Australian Sahaja Newsletter, Part 1 (1997)</title><link href="https://seven-teams.github.io/archives/2023/1214" rel="alternate" type="text/html" title="Archive Post 16: Australian Sahaja Newsletter, Part 1 (1997)" /><published>2023-12-14T00:00:00-05:00</published><updated>2023-12-14T00:00:00-05:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post16_Australian_Sahaja_Newsletter_Part1_1997</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/1214"><![CDATA[<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ Australian Sahaja Newsletter" /><category term="red @ Archive" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Archive Post 15: The Australian Sahaja Newsletter, Part 5 (1997)</title><link href="https://seven-teams.github.io/archives/2023/1213" rel="alternate" type="text/html" title="Archive Post 15: The Australian Sahaja Newsletter, Part 5 (1997)" /><published>2023-12-13T00:00:00-05:00</published><updated>2023-12-13T00:00:00-05:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post15_The_Australian_Sahaja_Newsletter_Part5_1997</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/1213"><![CDATA[<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ The Australian Sahaja Newsletter" /><category term="red @ Archive" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Archive Post 15: The Australian Sahaja Newsletter, Part 4 (1996)</title><link href="https://seven-teams.github.io/archives/2023/1210" rel="alternate" type="text/html" title="Archive Post 15: The Australian Sahaja Newsletter, Part 4 (1996)" /><published>2023-12-10T00:00:00-05:00</published><updated>2023-12-10T00:00:00-05:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post15_The_Australian_Sahaja_Newsletter_Part4_1996</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/1210"><![CDATA[<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ The Australian Sahaja Newsletter" /><category term="red @ Archive" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Archive Post 15: The Australian Sahaja Newsletter, Part 3 (1995)</title><link href="https://seven-teams.github.io/archives/2023/1209" rel="alternate" type="text/html" title="Archive Post 15: The Australian Sahaja Newsletter, Part 3 (1995)" /><published>2023-12-09T00:00:00-05:00</published><updated>2023-12-09T00:00:00-05:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post15_The_Australian_Sahaja_Newsletter_Part3_1995</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/1209"><![CDATA[<p>
+<br />
+Dear Sahaja Yogis and Sahaja Yoginīs,<br />
+<br />
+This post will share issues of The Australian Sahaja Newsletter published in the 3rd year (1995) and received or scanned by the team. This publication was a natural continuation of the Sahaja Newsletter.<br />
+<br />
+Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces).<br />
+<br />
+This is a joint project with Kannan Subrahmanyan from Australia.<br />
+For Part 1, please see <a href="https://seven-teams.github.io/archives/2023/0914"> Part 1</a>.<br />
+For Part 2, please see <a href="https://seven-teams.github.io/archives/2023/1007"> Part 2</a>.<br />
+<br />
+Jay Śhrī Mātājī!<br />
+<br />
+The Archives Subteam<br />
+sahajayoga.compilations@gmail.com<br />
+https://linktr.ee/comprehensivecompilationsteam<br />
+</p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW1.</b></font>
+<p><b>1995-0113 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0113_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0113_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW2.</b></font>
+<p><b>1995-0120 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0120_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0120_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW3.</b></font>
+<p><b>1995-0127 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0127_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0127_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW4.</b></font>
+<p><b>1995-0203 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0203_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0203_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW5.</b></font>
+<p><b>1995-0210 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 4 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0210_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0210_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW6.</b></font>
+<p><b>1995-0310 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0310_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0310_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW7.</b></font>
+<p><b>1995-0317 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0317_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0317_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW8.</b></font>
+<p><b>1995-0414 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0414_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0414_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW9.</b></font>
+<p><b>1995-0428 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0428_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0428_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW10.</b></font>
+<p><b>1995-0505 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0505_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0505_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW11.</b></font>
+<p><b>1995-0512 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0512_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0512_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW12.</b></font>
+<p><b>1995-0526 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0526_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0526_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW13.</b></font>
+<p><b>1995-0602 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0602_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0602_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW14.</b></font>
+<p><b>1995-0609 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0609_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0609_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW15.</b></font>
+<p><b>1995-0616 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0616_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0616_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW16.</b></font>
+<p><b>1995-0630 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 4 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0630_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0630_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW17.</b></font>
+<p><b>1995-0707 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1209 as 2 and 3 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0707_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0707_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW18.</b></font>
+<p><b>1995-0714 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0714_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0714_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW19.</b></font>
+<p><b>1995-0721 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1209 as 1 and 4 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0721_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0721_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW20.</b></font>
+<p><b>1995-0728 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0728_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0728_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW21.</b></font>
+<p><b>1995-0804 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0804_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0804_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW22.</b></font>
+<p><b>1995-0811 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0811_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0811_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW23.</b></font>
+<p><b>1995-0818 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0818_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0818_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW24.</b></font>
+<p><b>1995-0825 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1209 as 2 and 3 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0825_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0825_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW25.</b></font>
+<p><b>1995-0901 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0901_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0901_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW26.</b></font>
+<p><b>1995-0908 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0908_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0908_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW27.</b></font>
+<p><b>1995-0922 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0922_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0922_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW28.</b></font>
+<p><b>1995-0929 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1209 as 2 and 3 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0929_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-0929_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW29.</b></font>
+<p><b>1995-1006 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1006_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1006_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW30.</b></font>
+<p><b>1995-1013 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1013_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1013_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW31.</b></font>
+<p><b>1995-1020 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 4 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1020_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1020_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW32.</b></font>
+<p><b>1995-1027 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 4 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1027_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1027_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW33.</b></font>
+<p><b>1995-1103 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1103_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1103_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW34.</b></font>
+<p><b>1995-1110 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 4 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1110_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1110_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW35.</b></font>
+<p><b>1995-1117 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 4 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1117_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1117_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>
+
+<font color="DarkGreen"><b>1995THEAUSSAHNEW36.</b></font>
+<p><b>1995-1124 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)</p>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1124_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#/files/1995-1124_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ The Australian Sahaja Newsletter" /><category term="red @ Archive" /><summary type="html"><![CDATA[Dear Sahaja Yogis and Sahaja Yoginīs, This post will share issues of The Australian Sahaja Newsletter published in the 3rd year (1995) and received or scanned by the team. This publication was a natural continuation of the Sahaja Newsletter. Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces). This is a joint project with Kannan Subrahmanyan from Australia. For Part 1, please see Part 1. For Part 2, please see Part 2. Jay Śhrī Mātājī! The Archives Subteam sahajayoga.compilations@gmail.com https://linktr.ee/comprehensivecompilationsteam]]></summary></entry><entry><title type="html">Archive Post 15: The Australian Sahaja Newsletter, Part 2 (1994)</title><link href="https://seven-teams.github.io/archives/2023/1007" rel="alternate" type="text/html" title="Archive Post 15: The Australian Sahaja Newsletter, Part 2 (1994)" /><published>2023-10-07T00:00:00-04:00</published><updated>2023-10-07T00:00:00-04:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post15_The_Australian_Sahaja_Newsletter_Part2_1994</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/1007"><![CDATA[<p>
 <br />
 Dear Sahaja Yogis and Sahaja Yoginīs,<br />
 <br />
@@ -506,1081 +847,4 @@ https://linktr.ee/comprehensivecompilationsteam<br />
 
 <iframe src="/pdf/?usedownload=true#/files/1993-1217_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
-<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ The Australian Sahaja Newsletter" /><category term="red @ Archive" /><summary type="html"><![CDATA[Dear Sahaja Yogis and Sahaja Yoginīs, This post will share issues of The Australian Sahaja Newsletter published in the 1st year (1993) and received or scanned by the team. This publication was a natural continuation of the Sahaja Newsletter. Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces). This is a joint project with Kannan Subrahmanyan from Australia. Jay Śhrī Mātājī! The Archives Subteam sahajayoga.compilations@gmail.com https://linktr.ee/comprehensivecompilationsteam]]></summary></entry><entry><title type="html">Archive Post 13: Sahaja Newsletter (Australia), Part 3 (1993)</title><link href="https://seven-teams.github.io/archives/2023/0907" rel="alternate" type="text/html" title="Archive Post 13: Sahaja Newsletter (Australia), Part 3 (1993)" /><published>2023-09-07T00:00:00-04:00</published><updated>2023-09-07T00:00:00-04:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post13_Sahaja_Newsletter_Australia_Part3_1993</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/0907"><![CDATA[<p>
-<br />
-Dear Sahaja Yogis and Sahaja Yoginīs,<br />
-<br />
-This post will share issues of Sahaja Newsletter (Australia) published in the 3rd year (1993) and received or scanned by the team.<br />
-<br />
-Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces).<br />
-<br />
-This is a joint project with Kannan Subrahmanyan from Australia.<br />
-For Part 1, please see <a href="https://seven-teams.github.io/archives/2023/0824-b"> Part 1</a>.<br />
-For Part 2, please see <a href="https://seven-teams.github.io/archives/2023/0831"> Part 2</a>.<br />
-<br />
-Jay Śhrī Mātājī!<br />
-<br />
-The Archives Subteam<br />
-sahajayoga.compilations@gmail.com<br />
-https://linktr.ee/comprehensivecompilationsteam<br />
-</p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS1.</b></font>
-<p><b>1993-0115 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1017 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0115_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0115_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS2.</b></font>
-<p><b>1993-0122 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1017 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0122_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0122_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS3.</b></font>
-<p><b>1993-0129 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1017 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0129_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0129_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS4.</b></font>
-<p><b>1993-0205 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1017 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0205_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0205_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS5.</b></font>
-<p><b>1993-0212 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1017 as 4 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0212_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0212_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS6.</b></font>
-<p><b>1993-0305 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1018 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0305_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0305_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS7.</b></font>
-<p><b>1993-0312 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1018 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0312_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0312_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS8.</b></font>
-<p><b>1993-0319 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1018 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0319_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0319_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS9.</b></font>
-<p><b>1993-0401 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1019 as 13 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0401_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0401_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS10.</b></font>
-<p><b>1993-0409 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1019 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0409_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0409_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS11.</b></font>
-<p><b>1993-0416 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1019 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0416_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0416_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS12.</b></font>
-<p><b>1993-0423 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (16 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1019 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0423_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0423_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS13.</b></font>
-<p><b>1993-0430 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1019 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0430_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0430_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS14.</b></font>
-<p><b>1993-0507 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1102 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0507_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0507_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS15.</b></font>
-<p><b>1993-0514 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1102 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0514_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0514_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS16.</b></font>
-<p><b>1993-0521 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1102 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0521_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0521_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS17.</b></font>
-<p><b>1993-0528 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1102 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0528_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0528_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS18.</b></font>
-<p><b>1993-0604 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1102 as 4 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0604_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0604_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS19.</b></font>
-<p><b>1993-0611 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0611_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0611_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS20.</b></font>
-<p><b>1993-0618 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0618_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0618_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS21.</b></font>
-<p><b>1993-0625 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0625_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0625_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS22.</b></font>
-<p><b>1993-0702 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0702_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0702_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS23.</b></font>
-<p><b>1993-0709 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0709_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0709_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS24.</b></font>
-<p><b>1993-0716 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0716_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0716_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS25.</b></font>
-<p><b>1993-0723 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0723_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0723_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS26.</b></font>
-<p><b>1993-0730 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0730_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0730_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS27.</b></font>
-<p><b>1993-0806 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 4 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0806_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0806_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS28.</b></font>
-<p><b>1993-0813 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 4 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0813_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0813_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS29.</b></font>
-<p><b>1993-0820 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0820_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0820_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS30.</b></font>
-<p><b>1993-0827 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0827_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0827_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS31.</b></font>
-<p><b>1993-0903 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0903_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0903_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1993SAHNEWAUS32.</b></font>
-<p><b>1993-0910 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0907 as 2 pages and on 2023-1103 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0910_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1993-0910_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ Sahaja Newsletter (Australia)" /><category term="red @ Archive" /><summary type="html"><![CDATA[Dear Sahaja Yogis and Sahaja Yoginīs, This post will share issues of Sahaja Newsletter (Australia) published in the 3rd year (1993) and received or scanned by the team. Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces). This is a joint project with Kannan Subrahmanyan from Australia. For Part 1, please see Part 1. For Part 2, please see Part 2. Jay Śhrī Mātājī! The Archives Subteam sahajayoga.compilations@gmail.com https://linktr.ee/comprehensivecompilationsteam]]></summary></entry><entry><title type="html">Archive Post 13: Sahaja Newsletter (Australia), Part 2 (1992)</title><link href="https://seven-teams.github.io/archives/2023/0831" rel="alternate" type="text/html" title="Archive Post 13: Sahaja Newsletter (Australia), Part 2 (1992)" /><published>2023-08-31T00:00:00-04:00</published><updated>2023-08-31T00:00:00-04:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post13_Sahaja_Newsletter_Australia_Part2_1992</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/0831"><![CDATA[<p>
-<br />
-Dear Sahaja Yogis and Sahaja Yoginīs,<br />
-<br />
-This post will share issues of Sahaja Newsletter (Australia) published in the 2nd year (1992) and received or scanned by the team.<br />
-<br />
-Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces).<br />
-<br />
-This is a joint project with Kannan Subrahmanyan from Australia.<br />
-For Part 1, please see <a href="https://seven-teams.github.io/archives/2023/0824-b"> Part 1</a>.<br />
-<br />
-Jay Śhrī Mātājī!<br />
-<br />
-The Archives Subteam<br />
-sahajayoga.compilations@gmail.com<br />
-https://linktr.ee/comprehensivecompilationsteam<br />
-</p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS1.</b></font>
-<p><b>1992-0110 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (16 pages, scanned file, uploaded on 2023-0831 as 4 pages and on 2023-1003 as 10 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0110_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0110_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS2.</b></font>
-<p><b>1992-0124 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1003 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0124_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0124_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS3.</b></font>
-<p><b>1992-0131 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-0929)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0131_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS4.</b></font>
-<p><b>1992-0207 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-0929)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0207_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS5.</b></font>
-<p><b>1992-0313 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-0929)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0313_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS6.</b></font>
-<p><b>1992-0320 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-0929)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0320_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS7.</b></font>
-<p><b>1992-0327 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-0929 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0327_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0327_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS8.</b></font>
-<p><b>1992-0403 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-0929)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0403_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS9.</b></font>
-<p><b>1992-0410 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1002 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0410_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0410_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS10.</b></font>
-<p><b>1992-0424 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (12 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-0929 as 9 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0424_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0424_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS11.</b></font>
-<p><b>1992-0501 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1009 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0501_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0501_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS12.</b></font>
-<p><b>1992-0508 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1010 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0508_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0508_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS13.</b></font>
-<p><b>1992-0515 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1010 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0515_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0515_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS14.</b></font>
-<p><b>1992-0522 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1010 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0522_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0522_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS15.</b></font>
-<p><b>1992-0529 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1010 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0529_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0529_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS16.</b></font>
-<p><b>1992-0605 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1011 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0605_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0605_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS17.</b></font>
-<p><b>1992-0612 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1011 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0612_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0612_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS18.</b></font>
-<p><b>1992-0619 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1011 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0619_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0619_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS19.</b></font>
-<p><b>1992-0626 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1011 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0626_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0626_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS20.</b></font>
-<p><b>1992-0703 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1012 as 6 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0703_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0703_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS21.</b></font>
-<p><b>1992-0710 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1012 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0710_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0710_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS22.</b></font>
-<p><b>1992-0731 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1012 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0731_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0731_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS23.</b></font>
-<p><b>1992-0807 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1012 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0807_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0807_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS24.</b></font>
-<p><b>1992-0814 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1012 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0814_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0814_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS25.</b></font>
-<p><b>1992-0828 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1012 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0828_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0828_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-<p><br /></p>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS26.</b></font>
-<p><b>1992-0904 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1012 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0904_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0904_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS27.</b></font>
-<p><b>1992-0911 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (12 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1012 as95 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0911_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0911_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS28.</b></font>
-<p><b>1992-0918 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1012 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0918_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0918_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS29.</b></font>
-<p><b>1992-0925 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1012 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0925_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-0925_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS30.</b></font>
-<p><b>1992-1002 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1014 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1002_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1002_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS31.</b></font>
-<p><b>1992-1009 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1014 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1009_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1009_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS32.</b></font>
-<p><b>1992-1016 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1014 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1016_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1016_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS33.</b></font>
-<p><b>1992-1023 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1014 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1023_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1023_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS34.</b></font>
-<p><b>1992-1030 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1014 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1030_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1030_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS35.</b></font>
-<p><b>1992-1106 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1014 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1106_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1106_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS36.</b></font>
-<p><b>1992-1113 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1014 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1113_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1113_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS37.</b></font>
-<p><b>1992-1120 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1014 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1120_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1120_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS38.</b></font>
-<p><b>1992-1127 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1014 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1127_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1127_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS39.</b></font>
-<p><b>1992-1204 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1004 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1204_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1204_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1992SAHNEWAUS40.</b></font>
-<p><b>1992-1211 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0831 as 2 pages and on 2023-1004 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1211_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1992-1211_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ Sahaja Newsletter (Australia)" /><category term="red @ Archive" /><summary type="html"><![CDATA[Dear Sahaja Yogis and Sahaja Yoginīs, This post will share issues of Sahaja Newsletter (Australia) published in the 2nd year (1992) and received or scanned by the team. Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces). This is a joint project with Kannan Subrahmanyan from Australia. For Part 1, please see Part 1. Jay Śhrī Mātājī! The Archives Subteam sahajayoga.compilations@gmail.com https://linktr.ee/comprehensivecompilationsteam]]></summary></entry><entry><title type="html">Archive Post 14: Official Photos with Text</title><link href="https://seven-teams.github.io/archives/2023/0829" rel="alternate" type="text/html" title="Archive Post 14: Official Photos with Text" /><published>2023-08-29T00:00:00-04:00</published><updated>2023-08-29T00:00:00-04:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post14_Official_Photos_with_Text</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/0829"><![CDATA[<p>
-<br />
-Dear Sahaja Yogis and Sahaja Yoginīs,<br />
-<br />
-This post will share Official Photos with Text that have been received or scanned by the team.<br />
-<br />
-Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces).<br />
-<br />
-Jay Śhrī Mātājī!<br />
-<br />
-The Archives Subteam<br />
-sahajayoga.compilations@gmail.com<br />
-https://linktr.ee/comprehensivecompilationsteam<br />
-</p>
-
-<font color="DarkGreen"><b>OPT1.</b></font>
-<p><b>1951-0107 Group Photo, Farewell of Shri C.P. Srivastava I.A.S. City Magistrate Lucknow on the Eve of His Transfer as Additional District Magistrate Meerut, Lucknow, Uttar Pradesh, India (Mrs. Kalpana Srivastava Collection)</b> (1 page, uploaded on 2023-0829)</p>
-
-<div style="text-align: center"><img src="/images/1951-0107_Group_Photo,_Farewell_of_Shri_C.P._Srivastava_I.A.S._City_Magistrate,_Lucknow,_Uttar_Pradesh,_India_(Mrs._Kalpana_Srivastava_Collection).jpeg" /></div>
-
-<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ Official Photos with Text" /><category term="red @ Archive" /><summary type="html"><![CDATA[Dear Sahaja Yogis and Sahaja Yoginīs, This post will share Official Photos with Text that have been received or scanned by the team. Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces). Jay Śhrī Mātājī! The Archives Subteam sahajayoga.compilations@gmail.com https://linktr.ee/comprehensivecompilationsteam]]></summary></entry><entry><title type="html">Archive Special Post 1: Articles Honoring Sir C.P.</title><link href="https://seven-teams.github.io/archives/2023/0826" rel="alternate" type="text/html" title="Archive Special Post 1: Articles Honoring Sir C.P." /><published>2023-08-26T00:00:00-04:00</published><updated>2023-08-26T00:00:00-04:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Special_Post1_Articles%20Honoring_Sir_C.P.</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/0826"><![CDATA[<p>
-<br />
-Dear Sahaja Yogis and Sahaja Yoginīs,<br />
-<br />
-This post will share articles that honor Sir C.P. and that are received or scanned by the team.<br />
-<br />
-Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces).<br />
-<br />
-<br />
-Jay Śhrī Mātājī!<br />
-<br />
-The Archives Subteam<br />
-sahajayoga.compilations@gmail.com<br />
-https://linktr.ee/comprehensivecompilationsteam<br />
-</p>
-
-<font color="DarkGreen"><b>AHSIRCP1.</b></font>
-<p><b>1971-1114 On the November 12 Event with the Soviet Shipping Delegation Published in The Economic Times, Mumbai, India (Mrs. Kalpana Srivastava Collection)</b> (1 page, uploaded on 2023-0826)</p>
-
-<div style="text-align: center"><img src="/images/1971-1114_On_the_November_12_Event_with_the_Soviet_Shipping_Delegation_Published_in_The_Economic Times,_Mumbai,_India_(Mrs._Kalpana_Srivastava_Collection).jpeg" /></div>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>AHSIRCP2.</b></font>
-<p><b>1987-0724 Article ‘C.P. Srivastava honoured’ (Mrs. Kalpana Srivastava Collection)</b> (1 page, uploaded on 2023-0826)</p>
-
-<div style="text-align: center"><img src="/images/1987-0724_Article_'C.P._Srivastava_honoured'_(Mrs._Kalpana_Srivastava_Collection).jpeg" /></div>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>AHSIRCP3.</b></font>
-<p><b>1989-1230 Article ‘CP Retires’ (Mrs. Kalpana Srivastava Collection)</b> (1 page, uploaded on 2023-0826)</p>
-
-<div style="text-align: center"><img src="/images/1989-1230_Article_'CP_Retires'_(Mrs._Kalpana_Srivastava_Collection).jpeg" /></div>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>AHSIRCP4.</b></font>
-<p><b>1990-0713 Article ‘A great honour for Dr. Srivastava’ (Mrs. Kalpana Srivastava Collection)</b> (1 page, uploaded on 2023-0826)</p>
-
-<div style="text-align: center"><img src="/images/1990-0713_Article_'A_great_honour_for_Dr._Srivastava'_(Mrs._Kalpana_Srivastava_Collection).jpeg" /></div>
-
-<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="peru @ Specials Posts" /><category term="red @ Archive" /><summary type="html"><![CDATA[Dear Sahaja Yogis and Sahaja Yoginīs, This post will share articles that honor Sir C.P. and that are received or scanned by the team. Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces). Jay Śhrī Mātājī! The Archives Subteam sahajayoga.compilations@gmail.com https://linktr.ee/comprehensivecompilationsteam]]></summary></entry><entry><title type="html">Archive Post 13: Sahaja Newsletter (Australia), Part 1 (1991)</title><link href="https://seven-teams.github.io/archives/2023/0824-b" rel="alternate" type="text/html" title="Archive Post 13: Sahaja Newsletter (Australia), Part 1 (1991)" /><published>2023-08-24T00:00:00-04:00</published><updated>2023-08-24T00:00:00-04:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post13_Sahaja_Newsletter_Australia_Part1_1991</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/0824-b"><![CDATA[<p>
-<br />
-Dear Sahaja Yogis and Sahaja Yoginīs,<br />
-<br />
-This post will share issues of Sahaja Newsletter (Australia) published in the 1st year (1991) and received or scanned by the team.<br />
-<br />
-Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces).<br />
-<br />
-This is a joint project with Kannan Subrahmanyan from Australia.<br />
-<br />
-Jay Śhrī Mātājī!<br />
-<br />
-The Archives Subteam<br />
-sahajayoga.compilations@gmail.com<br />
-https://linktr.ee/comprehensivecompilationsteam<br />
-</p>
-
-<font color="DarkGreen"><b>1991SAHNEWAUS1.</b></font>
-<p><b>1991-1004 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824 as 2 pages and on 2023-0921 as 8 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1991-1004_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1991-1004_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1991SAHNEWAUS2.</b></font>
-<p><b>1991-1025 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824 as 2 pages and on 2023-0922 as 8 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1991-1025_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1991-1025_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1991SAHNEWAUS3.</b></font>
-<p><b>1991-1115 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824 and on 2023-0923 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1991-1115_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1991-1115_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1991SAHNEWAUS4.</b></font>
-<p><b>1991-1122 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824 and on 2023-0924 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1991-1122_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1991-1122_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>1991SAHNEWAUS5.</b></font>
-<p><b>1991-1129 Sahaja Newsletter (Australia) (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-0824 and on 2023-0925 as 5 pages)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1991-1129_Sahaja_Newsletter_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#/files/1991-1129_Sahaja_Newsletter_Vertical_Single_Pages_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ Sahaja Newsletter (Australia)" /><category term="red @ Archive" /><summary type="html"><![CDATA[Dear Sahaja Yogis and Sahaja Yoginīs, This post will share issues of Sahaja Newsletter (Australia) published in the 1st year (1991) and received or scanned by the team. Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces). This is a joint project with Kannan Subrahmanyan from Australia. Jay Śhrī Mātājī! The Archives Subteam sahajayoga.compilations@gmail.com https://linktr.ee/comprehensivecompilationsteam]]></summary></entry><entry><title type="html">Archive Post 12: Newsletter (Australia)</title><link href="https://seven-teams.github.io/archives/2023/0824-a" rel="alternate" type="text/html" title="Archive Post 12: Newsletter (Australia)" /><published>2023-08-24T00:00:00-04:00</published><updated>2023-08-24T00:00:00-04:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post12_Newsletter_Australia</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/0824-a"><![CDATA[<p>
-<br />
-Dear Sahaja Yogis and Sahaja Yoginīs,<br />
-<br />
-This post will share issues of Newsletter (Australia) published in 1989 and received or scanned by the team.<br />
-<br />
-Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces).<br />
-<br />
-This is a joint project with Kannan Subrahmanyan from Australia.<br />
-<br />
-Jay Śhrī Mātājī!<br />
-<br />
-The Archives Subteam<br />
-sahajayoga.compilations@gmail.com<br />
-https://linktr.ee/comprehensivecompilationsteam<br />
-</p>
-
-<font color="DarkGreen"><b>NEWAUS1.</b></font>
-<p><b>1989-1027 Newsletter No. 1 (Australia) (Sue Raggatt Collection)</b> (6 pages, scanned file, uploaded on 2023-0824)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1989-1027_Newsletter_No._1_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>NEWAUS2.</b></font>
-<p><b>1989-1103 Newsletter No. 2 (Australia) (Sue Raggatt Collection)</b> (2 pages, scanned file, uploaded on 2023-0824)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1989-1103_Newsletter_No._2_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>NEWAUS3.</b></font>
-<p><b>1989-1117 Newsletter No. 4 (Australia) (Sue Raggatt Collection)</b> (2 pages, scanned file, uploaded on 2023-0824)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/1989-1117_Newsletter_No._4_(Australia)_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ Newsletter (Australia)" /><category term="red @ Archive" /><summary type="html"><![CDATA[Dear Sahaja Yogis and Sahaja Yoginīs, This post will share issues of Newsletter (Australia) published in 1989 and received or scanned by the team. Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces). This is a joint project with Kannan Subrahmanyan from Australia. Jay Śhrī Mātājī! The Archives Subteam sahajayoga.compilations@gmail.com https://linktr.ee/comprehensivecompilationsteam]]></summary></entry><entry><title type="html">Archive Post 10: Sahaja Yoga Australian Newsletter, Part 1 (2000)</title><link href="https://seven-teams.github.io/archives/2023/0821" rel="alternate" type="text/html" title="Archive Post 10: Sahaja Yoga Australian Newsletter, Part 1 (2000)" /><published>2023-08-21T00:00:00-04:00</published><updated>2023-08-21T00:00:00-04:00</updated><id>https://seven-teams.github.io/archives/2023/Archives_Post10_Sahaja_Yoga_Australian_Newsletter_Part1_2000</id><content type="html" xml:base="https://seven-teams.github.io/archives/2023/0821"><![CDATA[<p>
-Dear Sahaja Yogis and Sahaja Yoginīs,<br />
-<br />
-This post will share issues of Sahaja Yoga Australian Newsletter published in the 1st year (2000) and received or scanned by the team.<br />
-<br />
-Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces).<br />
-This is a joint project with Kannan Subrahmanyan from Australia.<br />
-For Part 2, please see <a href="https://seven-teams.github.io/archives/2023/0820"> Part 2</a>.<br />
-For Part 3, please see <a href="https://seven-teams.github.io/archives/2023/0817"> Part 3</a>.<br />
-For Part 4, please see <a href="https://seven-teams.github.io/archives/2023/0727"> Part 4</a>.<br />
-For Part 5, please see <a href="https://seven-teams.github.io/archives/2023/0706-a"> Part 5</a>.<br />
-<br />
-Jay Śhrī Mātājī!<br />
-<br />
-The Archives Subteam<br />
-sahajayoga.compilations@gmail.com<br />
-https://linktr.ee/comprehensivecompilationsteam<br />
-</p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW1.</b></font>
-<p><b>2000-0200 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (marked as 0218, 6 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0200_Sahaja_Yoga_Australian_Newsletter_(0218)_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW2.</b></font>
-<p><b>2000-0200 Sahaja Yoga Australian Newsletter, Version 2 (Gerald Sullivan Collection)</b> (marked as 0218, 6 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0200_Sahaja_Yoga_Australian_Newsletter_Version_2_(0218)_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW3.</b></font>
-<p><b>2000-0200 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (marked as 0224, 7 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0200_Sahaja_Yoga_Australian_Newsletter_(0224)_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW4.</b></font>
-<p><b>2000-0303 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (11 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0303_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW5.</b></font>
-<p><b>2000-0310 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (5 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0310_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW6.</b></font>
-<p><b>2000-0317 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0317_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW7.</b></font>
-<p><b>2000-0324 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0324_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW8.</b></font>
-<p><b>2000-0331 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0331_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW9.</b></font>
-<p><b>2000-0407 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (5 pages, original file, uploaded on 2023-0821) [Warning: Page 4 is empty.]</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0407_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW10.</b></font>
-<p><b>2000-0414 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (7 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0414_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW11.</b></font>
-<p><b>2000-0428 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (8 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0428_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW12.</b></font>
-<p><b>2000-0512 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (9 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0512_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW13.</b></font>
-<p><b>2000-0526 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (8 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0526_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW14.</b></font>
-<p><b>2000-0602 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (5 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0602_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW15.</b></font>
-<p><b>2000-0609 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (9 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0609Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW16.</b></font>
-<p><b>2000-0616 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (7 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0616_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW17.</b></font>
-<p><b>2000-0623 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (8 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0623_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW18.</b></font>
-<p><b>2000-0630 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (3 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0630_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW19.</b></font>
-<p><b>2000-0707 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (3 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0707_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW20.</b></font>
-<p><b>2000-0804 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (11 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0804_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW21.</b></font>
-<p><b>2000-0818 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (8 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0818_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW22.</b></font>
-<p><b>2000-0901 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (8 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-0901_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW23.</b></font>
-<p><b>2000-1006 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (5 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-1006_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW24.</b></font>
-<p><b>2000-1013 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (8 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-1013_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW25.</b></font>
-<p><b>2000-1020 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (10 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-1020_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW26.</b></font>
-<p><b>2000-1103 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-1103_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW27.</b></font>
-<p><b>2000-1110 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (8 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-1110_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW28.</b></font>
-<p><b>2000-1117 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-1117_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW29.</b></font>
-<p><b>2000-1124 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-1124_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW30.</b></font>
-<p><b>2000-1201 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (5 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-1201_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW31.</b></font>
-<p><b>2000-1208 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-1208_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW32.</b></font>
-<p><b>2000-1215 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-1215_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>
-
-<font color="DarkGreen"><b>2000SYAUSNEW33.</b></font>
-<p><b>2000-1222 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (4 pages, original file, uploaded on 2023-0821)</p>
-
-<iframe src="/pdf/?usedownload=true#/files/2000-1222_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ Sahaja Yoga Australian Newsletter" /><category term="red @ Archive" /><summary type="html"><![CDATA[Dear Sahaja Yogis and Sahaja Yoginīs, This post will share issues of Sahaja Yoga Australian Newsletter published in the 1st year (2000) and received or scanned by the team. Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces). This is a joint project with Kannan Subrahmanyan from Australia. For Part 2, please see Part 2. For Part 3, please see Part 3. For Part 4, please see Part 4. For Part 5, please see Part 5. Jay Śhrī Mātājī! The Archives Subteam sahajayoga.compilations@gmail.com https://linktr.ee/comprehensivecompilationsteam]]></summary></entry></feed>
+<p><br /></p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="darkblue @ The Australian Sahaja Newsletter" /><category term="red @ Archive" /><summary type="html"><![CDATA[Dear Sahaja Yogis and Sahaja Yoginīs, This post will share issues of The Australian Sahaja Newsletter published in the 1st year (1993) and received or scanned by the team. This publication was a natural continuation of the Sahaja Newsletter. Please enjoy and kindly share with all our brothers and sisters. If files are downloaded using the download buttons/arrows, please kindly do not change the names of the files (modulo replacements of underscores by spaces). This is a joint project with Kannan Subrahmanyan from Australia. Jay Śhrī Mātājī! The Archives Subteam sahajayoga.compilations@gmail.com https://linktr.ee/comprehensivecompilationsteam]]></summary></entry></feed>
