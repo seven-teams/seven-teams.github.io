@@ -766,7 +766,7 @@ So it should not be difficult for us to understand the deeper meanings of our li
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now, Śhrī Rāma is a character, I would say, which is-ss full of balance, absolutely. <font color="red">He's the Benevolent King which Socrates has described.</font> So He needed somebody with Him all the time to do the work or to supply Him or to help Him, like a secretary you can call Him, and Śhrī Hanumāna was-ss the one who was created for this purpose."<br>
 <font size="+0"><b>1990-0831 Śhrī Hanumāna Pūjā, Electromagnetic Force, Schloss Schwetzingen, Frankfurt, Hesse, Germany</b></font>
 </p>
 
@@ -787,28 +787,43 @@ So it should not be difficult for us to understand the deeper meanings of our li
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<b>Version 1:</b>
+"You know that Śhrī Rāma has a very important place on our chakra, He is situated on our right Heart. Śhrī Rāma has taken the place of father, hence if there is lack in the responsibility or love from father this chakra is caught.<br>
+In Sahaja Yoga we too understand that Śhrī Rāma and all other Deities have taken the form to fulfill Their divine work, in all Śhrī Rāma had a special task. <font color="red">As it was said by Socrates that the Benevolent King has to come the same way Śhrī Rāma had come on this Earth as benevolent king, He came in the form of human being, He even forgot that He was Incarnation of Śhrī Viṣhṇu, forgot about Him but for all world He was Puruṣhottama Rāma.</font>"<br>  
+<br>
+<b>Version 12:</b>
+"As you know that Śhrī Rāma has taken a very important place in our chakras. He is sitting on our right Heart. Śhrī Rāma has taken a place of a father, so lack of father's duty and love can cause a catch of this chakra.<br>
+In Sahaja Yoga we can understand that Rāma and all other Gods came on Earth with different powers [śhakti], they came to do their jobs. In the sense Śhrī Rāma has a special job. <font color="red">Socrates has said [that the] benevolent king has to come.</font> For that Śhrī Rāma came."<br>  
 <font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi) (the day after Rāma Navamī Day), If You Believe in Śhrī Rāma Follow His Ideal (Our Nature Can Change because He Is Our Ideal and You All Become Ideals for this World), Kolkata, West Bengal, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> But uh he [Gorbachev] has seen the point quite all right: that this kind of extreme regimentation of communism doesn't help. Also he sees the point what's wrong with democracy. So he doesn't want to go to that extent of democratic life, like America is where is complete abandonment and they have got so many problems because of this kind of-phs freedom which is just license.<br>
+<b>Lady interviewer:</b> Yea.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> So, he is a balanced person.<br>
+<b>Lady interviewer:</b> Mh-hm.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> And as well righteousness in his own character, everything, extremely righteous man. 
+<b>Lady interviewer:</b> Right.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Like uh, you see, you should say that Socrates says-ss ... described that we should have benevolent kings, you see.</font> So he believes in benevolence.<br>
+And the way how he has ... uh-uh-uh crossed all these hurdles one by one is very surprising.<br>
 <font size="+0"><b>1991-0404 Interview with a Lady Journalist, Airport, Brisbane, Queensland, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So, in the introspection you find out: what's gone wrong with you, how you are made this way. `What's-ss wrong in my own personality? It has come from all the surroundings and the way people have been putting ideas into my head.'<br>
+You should have your own ideas! <font color="red">You shouldn't worry about Plato said and what Socrates said and what this thing said.</font> What do you think? After all you are enlightened people."<br>
 <font size="+0"><b>1991-0728 Guru Pūjā, Four Psychological Problems, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So this, in this stage that people tried to murder these great Saints: like Socrates, like uh we know everybody had to suffer so much.</font> Because nobody uh in the collective liked Saints or goodness or righteousness.<br>
+That's how we had fallen down so much. At the time, as you know, in the time of Moses, what happened."<br>
 <font size="+0"><b>1991-1009 Talk to Sahaja Yogis (2nd Day of Navarātri), Creation, From Swādhiṣhṭhān ..., Palazzo Doria, Cabella Ligure, Alessandria, Italy}</b></font>
 </p>
 

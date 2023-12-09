@@ -840,6 +840,21 @@ Their job was just to give awakening to people."<br>
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"So this, in this stage that people tried to murder these great Saints: like Socrates, like uh we know everybody had to suffer so much.</font> Because nobody uh in the collective liked Saints or goodness or righteousness.<br>
+That's how we had fallen down so much. At the time, as you know, in the time of Moses, what happened."<br>
+<font size="+0"><b>1991-1009 Talk to Sahaja Yogis (2nd Day of Navarātri), Creation, From Swādhiṣhṭhān ..., Palazzo Doria, Cabella Ligure, Alessandria, Italy}</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "In every religion there is some sort of a stupid stuff pushed forward, in every. Nobody could really stop it. Because those people who are in charge of religion have no enlightenment, they have nothing to k... do with it, anywhere.<br>
 And that's how, I have seen, people, say, in Japan, they follow one religion, and in uh-uh-uh China they follow another religion, both are just the same: one is Zen, another is Tao. But the misunderstanding is that they think, 'We are ex-xu-xu-xclusive [exclusive].' They are not! None of them are exclusive!.<br>
 <font color="red">Muhammad Sāhab described all of Them: from Abraham to Moses, to Christ, to the Mother of Christ. And He said, :There have been more than one lākh Nabīs on this Earth."</font><br>
