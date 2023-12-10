@@ -14,7 +14,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b>England Is Going To Be The Jerusalem</b><br></font>
+<font size="+2"><b>England Is Going To Be The Jerusalem</b></font>
 </p>
 
 <p>
