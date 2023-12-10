@@ -814,7 +814,7 @@ And the way how he has ... uh-uh-uh crossed all these hurdles one by one is very
 <div class="para-divider"></div>
 
 <p>
-"So, in the introspection you find out: what's gone wrong with you, how you are made this way. `What's-ss wrong in my own personality? It has come from all the surroundings and the way people have been putting ideas into my head.'<br>
+"So, in the introspection you find out: what's gone wrong with you, how you are made this way. 'What's-ss wrong in my own personality? It has come from all the surroundings and the way people have been putting ideas into my head.'<br>
 You should have your own ideas! <font color="red">You shouldn't worry about Plato said and what Socrates said and what this thing said.</font> What do you think? After all you are enlightened people."<br>
 <font size="+0"><b>1991-0728 Guru Pūjā, Four Psychological Problems, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
@@ -870,14 +870,36 @@ And this represents ten valencies, like Ten Commandments. Carbon has got four va
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"This Mister Freud is also another horrible fellow. He ... he was respected more than even Christ in the West. And they followed him more than they could follow Christ.<br>
+These are funny intellectuals: they take out some yarn out of their head, write books. Even, right from, I would say, from Tolstoy, even ... so many people in every country have taken out some sort of a yarn and have impressed people.<br>
+[During the Dutch (first) transation:] Oh, I am sorry: not Tolstoy.<br>
+<font color="red">But uh ... who was the disciple of uh this thing? Uh-uh-uh Socrates?</font><br>
+<b>Sahaja Yogi:</b> Plato.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> The first disciple?<br>
+<b>Another Sahaja Yogi:</b> Plato? Plato, Śhrī Mātājī? Plato.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Yes, uh?<br>
+<b>Same Sahaja Yogi:</b> Plato, Śhrī Mātājī?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Hāṃ [yes]! Yes, it's him. I mean, he is the one, who really has twsited the whole thing."<br>
 <font size="+0"><b>1992-0703 Public Program, Day 1, Ballroom, Hotel Metropole, Pl. De Brouckère 31, Brussels, Belgium</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"And sometimes I make mistakes like: suddenly, I don't know why, I ... Aristotle I ph-confused with Tolstoy, I don't know why. Tolstoy came into My mind, though I don't think [laughing:] Tols[toy] I was anywhere near Aristotle or Aristotle was any near like that. But I did commit mistake and I've been thinking, 'Why? Why it was so?'<br>
+Still, it is very important. Even these people, you see, uh-uah-uah when they are described, like, you see, Aristotle had no influence on Tolstoy at all, is a fact. He had no influence.<br>
+Bu[t] Aristotle was a man with politics and all that and he displaced all the philosophy on one side.<br>
+Here is Tolstoy who tried to show how a person can resurrect.<br>
+I don't know if you have read him or not, but I think he is one of the great writers of those days.<br>
+And the other day only I was comparing both of them, and I said, "Look at this man! He is absolutely different from Aristotle, absolutely: two ends of the thing we can say. And how is it that he never read Aristotle? He was such a learned man, he never read Aristotle."<br>
+Then I just felt it's a Russian mind. And Russian mind is extremely introspective.<br>
+And this introspection was missing in Mister Aristotle, was taking out everything out of his head, the yarn, and putting people on the other line altogether of this politics.<br>
+Plato was even, in a way, worse than him, but this one is another.<br>
+<font color="red">So Socrates was finished! And Aristotle became everything.</font><br>
+But because I have been judging both of them on their merits, that how is it Tolstoy? Because Tolstoy was a born realized Soul. So he saw life very differently.<br>
+If you have read Anna Karenina, there they have shown this lady, Anna Karenina, carrying on with another man, when she was a married lady, and her husband very tolerant, working very hard and all that, and could not give her sufficient time so she thought she has a right to be romantic. And then at the end he [Tolstoy] proves that she was never happy. But the ... her husband was very peaceful, very forgiving. But she was never happy, and ultimately she had to commit suicide.<br>
+I mean these are old writers, who used to write like this, specially those who were realized Souls.<br>
+But if you give the same thing to somebody who is a modern writer, he would show that the husband committed suicide, not the wife. [Some soft laughter.]"<br>
 <font size="+0"><b>1992-0704 Śhrī Viṣhṇumāyā Pūjā, Viṣhṇumāyā's Powers, Āśhram, Everbeek, Belgium</b></font>
 </p>
 
@@ -891,7 +913,9 @@ And this represents ten valencies, like Ten Commandments. Carbon has got four va
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"We have had lots of good people, during this short time if you see. See, if you see, Mahātmā Gāndhī was there's, Martin Luther was there, all kinds of people you see uh-uh-uh all over, uh Abraham Lincoln was there, uh George Washington was there, we have uh William Blake was there, uh we had Shakespeare.<br>
+<font color="red">All this, this time, you see in the literature, in every way, Lao Tze, then we had uh-uh-uh Socrates. Will start from Socrates to today, we have had lots of philosopher[s], lots of people who talked about [a] higher life.</font><br>
+Despite that, people were thinking, 'These are some absurd people, there's nothing in it now, too much to understand.' Nobody would read anything about, uh-uh-uh say, Guru Gītā they would not. They would think a, 'What's this nonsense? What's the use? It's all humbug going on,' like that."<br>
 <font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -919,7 +943,8 @@ And this represents ten valencies, like Ten Commandments. Carbon has got four va
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">You might have heard of many people, Socrates [], is Hazarat Nizamuddin Sahāb [], that they were in such a position that they were given an ultimatum: 'Tomorrow, if you don't bow your head before us, we will cut your head off.'</font> Then what happened was that the head of that king itself was cut off at night.<br>
+Who did that? Not these people. It might have been done by their disciples, who cut off the head of the king, someone must have done it."<br>
 <font size="+0"><b>1995-1205 Śhrī Ādi Śhakti Pūjā (Hindi), The Śhakti of Satya Yuga, New Delhi, India</b></font>
 </p>
 
@@ -967,7 +992,7 @@ It's really not the poetry I'm telling you, is reality I'm talking to [you about
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"In your great country, you had a person like Socrates. We never understood: what great person He was, and what He wanted, because people who were in charge, perhaps, were jealous of Him. We can't explain: a man, who is today accepted as a very Great Personality, was condemned to death at that time. Maybe, that time our awareness was very low! That we could not understand a man of that level."</font><br>
 <font size="+0"><b>2001-1023 Public Program, Novotel Athenes, 4, Michail Voda Str, Athens, Greece</b></font>
 </p>
 

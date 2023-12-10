@@ -1,7 +1,7 @@
 ---
 title: '2023 Birthday Centenary of H. H. Shri Mataji Nirmala Devi, Post 34 on the Birthday of Śhrī William Blake'
 date: 2023-11-28
-permalink: /yearly/2023/0130
+permalink: /yearly/2023/1128
 tags:
   - crimson @ Birthday Centenary
   - peru @ Birthday of Śhrī William Blake
@@ -32,7 +32,7 @@ And that Jerusalem is going to be in England, not in India. And you are the peop
 </p>
 
 <p>
-"I would say Blake, William Blake, you read Him! You will be amazed! He is talking of today in His book `Milton'. He is talking of Jerusalem of today, this place, this England is going to be the Jerusalem, is the pilgrimage, where the people of God are going to be the Prophets. He has talked of today, can you imagine‽ He was not very old, He was not very ancient: very modern. He has prophesized about these days and it is happening. "<br>
+"I would say Blake, William Blake, you read Him! You will be amazed! He is talking of today in His book `Milton'. He is talking of Jerusalem of today, this place, this England is going to be the Jerusalem, is the pilgrimage, where the people of God are going to be the Prophets. He has talked of today, can you imagine‽ He was not very old, He was not very ancient: very modern. He has prophesized about these days and it is happening."<br>
 <font color="blue"><b>1980-1124 Public Program, Are You Seekers, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font><br>
 </p>
 

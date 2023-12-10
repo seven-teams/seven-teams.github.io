@@ -1337,8 +1337,8 @@ Nitamba prāg-bhāraḥ sthagayati laghutvaṁ nayati cha</font>
 
 <p>
 <b>81 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Pārvatī! the King of the Mountains bestowed on Thee, by way of dowry, heaviness and vastness taken out of his flanks. Hence these, Thy prodigious hips, being (both) broad and heavy, hide from view the entire terrestrial world and make it light as well.</font><br>
+<font color="blue">O Pārvatī! Thy father, the Mountain-king, gave the weight and extensiveness of his flanks to Thee as dowry at the the time of Thy marriage. It is for this reason that Thy hips, covering the Earth, have become more extensive than it, and excelling it in weight, rendered it lighter in comparison.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1353,8 +1353,8 @@ Vidhigñye jānubhyāṁ vibudha kari-kumbha dvayam asi</font>
 
 <p>
 <b>82 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Daughter of the Mountain! having surpassed alike the trunks of lordly elephants and the clusters of golden plantain stumps with Thy thighs, Thou hast likewise surpassed the pair of frontal globes of the divine elephant with Thy pair of perfectly round knees, hardened by (constant) prostration before Thy Lord.</font><br>
+<font color="blue">O Daughter of the Mountain! Thy thighs subdue by their beauty the trunk of lordly elephants as also the stem of golden colored banana trees while, O observer of all ordained duties, Thy knees, hardened and perfectly rounded by repeated prostrations to Thy Consort, rival the frontal globes of the heavenly elephant Airāvata.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1369,8 +1369,8 @@ Nakh'āgrach-chhadmānaḥ sura makuṭa śhāṇ'aika niśhitāḥ</font>
 
 <p>
 <b>83 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Daughter of the Mountain! to vanquish Rudra (in battle) Viṣhama-viśhika has forsooth turned Thy two shanks into two quivers, encasing twice the number of arrows, and over their crests are revealed the ten arrow-heads in the form of toe nails on Thy pair of Feet, exclusively sharpened over the whet-stones of the crowns of the gods.</font><br>
+<font color="blue">O Daughter of the Mountain! Surely the five arrowed Kamādeva has, in order to conquer Rudra, utilised Thy shanks as a quiver to store therein double the number of arrows he is credited with. For, at the end of Thy feet are seen, under the guise of Thy toe nails, ten crescent-shaped arrowheads sharpened on the whetstone of the crowns of prostrating Divinities.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1385,8 +1385,8 @@ Yayor lākṣhā lakṣhmīr aruṇa hari chūḍā-maṇi ruchiḥ</font>
 
 <p>
 <b>84 Translation</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="DarkGreen">O Mother! pray place those Feet of Thine, in the plenitude of Thy mercy, on my head, Feet which the foremost parts of the Vedas wear as a crest-bud, the water washing which (Feet) forms the River (Gaṅgā) flowing over the matted hair of Paśhupati, and the beautiful lac dye over which (Feet) is the lustre of the red crest jewel of Hari.</font><br>
+<font color="blue">O Mother! The crest of the Veda bears Thy Feet as its head ornament. Mayest Thou condescend to place those Feet on my head too – the Feet the water-offerings on which form the Gaṅgā in the matted locks of Śhiva, and the bright red dye of which gives brilliance to the jewels on the diadem of Viṣhṇu.</font><br>
 </p>
 
 <div class="para-divider"></div>
