@@ -640,7 +640,7 @@ Now Śhrī Rāma, they say, was a man, who discarded His wife and ill-treated He
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">As we had very great people ... uh ... on this Earth, I have given you the names, as we said there are, there have been Ten Gurus, uh ... starting from Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had Confucius, we had Socrates, and later on we had Abraham, Moses and also up to Śhirḍī Sāī Nāth, we had about Ten Great Gurus, now we have so many here sitting down.</font> They are all gurus, and they have to behave like gurus and they have to the ... do the job of Great Gurus."<br>
 <font size="+0"><b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font>
 </p>
 
@@ -687,21 +687,32 @@ But today the human awareness is much better, and we are understanding that Trut
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+So, as Śhrī Viṣhṇu, when He thought of taking His Incarnation, because He is the One who is the Sp... Preserver, He's the Preserver, of this Creation, and also the Preserver of Dharma. So when He took His Incarnation He had to see that people keep to their dharma.<br>
+By keeping the dharma all right only, you could get your Realization.<br>
+So the job [laughs] was quite difficult for, I should say: to keep people in the central path of Mahālakṣhmī.<br>
+[Cleansing Her glasses:] So by first Incarnation t..., you can say that, He tried to create a benevolent king, as Śhrī Rāma. <font color="red">"Socrates has described a benevolent king.</font><br>
+But as a result of that, people started thinking if they have become queen and king, born in the family of royalty, then they are Gods."<br>
 <font size="+0"><b>1989-0814 Śhrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"We have achieved the purpose of Diwālī Pūjā, I think, [laughing:] only yesterday: is to feel the joy of God's Love.<br>
+But diwālī word is from dīpā-wali, means the rose of lights.<br>
+It was celebrated firstly because, thousands of years back, Śhrī Rāma was crowned on this day. That means the benevolence of human beings-ss was crowned, was accepted.<br>
+<font color="red">And in Śhrī Mā ... Rāma's life you see an ideal personality being shown to be a king, to be the Benevolent King as described by Socrates.</font><br>
+So, this was a great joyous thing that a benevolent king was crowned.<br>
+That means: we have to have a king who is benevolent. That's only possible if the people who choose the king have no other consideration but that of benevolence of all the people.<br>
+So, one has to come to the conclusion that they have to be Sahaja Yogis.<br>
+Because other think that, `How much money we'll get out of this power that we'll have?', some think, `How much power-oriented we could be?', some think, `How many countries I can win?', or any other domination."<br>
 <font size="+0"><b>1989-1029 Diwālī Pūjā (Diwālī Pāḍavā), Be Honest to Yourself, Auditorium, Gymnasium, Montecatini Terme, Italy</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"And in every religion whatsoever, even in Islam it is said, ``You have to become a Walī." In Christianity it is said, ``You are to be born-again." In Buddhism it is said, ``You have to become Buddha," means you should be knowledgeable. In M... Mahāvīra's things He has said, ``You must get your Self-realization." Lao Tze has said it. <font color="red">Shouish, just if you start from Socrates onward -- of course, we should forget about Plato and these people because I don't think they had much sense of spirituality -- but most of these people have talked about Self-realization.</font> And there's no religion in which they have not talked about Self-realization. Even in the Judaism or where the ... they believe in the coming of the Savior for their salvation, even they have talked about it."<br>
 <font size="+0"><b>1990-0107 Pūjā (English + Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
@@ -985,7 +996,7 @@ It's really not the poetry I'm telling you, is reality I'm talking to [you about
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">[After the announcement of David Paul Dunphy who is stll dressed as in the play performed before the concert:]  "He reminds Me of Socrates." [Laughter.]</font><br>
 <font size="+0"><b>2001-0728 Conversation with Sahaja Yogis, after the Evening Program, the day before Śhrī Kṛiṣhṇa Pūjā, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</b></font>
 </p>
 

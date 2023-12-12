@@ -479,6 +479,20 @@ We have to be honest to know the Truth. And that honesty is as simple as this: t
 <div class="para-divider"></div>
 
 <p>
+"And in every religion whatsoever, even in Islam it is said, ``You have to become a Walī." In Christianity it is said, ``You are to be born-again." In Buddhism it is said, ``You have to become Buddha," means you should be knowledgeable. In M... Mahāvīra's things He has said, ``You must get your Self-realization." <font color="red">Lao Tze has said it.</font> Shouish, just if you start from Socrates onward -- of course, we should forget about Plato and these people because I don't think they had much sense of spirituality -- but most of these people have talked about Self-realization. And there's no religion in which they have not talked about Self-realization. Even in the Judaism or where the ... they believe in the coming of the Savior for their salvation, even they have talked about it."<br>
+<font size="+0"><b>1990-0107 Pūjā (English + Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b></font>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+
+<p>
 "This is all absolutely traditional but is not a dead tradition.<br>
 It's like the Tree of Spirituality, which had very few flowers. Now the tree has evolved, and there are many flowers. So, it is not hanging in the air or something new. But, supposing, you see a flower on the tree, it's a new thing you feel, but it's built in.<br>
 Is all built in, coming through all the traditions of the world.<br>
