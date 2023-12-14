@@ -163,7 +163,12 @@ Dharma means a sustainance [sustenance], that is we can say, that is quality tha
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So, to uh establish the balance within us, these people came again and again, these Ten Primordial Beings we saw: some on the left-hand side, some on the right-hand side. It's very symbolic. The whole thing is so wonderful.<br>
+<font color="red">So now we can say who They were. From the very beginning, this is Socrates, Moses, Abraham, Lao Tze, we had Muhammad, Nāṇak, Janak, and the last of all was Śhirḍī Sāī Nāth.</font> Śhirḍī Sāī Nāth: the one who lived in Śhirḍī. He is the last Incarnation who came. After Muhammad Nāṇaka came, after Nāṇaka Śhirḍī Sāī Nāth.<br>
+All these are the one and the only ... only one Principle of Primordial Master who came, and They all said the same thing.<br>
+First of all, They were against alcohols, against any kind of a[n] intoxication.<br>
+But say, at the time of Moses they didn't have cigarettes, you see, so He didn't say about cigarettes, naturally. They didn't have. So the people who follow Moses think, 'There's nothing wrong with cigarettes because He didn't say.' But that time there were no cigarettes, you see?<br>
+All these sinful things were devised afterwards."<br>
 <font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -462,6 +467,23 @@ But all these Saints, Prophets and Incarnations had to suffer a lot because of t
 <div class="para-divider"></div>
 
 <p>
+"That is how the beauty is expressed through the holy hands of holy people, all over the world.<br>
+I don't know nowadays if it is done so.<br>
+<font color="red">Even in those days-s-s, at the time of Socrates, Lao Tze, philosophy was the dominating subject.</font> People thought philosophy was the epitome of knowledge.<br>
+But suddenly then it turned to economics, and that's the place we have l... we lost our heritage of creativity, of the Divine Values, of the Divine Guṇas."</font><br>
+<font size="+0"><b>1987-0102 Talk to Sahaja Yogis (English + Marathi), Beauty Must Have Auspiciousness, before the Evening Program, Session 1 (before Dinner), Gaṇapatīpuḷe, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"But everyone has talked about your Re-birth, whether it was Christ, or Muhammad Sāhab, Socrates, Lao Tze, anyone.</font> You are to be born-again, then you will know the reality.<br>
 But it is not some sort of a brand, or some sort of a[n] organization to which you belong and you's call yourself, 'I am a born-realized.' This is falsehood.<br>
 And, if you have to be compromising with falsehood, we cannot have the beauty and glory of reality.<br>
@@ -479,7 +501,7 @@ We have to be honest to know the Truth. And that honesty is as simple as this: t
 <div class="para-divider"></div>
 
 <p>
-"And in every religion whatsoever, even in Islam it is said, ``You have to become a Walī." In Christianity it is said, ``You are to be born-again." In Buddhism it is said, ``You have to become Buddha," means you should be knowledgeable. In M... Mahāvīra's things He has said, ``You must get your Self-realization." <font color="red">Lao Tze has said it.</font> Shouish, just if you start from Socrates onward -- of course, we should forget about Plato and these people because I don't think they had much sense of spirituality -- but most of these people have talked about Self-realization. And there's no religion in which they have not talked about Self-realization. Even in the Judaism or where the ... they believe in the coming of the Savior for their salvation, even they have talked about it."<br>
+"And in every religion whatsoever, even in Islam it is said, "You have to become a Walī." In Christianity it is said, "You are to be born-again." In Buddhism it is said, "You have to become Buddha," means you should be knowledgeable. In M... Mahāvīra's things He has said, "You must get your Self-realization." <font color="red">Lao Tze has said it.</font> Shouish, just if you start from Socrates onward -- of course, we should forget about Plato and these people because I don't think they had much sense of spirituality -- but most of these people have talked about Self-realization. And there's no religion in which they have not talked about Self-realization. Even in the Judaism or where the ... they believe in the coming of the Savior for their salvation, even they have talked about it."<br>
 <font size="+0"><b>1990-0107 Pūjā (English + Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 
 <div class="para-divider"></div>

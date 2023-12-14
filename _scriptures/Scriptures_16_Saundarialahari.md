@@ -1128,7 +1128,7 @@ Mṛiṇālī lālityam vahati yad adho hāra latikā</font>
 
 <p>
 <b>68 Translation</b><br>
-<font color="DarkGreen">This neck of Thine, horripilated often owng to the embrace of the vanquished of the (three_ Puras, assumes the aspect of the stalk of Thy lotus-ike face, for the reason thta the pearl necklace )worn) thereunder, itself white, but rendered dark owing to the profuse application of the blacl mud-like Aguru paste, attains the beauty of the tender of the lotus stalk.</font><br>
+<font color="DarkGreen">This neck of Thine, horripilated often owng to the embrace of the vanquished of the (three_ Puras, assumes the aspect of the stalk of Thy lotus-ike face, for the reason thta the pearl necklace (worn) thereunder, itself white, but rendered dark owing to the profuse application of the blacl mud-like Aguru paste, attains the beauty of the tender of the lotus stalk.</font><br>
 <font color="blue">Thy neck, with horripilations caused by the constant embraces of Thy Consort, the Destroyer of the cities, resembles the thorny stalk of Thy lotus-like face. For, below Thy neck are Thy naturally white cluster of pearl necklaces which, being discoloured by the generously applied dark coloured Aguru paste on the chest, bears the comeliness of the tender bottom part of the stalk of Thy lotus-like face embedded in mire.</font><br>
 </p>
 
@@ -1240,7 +1240,7 @@ Kavīnāṁ prauḍhānām ajani kamanīyaḥ kavayitā</font>
 
 <p>
 <b>75 Translation</b><br>
-<font color="DarkGreen"></font>>O Daughter of the Mountain! I fancy that the ocean of the milk of poesy rising out of Thy heart verily causes the milk of Thy breasts to flow, on swallowing which (milk) given by Thee with grace, the Dravidian child became the poet laureate among great poets.<br>
+<font color="DarkGreen">O Daughter of the Mountain! I fancy that the ocean of the milk of poesy rising out of Thy heart verily causes the milk of Thy breasts to flow, on swallowing which (milk) given by Thee with grace, the Dravidian child became the poet laureate among great poets.</font><br>
 <font color="blue">O Daughter of the Mountain King! I fancy that Thy breast milk is the milk-ocean emerging as poetic inspiration from Thy heart. For, it was by drinking it, so graciously given by Thee, that the child of the Dramila country became a noted poet among great composers.</font><br>
 </p>
 
@@ -1531,7 +1531,7 @@ Jagat trātuṁ śhambhor-jayati karuṇā kāchid aruṇā</font>
 
 <p>
 <b>93 Translation</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">The transcendent Aruṇā, Śhiva's grace incarnated, curly in Her hair, artless in Her gentle smile, Śhirīṣha-like in Her frame, hard like stone in the region of Her breasts, extremely slim in Her waist, and prodigious in the region of Her hips, excels in Her glory for the welfare of the world.</font><br>
 <font color="blue">Thus for the welfare of the worlds abides in all Her glory Aruṇā (Kāmeśhvarī), the Śhakti of Śhambu – the very emodiment of graciousness – with her locks all curly, her smile naturally artless, her heart soft like Śhirīṣha flower, her breast as tight and hard like a grinding stone, her waist extremely slender, and her hips and breasts generous in size.</font><br>
 </p>
 
@@ -1547,7 +1547,7 @@ Nirātaṅkaṃ chandrān nija-hṛidaya-paṅkeruham iva</font>
 
 <p>
 <b>94 Translation</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">The sun, having attained the position of a mirror (cut out) of crystal for Thy feet, rendered him with his beams withdrawn for fear of (burning) Thy face, reflects Thy  face, as it were, namely his own heart-lotus, which by no means [is] troubled by the Moon, is ever in bloom.</font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1562,7 +1562,7 @@ Vidhir bhūyo bhūyo nibiḍayati nūnaṁ tava kṛite</font>
 
 <p>
 <b>95 Translation</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">The (moon's) dark spot is the musk; the watery disc of the Moon is the canister of emerald, replete with the (lumps of) camphor (called) the digits of the moon. Hence Vidhi verily fills the empty (canister) depleted by Thy use, every day over and over again, on Thy account.</font><br>
 <font color="blue">The mark on the moon is musk; and her watery disc, a receptacle (canister) of emerald for containing pieces of camphol in the form of the digits of the moon. As and when the contents of that receptacle are exhausted by Thy using them, Brahmā fills it up day by day for Thee with the digits of the waxing moon.</font><br>
 </p>
 
@@ -1594,7 +1594,8 @@ Kuchābhyām āsaṅgaḥ kuravaka taror apy'asulabhaḥ</font>
 
 <p>
 <b>97 Translation</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">O ideal of chastity! how many poets have not courted the wife of Vidhātṛ? Who does not become the lord of Śhridevī (the goddess of wealth) by (commanding) whatever (little) wealth? O foremost amongst the chaste! saving the Great Lord (Mahādeva), the embrace of Thy breast is unattainable even by the Kuravaka tree.</font><br>
+<font color="DarkGreen">O ideal of chastity! how many poets have not courted the wife of V</font><br>
 <font color="blue">O Chastity Embodied! How numerous are the poets who have courted and attained Saraswatī, the consort of Brahmā and the deity of learning and fine arts! So also who with some some wealth fails to become the Lord of Śhrī (Śhrīpati), the consort of Viṣhṇu and the goddess of wealth! But, O the foremost of Chaste Ones! None besides Śhiva the Great God, not even the tree called Kuravaka, has ever had the embrace of Thy breasts.</font><br>
 </p>
 
@@ -1627,7 +1628,7 @@ Bhavatyā ye bhaktāḥ pariṇatir amīhām iyam ume</font>
 
 <p>
 <b>99 Translation</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">O Umā! a chest bearing well-developed breasts,  acharming smile, a side-glance emitting Cupids as it wre, a Kadamba-like frame, all the (conspire) together to create in Hara's mind a delusive impression, if it were Thou. Whoever are Thy faltless devotees, this is their consummation.</font><br>
 </p>
 
 <div class="para-divider"></div>

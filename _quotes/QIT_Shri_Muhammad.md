@@ -1230,6 +1230,25 @@ But They are one! They are one personality, born again and again: Moses, Abraham
 <div class="para-divider"></div>
 
 <p>
+"So, to uh establish the balance within us, these people came again and again, these Ten Primordial Beings we saw: some on the left-hand side, some on the right-hand side. It's very symbolic. The whole thing is so wonderful.<br>
+<font color="red">So now we can say who They were. From the very beginning, this is Socrates, Moses, Abraham, Lao Tze, we had Muhammad, Nāṇak, Janak, and the last of all was Śhirḍī Sāī Nāth.</font> Śhirḍī Sāī Nāth: the one who lived in Śhirḍī. He is the last Incarnation who came. <font color="red">After Muhammad Nāṇaka came, after Nāṇaka Śhirḍī Sāī Nāth.</font><br>
+All these are the one and the only ... only one Principle of Primordial Master who came, and They all said the same thing.<br>
+First of all, They were against alcohols, against any kind of a[n] intoxication.<br>
+But say, at the time of Moses they didn't have cigarettes, you see, so He didn't say about cigarettes, naturally. They didn't have. So the people who follow Moses think, 'There's nothing wrong with cigarettes because He didn't say.' But that time there were no cigarettes, you see?<br>
+All these sinful things were devised afterwards."<br>
+<font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "In the same way, Sahaja Yoga is the Ocean. You cannot name it. Do not try to find its identifity ... identity with other things.<br>
 If you start doing that, then your mind will start becoming that small little cup.<br>
 And moreover, if you are coming from some organized religions, it's very important to understand: that organized religions make your cup even stronger, it doesn't dissolve.<br>

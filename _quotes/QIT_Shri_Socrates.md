@@ -581,7 +581,10 @@ This is what it is!"<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"That is how the beauty is expressed through the holy hands of holy people, all over the world.<br>
+I don't know nowadays if it is done so.<br>
+<font color="red">Even in those days-s-s, at the time of Socrates, Lao Tze, philosophy was the dominating subject.</font> People thought philosophy was the epitome of knowledge.<br>
+But suddenly then it turned to economics, and that's the place we have l... we lost our heritage of creativity, of the Divine Values, of the Divine Guṇas."</font><br>
 <font size="+0"><b>1987-0102 Talk to Sahaja Yogis (English + Marathi), Beauty Must Have Auspiciousness, before the Evening Program, Session 1 (before Dinner), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
@@ -763,7 +766,10 @@ Because other think that, 'How much money we'll get out of this power that we'll
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"You see, they are very traditional. They are very traditional people and they understand this, you see.<br>
+<font color="red">And you have such great philosophers like Socrates.</font><br>
+......<br>
+<font color="red">Also Socrates said the same thing [Know Thyself].</font>"<br>
 <font size="+0"><b>1990-0305 Interview with a Greek Lady Journalist for a TV Station, Interview with Frances Kelly for 'The Herald' Newspaper, and Talk to Sahaja Yogis, Garden, House of Greg and Cheryl Bradshaw, East Burwood, Melbourne, Victoria, Australia</b></font>
 </p>
 
@@ -782,7 +788,8 @@ But only thing it was not so said so clearly. Because there were not people inte
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"But if you are an enlightened personality, you never commit anything which is criminal. Because in the essence, all the valencies are already enlightened within yourself. And you know what is proper and improper.<br>
+<font color="red">But still, Christ was crucified. Socrates was poisoned.</font> All these great people had to suffer at the hands of law givers or priests who were responsible for religion or people who thought that they were very correct. Ādi Śhaṅkarāchārya had to suffer so much. Gyāneśhwara, such a learned man, had to suffer so much."<br>
 <font size="+0"><b>1990-0324 Talk to Sahaja Yogis, Democracy, Communism, Human Laws and the Spirit, Birthday Felicitations, Bhaidas Hall, Gulmohar Road, (U-1) J.V.P.D, Near Mithibai College, Vile Parle West, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -801,13 +808,19 @@ So it should not be difficult for us to understand the deeper meanings of our li
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">So, also the cap, you see, the political ideas were started by great people, like Socrates started it.<br>
+[As the translator ends with, "Socrat":] Yes.<br>
+And Socrat[es] said that the ... 'For the benevolence, the king has to be a benevolent king.'<br>
+But His disciples, like Aristotle, really ss-spoilt it.</font><br>
+Still the phi... yea-uh ... politics was philosophy-oriented. And then, now it has become nothing but economics."<br>
 <font size="+0"><b>1990-0725 Press Conference, Sheraton Sofia Hotel Balkan, pl. Sveta Nedelya 5, 1000 Sofia Center, Sofia, Bulgaria</b></font>
 </p>
 
 <div class="para-divider"></div>
+
 <p>
-<font color="red">""</font><br>
+"<font color="red">So, in the evolutionary process when Śhrī Rāma worked out as a human being, uh who was full of wisdom, uh and was the Benevolent King, uh as described by Socrates to show how the king should be, all those things He worked out in His lifetime.</font><br>
+But still, one more evolution was needed in Him. And that was, is the, they say, the Sampūrṇ, is the Complete Incarnation of Viṣhṇu came in as Śhrī Kṛiṣhṇa."<br>
 <font size="+0"><b>1990-0817 Talk to Sahaja Yogis, before the Evening Program, the Friday before Śhrī Kṛiṣhṇa Pūjā, Hallowtree Scout Campsite, Nacton, Ipswich IP10 0JP, UK</b></font>
 </p>
 
@@ -821,7 +834,9 @@ So it should not be difficult for us to understand the deeper meanings of our li
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"This concept was a [showing two right fingers:] doubly denied in the West. Is, first is: that they cannot accept a Goddess. [Second:] Woman has no part.<br>
+<font color="red">S-s sight [right] from Socrates onward, nobody has talked much about a Woman, except of course there is Athena and all that, but it's very minor roles they have.</font><br>
+Greeks had Goddesses who were just like human beings, so that also gets ruled out. And very little was accepted. So when Christianity came, some or other Christians saw to it that there should be no mention of the Mother, in any way."<br>
 <font size="+0"><b>1990-1221 Śhrī Mahālakṣhmī Pūjā (Hindi + English), Hall, Kolhapur, Maharashtra, India</b></font>
 </p>
 
@@ -839,7 +854,7 @@ So it should not be difficult for us to understand the deeper meanings of our li
 "You know that Śhrī Rāma has a very important place on our chakra, He is situated on our right Heart. Śhrī Rāma has taken the place of father, hence if there is lack in the responsibility or love from father this chakra is caught.<br>
 In Sahaja Yoga we too understand that Śhrī Rāma and all other Deities have taken the form to fulfill Their divine work, in all Śhrī Rāma had a special task. <font color="red">As it was said by Socrates that the Benevolent King has to come the same way Śhrī Rāma had come on this Earth as benevolent king, He came in the form of human being, He even forgot that He was Incarnation of Śhrī Viṣhṇu, forgot about Him but for all world He was Puruṣhottama Rāma.</font>"<br>  
 <br>
-<b>Version 12:</b>
+<b>Version 2:</b>
 "As you know that Śhrī Rāma has taken a very important place in our chakras. He is sitting on our right Heart. Śhrī Rāma has taken a place of a father, so lack of father's duty and love can cause a catch of this chakra.<br>
 In Sahaja Yoga we can understand that Rāma and all other Gods came on Earth with different powers [śhakti], they came to do their jobs. In the sense Śhrī Rāma has a special job. <font color="red">Socrates has said [that the] benevolent king has to come.</font> For that Śhrī Rāma came."<br>  
 <font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi) (the day after Rāma Navamī Day), If You Believe in Śhrī Rāma Follow His Ideal (Our Nature Can Change because He Is Our Ideal and You All Become Ideals for this World), Kolkata, West Bengal, India</b></font>
@@ -970,7 +985,7 @@ Despite that, people were thinking, 'These are some absurd people, there's nothi
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+[<font color="red">Talking about Śhrī Rām, Śhrī Mātājī saays that He was the Benevolent King, as described by Socrates.</font> He was so tuned in to the feelings of His subjects, that He had to send Sītā, His wife away, because She had stayed with Rāvaṇa, when She was kidnapped by him.]<br>
 <font size="+0"><b>1993-1113 Interview with Prof. Yuriy A. Voronov, Moscow, Russia</b></font>
 </p>
 
@@ -989,14 +1004,14 @@ Thus, this whole country is really vibrated by great Saints and by Great Incarna
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">Socrates talked about a benevolent king, and Śhrī Rāma was that benevolent king once upon a time.</font> And when I saw Lal Bahadur Shastri, I said, "Here is a benevolent king who has come." " [Applause.]<br>
 <font size="+0"><b>1994-1203 Talk to Sahaja Yogis, Release of Sir C.P.'s book \textcolor{greeny}{\it Lal Bahadur Shastri: A Life of Truth in Politics}, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">You might have heard of many people, Socrates [<font color="orange">unclear</font>], is Hazarat Nizamuddin Sahāb [<font color="orange">unclear</font>], that they were in such a position that they were given an ultimatum: 'Tomorrow, if you don't bow your head before us, we will cut your head off.'</font> Then what happened was that the head of that king itself was cut off at night.<br>
+"<font color="red">You might have heard of many people, you must have heard about Socrates, and heard of Hazarat Nizamuddin Sahāb, that they were in such a position that they were given an ultimatum: 'Tomorrow, if you don't bow your head before us, we will cut your head off.'</font> Then what happened was that the head of that king itself was cut off at night.<br>
 Who did that? Not these people. It might have been done by their disciples, who cut off the head of the king, someone must have done it."<br>
 <font size="+0"><b>1995-1205 Śhrī Ādi Śhakti Pūjā (Hindi), The Śhakti of Satya Yuga, New Delhi, India</b></font>
 </p>
@@ -1014,7 +1029,11 @@ And the announcement should be with full faith and understanding about Sahaja Yo
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"The one who has the Truth is always prepared. He knows that he'll be tortured, he'll be troubled. And nobody is going to listen to such a person.<br>
+That's a fact! We have seen all the Saints have suffered. Not only in India, all over the world. Wherever there have been people who are Saints, who have talked of Divinity, of the Truth, they have suffered. Nobody accepted them!<br>
+For example in England, William Blake, they thought He was a madman. When everybody is mad, I mean if you go to a madhouse, to a lunatic asylum, all the lunatics think that you are mad. [Laughing:] Same way it has been happening. It's very sad!<br>
+So many have come on this Earth. Not only in India, as I said, all over I find them. They were Sufis. They were people of great talents.<br>
+But they suffered! All of them suffered. <font color="red">Even Socrates had to take the poison.</font>"<br>
 <font size="+0"><b>1996-1125 Public Talk, World Philosophers Meet on the 700th Birthday of Śhrī Gyāneśhwara, M.I.T. College, Pune, Maharashtra, India</b></font>
 </p>
 
@@ -1055,7 +1074,12 @@ It's really not the poetry I'm telling you, is reality I'm talking to [you about
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"[After 10 seconds:] Now, our duty is to tell them what is the Truth. Our duty is: bring them to the proper path of spirituality.<br>
+Because they are all lost! Christians are lost, Muslims are lost, Hindus are lost, all of them are lost people. They have no idea as to what their religion professed and what they are supposed to do.<br>
+Ultimately Christ was crucified.<br>
+So you can see how, when there was Truth, untruth tried to finish it off: they couldn't bear it.<br>
+<font color="red">We have the example of Socrates. What was the need to kill Him? But they killed Him.</font><br>
+In this way, so far, we know in the past, all the people who are pivotal for the Truth are being finished. Because they don't want the Truth. "</font><br>
 <font size="+0"><b>2001-1225 Christmas Pūjā, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 

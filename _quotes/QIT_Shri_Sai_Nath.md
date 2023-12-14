@@ -542,6 +542,25 @@ Dharma means a sustainance [sustenance], that is we can say, that is quality tha
 <div class="para-divider"></div>
 
 <p>
+"So, to uh establish the balance within us, these people came again and again, these Ten Primordial Beings we saw: some on the left-hand side, some on the right-hand side. It's very symbolic. The whole thing is so wonderful.<br>
+<font color="red">So now we can say who They were. From the very beginning, this is Socrates, Moses, Abraham, Lao Tze, we had Muhammad, Nāṇak, Janak, and the last of all was Śhirḍī Sāī Nāth. Śhirḍī Sāī Nāth: the one who lived in Śhirḍī. He is the last Incarnation who came. After Muhammad, Nāṇaka came, after Nāṇaka Śhirḍī Sāī Nāth.</font><br>
+All these are the one and the only ... only one Principle of Primordial Master who came, and They all said the same thing.<br>
+First of all, They were against alcohols, against any kind of a[n] intoxication.<br>
+But say, at the time of Moses they didn't have cigarettes, you see, so He didn't say about cigarettes, naturally. They didn't have. So the people who follow Moses think, 'There's nothing wrong with cigarettes because He didn't say.' But that time there were no cigarettes, you see?<br>
+All these sinful things were devised afterwards."<br>
+<font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Really, the unity within us lies when you become collectively conscious. All this work has been done in the ancient times. As Muhammad was One of the Prophets who came out of the Ten Prophets: Moses, Abraham, Lao Tze, then we had also people like other Prophets, Socrates. <font color="red">Recently we had in India the last One: is the Sāī Nāth, not the Sathya one, but the Sāī Nāth who lived, who was representing this Great Principle of Primordial Master.</font>"<br>
 <font size="+0"><b>1983-0310 Public Program, Day 3, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
