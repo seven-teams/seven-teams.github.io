@@ -647,7 +647,44 @@ Now Śhrī Rāma, they say, was a man, who discarded His wife and ill-treated He
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red"> Now as ... unfortunately after Socrates, who came here in such a uh condition when people were really, absolutely ignorant, in the complete darkness of ignorance, and they could not understand Him. They could not understand Socrates at all. And so like any other Primordial Master was treated uh-uh-uh by the people who were surrounding Him, He was also very much ill-treated and nobody listened to Him.<br>
+But of course, as you know, He was Primordial Master and His wisdom is well-known, and He created out of Him disciples, but none of them could go anywhere near His wisdom.</font> And they started their own theories, own styles.<br>
+<font color="red">And that's how we find the accent from philosophy that was Socrates' aim, gradually came into political and then into economic side. So the attention was moved from philosophy to economics today, not towards the philosophy which was established by Socrates.</font><br>
+<font color="red">We can say Socrates was the one Primordial Master, after Abraham and Moses, who really made it very clear-cut uh-uh-uh understanding about spirituality.</font><br>
+Of course, Moses and Muhammad ... uh Abraham had different problems. Like Abraham had problems of uh talking to people who were really very-very ignorant, and Moses had problem with people who were very indulgent people.<br>
+So He had to pass laws of śharīat. Moses passed the law of śharīat.<br>
+And if you read Bible, in the, I think, in the first verse only it is written about śharīat, uh in the Irmiyā [Arabic for Jeremiah], uh third uh  ... third book of Bible [Leviticus]: that Moses had to pass these laws, different, different laws, to make people follow religion precisely.<br>
+So, He did not argue, He did not say why you should do it, didn't give an answer [any explanation]: 'You do it!', like that. Because He thought, 'These people are so ignorant, that you cannot leave it to their freedom, that uh-uh-uh you understand this or uh-uh-uh ... uh that you see the point.' He could not do that way. So He just said, 'All right. These are the laws, these are the things, and you have to follow. If you don't follow then you will be killed it, your hands will be cut, this will happen, that will happen.'' Because the people were of that type.<br>
+<font color="red">Now, then you see how gradually, at the time of Socrates, people had it evolved. They were a much better people. So He could talk to them about something of wisdom, of honesty, of righteousness, of peace. Of so many things He talked! And He could talk because people were worthy of that.<br>
+Otherwise, He could have said, 'All right. You do this, you do that, you do that.'</font><br> 
+......<br>
+All right. So then, this uh-uh-uh part of the ... history is there [of Prahlād]. On that history stands the modern Greek.<br>
+<font color="red">So, if you see from Socrates-ss to Christ, people had evolved, we think, but they also crucified Christ.</font> So what was their evolution?<br>
+<font color="red">Though, if you see what Christ preached and what's ... I'm sorry ph... what Christ preached and Socrates preached, there is much difference. Because Socrates [Christ] talked in parables, not openly, while Socrates talked in a very open way, in an open discussion, in open understanding.</font><br>
+<font color="red">That shows only that the people could understand what He was saying. But still He was also killed. Socrates also was given poison and He was also killed.</font><br>
+So that shows that, at that time also, the people in charge, or at the helm of affairs, didn't know what was reality.<br>
+<font color="red">So now, from Christ to Socrates and from Socrates to Me, we can say this way: that we are talking about it, though Socrates came uh in the year -- how much B.C. He was? To Socrates ...</font><br>
+<b>Sahaja Yoginī:</b> About five hundred years.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red"> Huh?<br>
+<b>Sahaja Yoginī:</b> About five hundred years before Christ [500 B.C.].<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red"> Christ. Five hundred [years before Christ].<br>
+<font color="red">So, might be that Christ must have felt that, 'Socrates, He talked so openly, so nicely to people, as because He was Primordial Master.' He realized it, so He talked in parables. He thought that, 'No use talking straight like Socrates,' because, you see they ... are very straightforward people.</font><br>
+The-ee Primordial Masters have to be very, very ... they are by nature extremely straightforward.<br> 
+Ah even today's, those who are rea... those who were real gurus, they would not accept any uh-uh-uh person, they would throw away, they would beat people.<br>
+Uh-uh-uh even musicians in India, those who are great masters, they would beat theirs' disciples, see [if] they played something wrong, like very harsh people.<br>
+<font color="red">So, it was all right for Socrates also to tell things very plain and simple and all that, but still He was killed.</font><br>
+And then Christ, who was five hundred years later came. See, He saw the point: that, 'No use-ss talking,' because He came at Āgñyā, 'talking in that way.'<br>
+<font color="red">If you tell somebody, 'Don't do like this,' even reason it out like Socrates did: He is the Master of Logic, you can call Him. The whole logic system comes from Him. He's a Master of Logic.<font color="red"><br>
+But despite that, it did not appeal to the logic of the people who were at the helm of affairs. So they have no logic in their heads, you see, they are just rationalist.<br>
+Rationality is blindness, but l... there's no logic.<br>
+<font color="red">So because there is no logic, they killed Him.</font><br>
+And Christ understood that, 'There is no logic with these people so better talk to them in parables.' So He talked to them in parables.<br>
+But still they killed Him. Helm! The ... the authorities, they couldn't bear. They thought: 'He's becoming very powerful,' or whatever it was. The Jews themselves were very funny, and they did it.<br>
+......<br>
+So, this stage of yours, I think is the highest stage of awareness: where collectively you are understanding Me. The situation is not so bad as that was even at the time of Christ.<br>
+<font color="red">Before that, of a Socrates' time, I think, He was the only wise man going around. There was nobody else, seems to Me, had any wisdom.<br>
+Even His disciples, you see. Like Plato: he went off his head. Then Aristotle went off his head. I ... both of them, really, were ... tried to have their own arbitrary additions, [laughhing:] which were all absolutely.<br>
+But He talked absolutely ... Socrates talked absolutely about Gods and everything, and talked so openly.</font><br> 
 <font size="+0"><b>1989-0524 Śhrī Pallas Athena Pūjā, The Origins and Role of Greece, House of Stamatis Boudouris, Athens, Greece</b></font>
 </p>
 
@@ -705,14 +742,14 @@ It was celebrated firstly because, thousands of years back, Śhrī Rāma was cro
 So, this was a great joyous thing that a benevolent king was crowned.<br>
 That means: we have to have a king who is benevolent. That's only possible if the people who choose the king have no other consideration but that of benevolence of all the people.<br>
 So, one has to come to the conclusion that they have to be Sahaja Yogis.<br>
-Because other think that, `How much money we'll get out of this power that we'll have?', some think, `How much power-oriented we could be?', some think, `How many countries I can win?', or any other domination."<br>
+Because other think that, 'How much money we'll get out of this power that we'll have?', some think, 'How much power-oriented we could be?', some think, 'How many countries I can win?', or any other domination."<br>
 <font size="+0"><b>1989-1029 Diwālī Pūjā (Diwālī Pāḍavā), Be Honest to Yourself, Auditorium, Gymnasium, Montecatini Terme, Italy</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-"And in every religion whatsoever, even in Islam it is said, ``You have to become a Walī." In Christianity it is said, ``You are to be born-again." In Buddhism it is said, ``You have to become Buddha," means you should be knowledgeable. In M... Mahāvīra's things He has said, ``You must get your Self-realization." Lao Tze has said it. <font color="red">Shouish, just if you start from Socrates onward -- of course, we should forget about Plato and these people because I don't think they had much sense of spirituality -- but most of these people have talked about Self-realization.</font> And there's no religion in which they have not talked about Self-realization. Even in the Judaism or where the ... they believe in the coming of the Savior for their salvation, even they have talked about it."<br>
+"And in every religion whatsoever, even in Islam it is said, "You have to become a Walī." In Christianity it is said, "You are to be born-again." In Buddhism it is said, "You have to become Buddha," means you should be knowledgeable. In M... Mahāvīra's things He has said, "You must get your Self-realization." Lao Tze has said it. <font color="red">Shouish, just if you start from Socrates onward -- of course, we should forget about Plato and these people because I don't think they had much sense of spirituality -- but most of these people have talked about Self-realization.</font> And there's no religion in which they have not talked about Self-realization. Even in the Judaism or where the ... they believe in the coming of the Savior for their salvation, even they have talked about it."<br>
 <font size="+0"><b>1990-0107 Pūjā (English + Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
@@ -940,7 +977,12 @@ Despite that, people were thinking, 'These are some absurd people, there's nothi
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"First we had the Incarnation of Śhrī Rāma. The Viṣhṇu, as you know, took the birth of Śhrī Rām.<br>
+But Śhrī Rāma forgot His Divinity. He was made to forget His Divinity.<br>
+<font color="red">And He lived like an ordinary person, became a king, like Socrates has described the Benevolent King.</font><br>
+And He had to also sacrifice His wife. That's very symbolic, no doubt.<br>
+The other part of North India, we'll be able to see uh ... His vibrated [smiling:] areas, where He moved, but Maharashtra He went ah without shoes: walked and walked and walked.<br>
+Thus, this whole country is really vibrated by great Saints and by Great Incarnations."<br>
 <font size="+0"><b>1993-1211 Śhrī Kṛiṣhṇa Pūjā, Yamunānagar, Haryana, India</b></font>
 </p>
 
@@ -954,7 +996,7 @@ Despite that, people were thinking, 'These are some absurd people, there's nothi
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">You might have heard of many people, Socrates [], is Hazarat Nizamuddin Sahāb [], that they were in such a position that they were given an ultimatum: 'Tomorrow, if you don't bow your head before us, we will cut your head off.'</font> Then what happened was that the head of that king itself was cut off at night.<br>
+"<font color="red">You might have heard of many people, Socrates [<font color="orange">unclear</font>], is Hazarat Nizamuddin Sahāb [<font color="orange">unclear</font>], that they were in such a position that they were given an ultimatum: 'Tomorrow, if you don't bow your head before us, we will cut your head off.'</font> Then what happened was that the head of that king itself was cut off at night.<br>
 Who did that? Not these people. It might have been done by their disciples, who cut off the head of the king, someone must have done it."<br>
 <font size="+0"><b>1995-1205 Śhrī Ādi Śhakti Pūjā (Hindi), The Śhakti of Satya Yuga, New Delhi, India</b></font>
 </p>
@@ -962,7 +1004,10 @@ Who did that? Not these people. It might have been done by their disciples, who 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So, this is the third point, one has to know the announcement. You must have faith in yourself and you must announce!<br>
+All the Saints announced. <font color="red">They were killed for that, you saw how Socrates was given poison.</font><br>
+Doesn't matter! Nobody is going to kill you now! In these modern times, there's fundamental rights to exist. So nobody can kill you, take it from Me, but you must announce.<br>
+And the announcement should be with full faith and understanding about Sahaja Yoga, how important it is."<br>
 <font size="+0"><b>1996-1110 Diwālī Pūjā (Diwālī Day), What State You Have to Reach, Quinta do Mar, Sintra (29 kms NW of Lisbon), Portugal</b></font>
 </p>
 

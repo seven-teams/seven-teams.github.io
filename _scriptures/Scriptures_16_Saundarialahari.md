@@ -1433,7 +1433,7 @@ Sarojaṁ tvat-pādau Janani jayataśh chitram iha kim</font>
 
 <p>
 <b>87 Translation</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">O Mother! what (is there to) wonder at, if Thy two Feet, quite adapted to abide in the snow-capped mountain, bright all through night and its counterpart (the day) and lavishing their grace on their devotees, have outdone the lotus flower, which easily blights with snow-fall, sleeps during night and only alightly attains Lakṣhmī's grace?</font><br>
 <font color="blue">O Mother of the Universe! The lotus of Thy Feet, which flourishes always on the snow Mountain (Himalayas), blooming night and day and bestowing undecaying wealth (lakṣhmī) on the inner circle of devotees, is undoubtedly far superior to the common lotus flower which perishes in snow, closes at night and forms the favorite resort of Lakṣhmī (the goddess of wealth whose blessings on devotees are very temporary).</font><br>
 </p>
 
@@ -1450,7 +1450,7 @@ Yad ādāya nyastaṁ dṛiṣhadi daya mānena manasā</font>
 
 <p>
 <b>88 Translation</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">O Goddess! how is it that the fore-part of Thy foot, which is the seat of all fame, which cannot be touched by danger (of any kind), and which was somehow lifted at the time of (Thy) marriage by the vanquished of the (three) Puras, with a soft heart and placed on a stone, has been made a peer of the hard tortoise shell by great poets?</font><br>
 <font color="blue">The upper part of Thy feet are the seat of all excellences worthy of praise and they are the panacea for all dangers. How then do great poets equate them with the hard shell of a tortoise? And how did Thy Consort, the Destroyer of the Cities, in spite of all His tenderness towards Thee, have the heart to place them on a hard granite grinding stone at Thy marriage rite?</font><br>
 </p>
 
@@ -1466,7 +1466,7 @@ Daridrebhyo bhadrāṁ śhriyam aniśham ahnāya dadatau</font>
 
 <p>
 <b>89 Translation</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">O Chaṇḍī! Thy two Feet, which lavish plenty of wealth at all times and at once on the poor, laugh as it were with their toe nails, which resemble (so many) moons causing the closing of the lotus-like hands of celestial women, at the Kalpaka treed which give their fruit exclusively to the denizens of the celestial world to the denizens of the celestial world, with their finger-like sprouts.</font><br>
 <font color="blue">O Chaṇḍī! Thy Feet, of the moon-like nails, which make the lotus-bud-like palms of adoring heavenly damsels close, do shower abundant wealth quickly on humble and poor devotees, and thus mock at the wish-yielding Kālpaka trees of heaven whose arms of tender branches bestow desired gifts only to Devas who live in heavenly affluence.</font><br>
 </p>
 
@@ -1482,7 +1482,7 @@ Nimajjan majjīvaḥ karaṇa-charaṇaḥ ṣhaṭ charaṇatām</font>
 
 <p>
 <b>90 Translation</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">May my soul attain the quality of a six-footed (bee), with the (six) senses as its feet, by immersing in this, Thy foot, which is ever giving to the helpless wealth in proportion to their desire, scattering abundant honey in the form of a flood of beauty, and which is auspicious as a cluster of Mandāra flowers.</font><br>
 <font color="blue">Thy Feet form a veritable bunch of Mandāra flowers dripping the honey of beauty and are a liberal supplier of wealth to Thy poor devotees. May my spirit with its six organs of knowledge (including the mind) become a six-footed honey sucking bee at those Feet forever more.</font><br>
 </p>
 
@@ -1498,7 +1498,7 @@ Chhalādā chakṣhāṇaṁ charaṇa-kamalaṁ chāru charite</font>
 
 <p>
 <b>91 Translation</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">O Goddess with a stately carriage! Thy household swans, frolicking as if prone to practice the balancing of their steps, do not leave off Thy lotus-like Foot, which imparts instruction in its own art (of balancing steps) as it were, by the tingling of the beautiful anklet (filled) with gems. </font><br>
 <font color="blue">O Goddess of Holy Fame! The royal Swans inhabiting Thy residence are never abandoning their pursuit of Thee in their effort to observe Thy gait for correcting their own defective ways. And Thy Lotus Feet are, it seems, giving instructions to them in the guise of the tinkling sounds made by the anklets on them, studded with precious stones.</font><br>
 </p>
 
@@ -1514,7 +1514,7 @@ Tvadīyānāṁ bhāsāṁ prati-phalana rāg'āruṇatayā<br>
 
 <p>
 <b>92 Translation</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">Thy servants Druhiṇa, Hari, Rudra and Īśhwara, have become Thy cot. Śhiva with His imaginary bedsheet of a transparent hue, (Himself) tinged with Thy lustre reflected therein, yields pleasure to Thine eyes assuming as it were the form of erotic sentiment incarnate.</font><br>
 <font color="blue">Thy servitors, Brahmā, Viṣhṇu, Rudra and Īśhwara, have taken the shape of Thy cot (i.e., the four legs of the cot) in order to serve Thee very closely, while Sadāśhiva has formed Himself into Thy bedsheet, reflecting Thy crimson glory in His assumed whiteness, thereby causing amazement to Thee by presenting Himself as the very embodiment of erotic sentiment.</font><br>
 </p>
 
