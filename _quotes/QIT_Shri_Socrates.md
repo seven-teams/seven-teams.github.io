@@ -341,7 +341,12 @@ This balancing is done by people who incarnate on this Earth as Great Prophets. 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So, to uh establish the balance within us, these people came again and again, these Ten Primordial Beings we saw: some on the left-hand side, some on the right-hand side. It's very symbolic. The whole thing is so wonderful.<br>
+<font color="red">So now we can say who They were. From the very beginning, this is Socrates, Moses, Abraham, Lao Tze, we had Muhammad, Nāṇak, Janak, and the last of all was Śhirḍī Sāī Nāth.</font> Śhirḍī Sāī Nāth: the one who lived in Śhirḍī. He is the last Incarnation who came. After Muhammad, Nāṇaka came, after Nāṇaka Śhirḍī Sāī Nāth.<br>
+All these are the one and the only ... only one Principle of Primordial Master who came, and They all said the same thing.<br>
+First of all, They were against alcohols, against any kind of a[n] intoxication.<br>
+But say, at the time of Moses they didn't have cigarettes, you see, so He didn't say about cigarettes, naturally. They didn't have. So the people who follow Moses think, 'There's nothing wrong with cigarettes because He didn't say.' But that time there were no cigarettes, you see?<br>
+All these sinful things were devised afterwards."<br>
 <font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
