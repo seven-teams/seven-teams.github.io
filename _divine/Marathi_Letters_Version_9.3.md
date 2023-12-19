@@ -1,7 +1,7 @@
 ---
 title: 'Marathi Letters from Divine Message, Version 9.3'
 date: 2023-12-18
-permalink: /divine/2023/11/18
+permalink: /divine/2023/12/18
 tags:
   - Divine Message
 ---
