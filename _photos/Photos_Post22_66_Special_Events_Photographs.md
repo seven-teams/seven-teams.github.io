@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 1 Photo from the special event <font color="Crimson"><b>2001-0513 Talk to Sahaja Yogis (Mother's Day), Italy</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 low resolution from the Named Collections.<br>
-The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad/2001/">Collection 2001</a>.<br> 
+The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad/2001/">Collection 2001</a>.<br> 
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
