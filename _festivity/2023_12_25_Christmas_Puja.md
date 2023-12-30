@@ -96,12 +96,12 @@ Throughout His life, He has been using this essence just to establish Himself in
 <div style="text-align: center"><img src="/images/image1308.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>So, they say 'Merry Christmas' is enjoyment for joy. Out of peace comes the joy, the light of joy, the happiness.</b><br>
+<font color="DarkRed"><b>"So, they say 'Merry Christmas' is enjoyment for joy. Out of peace comes the joy, the light of joy, the happiness.</b><br>
 I wish peace for the whole world, for the whole nation, to understand to give up all the strives, all the false battles, for money and for power, all wrong ideas that they are different from each other, and come under the banner of Sahaja Yoga and enter into the Kingdom of God, where they are invited with all respect and love.<br>
 I wish peace to all of them, to all the countries, all the human beings: in their families, in their hearts, with their children, with all of them. Let there be peace, let their heart emit peace, their tongues speak with peace, their eyes see nothing but peace.<br>
 All this has to change, tremendous change has to take place. ......<br>
 <b>I bless all of you to be the channels of that peace, to be beautiful channels of that peace, to be glorious channels of that peace, to be great children of your Mother, who is so proud of you.<br>
-May God bless you.</b></font><br>
+May God bless you."</b></font><br>
 <font size="+0"><b>1981-1225 Christmas Pūjā, You Have to Be Peaceful, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font><br>
 <br>
 <font color="Red"><b>Auṃ Twameva sākṣhāt Śhrī Jesus Mary Mātā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
@@ -141,7 +141,7 @@ May God bless you.</b></font><br>
 <div style="text-align: center"><img src="/images/image1309.png" /></div>
 
 <p>
-<font color="Red">"<b>Wishing you all a Merry Christmas!!!</b></font><br>
+<font color="Red"><b>Wishing you all a Merry Christmas!!!</b></font><br>
 </p>
 
 <p>
