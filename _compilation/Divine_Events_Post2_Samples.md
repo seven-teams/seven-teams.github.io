@@ -8,6 +8,7 @@ tags:
 ---
 
 <p>
+<br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 Happy New Year<br>
