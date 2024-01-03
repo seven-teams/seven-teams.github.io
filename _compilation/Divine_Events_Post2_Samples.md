@@ -17,7 +17,7 @@ We would like to get feedback on 16 samples of the Divine Events: on colors, on 
 Samples:<br>
 <b>1.</b> <a href="https://seven-teams.github.io/events/1973-1231"> <font color="DeepPink">1973-1231 Departure with Official Farewell of Sir C.P., Airport, Mumbai, India</font></a> started on 2023-1231.<br>
 <b>2.</b> <a href="https://seven-teams.github.io/events/1974-0101"> <font color="DeepPink">1974-0101 Arrival, Airport, London, UK</font></a> started on 2024-0101.<br><br>
-<b>3.</b><br>
+<b>3.</b> <a href="https://seven-teams.github.io/events/1974-0101"> <font color="DeepPink">1951-0107 Group Photo, Farewell of Shri C.P. Srivastava I.A.S. City Magistrate Lucknow on the Eve of His Transfer as Additional District Magistrate Meerut, Kucnow, Uttar Pradesh, India</font></a> started on 2023-0829, updated on 2024-0103.<br><br><br>
 ......<br>
 <b>16.</b><br>
 We thank you in advance for any possible feedback at any time.<br>
