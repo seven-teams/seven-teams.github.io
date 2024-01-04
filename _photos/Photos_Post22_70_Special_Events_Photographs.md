@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>000-0928 Public Talk, London, UK</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 low resolution from the XYZ Collections.<br>
+We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>2000-0928 Public Talk, London, UK</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 low resolution from the XYZ Unknown Collection.<br>
 The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/UK/2000">UK 2000</a>.<br> 
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
