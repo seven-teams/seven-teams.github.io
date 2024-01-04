@@ -23,10 +23,10 @@ Now Mahālakṣhmī, as I told you, is a perfect principle. Is a perfect princip
 <div style="text-align: center"><img src="/images/image1310.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">So, for today's New Year, <b>let us vow within ourselves, that the selfishness or the self-centeredness or the smallness in you is finished.</b> Now the drop has become the ocean. Live like an ocean and like a lion. Don't roar at others, I mean [be] generous and don't be afraid of anything. Everything is taken care of, but believe that everything is taken care of. Sometimes you might feel you are let down, sometimes you'll feel, "Oh, this should have happened." Do not desire for anything! Whatever is your desire is not correct, that's all. If the desire is correct and is deserving, it will happen -- hundred per cent [guaranteed]!<br>
+<font color="DarkRed">"So, for today's New Year, <b>let us vow within ourselves, that the selfishness or the self-centeredness or the smallness in you is finished.</b> Now the drop has become the ocean. Live like an ocean and like a lion. Don't roar at others, I mean [be] generous and don't be afraid of anything. Everything is taken care of, but believe that everything is taken care of. Sometimes you might feel you are let down, sometimes you'll feel, "Oh, this should have happened." Do not desire for anything! Whatever is your desire is not correct, that's all. If the desire is correct and is deserving, it will happen -- hundred per cent [guaranteed]!<br>
 So all the best, and the greatest year, and happiness and joy.<br>
 Feel your responsibility, understand each other. And now I'm going, tomorrow I'll be gone, so-called. [Laughter.]<br>
-Don't worry about anything else but worry about the Sahaja Yoga that has to be established all over the world. Very great work one has done.</font><br>
+Don't worry about anything else but worry about the Sahaja Yoga that has to be established all over the world. Very great work one has done."</font><br>
 <font size="+0"><b>1981-1231 Talk to Sahaja Yogis, New Year's Eve, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
@@ -86,7 +86,7 @@ All moments of concerns and sorrows vanish<br>
 Nowhere else can my soul find peace except in the company (in union) with God Almighty<br>
 <font color="DarkRed">PRABHU MAZA SWAYE NĪTĪ, PRABHU MAZA SWAYE PRITĪ</font><br>
 My God himself is Truth and Love<br>
-<a href="">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -157,7 +157,7 @@ You are the Supreme Energy, and the Greatest Bliss.</font><br>
 </p>
 
 <p>
-<font color="MediumVioletRed"><b>Tum Asha Vishwas Hamare</b></font><br>
+<font color="green"><b>Tum Asha Vishwas Hamare</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
