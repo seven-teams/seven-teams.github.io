@@ -16,7 +16,7 @@ Actually the whole solar system is moving in a spiral way. So, there is definite
 Now, we can see that in awareness, human beings have definitely risen much higher than what they were, say, about two thousand years back.<br>
 But the first system that started, the whole universe was the first model, one can say, was created. And that model has to be perfect. And that was a perfect model, which then started perfecting the rest of it. So that is the perfect model which is in the Principle of this Ascent, and that is working out this ascent.<br>
 Now, the perfection of the rest of the universe takes place in various directions. But today we have to consider the Mahālakṣhmī Principle.<br>
-Now Mahālakṣhmī, as I told you, is a perfect principle. Is a perfect principle, it's perfect in it. It's born as perfect, will remain as perfect, will be always eternally perfect. So, that is not necessary to be corrected. "</font><br>
+Now Mahālakṣhmī, as I told you, is a perfect principle. Is a perfect principle, it's perfect in it. It's born as perfect, will remain as perfect, will be always eternally perfect. So, that is not necessary to be corrected."</font><br>
 <font size="+0"><b>1983-0101 Śhrī Mahālakṣhmī Pūjā, Mahālakṣhmī Principle of Our Ascent (Try to Develop that Innocence which Is the Basis of Mahālakṣhmī Tattwa and Mahālakṣhmī Tattwa Is Strengthened through Guru Principle), Nirmalā Kuṭīr (Cottage), Lakṣmī Nārāyaṇa Mandir, Shahupuri, Kolhapur, Maharashtra, India</b></font>
 </p>
 
