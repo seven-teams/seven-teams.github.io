@@ -1,5 +1,5 @@
 ---
-title: '2024 Celebrating 50 Years of Sahaja Yoga in UK, Post 0: announcement'
+title: '2024 Celebrating 50 Years of Sahaja Yoga in the UK, Post 0: announcement'
 date: 2024-01-04
 permalink: /yearly/2024/0104
 tags:
@@ -13,8 +13,8 @@ tags:
 <p>
 Dear All,<br>
 <br>
-We would like to announce that this year the weekly celebrations will be centered on 50 Years of Sahaja Yoga in UK (and implicitly in the Western World).<br>
-Please kindly refer to the new Divine Event (as the second sample out of 16) started by the CCT at the link <a href="https://seven-teams.github.io/events/1974-0101"> <font color="DeepPink"><b>1974-0101 Arrival, Airport, London, UK</b></font></a>.<br> 
+We would like to announce that this year the weekly celebrations will be centered on 50 Years of Sahaja Yoga in the UK (and implicitly in the Western World).<br>
+Please kindly refer to the new Divine Event (as the second sample of 16) started by the CCT at the link <a href="https://seven-teams.github.io/events/1974-0101"> <font color="DeepPink"><b>1974-0101 Arrival, Airport, London, UK</b></font></a>.<br> 
 <br>
 We hope very much that you will follow and enjoy all the posts.<br>
 <br>
