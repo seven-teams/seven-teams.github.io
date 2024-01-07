@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 26: Updates'
 date: 2024-01-07
-permalink: /photos/2024/0107
+permalink: /photos/2024/0107-a
 tags:
   - crimson @ Photographs of Shri Mataji
   - green @ Updates
