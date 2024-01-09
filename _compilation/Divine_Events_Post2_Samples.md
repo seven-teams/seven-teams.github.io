@@ -21,7 +21,7 @@ Samples:<br>
 <b>4.</b> <a href="https://seven-teams.github.io/events/1985-1117-b"> <font color="DeepPink"><b>1985-1117 Evening Program, after Diwālī Pūjā (6th Day after Diwālī Day), Bagni di Tivoli (24 kms E of Rome), Lazio, Italy</b></font></a> started on 2024-0104.<br>
 <b>5.</b> <a href="https://seven-teams.github.io/events/1978-0221"> <font color="DeepPink"><b>1978-0221 Second Birthday Anniversary of Anupama, Terrace and Flat of Mrs. Kalpana Srivastava, 161 Satnam Apartments, 93 Sadhu Vaswani Marg, Ganesh Murti Nagar, Cuffe Parade, Mumbai, Maharashtra, India</b></font></a> started on 2024-0105.<br>
 <b>6.</b> <a href="https://seven-teams.github.io/events/1964-0501-0500"> <font color="DeepPink"><b>1964-0500 Visit with Daughters, Liverpool and London, UK</b></font></a> started on 2024-0105.<br>
-<b>7.</b>......<br>
+<b>7.</b><a href="https://seven-teams.github.io/events/1983-0215"> <font color="DeepPink"><b>1983-0215 Talk to Sahaja Yogis, after the Viewing of the 'Gandhi' Movie, Hall, Alankar Cinema, Lajpat Nagar 3, New Delhi, India</b></font></a> started in 2023.<br>
 <b>8.</b>......<br>
 <b>9.</b>......<br>
 <b>10.</b>......<br>
