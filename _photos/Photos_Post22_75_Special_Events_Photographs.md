@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 13 Photos of the special event <font color="Crimson"><b>2003-1004 Pūjā, NJ, U.S.A.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 low resolutions and 8 medium resolutions from the Named Collections and 1 medium resolution from the XYZ Unknown Collection.<br>
-The direct link to the 16 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/U.S.A./2003">U.S.A. 2003</a>.<br>
+The direct link to the 16 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/USA/2003">U.S.A. 2003</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
