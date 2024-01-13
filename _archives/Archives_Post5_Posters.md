@@ -27,7 +27,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>P4.</b></font> <b>1990-0600 Poster for Public Programs on 0618 and 0619, Vienna, Austria (Edward Saugstad Collection)</b> (1 page, uploaded on 2024-0113), <font color="SeaGreen"><b>Source:</b></font> <a href="https://forallourdearsahajayogisandyoginis.wordpress.com/1991-august-in-vienna-with-the-mother-of-all/"> <b>Austria by Edward Saugstad</b></a>
+<font color="DarkGreen"><b>P2.</b></font> <b>1990-0600 Poster for Public Programs on 0618 and 0619, Vienna, Austria (Edward Saugstad Collection)</b> (1 page, uploaded on 2024-0113), <font color="SeaGreen"><b>Source:</b></font> <a href="https://forallourdearsahajayogisandyoginis.wordpress.com/1991-august-in-vienna-with-the-mother-of-all/"> <b>Austria by Edward Saugstad</b></a>
 
 <div style="text-align: center"><img src="/images/1990-0600_Poster_for_Public_Programs_on_0618_and_0619,_Vienna,_Austria_(Edward_Saugstad_Collection).jpg" /></div>
 
