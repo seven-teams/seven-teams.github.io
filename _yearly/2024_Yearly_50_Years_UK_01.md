@@ -13,7 +13,7 @@ tags:
 <div style="text-align: center"><img src="/images/image1315_1978-004_DCB.jpg" /></div>
 
 <br>
-<p style="color:DarkGreen; text-align:center">
+<p style="color:DarkGreen; text-align:center">                    
 <font size="+2"><b>England Is The Heart Of The Universe</b><br></font>
 </p>
 
@@ -36,4 +36,4 @@ Links to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/19
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
-<p>Yearly Topics Teams</p>
+<p>Yearly Topics Team</p>
