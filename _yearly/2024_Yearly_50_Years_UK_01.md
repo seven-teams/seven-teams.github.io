@@ -1,7 +1,7 @@
 ---
 title: '2024 Celebrating 50 Years of Sahaja Yoga in UK, Post 1'
-date: 2024-01-01
-permalink: /yearly/2024/0101
+date: 2024-01-12
+permalink: /yearly/2024/0112
 tags:
   - crimson @ 50 Years of Sahaja Yoga in UK
   - orange @ countries
