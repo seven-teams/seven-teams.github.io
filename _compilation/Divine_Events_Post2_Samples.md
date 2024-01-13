@@ -22,7 +22,7 @@ Samples:<br>
 <b>5.</b> <a href="https://seven-teams.github.io/events/1978-0221"> <font color="DeepPink"><b>1978-0221 Second Birthday Anniversary of Anupama, Terrace and Flat of Mrs. Kalpana Srivastava, 161 Satnam Apartments, 93 Sadhu Vaswani Marg, Ganesh Murti Nagar, Cuffe Parade, Mumbai, Maharashtra, India</b></font></a> started on 2024-0105.<br>
 <b>6.</b> <a href="https://seven-teams.github.io/events/1964-0501-0500"> <font color="DeepPink"><b>1964-0500 Visit with Daughters, Liverpool and London, UK</b></font></a> started on 2024-0105.<br>
 <b>7.</b> <a href="https://seven-teams.github.io/events/1983-0215"> <font color="DeepPink"><b>1983-0215 Talk to Sahaja Yogis, after the Viewing of the 'Gandhi' Movie, Hall, Alankar Cinema, Lajpat Nagar 3, New Delhi, India</b></font></a> started in 2023.<br>
-<b>8.</b><b>7.</b><a href="https://seven-teams.github.io/events/1985-0530-a"> <font color="DeepPink"><b>1985-0530 Shopping, before Lunch, Tijuana, Baja California, Mexico</b></font></a> started in 2023 and updated on 2024-0111.<br><br>
+<b>8.</b> <a href="https://seven-teams.github.io/events/1985-0530-a"> <font color="DeepPink"><b>1985-0530 Shopping, before Lunch, Tijuana, Baja California, Mexico</b></font></a> started in 2023 and updated on 2024-0111.<br>
 <b>9.</b> <a href="https://seven-teams.github.io/events/1983-0210-b"> <font color="DeepPink"><b>1983-0210 Talk to Sahaja Yogis, during and after the Musical Program, the day before Śhivarātri Pūjā, Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b></font></a> started in 2023.<br><br>
 <b>10.</b>......<br>
 <b>11.</b>......<br>
