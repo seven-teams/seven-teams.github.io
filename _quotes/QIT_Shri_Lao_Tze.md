@@ -178,7 +178,9 @@ All these sinful things were devised afterwards."<br>
 "Though this Incarnation is such that It never dies. Even if They leave the body, They are always around. And They are the Ones who perform lots of miracles when any other Incarnation comes on this Earth. They help, support, guide that seekers to go to the Incarnations.<br>
 So, to celebrate His [Śhrī Guru Nāṇaka's] birthday, on such a date, is also a myth because He never died. He is eternally living: They never grow and They never die.<br>
 <font color="red">But His birth is important, because, symbolically, He came on this Earth not to propagate any particular type of the Void as Muhammad did, or, say, Moses did, David, Moses and then, before that Abraham, Lao Tze, or Socrates, which followed into a religion.</font> But He came to create amenity, amity we can say, to create understanding, to create unity between the religions. This was a very big step for Sahaja Yoga.<br>
-After that as you know, He was born again, God knows where, no one knows where He was born, but He appeared as Śhirḍī Sāī Nāth. He too said the same thing: that, 'To talk ill of any religion is a sin.' "<br>
+After that as you know, He was born again, God knows where, no one knows where He was born, but He appeared as Śhirḍī Sāī Nāth. He too said the same thing: that, 'To talk ill of any religion is a sin.' 
+......<br>
+"<br>
 <font size="+0"><b>1982-1101 Talk to Sahaja Yogis (Śhrī Guru Nāṇaka Jayanti), Every Sahaja Yogi Has to Become a Guru, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>
 
@@ -186,7 +188,7 @@ After that as you know, He was born again, God knows where, no one knows where H
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1982-1226 Public Talk, Lions Club International, District 323-D, Pune, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -261,18 +263,55 @@ But people have gone to extremes. They are faddist[s]. Whatever you tell them: i
 <p>
 "Now when this center is illumined, around it is illumined your sustainance [sustenance]. That's your Inner Religion.<br>
 The ... we call it Ten Incarnations of the Primordial Master. There are many who came, but the Ones who came in India was called as Brahmadeva uh ... was called as Dattātreya, Janaka, Rāja Janaka, the father of Sītā. <font color="red">In China, Lao Tze, Confucius.</font> In uh, in the Bible, Abraham and Moses. And later on, in the uh form of uh Muhammad Sāhab. And then Janaka. No, no, Nāṇaka, I'm sorry, Nāṇaka. Nāṇak Sāhab. And in Greece, it was Socrates. They took birth on all these places. In the end, about fifty years back, or hundred years back, was born Great Primordial Master, in India, in Śhirḍī.<br>
-[Helping with the translation:] In Śhirḍī."<br>
+[Helping with the translation:] In Śhirḍī.
+......<br>
+Also it creates two institutions within you, as ego and superego, which cross over at this point [shows Āgñyā]. The right one passes like this, and crosses over and covers all this area in front [shows the left side and the front of Her head]. And the another one crosses over from the left side and covers this area [shows the right side and the back of Her head]. <font color="red">So you have these two things described in the Chinese style of uh Lao Tze's uh, say in religion.</font> These are the two institutions of Ha and Ṭha, two sympathetic nervous systems: one creating ego and another creating superego as a byproduct."<br>
 <font size="+0"><b>1983-0831 Public Program, Day 3, Geneva, Switzerland</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font color="red">""<br>
+<font size="+0"><b>1983-1001 Talk to Sahaja Yogis, Seminar, Day 1, Session 1, Kennolyn Campgrounds, 8400 Glen Haven Road, Soquel (10 kms ENE of Santa Cruz), CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<font color="red">"The same we had Lao Tze, who was the Primordial Master, one of His ten Incarnations; and the Disciple Principle was born as Viditama who started Zen.</font> This is the reason why you find those who follow Zen, more in the paintings, poetry. [De même nous avons eu Lao Tze, qui est le Maître Primordial, une de ses dix Incarnations. Et le Principe du Disciple naquit comme Bodhidharma, qui lança le Zen. C'est pourquoi vous trouvez ceux qui sont pratiqué le Zen plutôt dans la peinture, la poésie.]"</font><br>
+<font size="+0"><b>1984-0507 Interview with Michel Sadashiva Cherney for the Sahaja Yoga Magazine in French \textcolor{greeny}{\it L'Attention, Issue 4, Pages 32 to 37}, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), Île-de-France, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"So [that] the Ātmā, the Spirit, has to be found out, is said even by Muhammad Sāhab! He said, "You have to become the Pīr."<br>
+<font color="red">Is said by Zoroaster, is said by Lao Tze, is also said by Zen.</font> Buddha has said it, Mahāvīra has said it, every one of Them have said it.<br>
+So many religions have started, in the name of God, without going to the Truth, that, "You have to be born-again." "<br>
+<font size="+0"><b>1984-0622 Public Program, The Experience of Truth, Part I, Polytechnic of the South Bank (now London South Bank University), 103 Borough Road, Newington, Southwark, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1984-0708 Public Program, The Experience of Truth, Part III, Town Hall, Ilford (16 kms E-NE of London), Greater London, UK (another date 0709)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1984-0710 Public Program, The Experience of Truth, Part IV, Town Hall, Chiswick, London W4, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1984-0801 Public Program, The Work of the Divine, Guildhall Theatre, Market Place, Derby, Derbyshire, UK</b></font>
+</p>
 
 <div class="para-divider"></div>
 
@@ -289,23 +328,9 @@ But when Moses saw that the people were so much anti-God and so much anti-Divini
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
 "Now, since long, from ancient times, we have been hearing about the Spirit: that, 'We are the Spirit,' 'We have to become the Spirit.' <font color="red">Whether you take Confucius, or you have Lao Tze, or you have any Indian philosopher, or you may be having any one of the others in the West where Christ has said many a times that, 'We have to be the Spirit.'</font> "<br>
 <font size="+0"><b>1984-1122 Public Program, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font>
 </p>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
 
 <p>
 "And that is what is dharma: is the ten valences within us. <font color="red">These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.</font><br>
@@ -318,23 +343,7 @@ This is the only problem we have. That: we have all the ideals, we have all the 
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-"So [that] the Ātmā, the Spirit, has to be found out, is said even by Muhammad Sāhab! He said, "You have to become the Pīr."<br>
-<font color="red">Is said by Zoroaster, is said by Lao Tze, is also said by Zen.</font> Buddha has said it, Mahāvīra has said it, every one of Them have said it.<br>
-So many religions have started, in the name of God, without going to the Truth, that, "You have to be born-again." "<br>
-<font size="+0"><b>1984-0622 Public Program, The Experience of Truth, Part I, Polytechnic of the South Bank (now London South Bank University), 103 Borough Road, Newington, Southwark, London, UK</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1985-0303 Public Program, Adelaide, SA, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -348,19 +357,39 @@ So many religions have started, in the name of God, without going to the Truth, 
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1985-0420 Talk to Sahaja Yogis, Mahāmāyā Śhakti, Seminar, Day 1, Session 1 (morning), Mason Hall, University, Birmingham, West Midlands, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"So the ascent of the Kuṇḍalinī is a living process within you, which works out the Self-realization, the Second Birth as Christ has said, as Muhammad Sāhab has said, "You have to be a Walī," as Lao Tze has said, and Confucius has described. We have Nāṇaka and Janaka who have talked about it. That it is within us, and we have to achieve it within ourselves.</font>"<br>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0422 Public Program, Day 1, Université Paris Diderot Paris 7, 5 Rue Thomas Mann, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0424 Public Program, Day 2, CEDIAS-Musée Social, 5, Rue las Cases, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"So the ascent of the Kuṇḍalinī is a living process within you, which works out the Self-realization, the Second Birth as Christ has said, as Muhammad Sāhab has said, "You have to be a Walī," as Lao Tze has said, and Confucius has described. We have Nāṇaka and Janaka who have talked about it. That it is within us, and we have to achieve it within ourselves.</font>
+......<br>
+So only by believing [laughing:] that you are great, you don't become great.<br>
+This Spirit, when It shines, you become the True Knowledge. The falsehood drops out. The whole veil of ignorance goes away, and you see the light of Truth.<br>
+None of the Great Saints have been to any universities, colleges, anywhere. They have been very simple people, and what knowledge! From where did this knowledge come in? They never read any books! How did they know? <font color="red">Lao Tze never went to any college.</font> Socrates did not go to any college. From where did they learn all this knowledge?<br>
+You yourself, you are the store of knowledge, only you are to be connected with it.<br>
+So when you get connected like this instrument, or any instrument, it starts working automatically."<br>"<br>
 <font size="+0"><b>1985-0509 Public Program, Day 2, Habit Comes to You from Matter, Münich, Germany</b></font>
 </p>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+"Like I was in Pune the other day, and I met some very learned Sanskrit scholars. And I was amazed: that they all were suffering from all kinds of diseases of a very serious nature. They said we have a guru, another said he had a guru. I said, "How is it you are suffering from disease? If you have a guru at least your health should be all right, at least minimum of minimum." "Oh," they said, "no! This is something we are doing very ... uh serious work." "What is that?" They started giving Me names: aruṇopāy, tar[u]ṇopāy, this, that. Buthey said: that, "Our guru gives us a śhaktipāt." I said, "What is all that? I have never heard [about] it. In what book have you found it? Is it in Vedas? Is it in Purāṇas? Is it in the Gītā? Or is it in the Bible or Qur'ān, where is it? <font color="red">Did Lao Tze talk about it or Socrates?</font> From where do you get this word śhaktipāt suddenly? I've never heard about it." So they said about sixty, seventy years back there was a gentleman called Viṣhṇu Tīrth, he has written a book, a book, and all this is based on that śhaktipāt business. I said, "I've never heard of this Viṣhṇu Tīrth." "<br>
+<font size="+0"><b>1985-0510 Public Program, Becoming the Light within, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -368,13 +397,6 @@ So many religions have started, in the name of God, without going to the Truth, 
 <p>
 <font color="red">"Like in China, Confucius said that, "You must become very virtuous, righteous," because the Chinese were lethargic farmers, "and you must work," humanism He started. But now they found out that now they are going too much towards it. So Lao Tze came. You see, They had to work it out, because some people move like a pendulum on one side, then They have to move them on the other side. Lao Tze came, He talked about Tao."</font><br>
 <font size="+0"><b>1985-0627 Public Program, Day 2, Chakras, Elements and Their Qualities, Colegio Mayor Chaminade, Paseo de Juan XXIII, No. 9, Madrid, Spain</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -395,7 +417,7 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, South Yorkshire, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -416,8 +438,19 @@ So we respect all these Great Incarnations, and then understand what They have d
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font color="red">"You may read the books written by famous personalities like Socrates, Lao Tze, Confucius, who have said, "One should get one's Self-realization." "</font><br>
+<font size="+0"><b>1986-0401 Public Program (Hindi), Day 2, Ghanaśhyām das Birla Sabhaghar, 29 Ashutosh Choudhry Avenue, Near Birla Mandir, Ballygunge, Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now, we can say that Christ has always said that, "You are to be born-again." In all the religions, which are true religions, it is said, "You are to be born-again"!<br>
+Actually, in India, which is a country which we think is not very developed, has been always the idea that you have to achieve your Self-realization.<br>
+<font color="red">Zen has said the same thing, Lao Tze's Tao is the same thing, in Islam it is said the same thing.</font> Muhammad Sāhab has said that: "In the Time of Resurrection your hands will speak."<br>
+But they [the Muslims] do not talk of the Resurrection. They talk of the Doomsday, which is a wee part in the Qur'ān.<br>
+Christians, also, don't talk about what John has said or Christ has said that, "I'll send you the Holy Ghost." That: 'You will get your redemption, your comfort and your counseling,' through that Person."<br>
+<font size="+0"><b>1986-0520 Public Program, Day 1, Faculté de Medicine Lariboisière Saint-Louis, Université Paris Diderot (Paris 7), 10 Avenue de Verdun, Paris, France</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -432,13 +465,6 @@ But all these Saints, Prophets and Incarnations had to suffer a lot because of t
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
 "As a result, Kuṇḍalinī has started moving. So now, to enlarge the higher centers, and to give full confidence to the Kuṇḍalinī, we have to put our r... right hand in the upper part of the abdomen on the left-hand side and press it hard, and say here, will full confidence in yourself: 'Mother, I am my own master. Mother, I am my own guide.' Please say it with full confidence. There's no ego about it. With full confidence you must say, so the center of your mastery will open out and the Kuṇḍalinī can pass through well. It's effortless. Only thing we are helping the Kuṇḍalinī to have Her own way upward. This you have to say ten times because there are ten petals to this. <font color="red">This is actually the Ten Commandments which represent these ten petals and there were Ten Sadgurus in the past who came again and again on this Earth: like Prophets, like Moses, like Abraham, like Lao Tze, like Socrates.</font> [After 15 seconds:] Please say this ten times."<br>
 <font size="+0"><b>1986-0530 Public Program, Day 1, Pyramid, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
 </p>
@@ -446,8 +472,30 @@ But all these Saints, Prophets and Incarnations had to suffer a lot because of t
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">The authority with which Moses talked, authority with which Socrates talked, authority with which Lao Tze talked ... All these great Ādi Gurus, from Ādināth to Sāī Nāth, They didn't say, 'If you do this way will be good,' or, 'That way would be good.' No! "This is what it is, you better do it!"</font><br>
+This is what it is!"<br>
+<font size="+0"><b>1986-0706 Guru Pūjā, Cosmic Consciousness, Hall, Kongresshaus Toscana, Toscanapark und Ruhe, Johann Orth-Allee 23, Gmunden (75 kms E of Salzburg), Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1986-0823 Talk to Sahaja Yogis, before Dinner and Śhrī Kṛiṣhṇa Pūjā, Hotel Primerose (now Hostellerie am Schwarzsee), Seestrasse 10, Schwarzsee (2k kms SE of Fribourg), Valais, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1986-0916 Public Program, Hall, The General Art Center Op Gouden Wieken (demolished in 1992), Scheveningseweg 237, The Hague, Netherlands</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1986-0917 Public Program, Collège Saint-Michel, Boulevard Saint-Michel 24, Etterbeek, Brussels-Capital Region, Belgium</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -460,25 +508,11 @@ But all these Saints, Prophets and Incarnations had to suffer a lot because of t
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
 "That is how the beauty is expressed through the holy hands of holy people, all over the world.<br>
 I don't know nowadays if it is done so.<br>
 <font color="red">Even in those days-s-s, at the time of Socrates, Lao Tze, philosophy was the dominating subject.</font> People thought philosophy was the epitome of knowledge.<br>
 But suddenly then it turned to economics, and that's the place we have l... we lost our heritage of creativity, of the Divine Values, of the Divine Guṇas."</font><br>
 <font size="+0"><b>1987-0102 Talk to Sahaja Yogis (English + Marathi), Beauty Must Have Auspiciousness, before the Evening Program, Session 1 (before Dinner), Gaṇapatīpuḷe, Maharashtra, India</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -495,7 +529,7 @@ We have to be honest to know the Truth. And that honesty is as simple as this: t
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1987-1221 Pūjā (Marathi + English + Marathi + English), Become Beautiful Vessels of Vibrations and Attention on Quality, House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -508,11 +542,10 @@ We have to be honest to know the Truth. And that honesty is as simple as this: t
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1990-0228 Talk to Sahaja Yogis, in Transit, Changi Airport, Singapore</b></font>
 </p>
 
 <div class="para-divider"></div>
-
 
 <p>
 "This is all absolutely traditional but is not a dead tradition.<br>
@@ -542,7 +575,34 @@ But only thing it was not so said so clearly. Because there were not people inte
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1990-0811 Public Program, Canadadeśha, Music Academy, 1270 Chestnut Street, Kitsilano, Vancouver, BC, Canada</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-1101 Public Program, Day 1, Girls Guide Hall, Brickfields, Kuala Lumpur, Malaysia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"So what we need is a transformation.<br>
+<font color="red">And the time has come for us to achieve the transformation, which is described in all the Scriptures: in the Bible it is dexcribed [described] as the Second Birth, even in the Hindu Scripture is described as the Brahmagyān, or you can call it again the Second Birth, dvijaḥ, it is described in the Bib... in the Qur'ān, is described in all the Buddha's teachings, described by Mahāvīra, is described by Nāṇaka, by all the religious people, even Confucius has talked about it, Lao Tze has talked about it.</font>"<br>
+<font size="+0"><b>1991-0416 Public Program, Day 1, State Theatre, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"And Sahaj Yog is in vogue from time immemorial in our country.<br>
+Guru Nāṇak said about Sahaja Samādhi.<br>
+Which Saint has not talked about Sahaj?<br>
+<font color="red">If you see Lao Tze, He said the same thing.</font><br>
+If you see Socrates, He talked about the same thing.<br>
+But we are like we have closed our eyes."<br>
+<font size="+0"><b>1991-1216 Public Program (Hindi + Marathi), Day 1, Kuṇḍalinī Eka Mahāna Śhakti (Kuṇḍalinī Is a Great Power), Grounds, New English School, Tilak Road, Pune, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -574,13 +634,139 @@ But nobody could put it through to people because, I think, people did not want 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+This is the area [void] which we say is-ss within us built up by the-ee Great Prophets. <font color="red">"You can start, say, Abraham, Moses, Socrates, Lao Tze, all these Great Prophets have built this area within us.</font><br>
+And this represents ten valencies, like Ten Commandments. Carbon has got four valencies, we have got ten valencies. And these ten valenji-cies [valencuies] are our real actual human nature, which we can call is the religion within ourselves."<br>
+<font size="+0"><b>1992-0228 Public Program, Newcastle (160 kms N of Sydney), New South Wales, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
-[<font color="orange">WARNING: Quotes for the period 1981-09 to 2001-05 will follow in due time.</font>]
+<p>
+<font color="red">"<br>
+.......<br>
+"</font><br>
+<font size="+0"><b>1992-0531 Śhrī Buddha Pūjā, The Search for the Absolute, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0723 Public Program, Zala Festivalna, 1111 ж.к. Гео Милев, Sofia, Bulgaria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0724 Public Program, Salle Gaveau, 45-47 Rue La Boétie, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0726 Public Program, Linz, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"In the same way in the Hindu Scriptures or the Buddhist Scriptures, anywhere you go, take Lao Tze [laughing:] or any one of them, the description of a religious man is very different from the people who practice so-called that religion.</font> There's [laughing:] such a difference. And they admit! They all admit [it] also. Why there is so much difference?<br>
+For example, somebody is a Christian, Hindu, Muslim, whatever it is: anyone can commit any sin, anyone can kill anyone, anyone can hate anyone. Nobody stops because he follows a particular religion, or uh because there is righteousness in his character.<br>
+So, there is no Innate Righteousness within us."<br>
+<font size="+0"><b>1992-0913 Public Program, Robson Square Conference Center, 800 Robson Street, Vancouver, BC, Canada</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"We have had lots of good people, during this short time if you see. See, if you see, Mahātmā Gāndhī was there's, Martin Luther was there, all kinds of people you see uh-uh-uh all over, uh Abraham Lincoln was there, uh George Washington was there, we have uh William Blake was there, uh we had Shakespeare.<br>
+<font color="red">All this, this time, you see in the literature, in every way, Lao Tze, then we had uh-uh-uh Socrates.</font> Will start from Socrates to today, we have had lots of philosopher[s], lots of people who talked about [a] higher life.<br>
+Despite that, people were thinking, 'These are some absurd people, there's nothing in it now, too much to understand.' Nobody would read anything about, uh-uh-uh say, Guru Gītā they would not. They would think a, 'What's this nonsense? What's the use? It's all humbug going on,' like that."<br>
+<font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Alessandria, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-0908 Śhrī Mahālakṣhmī Pūjā, National Palace of Culture (NDK), Boulevard Bulgaria, 1463 NDK, Sofia, Bulgaria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">[Talking about Confucius and Lao Tze, She says that all these Masters talked to people, in the language suitable for the times. Whereas Confucius came to teach about humanity, Lao Tze talked of Tao, which is nothing but Kuṇḍalinī. When Śhrī Mātājī was sailing down the Yangtze River, She remembered how Lao Tze had described this river as Tao. This river is so beautiful on both the sides, that all inspirations of Chinese Paintings come from there: In His poem, Lao Tze has described Tao as that there are beautiful things on the way, but one should be on the move, should not get attracted, but be a mere witness. When the river (Tao) gets near the ocean, it becomes quiet, and it is only then that it enters the ocean.]</font><br>
+<font size="+0"><b>1993-1113 Interview with Prof. Yuriy A. Voronov, Moscow, Russia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-0321 Talk to Sahaja Yogis, Birthday Felicitations, before Birthday Pūjā, Kalā Mandir Hall, Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-0406 Public Program, An Ancient Knowledge, Centennial Hall, Town Hall, 483 George Street, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-0418 Public Program, Kanda Panse Hall, Panse (Holy Field), Chiyoda, Tokyo, Japan</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-0420 Public Program, Taipei City, Taiwan}\label{1994-0420 Public Program, Taipei City, Taiwan</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-0711 Public Program, The Inner Religion, Hôtel Concorde Lafayette (now Hyatt Regency Paris Étoile), Le Palais des Congrès, 7e Niveau, 2 Place de la Porte Maillot, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1995-0301 Talk to Sahaja Yogis, Zen System or Sahaja Yoga Is Also Zen, before the Public Program, Four Seasons Hotel, Tokyo, Japan</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1995-0312 Public Program, Hall, Kolej Damanasara Utama University College, Petaling Jaya (15 kms W of Kuala Lumpur), Malaysia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Confucius has taught the humanity how we can improve our relations with other human beings. <font color="red">But Lao Tze in Chine has very beautifully described Tao, meaning the Kuṇḍalinī.<br> 
+And I have had a voyage through the Yangtze River through which Lao Tze had gone many times. I know he was trying to show that river, which is the Kuṇḍalinī, is flowing towards the sea and one should not be tempted by the nature that is around. The nature around the Yangtze River is very, very beautiful, no doubt, but one has to go through the river. Also there are lots of currents which flow and can be quite dangerous and we need a good navigator who should take his ship across to the point where it is nearer the sea. At that stage it becomes very silent and extremely simple in its flow.<br>
+This country has been endowed with great philosophers, I would say the greatest was Lao Tze, because humanism was for the preparation of human beings for their ascent about which Lao Tze had spoken. But because of the subtle subject it was not described in such a clear-cut manner as I am talking to you."</font><br>
+<font size="+0"><b>1995-0913 Written (Prepared) Talk, On the Global Problems Facing Women, Inter-Regional Round Table, Fourth World Conference on Women: Action for Equality, Development and Peace, Guanjunyuan Hotel, Beijing, China</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"<br>
+......<br>
+"</font><br>
+<font size="+0"><b>1995-0913 Public Program, Function Room, Jingguang New World Hotel-Manfulou, 1 Chaoyangmen Outer St, Guomao, Chaoyang, Beijing, China</b></font>
+</p>
 
 <div class="para-divider"></div>
 
@@ -593,7 +779,129 @@ But nobody could put it through to people because, I think, people did not want 
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1996-0219 Public Address to Doctors, Inauguration, International Sahaja Yoga Research and Health Center, Plot No. 1, Sector 8, H.H. Śhrī Nirmalā Devī Mārg, C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now this, special thing as called as Kuṇḍalinī, is not to be discarded because It's coming from India.<br>
+It has been described in every Scripture. Even in the Bible is described, that, "I'll appear before you like tongues of flames."<br>
+[Pointing to the Chakra Chart:] These are the tongues of flames you see, along the path of the Kuṇḍalinī.<br>
+Also Muhammad Sāhab has said very clearly, in His Qur'ān, that: "If you want to know God, you must know your Self."<br>
+Christ has said: "Know thy Self."<br>
+All of Them had said the same thing!<br>
+<font color="red">If you see Zen system, or Lao Tze, Confucius, any one of Them, They all said that, "Unless and until you-know ... you know your Self, you are not there. You have no identity.</font>"<br>
+<font size="+0"><b>1996-0304 Public Program, Convention Center, Darling Harbor, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">In China we had Lao Tze, who talked of nothing but Sahaja Yoga.</font> Also, in Japan we had Viditama, spoke about uh Zen, Zen system. <font color="red">All are just to make a human attention go beyond the mind. Beyond the mind is the reality.</font>"<br>
+<font size="+0"><b>1996-0306 Public Program, Shieh Chien Hall (at that time), Taipei City, Taiwan</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"In the same way, we have this Kuṇḍalinī within us, which sprouts itself.<br>
+You should not be shocked. <font color="red">You are ps... if you are uh-ah-ha, I mean, people of the Chinese tradition, you should know what Tao has said. In Tao what, He had said, the Lao Tze, that: "This mind is a myth."</font><br>
+That means this mind is created out of our reaction through our conditionings or our ego. But there's no reality in it."<br>
+<font size="+0"><b>1996-0309 Public Program, Auditorium, Town Hall, Sha Tin (14 kms E of Hong Kong), China</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1996-0310 Talk to Sahaja Yogis, before the Evening Program, Furama Hong Kong Hotel, 37 Dundas St, Mong Kok, Hong Kong, China</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1996-0312 Public Program, Hall, Kolej Damanasara Utama University College, Petaling Jaya (15 kms W of Kuala Lumpur), Malaysia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1996-0321 Birthday Pūjā (Hindi + English), Mind is a Myth, Scouts Camp, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1996-0707 Public Program, National Palace of Culture (NDK), Boulevard Bulgaria, 1463 NDK, Sofia, Bulgaria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1998-1216 Talk to Sahaja Yogis (Hindi + English + Hindi), Expression of Subtle Elements, before and during the Evening Program, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1999-0616 Public Program (also Follow On to Public Talk to VIPs), The Town Hall, 123 West and 43rd Street, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1999-0627 Press Conference with One Reporter for 'VisionTV' Channel and with Four Journalists for 'Common Ground Magazine', 'U Magazine', 'The Link Newspaper', and 'Vancouver Indian Community Press', Sutton Place Hotel, 845 Burrard Street, Vancouver, BC, Canada</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1999-1225 Christmas Pūjā, Gaṇapatīpuḷe, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"<br>
+......<br>
+"</font><br>
+<font size="+0"><b>2000-0611 Public Program, Massey Theater, 735 Eight Avenue, New Westminster (21 kms SE from Vancouver), BC, Canada</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>2000-0616 Public Program, Town Hall, 123 West and 43rd Street, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>2000-0723 Guru Pūjā, Śhraddhā, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>2001-0320 Talk to Sahaja Yogis, Birthday Felicitations, Nirmal Dham, Behind BSF Camp Chhawala, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>2001-0506 Sahasrāra Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
 <div class="para-divider"></div>

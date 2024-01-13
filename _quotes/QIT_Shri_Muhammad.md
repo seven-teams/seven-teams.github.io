@@ -1352,22 +1352,6 @@ And also told you how by understanding these different Gurus we can produce the 
 <div class="para-divider"></div>
 
 <p>
-"And that is what is dharma: is the ten valences within us. <font color="red">These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.</font><br>
-But despite all that, we do not know: we'll worship Dattātreya, and we will not follow Him.<br>
-This is the only problem we have. That: we have all the ideals, we have all the capacity to understand that this is something great, but we have no power to follow it. Because we are not Samartha, we are not equal to the meaning of a human being."<br>
-<font size="+0"><b>1984-1205 Public Program (English+Marathi), Day 2, Pune, Maharashtra, India</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
 "<font color="red">So [that] the Ātmā, the Spirit, has to be found out, is said even by Muhammad Sāhab! He said, "You have to become the Pīr."</font><br>
 Is said by Zoroaster, is said by Lao Tze, is also said by Zen. Buddha has said it, Mahāvīra has said it, every one of Them have said it.<br>
 So many religions have started, in the name of God, without going to the Truth, that, "You have to be born-again." "<br>
@@ -1391,6 +1375,20 @@ But for that happening, human being had to be prepared. People had to be balance
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"And that is what is dharma: is the ten valences within us. <font color="red">These ten valances are nothing but dharma, which was preached by all the Great Saints. We can start it from Ādināth, we can say Lao Tze, we can say Confucius, we can say Zoroaster, we can say Muhammad Sāhab, we can say Nāṇak Sāhab, we can say Janaka, we can say the, all of Them are the representation or manifestation of Dattātreya, which we know very well in Maharashtra what is Dattātreya.</font><br>
+But despite all that, we do not know: we'll worship Dattātreya, and we will not follow Him.<br>
+This is the only problem we have. That: we have all the ideals, we have all the capacity to understand that this is something great, but we have no power to follow it. Because we are not Samartha, we are not equal to the meaning of a human being."<br>
+<font size="+0"><b>1984-1205 Public Program (English+Marathi), Day 2, Pune, Maharashtra, India</b></font>
+</p>
 
 <p>
 <font color="red">""</font><br>
@@ -1440,6 +1438,24 @@ But everybody missed the point.<br>
 <font color="red">Zoroaster talked about it thousands of years back.</font> Confucius, Lao Tze, everyone talked about it: that, 'We have to be the Spirit.'<br>
 Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do you mean to say, I should enter into the womb of my mother?" "No," He said, "whatever is born of the flesh is the flesh. You are to be born of the Holy Ghost." "<br>
 <font size="+0"><b>1985-0703 Public Program, Day 1, Nederlands Congresgebouw (now World Forum), Churchillplein 10, The Hague, Netherlands</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now, we can say that Christ has always said that, "You are to be born-again." In all the religions, which are true religions, it is said, "You are to be born-again"!<br>
+Actually, in India, which is a country which we think is not very developed, has been always the idea that you have to achieve your Self-realization.<br>
+<font color="red">Zen has said the same thing, Lao Tze's Tao is the same thing, in Islam it is said the same thing. Muhammad Sāhab has said that: "In the Time of Resurrection your hands will speak."</font><br>
+But they [the Muslims] do not talk of the Resurrection. They talk of the Doomsday, which is a wee part in the Qur'ān.<br>
+Christians, also, don't talk about what John has said or Christ has said that, "I'll send you the Holy Ghost." That: 'You will get your redemption, your comfort and your counseling,' through that Person."<br>
+<font size="+0"><b>1986-0520 Public Program, Day 1, Faculté de Medicine Lariboisière Saint-Louis, Université Paris Diderot (Paris 7), 10 Avenue de Verdun, Paris, France</b></font>
 </p>
 
 <div class="para-divider"></div>
