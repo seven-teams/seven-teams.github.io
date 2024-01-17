@@ -24,7 +24,7 @@ Samples:<br>
 <b>7.</b> <a href="https://seven-teams.github.io/events/1983-0215"> <font color="DeepPink"><b>1983-0215 Talk to Sahaja Yogis, after the Viewing of the 'Gandhi' Movie, Hall, Alankar Cinema, Lajpat Nagar 3, New Delhi, India</b></font></a> started in 2023.<br>
 <b>8.</b> <a href="https://seven-teams.github.io/events/1985-0530-a"> <font color="DeepPink"><b>1985-0530 Shopping, before Lunch, Tijuana, Baja California, Mexico</b></font></a> started in 2023 and updated on 2024-0111.<br>
 <b>9.</b> <a href="https://seven-teams.github.io/events/1983-0210-b"> <font color="DeepPink"><b>1983-0210 Talk to Sahaja Yogis, during and after the Musical Program, the day before Śhivarātri Pūjā, Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b></font></a> started in 2023.<br>
-<b>10.</b>......<br>
+<b>10.</b> <a href="https://seven-teams.github.io/events/1980-0418-a"> <font color="DeepPink"><b>1980-0418 Picnic, Garden Lawn, Palace of Versailles, Place d'Armes, 78000 Versailles, Île-de-France, France</b></font></a> started in 2024-0117.<br>
 <b>11.</b>......<br>
 <b>12.</b>......<br>
 <b>13.</b>......<br>
