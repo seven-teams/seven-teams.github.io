@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1987-0815 Departure to Chartres Cathedral, Entrance to an Apartment Building, France</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
-The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1987">Collection 1987</a>.<br>
+We are pleased to let you know that 7 Photos of the special event <font color="Crimson"><b>1987-0815 Departure to Chartres Cathedral, Entrance to an Apartment Building, France</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 7 high resolutions from the Named Collections.<br>
+The direct link to the 7 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1987">Collection 1987</a>.<br>
+[Note: one Photo was uploaded only on 2024-0120.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
