@@ -18,6 +18,4 @@ We would like to thank the Sahaja Yoginī who suggested this topic.<br>
 The Comprehensive Compilations Team
 </p>
 
-[Instantly download the pdf here](https://bit.ly/3bf9Tbr)
-
-<iframe src="/pdf/#/files/Gout.pdf" width="1000px" height="1000px"></iframe>
+[Download pdf here](http://seven-teams.github.io/files/2024_Sahaja_Yoga_Festivity_Team_Calendar.pdf)
