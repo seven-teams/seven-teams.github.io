@@ -29,6 +29,7 @@ Also, we are seeking your feedback on the fact that we are considering uploading
 <b>(iv)</b> the transcript has very reliable sources and it was not publicly shared at the time it was shared in the Divine Message.<br>
 <br>
 Please kindly share this first annual report with all our brothers and sisters.<br>
+<br>
 Jay Śhrī Mātājī!<br>
 <br>
 The Comprehensive Compilations Team (The Divine Events Subteam)<br>
