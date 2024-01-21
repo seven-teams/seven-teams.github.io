@@ -11,7 +11,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Happy New Year<br>
+Happy New Year!<br>
 <br>
 We would like to get feedback on 16 samples of the Divine Events: on colors, on spacing, on the number of images (please keep in mind that the strict unwritten rules do not allow more than 4 images per Divine Event), etc.
 Samples:<br>
