@@ -12,7 +12,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 The webpage <a href="https://seven-teams.github.io/tag-events/"> <font color="DeepPink"><b>Divine Events Tag</b></font></a> has:<br>
-<b>Started:</b> has 5,010 Divine Events started.<br>
+<b>Started:</b> 5,010 Divine Events started.<br>
 <b>UPTD:</b> 11 Divine Events up to date.<br>
 <b>Percentage:</b> 0.219560878% of up-to-date Divine Events among all the Divine Events started.<br> 
 <b>Queued Tabulated:</b> 7,966 tabulated Divine Events that are queued to be started.<br>
