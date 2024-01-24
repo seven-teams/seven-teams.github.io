@@ -18,7 +18,7 @@ tags:
 </p>
 
 <p>
-"Now I always enjoyed Hampstead. Because, as I have told you, in London, many people who were great spiritual lived in this area. They preferred it to other places. So, I believe that many people who live in this area must be also spiritual, must have taken their birth with the idea of achieving their Self-realization.<br>
+"Now I always enjoyed Hampstead. Because, as I have told you, in London, many people who were great spiritual[s] lived in this area. They preferred it to other places. So, I believe that many people who live in this area must be also spiritual, must have taken their birth with the idea of achieving their Self-realization.<br>
 ......<br>
 Then why not grow? When are we going to grow? When are we going to become fully that? Time is very short, My children. Time is very, very short. Believe Me!<br>
 ......<br>
@@ -28,7 +28,7 @@ And if you now, any way, escape your responsibility, you will be held responsibl
 This is what it is. It's a tremendous work one has to do, for which you must prepare yourself. Get to it. I can give Realization, that's all. But I can't give you strength. I mean, you can't make the horse stand up on his four legs, can you?<br>
 ......<br>
 I want you to grow. Not because I want, but Divine wants it. The whole Creation wants it. Otherwise it will have no meaning.<br>
-So the responsibility of English Sahaja Yogis, British Sahaja Yogis is very great. Again and again I have requested you and I have told you in whatever way possible, that establish yourself."<br>
+So the responsibility of English Sahaja Yogis, British Sahaja Yogis is very great. Again and again I have requested you and I have told you in whatever way possible, that [you] establish yourself."<br>
 <font color="blue"><b>1982-0610 Public Program, Friends Meeting House, 120 Heath Street, Hampstead, London NW3 1DR, UK</b></font><br>
 </p>
 
