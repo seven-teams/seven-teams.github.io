@@ -495,6 +495,21 @@ All these sinful things were devised afterwards."<br>
 <div class="para-divider"></div>
 
 <p>
+"So this kind of a challenge, only a person who is a realized Soul can put it. And all realized Souls will stand by with that person: they'll have the same voice about it. Whether you go to the antiquities or you go in the future, any time a realized Soul will come he said the same thing.<br>
+<font color="red">That's why there is so much similarity, s-s... I should say the unity: in all these people whether it is Lao Tze, or whether it is Muhammad Sāhab or whether it is Rāja Janaka or Nāṇaka, They say the same thing.</font>"<br>
+<font size="+0"><b>1984-0710 Public Program, The Experience of Truth, Part IV, Town Hall, Chiswick, London W4, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+<p>
+
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now whatever Arneau has told you, or  whatever I am going to tell you, is the knowledge of the roots, which was kept secret for thousands of years. And first time in the sixth century people started talking openly about it and telling: what are we inside ourselves.<br>
 But all the Great Incarnations who came in this tradition of spirituality, one by one manifested, every time, a new awareness in the human dimension.<br>
 In the ancient time when they followed Patañjali Yoga, that time, they were hardly one or two people whom Realization was given. <font color="red">Like Rāja Janaka gave Realization to one person, who was the father-in-law of Śhrī Rām.</font><br>

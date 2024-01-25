@@ -1065,6 +1065,21 @@ This balancing is done by people who incarnate on this Earth as Great Prophets. 
 <div class="para-divider"></div>
 
 <p>
+"And that's what one has to do: is to place yourself in such a way, 'Let us see.' Keep your minds open to see: what is the Truth about yourself.<br>
+Now this Truth has been told by many Great Sages, by Prophets and many Incarnations who came on Earth. <font color="red">As we know Christ has said about it, Nāṇaka has said about it, Kabīra has said, Lao Tze has said, Buddha has said, everyone has said one thing, which is ... people ... which I should say people neglect and are not bothered about it.</font> And the simple thing is, that: 'You have to have your Second Birth. You have to know your Self. you have to have Self-realization.' This every one of them have said it."<br>
+<font size="+0"><b>1982-1007 Public Program, Truth Is to Be Achieved, Guild Hall (now Bedford Guild House), 56 Harpur Street, Bedford, Bedfordshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "So, to uh establish the balance within us, these people came again and again, these Ten Primordial Beings we saw: some on the left-hand side, some on the right-hand side. It's very symbolic. The whole thing is so wonderful.<br>
 <font color="red">So now we can say who They were. From the very beginning, this is Socrates, Moses, Abraham, Lao Tze, we had Muhammad, Nāṇak, Janak, and the last of all was Śhirḍī Sāī Nāth.</font> Śhirḍī Sāī Nāth: the one who lived in Śhirḍī. He is the last Incarnation who came. <font color="red">After Muhammad Nāṇaka came, after Nāṇaka Śhirḍī Sāī Nāth.</font><br>
 All these are the one and the only ... only one Principle of Primordial Master who came, and They all said the same thing.<br>
@@ -1072,6 +1087,25 @@ First of all, They were against alcohols, against any kind of a[n] intoxication.
 But say, at the time of Moses they didn't have cigarettes, you see, so He didn't say about cigarettes, naturally. They didn't have. So the people who follow Moses think, 'There's nothing wrong with cigarettes because He didn't say.' But that time there were no cigarettes, you see?<br>
 All these sinful things were devised afterwards."<br>
 <font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">Though this Incarnation is such that It never dies. Even if They leave the body, They are always around. And They are the Ones who perform lots of miracles when any other Incarnation comes on this Earth. They help, support, guide that seekers to go to the Incarnations.<br>
+So, to celebrate His [Śhrī Guru Nāṇaka's] birthday, on such a date, is also a myth because He never died. He is eternally living: They never grow and They never die.<br>
+But His birth is important, because, symbolically, He came on this Earth not to propagate any particular type of the Void as Muhammad did, or, say, Moses did, David, Moses and then, before that Abraham, Lao Tze, or Socrates, which followed into a religion. But He came to create amenity, amity we can say, to create understanding, to create unity between the religions. This was a very big step for Sahaja Yoga.<br>
+After that as you know, He was born again, God knows where, no one knows where He was born, but He appeared as Śhirḍī Sāī Nāth. He too said the same thing: that, 'To talk ill of any religion is a sin.'</font>
+......<br>
+So, try to gather nourishment. Like reading Devī Māhātmyam, reading about ... finding out about Bible and finding about other Scriptures, about Qur'ān, this, that, and which supports you, which nourishes you. <font color="red">Blake, Kabīr, Nāṇak, I mean there are so many, Lao Tze. This is the Guru: is the knowledge.</font>"<br>
+<font size="+0"><b>1982-1101 Talk to Sahaja Yogis (Śhrī Guru Nāṇaka Jayanti), Every Sahaja Yogi Has to Become a Guru, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1096,6 +1130,23 @@ The ... we call it Ten Incarnations of the Primordial Master. There are many who
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
+
+<div class="para-divider"></div>
+
+<p>
+"So this kind of a challenge, only a person who is a realized Soul can put it. And all realized Souls will stand by with that person: they'll have the same voice about it. Whether you go to the antiquities or you go in the future, any time a realized Soul will come he said the same thing.<br>
+<font color="red">That's why there is so much similarity, s-s... I should say the unity: in all these people whether it is Lao Tze, or whether it is Muhammad Sāhab or whether it is Rāja Janaka or Nāṇaka, They say the same thing.</font>"<br>
+<font size="+0"><b>1984-0710 Public Program, The Experience of Truth, Part IV, Town Hall, Chiswick, London W4, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+<p>
+
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
 
 <p>
 "Sahaja Yoga is not a new thing. In the tradition of spirituality, it is mentioned, about fourteen thousand years back, by Mārkaṇḍeya, that, 'Ultimately it is the force, within you, of the Holy Ghost, which is called as Kuṇḍalinī, residing in the triangular beau ... bone, has to give the Realization.'<br>

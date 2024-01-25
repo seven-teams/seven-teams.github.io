@@ -77,6 +77,35 @@ Now today they are like Incarnations. Incarnations are beyond but maybe the gap 
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"All the Scriptures, whether it is Bible, Qur'ān, or any Indian Scripture, even Lao Tze, or if we go to Zen or Buddha, Mahāvīra, all of them have said that: "You are to be reborn."</font><br>
+<font size="+0"><b>1982-0823 Public Program, Day 1, Temple de la Fusterie (Fusterie Temple), Place de la Fusterie, Geneva, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"And that's what one has to do: is to place yourself in such a way, 'Let us see.' Keep your minds open to see: what is the Truth about yourself.<br>
+Now this Truth has been told by many Great Sages, by Prophets and many Incarnations who came on Earth. <font color="red">As we know Christ has said about it, Nāṇaka has said about it, Kabīra has said, Lao Tze has said, Buddha has said, everyone has said one thing, which is ... people ... which I should say people neglect and are not bothered about it.</font> And the simple thing is, that: 'You have to have your Second Birth. You have to know your Self. you have to have Self-realization.' This every one of them have said it."<br>
+<font size="+0"><b>1982-1007 Public Program, Truth Is to Be Achieved, Guild Hall (now Bedford Guild House), 56 Harpur Street, Bedford, Bedfordshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "All the Incarnations who came on this Earth were a milestone on the ladder of our evolution. But They all had one type of work to do.<br>
 Like the Goddess had to kill the rākṣhasas and save the devotees.<br>
 That is why Śhrī Kṛiṣhṇa arranged this play. This was all a play. There is no need to be so serious about it. Śhrī Kṛiṣhṇa won everyone with His sweetness. He explained all our faults in a sweet and roundabout way. It was a very beautiful Incarnation of His.<br>

@@ -149,14 +149,15 @@ Dharma means a sustainance [sustenance], that is we can say, that is quality tha
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"All the Scriptures, whether it is Bible, Qur'ān, or any Indian Scripture, even Lao Tze, or if we go to Zen or Buddha, Mahāvīra, all of them have said that: "You are to be reborn."</font><br>
 <font size="+0"><b>1982-0823 Public Program, Day 1, Temple de la Fusterie (Fusterie Temple), Place de la Fusterie, Geneva, Switzerland</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"And that's what one has to do: is to place yourself in such a way, 'Let us see.' Keep your minds open to see: what is the Truth about yourself.<br>
+Now this Truth has been told by many Great Sages, by Prophets and many Incarnations who came on Earth. <font color="red">As we know Christ has said about it, Nāṇaka has said about it, Kabīra has said, Lao Tze has said, Buddha has said, everyone has said one thing, which is ... people ... which I should say people neglect and are not bothered about it.</font> And the simple thing is, that: 'You have to have your Second Birth. You have to know your Self. you have to have Self-realization.' This every one of them have said it."<br>
 <font size="+0"><b>1982-1007 Public Program, Truth Is to Be Achieved, Guild Hall (now Bedford Guild House), 56 Harpur Street, Bedford, Bedfordshire, UK</b></font>
 </p>
 
@@ -180,7 +181,7 @@ So, to celebrate His [Śhrī Guru Nāṇaka's] birthday, on such a date, is also
 <font color="red">But His birth is important, because, symbolically, He came on this Earth not to propagate any particular type of the Void as Muhammad did, or, say, Moses did, David, Moses and then, before that Abraham, Lao Tze, or Socrates, which followed into a religion.</font> But He came to create amenity, amity we can say, to create understanding, to create unity between the religions. This was a very big step for Sahaja Yoga.<br>
 After that as you know, He was born again, God knows where, no one knows where He was born, but He appeared as Śhirḍī Sāī Nāth. He too said the same thing: that, 'To talk ill of any religion is a sin.' 
 ......<br>
-"<br>
+So, try to gather nourishment. Like reading Devī Māhātmyam, reading about ... finding out about Bible and finding about other Scriptures, about Qur'ān, this, that, and which supports you, which nourishes you. <font color="red">Blake, Kabīr, Nāṇak, I mean there are so many, Lao Tze. This is the Guru: is the knowledge.</font>"<br>
 <font size="+0"><b>1982-1101 Talk to Sahaja Yogis (Śhrī Guru Nāṇaka Jayanti), Every Sahaja Yogi Has to Become a Guru, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>
 
@@ -194,7 +195,13 @@ After that as you know, He was born again, God knows where, no one knows where H
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<b>Lady:</b> Śhrī Mātājī, is Realization synonymous with the'm ... with enlightenment?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Yes, of course!<br>
+<b>Same lady:</b> So, all Your followers that have received Realization in fact enlightenment?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Yes, yes.<br>
+You see, it means you have to be enlightened. It also means Ātma-sākṣhātkār. It also means uh-uh-uh, what you call that, to be the Pīr [twice-born]. <font color="red"><b>ŚIn ... in uh this thing, in uh, in Lao Tze uh uh, I think, uh ...</b><br>
+<b>Dr. Warren Reeves:</b> Tao Kashin, Mother.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red"><b>Ś... He says Tao, Tao, that's you have to become that.</b> There, there are so many things. Everybody has said, "It is that you have to have."<br>
 <font size="+0"><b>1983-0303 Public Program, Day 2, God Has Created Us with a Purpose, Town Hall, Hay Street and Barrack Street, Perth, WA, Australia</b></font>
 </p>
 
@@ -272,7 +279,7 @@ Also it creates two institutions within you, as ego and superego, which cross ov
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""<br>
+<font color="red">""</font><br>
 <font size="+0"><b>1983-1001 Talk to Sahaja Yogis, Seminar, Day 1, Session 1, Kennolyn Campgrounds, 8400 Glen Haven Road, Soquel (10 kms ENE of Santa Cruz), CA, U.S.A.</b></font>
 </p>
 
@@ -295,21 +302,28 @@ So many religions have started, in the name of God, without going to the Truth, 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"And you enjoy your virtues, you enjoy your magnanimity, you enjoy your uh-uh-uh generosity. People will tell you, 'Stupid fool, you go on distributing things, what's are you doing?', ah you laugh at them.<br>
+<font color="red">As Lao Tze had said -- somebody told Me this saying about Lao Tze, another Great Incarnation of the Primordial Master -- that, "When a wise sees the way, he respects it and says, 'This is the way.' That's the s-s... sign of a wise man, and a mediocre, who is halfway this way and that way, when he sees the way he waits [for] others to go into it. And when the stupid sees the way, he laughs. But when the wise sees the stupid, in himself, he laughs."</font> "<br>
 <font size="+0"><b>1984-0708 Public Program, The Experience of Truth, Part III, Town Hall, Ilford (16 kms E-NE of London), Greater London, UK (another date 0709)</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So this kind of a challenge, only a person who is a realized Soul can put it. And all realized Souls will stand by with that person: they'll have the same voice about it. Whether you go to the antiquities or you go in the future, any time a realized Soul will come he said the same thing.<br>
+<font color="red">That's why there is so much similarity, s-s... I should say the unity: in all these people whether it is Lao Tze, or whether it is Muhammad Sāhab or whether it is Rāja Janaka or Nāṇaka, They say the same thing.</font>"<br>
 <font size="+0"><b>1984-0710 Public Program, The Experience of Truth, Part IV, Town Hall, Chiswick, London W4, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"We have been seeking before also. As amoeba we have been seeking, as animals we have been seeking, as human beings we have been seeking in power, in positions, in money, in possessions, in relationships.<br>
+But what we have discovered is that: even when everything is all right, we feel, 'We are very far away from joy.' The joy is lost. We've come so far and we feel: 'There is no joy.' Where is that lost? Where is it that you have to find the joy?<br>
+<font color="red">You refer back to the Scriptures, like Bible, Qur'ān, Gītā, Lao Tze's treaties, anything you read, you find it's a very mysterious thing that they have described. But one thing they have said: that, "You have to be born again [born-again]."</font><br>
+Like there is a mysterious place to describe and we say: 'You have to enter into it.' But nobody says how! Nobody knows how! But indicates one thing, that: 'The human awareness is inadequate.'<br>
+There has to be a higher awareness to our evolution, because we have not achieved the top-most stage.<br>
+To achieve that Ultimate, Absolute Stage, something more has to happen in our evolutionary process, which is a living process, which is not a dead process."<br>
 <font size="+0"><b>1984-0801 Public Program, The Work of the Divine, Guildhall Theatre, Market Place, Derby, Derbyshire, UK</b></font>
 </p>
 
