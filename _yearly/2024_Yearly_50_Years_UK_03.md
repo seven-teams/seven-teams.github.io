@@ -10,7 +10,7 @@ tags:
 <br>
 <div style="text-align: left"><img src="/images/50YearsUK.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image1321_1980-0727_Balwant_Kumbhojkar_Collection" /></div>
+<div style="text-align: center"><img src="/images/image1321_1980-0727_Balwant_Kumbhojkar_Collection.jpg" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
