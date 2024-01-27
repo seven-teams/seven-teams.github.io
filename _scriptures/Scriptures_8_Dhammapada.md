@@ -454,15 +454,60 @@ escape from the bonds of Māra.</font>
 </p>
 
 <p>
-<b>38 Transliteration</b><br>
-<font color="Peru"></font>
+<b>39 Transliteration</b><br>
+<font color="Peru">Anavassutachittassa, ananvāhatachetaso,
+puññapāpapahīnassa natthi jāgarato bhayaṁ.</font>
 </p>
 
 <p>
-<b>38 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<b>39 Translations</b><br>
+<font color="DarkGreen"> But he whose mind in calm self0control is free from the lust of desires, who has risen above good and evil, he is awake and has no fear.</font><br>
+<font color="blue">An untroubled mind,<br>
+No longer seeking to consider<br>
+What is right and what is wrong,<br>
+A mind beyond judgements,<br>
+Watches and understands.</font><br>
+<font color="Peru">For the one with mind free of lust,<br> 
+  for the one with mind unperplexed,<br>
+there is no fear for those awake abandoning merit and demerit.</font>
+</p>
+
+<p>
+<b>40 Transliteration</b><br>
+<font color="Peru">Kumbhūpamaṁ kāyam-imaṁ viditvā,
+nagarūpamaṁ chittaṁ-idaṁ ṭhapetvā,
+yodhetha Māraṁ paññāyudhena,
+jitaṁ-cha rakkhe, anivesano siyā.</font>
+</p>
+
+<p>
+<b>40 Translations</b><br>
+<font color="DarkGreen">...... make your mind strong like a fortress and light the great light against MARA, all evil temptations. After victory guard well your conqurests, and ever for ever watch.</font><br>
+<font color="blue">......<br> 
+And make a castle of your mind.<br>
+In every trial<br>
+Let understanding fight for you<br>
+To defend what you have won.</font><br>
+<font color="Peru">......<br> 
+establishing the mind like a fortress,<br>
+fight Māra with the weapon of wisdom,<br>
+guard your success, and do not be attached.</font>
+</p>
+
+<p>
+<b>43 Transliteration</b><br>
+<font color="Peru">Na taṁ mātā pitā kayirā aññe vā pi cha ñātakā,
+sammāpaṇihitaṁ chittaṁ seyyaso naṁ tato kare.</font>
+</p>
+
+<p>
+<b>43 Translations</b><br>
+<font color="DarkGreen">...... but his own right-directed mind can do to him a far greater good.</font><br>
+<font color="blue">But once mastered [the mind],<br>
+No one can help you as much ......</font><br>
+<font color="Peru">......<br>
+as much good as a mind that is<br> 
+well-directed can do for him.</font>
 </p>
 
 <div class="para-divider"></div>
@@ -474,12 +519,185 @@ escape from the bonds of Māra.</font>
 </p>
 
 <p>
-<b>44 Transliteration</b><br>
+<b>45 Transliteration</b><br>
+<font color="Peru">Sekho pathaviṁ vichessati<br>
+yamalokañ-cha imaṁ sadevakaṁ.<br>
+Sekho dhammapadaṁ sudesitaṁ<br>
+kusalo puppham-iva pachessati.</font>
+</p>
+
+<p>
+<b>45 Translations</b><br>
+<font color="DarkGreen">The wise student shall conquer the world, and the world od the godsand also the world of Yama, of death and of pain. The wise student shall find DHAMMAPADA, the clear Path of Perfection, ......</font><br>
+<font color="Peru">The trainee knows this earth and the lower realm,<br> 
+together with the gods. The trainee will<br> 
+reflect on the well-taught verse of Dhamma<br>
+......</font>
+</p>
+
+<p>
+<b>46 Transliteration</b><br>
 <font color="Peru"></font>
 </p>
 
 <p>
-<b>44 Translations</b><br>
+<b>46 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>47 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>47 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>48 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>48 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>49 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>49 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>50 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>50 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>51 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>51 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>52 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>52 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>53 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>53 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>54 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>54 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>55 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>55 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>56 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>56 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>57 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>57 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>58 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>58 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>59 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>59 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
 <font color="Peru"></font>
@@ -505,6 +723,186 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>61 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>61 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>62 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>62 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>63 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>63 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>64 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>64 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>65 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>65 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>66 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>66 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>67 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>67 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>68 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>68 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>69 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>69 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>70 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>70 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>71 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>71 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>72 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>72 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>73 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>73 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>74 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>74 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>75 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>75 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -520,6 +918,162 @@ escape from the bonds of Māra.</font>
 
 <p>
 <b>76 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>77 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>77 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>78 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>78 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>79 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>79 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>80 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>80 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>81 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>81 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>82 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>82 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>83 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>83 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>84 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>84 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>85 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>85 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>86 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>86 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>87 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>87 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>88 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>88 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>89 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>89 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
 <font color="Peru"></font>
@@ -546,6 +1100,114 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>91 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>91 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>92 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>92 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>93 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>93 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>94 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>94 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>95 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>95 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>96 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>96 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>97 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>97 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>98 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>98 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>99 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>99 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -561,6 +1223,186 @@ escape from the bonds of Māra.</font>
 
 <p>
 <b>100 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>101 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>101 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>102 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>102 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>103 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>103 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>104 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>104 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>105 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>105 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>106 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>106 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>107 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>107 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>108 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>108 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>109 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>109 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>110 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>110 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>111 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>111 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>112 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>112 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>113 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>113 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>114 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>114 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>115 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>115 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
 <font color="Peru"></font>
@@ -587,6 +1429,150 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>117 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>117 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>118 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>118 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>119 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>119 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>120 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>120 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>121 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>121 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>122 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>122 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>123 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>123 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>124 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>124 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>125 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>125 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>126 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>126 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>127 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>127 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>128 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>128 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -608,6 +1594,198 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>130 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>130 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>131 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>131 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>132 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>132 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>133 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>133 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>134 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>134 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>135 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>135 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>136 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>136 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>137 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>137 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>138 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>138 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>139 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>139 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>140 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>140 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>141 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>141 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>142 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>142 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>143 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>143 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>144 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>144 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>145 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>145 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -623,6 +1801,126 @@ escape from the bonds of Māra.</font>
 
 <p>
 <b>146 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>147 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>147 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>148 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>148 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>149 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>149 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>150 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>150 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>151 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>151 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>152 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>152 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>153 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>153 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>154 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>154 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>155 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>155 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>156 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>156 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
 <font color="Peru"></font>
@@ -649,6 +1947,114 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>158 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>158 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>159 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>159 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>160 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>160 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>161 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>161 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>162 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>162 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>163 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>163 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>164 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>164 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>165 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>165 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>166 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>166 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -664,6 +2070,138 @@ escape from the bonds of Māra.</font>
 
 <p>
 <b>167 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>168 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>168 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>169 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>169 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>170 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>170 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>171 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>171 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>172 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>172 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>173 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>173 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>174 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>174 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>175 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>175 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>176 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>176 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>177 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>177 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>178 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>178 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
 <font color="Peru"></font>
@@ -689,6 +2227,210 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>180 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>180 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>181 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>181 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>182 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>182 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>183 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>183 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>184 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>184 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>185 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>185 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>186 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>186 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>187 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>187 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>188 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>188 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>189 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>189 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>190 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>190 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>191 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>191 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>192 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>192 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>193 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>193 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>194 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>194 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>195 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>195 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>196 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>196 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -704,6 +2446,138 @@ escape from the bonds of Māra.</font>
 
 <p>
 <b>197 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>198 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>198 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>199 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>199 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>200 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>200 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>201 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>201 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>202 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>202 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>203 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>203 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>204 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>204 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>205 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>205 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>206 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>206 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>207 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>207 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>208 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>208 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
 <font color="Peru"></font>
@@ -730,6 +2604,138 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>210 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>210 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>211 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>211 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>212 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>212 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>213 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>213 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>214 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>214 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>215 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>215 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>216 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>216 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>217 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>217 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>218 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>218 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>219 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>219 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>220 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>220 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -745,6 +2751,162 @@ escape from the bonds of Māra.</font>
 
 <p>
 <b>221 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>222 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>222 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>223 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>223 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>224 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>224 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>225 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>225 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>226 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>226 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>227 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>227 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>228 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>228 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>229 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>229 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>230 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>230 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>231 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>231 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>232 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>232 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>233 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>233 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>234 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>234 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
 <font color="Peru"></font>
@@ -771,6 +2933,246 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>236 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>236 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>237 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>237 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>238 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>238 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>239 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>239 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>240 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>240 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>241 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>241 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>242 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>242 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>243 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>243 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>244 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>244 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>245 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>245 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>246 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>246 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>247 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>247 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>248 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>248 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>249 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>249 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>250 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>250 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>251 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>251 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>252 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>252 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>253 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>253 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>254 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>254 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>255 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>255 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -792,6 +3194,198 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>257 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>257 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>258 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>258 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>259 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>259 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>260 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>260 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>261 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>261 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>262 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>262 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>263 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>263 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>264 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>264 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>265 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>265 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>266 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>266 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>267 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>267 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>268 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>268 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>269 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>269 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>270 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>270 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>271 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>271 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>272 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>272 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -807,6 +3401,198 @@ escape from the bonds of Māra.</font>
 
 <p>
 <b>273 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>274 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>274 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>275 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>275 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>276 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>276 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>277 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>277 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>278 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>278 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>279 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>279 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>280 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>280 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>281 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>281 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>282 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>282 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>283 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>283 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>284 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>284 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>285 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>285 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>286 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>286 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>287 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>287 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>288 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>288 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>289 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>289 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
 <font color="Peru"></font>
@@ -833,6 +3619,186 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>291 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>291 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>292 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>292 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>293 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>293 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>294 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>294 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>295 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>295 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>296 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>296 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>297 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>297 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>298 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>298 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>299 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>299 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>300 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>300 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>301 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>301 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>302 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>302 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>303 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>303 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>304 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>304 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>305 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>305 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -854,6 +3820,162 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>307 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>307 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>308 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>308 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>309 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>309 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>310 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>310 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>311 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>311 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>312 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>312 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>313 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>313 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>314 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>314 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>315 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>315 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>316 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>316 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>317 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>317 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>318 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>318 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>319 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>319 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -869,6 +3991,162 @@ escape from the bonds of Māra.</font>
 
 <p>
 <b>320 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>321 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>321 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>322 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>322 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>323 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>323 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>324 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>324 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>325 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>325 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>326 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>326 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>327 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>327 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>328 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>328 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>329 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>329 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>330 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>330 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>331 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>331 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>332 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>332 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>333 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>333 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
 <font color="Peru"></font>
@@ -895,6 +4173,306 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>335 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>335 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>336 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>336 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>337 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>337 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>338 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>338 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>339 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>339 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>340 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>340 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>341 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>341 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>342 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>342 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>343 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>343 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>344 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>344 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>345 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>345 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>346 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>346 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>347 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>347 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>348 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>348 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>349 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>349 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>350 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>350 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>351 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>351 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>352 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>352 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>353 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>353 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>354 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>354 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>355 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>355 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>356 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>356 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>357 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>357 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>358 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>358 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>359 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>359 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -916,6 +4494,270 @@ escape from the bonds of Māra.</font>
 <font color="Peru"></font>
 </p>
 
+<p>
+<b>361 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>361 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>362 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>362 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>363 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>363 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>364 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>364 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>365 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>365 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>366 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>366 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>367 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>367 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>368 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>368 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>369 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>369 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>370 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>370 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>371 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>371 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>372 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>372 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>373 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>373 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>374 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>374 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>375 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>375 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>376 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>376 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>377 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>377 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>378 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>378 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>379 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>379 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>380 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>380 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>381 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>381 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>382 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>382 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -932,6 +4774,486 @@ escape from the bonds of Māra.</font>
 
 <p>
 <b>383 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>384 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>384 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>385 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>385 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>386 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>386 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>387 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>387 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>388 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>388 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>389 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>389 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>390 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>390 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>391 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>391 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>392 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>392 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>393 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>393 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>394 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>394 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>395 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>395 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>396 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>396 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>397 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>397 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>398 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>398 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>399 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>399 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>400 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>400 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>401 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>401 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>402 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>402 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>403 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>403 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>404 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>404 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>405 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>405 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>406 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>406 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>407 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>407 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>408 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>408 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>409 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>409 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>410 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>410 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>411 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>411 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>412 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>412 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>413 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>413 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>414 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>414 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>415 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>415 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>416 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>416 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>417 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>417 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>418 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>418 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>419 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>419 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>420 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>420 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>421 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>421 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>422 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>422 Translations</b><br>
+<font color="DarkGreen"></font><br>
+<font color="blue"></font><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>423 Transliteration</b><br>
+<font color="Peru"></font>
+</p>
+
+<p>
+<b>423 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
 <font color="Peru"></font>
