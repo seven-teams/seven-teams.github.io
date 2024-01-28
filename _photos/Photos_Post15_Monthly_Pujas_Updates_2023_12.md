@@ -11,7 +11,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-This month 41 new Photos were uploaded to 12 Pūjas as follows (32 high resolutions and 9 low resolutions.<br>
+This month 41 new Photos were uploaded to 12 Pūjas as follows (32 high resolutions and 9 low resolutions).<br>
 (i) 1978-0000 Pūjā, (likely) UK: 3 high resolutions and 8 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/UK/1978"> <font color="DarkGreen"><b>UK 1978</b></font></a>.<br>
 (ii) 1980-1123 Śhrī Guru Nāṇaka Jayanti Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/UK/1980"> <font color="DarkGreen"><b>UK 1980</b></font></a>.<br>
 (iii) 1981-0126 Śhrī Lakṣhmī-Viṣhṇu Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1981"> <font color="DarkGreen"><b>India 1981</b></font></a>.<br>
