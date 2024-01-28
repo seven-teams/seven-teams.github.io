@@ -26,7 +26,7 @@ Samples:<br>
 <b>9.</b> <a href="https://seven-teams.github.io/events/1983-0210-b"> <font color="DeepPink"><b>1983-0210 Talk to Sahaja Yogis, during and after the Musical Program, the day before Śhivarātri Pūjā, Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b></font></a> started in 2023.<br>
 <b>10.</b> <a href="https://seven-teams.github.io/events/1980-0418-a"> <font color="DeepPink"><b>1980-0418 Picnic, Garden Lawn, Palace of Versailles, Place d'Armes, 78000 Versailles, Île-de-France, France</b></font></a> started in 2024-0117.<br>
 <b>11.</b> <a href="https://seven-teams.github.io/events/1988-0408"> <font color="DeepPink"><b>1988-0408 Talk to Sahaja Yogis, Birthday Felicitations, Raja Shivaji High School Ground (King George School), Hindu Colony, Dadar, Mumbai, Maharashtra, India</b></font></a> started in 2023.<br>
-<b>12.</b> <a href="https://seven-teams.github.io/events/1988-0408"> <font color="DeepPink"><b>1964-0400 Visit with Daughters, Egypt</b></font></a> started on 2024-0128.<br>
+<b>12.</b> <a href="https://seven-teams.github.io/events/1964-0420-0400"> <font color="DeepPink"><b>1964-0400 Visit with Daughters, Egypt</b></font></a> started on 2024-0128.<br>
 <b>13.</b> <a href="https://seven-teams.github.io/events/1964-0527"> <font color="DeepPink"><b>1964-0527 Visit with Daughters, London, UK</b></font></a> started on 2024-0128.<br>
 <b>14.</b>......<br>
 <b>15.</b>......<br>
