@@ -13,7 +13,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-The website <a href="https://eternalmoments.smugmug.com/"> <font color="DarkGreen"><b>Eternal Moments</b></font></a> has now 3,312 images. Since CCT has started upoloading images to it on February 1, 2023, 1,202 images have been uploaded. We aim to continue uploading (as an average) 100 images per month.<br>
+The website <a href="https://imageevent.com/sahaja"> <font color="DarkGreen"><b>Jai Shri Mataji or Sahaja Image Events</b></font></a> has now 3,312 images. Since CCT has started upoloading images to it on February 1, 2023, 1,202 images have been uploaded. We aim to continue uploading (as an average) 100 images per month.<br>
 In particular, below are the 12 new galleries which have been started in the last 12 months and which already have at least 24 images.<br>
 <b>1.</b> <a href="https://imageevent.com/sahaja/art/booksofedwardsaugstad"> <font color="DarkGreen"><b>Books of Edward Saugstad</b></font></a>: has 50 images.<br>
 <b>2.</b> <a href="https://imageevent.com/sahaja/momentsofgrowth/awardsdiplomasandrecognitions"> <font color="DarkGreen"><b>Awards, Diplomas and Recognitions</b></font></a>: has 57 images.<br>
