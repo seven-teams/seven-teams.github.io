@@ -650,6 +650,35 @@ But people have gone to extremes. They are faddist[s]. Whatever you tell them: i
 <div class="para-divider"></div>
 
 <p>
+"Now, what people are enamored is that, if they see some people dancing madly, they feel enamored. Is a sign that you have not been able to understand.<br>
+We have seen Christ, we have seen Buddha, Mahāvīra, Kabīra, Nāṇaka, we had Lao Tze and so many others. Did They behave like this? Did They become mad? <font color="red">We have got Moses, did He become mad anytime? Was He mad anytime, behaving like a mad person?</font><br>
+All these new theories have started, I think, fifty years back, or about sixty years back, that people believe in these new theories and they have forgotten all the kn... traditional things that have come to us, our heritage. And we depend more on these nonsensical things, which has no moorings at all! Because the people who are supposed to be the founders of all the religions, have never behave like this, and why this new type of things that has started? That people are behaving in this manner, and accepting it to be a very normal thing."<br>
+<font size="+0"><b>1983-0315 Public Program, Day 1, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">To think that Moses was separate from Christ is another very big mistake! There's no difference at all!></font>br>
+Christ Himself has said: ``Those who are not against Me are with Me." Who are those who are not against Him?<br>
+<font color="red">Moses was there on this Earth to cross only this path. It's very symbolic the way He crossed the sea: to show how to cross this path.<br>
+He was the Incarnation, one of the Incarnations, of the Primordial Master.</font><br>
+There were Ten Great Incarnations of Primordial Masters. <font color="red">One of them was Moses, Abraham, Lao Tze, Janaka, Nāṇaka.</font> There are ten of Them who were major Incarnations of the same principle. Muhammad.<br>
+<font color="red">They are all related to each other. You will be surprised what relation exists between Them. There's no fight, which you learn in your Kuṇḍalinī. They are so integrated and such a concord exists between Them. There's no fight at all.</font><br>
+If there is any fight it is between the evil and the good."</font><br>
+<font size="+0"><b>1983-0317 Public Program, Day 3, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now when this center is illumined, around it is illumined your sustainance [sustenance]. That's your Inner Religion.<br>
 The ... we call it Ten Incarnations of the Primordial Master. There are many who came, but the Ones who came in India was called as Brahmadeva uh ... was called as Dattātreya, Janaka, Rāja Janaka, the father of Sītā. In China, Lao Tze, Confucius. <font color="red">In uh, in the Bible, Abraham and Moses.</font> And later on, in the uh form of uh Muhammad Sāhab. And then Janaka. No, no, Nāṇaka, I'm sorry, Nāṇaka. Nāṇak Sāhab. And in Greece, it was Socrates. They took birth on all these places. In the end, about fifty years back, or hundred years back, was born Great Primordial Master, in India, in Śhirḍī.<br>
 [Helping with the translation:] In Śhirḍī."<br>
@@ -723,6 +752,25 @@ But it happens: that a person who is more extrovert, always tries to go to somet
 Muhammad Sāhab has talked about the Kuṇḍalinī, calling It a 'Asas.<br>
 And the word Kuṇḍalinī also is ... has a meaning that it is a coiled-up energy."<br>
 <font size="+0"><b>1985-0508 Public Program, Day 1, This Is the Knowledge of the Roots, Deutsches Museum, Münich, Germany</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"The reflection of Holy Ghost within us is the Kuṇḍalinī, and the reflection of Christ within us is the Spirit.<br>
+[After 12 seconds:] But everybody has played the role. <font color="red">Like Moses, like Abraham, like Socrates, like Lao Tze, everybody has played the role to build up this drama.<br>
+They are all part and parcel of One Being.</font> This one you must understand.<br>
+When we said, "There is One God," He's not like Tock of Gibraltar. That, even Rock of Gibraltar has got different uh molecules, you see. But to ask, 'God is one,' means, I don't know, I cannot think of [laughing:] something, just a one block. He's not. He has many aspects, and these aspects are expressed in these different ways.<br>
+Of course He's one, united, integrated, one. But all these aspects are there.<br>
+And this 'One God' is either in the pockets of the priests or the pockets of the Brahmins or the pockets of the mullahs or the pockets of someone. 'One God.' "<br>
+<font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, UK</b></font>
 </p>
 
 <div class="para-divider"></div>

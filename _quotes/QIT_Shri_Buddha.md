@@ -175,6 +175,22 @@ Now this Truth has been told by many Great Sages, by Prophets and many Incarnati
 <div class="para-divider"></div>
 
 <p>
+"Now, what people are enamored is that, if they see some people dancing madly, they feel enamored. Is a sign that you have not been able to understand.<br>
+<font color="red">We have seen Christ, we have seen Buddha, Mahāvīra, Kabīra, Nāṇaka, we had Lao Tze and so many others. Did They behave like this? Did They become mad?</font> We have got Moses, did He become mad anytime? Was He mad anytime, behaving like a mad person?<br>
+All these new theories have started, I think, fifty years back, or about sixty years back, that people believe in these new theories and they have forgotten all the kn... traditional things that have come to us, our heritage. And we depend more on these nonsensical things, which has no moorings at all! Because the people who are supposed to be the founders of all the religions, have never behave like this, and why this new type of things that has started? That people are behaving in this manner, and accepting it to be a very normal thing."<br>
+<font size="+0"><b>1983-0315 Public Program, Day 1, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "All the Incarnations who came on this Earth were a milestone on the ladder of our evolution. But They all had one type of work to do.<br>
 Like the Goddess had to kill the rākṣhasas and save the devotees.<br>
 That is why Śhrī Kṛiṣhṇa arranged this play. This was all a play. There is no need to be so serious about it. Śhrī Kṛiṣhṇa won everyone with His sweetness. He explained all our faults in a sweet and roundabout way. It was a very beautiful Incarnation of His.<br>
