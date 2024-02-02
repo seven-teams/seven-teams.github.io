@@ -161,7 +161,7 @@ You have not to collect money in any way. For nothing at all.<br>
 There Śharayū Gaḍakarī had a Photograph of Mine. And her relation came to her and she used to mock at the Photograph and say all kinds of things.<br>
 She brought the Photograph to Me, ss-showing that it had become all dark, black. So I said, ``Who was there?" She said, ``It's my, some relation who had come she used to do like this. It has become black." I said, ``You'd better put it in the sea now. My attention is not there [claps]. No vibrations. My attention has come away, receded from there, I can see that. [Claps.] You should not have put the Photograph like that."<br>
 So there's a very big difference between a statue and a Photograph, because My attention is there.<br>
-Of course, even the statues which are, I mean, I mean the ones which are swayambhu, which are created by Mother Earth, also has [have] vibrations, and they also show that they have vibrations, but [clapping:] they cannot give you awakening of the Kuṇḍalinī. Because My Photograph has got My desire, also, in it. They cannot. If they could have, Stonehenge should have.</font> [A Sahaja Yogi laughs.]<br>
+Of course, even the statues which are, I mean, I mean the ones which are swayambhu, which are created by Mother Earth, also has [have] vibrations, and they also show that they have vibrations, but [clapping:] they cannot give you awakening of the Kuṇḍalinī. Because My Photograph has got My desire, also, in it. They cannot. If they could have, Stonehenge should have.</font><br>
 <font size="+0"><b>1980-0518 Talk to Sahaja Yogis, The Real Becoming, Seminar, Day 2, Old Alresford (13 kms ENE of Winchester), Hampshire, UK</b></font>
 </p>
 
@@ -179,8 +179,7 @@ Of course, even the statues which are, I mean, I mean the ones which are swayamb
 [Then he pulls out another Photograph. Śhrī Mātājī is surprised that it had become all so dark:] Who has used it?<br>
 <b>Sahaja Yogi:</b> [Replies that the Photograph was lent to a relation of his who was a follower of a false guru.]<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">See how dark it has become because My attention has receded from it. There are no vibrations. You better put it in the river.<br>
-It is not for decoration but to be respected. As much as possible, respect the Photograph with the understanding, 'It's Mother with me.'<br>
-<font color="DarkRed">""</font><br>
+It is not for decoration but to be respected. As much as possible, respect the Photograph with the understanding, 'It's Mother with me.'</font><br>
 <font size="+0"><b>1991-1015 Conversation with a Sahaja Yogi, Photo Selection and Respect, Palazzo Doria, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
