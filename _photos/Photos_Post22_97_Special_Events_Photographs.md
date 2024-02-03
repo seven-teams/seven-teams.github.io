@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 6 Photos of the special event <font color="Crimson"><b>2005-0828 Śhrī Kṛiṣhṇa Pūjā, NJ, U.S.A.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 6 low resolutions from the Named Collections.<br>
+We are pleased to let you know that 6 Photos of the special event <font color="Crimson"><b>2005-0819 Rakṣhābandhan Celebrations, NJ, U.S.A.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 6 low resolutions from the Named Collections.<br>
 The direct link to the 35 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Alan-Wherry-Collection/2005">Collection 2005</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
