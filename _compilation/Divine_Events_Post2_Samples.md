@@ -29,7 +29,7 @@ Samples:<br>
 <b>12.</b> <a href="https://seven-teams.github.io/events/1964-0420-0400"> <font color="DeepPink"><b>1964-0400 Visit with Daughters, Egypt</b></font></a> started on 2024-0128.<br>
 <b>13.</b> <a href="https://seven-teams.github.io/events/1964-0527"> <font color="DeepPink"><b>1964-0527 Visit with Daughters, London, UK</b></font></a> started on 2024-0128.<br>
 <b>14.</b> <a href="https://seven-teams.github.io/events/1990-0112-a"> <font color="DeepPink"><b>1990-0112 Messages from the Banners of the First Morchā (Silent Demonstration), in front of Secretariat Building, Mumbai, Maharashtra, India</b></font></a> started on 2024-0121 and updated on 2024-0203.<br>
-<b>15.</b>......<br>
+<b>15.</b> <a href="https://seven-teams.github.io/events/1978-0820-0800"> <font color="DeepPink"><b>1978-0800 Mass and Meeting with Archbishop of Krakow, Wawel Cathedral, Wavel 3, Krakow, Poland</b></font></a> started on 2024-0121 and updated on 2024-0203.<br>
 <b>16.</b>......<br>
 <b>17.</b>......<br>
 <b>18.</b>......<br>
