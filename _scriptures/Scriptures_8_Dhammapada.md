@@ -37,14 +37,14 @@ Because people talked of God, once they talked of, in India for example, they ta
 So Buddha said, "All right, let's talk only about the Self-realization, nothing else. Not even of God: let's talk of that only! Let people get to Self-realization, then we'll talk about God." So He said, "All right: only Self-realization! No God, nothing!" That was His job: to fix you up with the idea of Self-realization. He said, "Don't worship anything, don't do anything, get your Self-realization!"<br>
 They are worshiping every-thing under the sun, this Buddhist! What am I to do?<br>
 So whatever Buddha has said, is, everything is re-said in Sahaja Yoga.<br>
-"Buddham śharaṇaṃ gacchāmi." "I surrender myself to the Enlightened One." The one which is enlightened is your Spirit.<br>
-"Saṅghaṃ śharaṇaṃ gacchāmi": "I surrender myself to the collectivity."<br>
+"Buddham śharaṇaṁ gacchāmi." "I surrender myself to the Enlightened One." The one which is enlightened is your Spirit.<br>
+"Saṅghaṁ śharaṇaṁ gacchāmi": "I surrender myself to the collectivity."<br>
 Unless and until you are a collectively conscious person, how can you surrender?<br>
 Buddha also, whatever He said, is not understood before Realization. You cannot.<br>
-"Dharmam śharaṇaṃ gacchāmi": is the sustenance within you.<br>
-Śharaṇaṃ means you become that! Is not a mental thing, 'Oh, I surrender myself!' But you just become!<br>
+"Dharmam śharaṇaṁ gacchāmi": is the sustenance within you.<br>
+Śharaṇaṁ means you become that! Is not a mental thing, 'Oh, I surrender myself!' But you just become!<br>
 You become the Enlightened One, you become the collectively conscious, you become the dharma, the sustenance, the religion within us. You become! That's what He meant.<br>
-But for them, "śharaṇaṃ gacchāmi," means take a wheel in the hand, go on, "Buddham śharaṇaṃ gacchāmi," now [puts the right hand on Her forehead]. What this wheel is going to do I just don't understand, you know! They go on [for] hours together: they'll go mad! They will end up into lunatic asylum, believe Me!<br>
+But for them, "śharaṇaṁ gacchāmi," means take a wheel in the hand, go on, "Buddham śharaṇaṁ gacchāmi," now [puts the right hand on Her forehead]. What this wheel is going to do I just don't understand, you know! They go on [for] hours together: they'll go mad! They will end up into lunatic asylum, believe Me!<br>
 Or like mad, you are saying something, all the time praying: is that the way you are becoming?<br>
 They don't even know where is Buddha placed within yourself!<br>
 But Sahaja Yogis know where He is placed and how to please Him.<br>
@@ -537,110 +537,92 @@ reflect on the well-taught verse of Dhamma<br>
 
 <p>
 <b>46 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Pheṇūpamaṁ kāyam-imaṁ viditvā,<br>
+marīchidhammaṁ abhisambudhāno,<br>
+chetvāna Mārassa papupphakāni,<br>
+adassanaṁ Macchurājassa gacche.</font>
 </p>
 
 <p>
 <b>46 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>47 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>47 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>48 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>48 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">He who knows that this body is the foam of a wave, the shadow of a mirage, he breaks the sharp arrows of MARA, concealed in the flowers of sensuous passions and, unseen by the King of death, he goes on and follows his path.</font><br>
+<font color="blue">Understand that the body<br>
+Is merely the foam of a wave,<br>
+The shadow of a shadow.<br>
+Snap the flower arrows of desire And then, unseen,<br>
+Escape the king of death.</font><br>
+<font color="Peru">Knowing that this body is just like froth,<br> 
+understanding it is like a mirage,<br>
+Cutting off Māra's flower-tipped arrows,<br>
+one should go beyond the King of Death's sight.</font>
 </p>
 
 <p>
 <b>49 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Yathā pi bhamaro pupphaṁ vaṇṇagandhaṁ aheṭhayaṁ<br>
+paḷeti rasam-ādāya evaṁ gāme munī chare.</font>
 </p>
 
 <p>
 <b>49 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">As the bee takes the essence of a flower and flies away without destroying its beauty and perfume, so let the sage wander in this life.</font><br>
+<font color="blue">The bee gathers nectar from the flower<br>
+Without marring its beauty or perfume.<br>
+So let the master settle, and wander.</font><br>
+<font color="Peru">Just as a bee, without hurting<br> 
+the flower, its color or scent,<br> 
+gathers its nectar and escapes,<br>
+so should the seer roam in village.</font>
 </p>
 
 <p>
 <b>50 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Ma paresaṁ vilomāni, na paresaṁ katākataṁ<br>
+attano va avekkheyya, katāni akatāni cha.</font>
 </p>
 
 <p>
 <b>50 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>51 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>51 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>52 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>52 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Think not of the faults of others, of waht they have done or not done. think rather of your own sins, of the things you have done or not done.</font><br>
+<font color="blue">Look to your own faults,<br>
+What you have done or left undone.<br>
+Overlook the faults of others.</font><br>
+<font color="Peru">Not the wrong of others, or what<br> 
+others have done or have not done<br> 
+one should consider, but what has<br> 
+been done and not done by oneself.</font>
 </p>
 
 <p>
 <b>53 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Yathā pi puppharāsimhā kāyirā mālāguṇe bahū,<br>
+evaṁ jātena macchena kattabbaṁ kusalaṁ bahuṁ</font>
 </p>
 
 <p>
 <b>53 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... there is much good work to be done.</font><br>
+<font color="blue">...... Fashion from your life as many good deeds.</font><br>
+<font color="Peru">...... should many good deeds be done<br>
+by one who is born a mortal.</font>
 </p>
 
 <p>
 <b>54 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Na pupphagandho paṭivātam-eti,<br> 
+na chandanaṁ tagaramallikā vā,<br>
+sataṁ cha gandho paṭivātam-eti,
+sabbā disā sappuriso pavāyati</font>
 </p>
 
 <p>
 <b>54 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... the perfume of virtue travels against the wind and reaches unto the ends of the world.</font><br>
+<font color="blue">......the fragrance of virtue<br>
+Travels even against the wind,<br>
+As far as the ends of the world.</font><br>
+<font color="Peru">...... the fragrance of the good goes against the wind,<br> 
+the true person's fragrance permeates all directions.</font>
 </p>
 
 <p>
