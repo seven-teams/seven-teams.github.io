@@ -84,6 +84,10 @@ E-mail: <b>yearlycelebrations@gmail.com</b>
     viii. **<font color="DarkGreen">2021 Celebrating 40 Years of Sahaja Yoga in Australia, Canada, Italy and U.S.A. and its Culture</font>**
 
     ix. **<font color="DarkGreen">2022 Celebrating 50 Years of Life Eternal Trust and its Objects</font>**         
+    
+    x. **<font color="DarkGreen">2023 Celebrating Birthday Centenary of H. H. Shri Mataji Nirmala Devi</font>** 
+    
+    xi. **<font color="DarkGreen">2024 Celebrating 50 Years of Sahaja Yoga in the UK</font>**         
 
 6. **<font color="blue">Divine Message Subteam.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
@@ -113,14 +117,17 @@ For other websites of Photographs please see:
 
     viii. <a href="https://photos.app.goo.gl/xLEgcynB4zgdL1gY6"> Cabella a Moskva </a> (David Burša Collection of Cabella and Moscow, created in 2020 as a Google Photos website, with earlier versions created in 2014)
     
-8. **<font color="blue">Archives Subteam.</font>** <br>
+8. **<font color="blue">Archives Subteam.</font>** Pdf files and images and links to pdf files of different websites or databases of publications.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b>  
 
-9. **<font color="blue">Divine Events Subteam.</font>** <br>
+9. **<font color="blue">Divine Events Subteam.</font>** Events blessed by H. H. Shri Mataji Nirmala Devi that are searchable on one page and that contain recollections and contributions received and/or researched.<br> 
 E-mail: <b>sahajayoga.compilations@gmail.com</b>
 
 10. **<font color="blue">News Subteam.</font>** <br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b>
 
-11. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order.<br>
+11. **<font color="blue">Folder Subteam.</font>** <br>
+E-mail: <b>sahajayoga.compilations@gmail.com</b>
+
+12. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order.<br>
 E-mail: <b>sahajagyaan@gmail.com</b>    
