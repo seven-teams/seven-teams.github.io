@@ -23,7 +23,7 @@ tags:
 But now, as you have entered into the Kingdom of God and the Power of God is flowing through you, you must know that your solutions and your styles have to be different now, that is, you have to put your attention at the disposal of God.<br>
 ......<br>
 Your attention itself is now flooded with light. You do not have to go to any books, you do not have to go anywhere. Your attention itself is flooded with that light, which is dynamic.<br>
-Now, if anything comes [to] your attention, you just connect your attention with the Divine's Attention. How? By saying, `All right, let it be done. Let this be done, is Your wish.' "Thy will be done." This is what you should say: ``Thy will be done."<br>
+Now, if anything comes [to] your attention, you just connect your attention with the Divine's Attention. How? By saying, 'All right, let it be done. Let this be done, is Your wish.' "Thy will be done." This is what you should say: "Thy will be done."<br>
 You just say this, you will be surprised. And then the whole mechanism, that enlightened attention of yours is the part of the attention of God Itself. So the whole thing will work out, the whole force as you have worked for your personal problem before, now the whole of it will work out and it will happen. It's such a wonderful thing.<br>
 ......<br>
 To approach to the problem is only possible if you are a subtle being. If you are not a subtle being you cannot approach any problem.<br>
