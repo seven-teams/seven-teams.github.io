@@ -77,7 +77,7 @@ Now today they are like Incarnations. Incarnations are beyond but maybe the gap 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"All the Scriptures, whether it is Bible, Qur'ān, or any Indian Scripture, even Lao Tze, or if we go to Zen or Buddha, Mahāvīra, all of them have said that: "You are to be reborn."</font><br>
+<font color="red">"All the Scriptures, whether it is Bible, Qur'ān, or any Indian Scripture, even Lao Tze, or if we go to Zen or Buddha, Mahāvīra, all of them have said that: "You are to be reborn." "</font><br>
 <font size="+0"><b>1982-0823 Public Program, Day 1, Temple de la Fusterie (Fusterie Temple), Place de la Fusterie, Geneva, Switzerland</b></font>
 </p>
 
