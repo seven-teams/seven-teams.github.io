@@ -14,7 +14,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b></b>Sahaja Yogis Have To Be Perfect<br></font>
+<font size="+2"><b>Sahaja Yogis Have To Be Perfect</b><br></font>
 </p>
 
 <p>
@@ -27,12 +27,12 @@ Now, if anything comes [to] your attention, you just connect your attention with
 You just say this, you will be surprised. And then the whole mechanism, that enlightened attention of yours is the part of the attention of God Itself. So the whole thing will work out, the whole force as you have worked for your personal problem before, now the whole of it will work out and it will happen. It's such a wonderful thing.<br>
 ......<br>
 To approach to the problem is only possible if you are a subtle being. If you are not a subtle being you cannot approach any problem.<br>
-......<br>"<br>
+......<br>
 I think we should really write it down all the things that have to be done to look after your body. That is very important.<br>
 ......<br>
 Good health is possible only if you understand the balance in that person, every understanding about how the body acts and what happens to body, small, small things.<br>
 ......<br>
-You see, Sahaja Yogis have to be pe... perfect, absolutely perfect.<br>
+You see, Sahaja Yogis have to be pe... perfect, absolutely perfect."<br>
 <font color="blue"><b>1978-0220 Talk to Sahaja Yogis, Further Meditation and How We Have to Understand Ourselves and Put Your Attention at the Disposal of God, London, UK (date not sure)</b></font><br>
 </p>
 
