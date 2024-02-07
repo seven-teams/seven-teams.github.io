@@ -30,5 +30,8 @@ main:
   - title: "News"
     url: /news/
 
+  - title: "Folder"
+    url: /folder/
+
   - title: "Chronology"
     url: /chronology/
