@@ -14,6 +14,20 @@ tags:
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"The river has to meet the Ocean, this is My promise."</font><br>
+<font size="+0"><b>1900-0000 Quote on a Promise from the book Insights, Inspirations and Eternal Moments, Chapter 29, Page 85 by Yogi Mahajan</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Where is your attention? Where is your will? Why are you so worried? Did I not promise I will fulfill every wish?"</font><br>
+<font size="+0"><b>1900-0000 Two Quotes from the book Insights, Inspirations and Eternal Moments, Chapter 40, Page 127 by Yogi Mahajan</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "But how can one man fight the evils of this whole world? In the modern times when everything is moving very fast, it is very difficult for a single person to achieve anything without compromising with the trend of the world. Hence, it is absolutely essential that those artists who seek freedom and who believe that they have to play a vital role to further the cause of art, should give up their petty differences and jealousies and unite together. <font color="DarkRed">If such a group of artists decides to accept good in their personal, economic and social life and pledge not to deviate from the right path, then no power, however destructive, can lay hands on them.</font> Unity of purpose can only grant them all the security needed for the creation of their Art."<br>
 <font size="+0"><b>1961-1000 Article `Art Culture and Artist' published in the souvenir Dignity of Art' brought out to commemorate the Inauguration of the 'Youth Society For Films' by the Union Home Minister Lal Bahadur Shastri on 1961-1008, the function presided over by the Chief Minister of Maharashtra Y. B. Chevam, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -26,6 +40,52 @@ tags:
 I will only give, I am not going to take anything.<br>
 <font color="DarkRed">But if you still want to get something, you have to rise. You have to take a pledge within yourself.</font>"<br>
 <font size="+0"><b>1974-0325 Public Program (Hindi), Day 1, Param Tattwa and Chetna Tattwa, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Thoughtlessness, it is a reality, it is the Truth that is why I do not give you false promise. I have no false recommendation to you. In this I cannot give you false statement."</font><br>
+<font size="+0"><b>1975-0330 Public Program (Hindi), Day 2, Triguṇātmika, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<b>Version 1:</b><br> 
+<font color="DarkRed">"[You] promise today that, 'By next Mahāśhivarātri there will be a big celebration, He will be praised.' "<br>
+<br>
+<b>Version 2:</b><br>
+"You must promise Me today that the next Śhivarātri will be a huge celebration. He will be praised."</font><br>
+<font size="+0"><b>1976-0229 Śhivarātri Pūjā (Hindi), Utpatti -- Ādi Śhakti aur Śhiva ka Swarūp (Genesis -- Ādi Śhakti and Śhiva in Form), Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"I am with you at every step, at every place. Everywhere. Wherever you are, at whichever place you are, I am with you, completely, in person, by My Spirit and by My word completely. This is My promise to you."</font><br
+<font size="+0"><b>1976-0529 Talk to Sahaja Yogis (Hindi), Dhyān Kaise Karein (How to Meditate), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1977-0219 Talk To New Sahaja Yogis (Hindi + English), Problems from Fake Gurus, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Today I want certain promises by you to be reached. And the foremost of all, as Christ has said, ``Love thy neighbor as thyself." I would say, one step ahead of that: ``Love thy neighbor, a Sahaja Yogi, more than yourself." Let us start here. We, I don't ask you to open the whole universe: among you[rselves].<br>
+First of all, decide: what have you done for others?<br>
+Second: [a] promise you have to make that you will never say a harsh word to any other Sahaja Yogi, even if he beats you hollow. You can tell Me about it. That is the greatest sin you will be committing from today.<br>
+......<br>
+Tonight, you promise Me that you will look at every Sahaja Yogi as a person in bondage in love and not in hatred.<br>
+......<br>
+Today, you must promise Me that you will meditate. You can introspect [rather] than getting into your ego.<br>
+Thirdly, you will not criticize Sahaj Yog, that is God's own methods, at any cost! If you do not understand a part of Sahaj Yog, you can come and ask Me, but don't criticize. This is you must promise Me."</font><br>
+<font size="+0"><b>1977-0701 Talk to Sahaja Yogis (Guru Pūrṇimā Day), Three Promises You Have to Make and You Have to Be Obedient to Me, after Guru Pūjā (first more formal Pūjā in the West), Living Room, Gavin Brown's Geological Institute (Terrace House), 160 North Gower Street, 2nd Floor, Euston, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
