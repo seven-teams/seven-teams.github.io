@@ -22,3 +22,4 @@ if Gem.win_platform?
 end
 
 gem 'rubocop', '~> 1.54'
+gem "faraday-retry", "~> 2.2"

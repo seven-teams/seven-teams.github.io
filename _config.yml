@@ -180,6 +180,7 @@ feed:
     - archives
     - events
     - news
+    - folder
     - chronology
   disable_in_development: false
 
@@ -225,6 +226,9 @@ collections:
     output: true
     permalink: /:collection/:path  
   news:
+    output: true
+    permalink: /:collection/:path
+  folder:
     output: true
     permalink: /:collection/:path
   chronology:
@@ -316,6 +320,17 @@ defaults:
       type: news
     values:
       layout: newspost
+      author_profile: true
+      read_time: true
+      comments: true
+      share: true
+      related: true
+  # _folder
+  - scope:
+      path: ""
+      type: folder
+    values:
+      layout: folderpost
       author_profile: true
       read_time: true
       comments: true
@@ -457,6 +472,7 @@ tag_photos: "/tag-photos/"
 tag_archives: "/tag-archives/"
 tag_events: "/tag-events/"
 tag_news: "/tag-news/"
+tag_folder: "/tag-folder/"
 tag_chronology: "/tag-chronology/"
 
 #tag_archive:

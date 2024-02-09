@@ -14,8 +14,9 @@ GEM
       faraday-net_http (>= 2.0, < 3.1)
       ruby2_keywords (>= 0.0.4)
     faraday-net_http (3.0.0)
+    faraday-retry (2.2.0)
+      faraday (~> 2.0)
     ffi (1.15.5)
-    ffi (1.15.5-x64-mingw-ucrt)
     ffi (1.15.5-x64-unknown)
     forwardable-extended (2.6.0)
     hawkins (2.0.5)
@@ -107,13 +108,14 @@ GEM
     webrick (1.7.0)
 
 PLATFORMS
-  x64-mingw-ucrt
+  x64-unknown
   x64-unknown
   x86_64-darwin-21
   x86_64-darwin-22
   x86_64-linux
 
 DEPENDENCIES
+  faraday-retry (~> 2.2)
   hawkins
   jekyll
   jekyll-feed
