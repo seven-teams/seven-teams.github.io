@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 4 Photos of the special event <font color="Crimson"><b>1991-0420 Departure, New South Wales, Australia</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 high resolutions from the Named Collections.<br>
-The direct link to the 4 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1991">Collection 1991</a>.<br>
+The direct link to the 4 Photos of the event in the smallest gallery: <a href="1991-0415 Departure, Āśhram, Canberra, Australia"><font color="DarkGreen">Australia 1991</font></a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
