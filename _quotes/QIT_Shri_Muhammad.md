@@ -1413,6 +1413,20 @@ This is the only problem we have. That: we have all the ideals, we have all the 
 <div class="para-divider"></div>
 
 <p>
+"Now, this question follows another question: that if you are the Spirit, [then] you are your own guide, you are own guru, you are your own master. So now you put your right hand on the upper part of your stomach on the left-hand side, which is the center of mastery. <font color="red">This is the center which is created by the Masters, the Great Masters, who are Sadgurus, who are Real Masters, like Abraham, Moses, Janak, Nāṇak, Lao Tze, Muhammad Sāhab.</font> Now, you take this hand little deep, prarsee [press it], push it little deep into that area in the upper part of the abdomen, and ask a question three times, 'Mother, am I my own guide? Am I my own master? Am I my own guru?' Ask in your heart."</font><br>
+<font size="+0"><b>1985-0422 Public Program, Day 1, Université Paris Diderot Paris 7, 5 Rue Thomas Mann, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"So the ascent of the Kuṇḍalinī is a living process within you, which works out the Self-realization, the Second Birth as Christ has said, as Muhammad Sāhab has said, "You have to be a Walī," as Lao Tze has said, and Confucius has described. We have Nāṇaka and Janaka who have talked about it. That it is within us, and we have to achieve it within ourselves.</font>"<br>
 <font size="+0"><b>1985-0509 Public Program, Day 2, Habit Comes to You from Matter, Münich, Germany</b></font>
 </p>
@@ -1607,6 +1621,24 @@ While we all have this Divinity within ourselves, we have all these powers withi
 This-s old science is not only from India. It comes from everywhere. <font color="red">As I told you Confucius knew this, Socrates knew this, and, also, many people like William Blake and C.S. Lewis, all these people knew about it.</font><br>
 But nobody could put it through to people because, I think, people did not want to accept it."<br>
 <font size="+0"><b>1992-0226 Public Program, Christchurch Town Hall (now Christchurch Town Hall of the Performing Arts), 86 Kilmore Street, Christchurch Central City, Christchurch, New Zealand</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"The first thing was the idea of original sin.<br>
+William Blake, a great poet, said: that, :This idea has come through the head of some Satan."<br>
+According to this theory, 'Everyone of us is a sinner, all the Incarnations like Śhrī Kṛiṣhṇa, Śhrī Rāma, They were sinners. <font color="red">Prophets like Muhammad, Nāṇaka, Lao Tze, all of Them were sinners.</font>'<br>
+When this kind of an artificial idea is pushed onto your head, then natural things start coming out, and that's how they took to Freud. That is how Freud became a very great person.<br>
+Now, what he has given us e... are according to this book ['Freudian Fraud'] is AIDS, and all kinds of secret diseases which are dangerous."<br>
+<font size="+0"><b>1992-0726 Public Program, Linz, Austria</b></font>
 </p>
 
 <div class="para-divider"></div>

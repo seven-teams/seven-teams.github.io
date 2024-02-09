@@ -243,7 +243,7 @@ All these new theories have started, I think, fifty years back, or about sixty y
 
 <p>
 "To think that Moses was separate from Christ is another very big mistake! There's no difference at all!>br>
-Christ Himself has said: ``Those who are not against Me are with Me." Who are those who are not against Him?<br>
+Christ Himself has said: "Those who are not against Me are with Me." Who are those who are not against Him?<br>
 Moses was there on this Earth to cross only this path. It's very symbolic the way He crossed the sea: to show how to cross this path.<br>
 He was the Incarnation, one of the Incarnations, of the Primordial Master.<br>
 There were Ten Great Incarnations of Primordial Masters. <font color="red">One of them was Moses, Abraham, Lao Tze, Janaka, Nāṇaka.</font> There are ten of Them who were major Incarnations of the same principle. Muhammad.<br>
@@ -274,7 +274,7 @@ I mean, anything is the same! That you have to become a realized Soul."<br>
 "<font color="red">The second person who really emerged out of it, all this ritualism and all that that they had created out of Buddha's life, was Lao Tze, who preached about Tao. Tao is the All-pervading Divine Power, Power of Love. When He talked about It, He explained about It, and He is ss-started another group of people, who were to be given Realization.<br>
 But that also, [laughing:] today I find, has become Tao-ism.</font><br>
 Everything becomes ism, means imprisoned. Is not living! Is not there!<br>
-Is just a thought of Tao, people read, I have seen people ... uh there's one gentleman in India who has written a complete book on Tao. He's not even a realized Soul! What is he writing? I was just wondering, `With his blind eyes, what is he describing, what colors can he describe?'"</font><br>
+Is just a thought of Tao, people read, I have seen people ... uh there's one gentleman in India who has written a complete book on Tao. He's not even a realized Soul! What is he writing? I was just wondering, 'With his blind eyes, what is he describing, what colors can he describe?'"</font><br>
 <font size="+0"><b>1983-0526 Public Program, Day 1, Brighton, East Sussex, UK</b></font>
 </p>
 
@@ -390,14 +390,17 @@ This is the only problem we have. That: we have all the ideals, we have all the 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now, this question follows another question: that if you are the Spirit, [then] you are your own guide, you are own guru, you are your own master. So now you put your right hand on the upper part of your stomach on the left-hand side, which is the center of mastery. <font color="red">This is the center which is created by the Masters, the Great Masters, who are Sadgurus, who are Real Masters, like Abraham, Moses, Janak, Nāṇak, Lao Tze, Muhammad Sāhab.</font> Now, you take this hand little deep, prarsee [press it], push it little deep into that area in the upper part of the abdomen, and ask a question three times, 'Mother, am I my own guide? Am I my own master? Am I my own guru?' Ask in your heart."</font><br>
 <font size="+0"><b>1985-0422 Public Program, Day 1, Université Paris Diderot Paris 7, 5 Rue Thomas Mann, Paris, France</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Kuṇḍalinī has been described fourteen thousand years back by a great poet called Mārkaṇḍeya in our country.<br>
+I told you the other day that in Qur'ān It is described as 'Asas, and in Granth Sāhab as Surati, and in the Bible as the Holy Ghost.<br>
+......<br>
+<font color="red">In the Zen system also, It is described, of uh Zen system of Viditama It is described, and also Lao Tze has described It.</font> Every one of them have described It."<br>
 <font size="+0"><b>1985-0424 Public Program, Day 2, CEDIAS-Musée Social, 5, Rue las Cases, Paris, France</b></font>
 </p>
 
@@ -697,7 +700,11 @@ And this represents ten valencies, like Ten Commandments. Carbon has got four va
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"The first thing was the idea of original sin.<br>
+William Blake, a great poet, said: that, :This idea has come through the head of some Satan."<br>
+According to this theory, 'Everyone of us is a sinner, all the Incarnations like Śhrī Kṛiṣhṇa, Śhrī Rāma, They were sinners. <font color="red">Prophets like Muhammad, Nāṇaka, Lao Tze, all of Them were sinners.</font>'<br>
+When this kind of an artificial idea is pushed onto your head, then natural things start coming out, and that's how they took to Freud. That is how Freud became a very great person.<br>
+Now, what he has given us e... are according to this book ['Freudian Fraud'] is AIDS, and all kinds of secret diseases which are dangerous."<br>
 <font size="+0"><b>1992-0726 Public Program, Linz, Austria</b></font>
 </p>
 
@@ -743,14 +750,28 @@ Despite that, people were thinking, 'These are some absurd people, there's nothi
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"I'm very thankful to [Deputy Lord Mayor] Mister Henry Tsang for addressing you and introducing Me to you. That's very kind of him. It is one of the very rare occasions where I have seen people in authority have understood My work and have tried to help Me.<br>
+<font color="red">Whatever he said is really very remarkable, that: all these greater people, like Lao Tze who started Taoism, Buddha who was teaching Buddhism, all of Them talked about the Oneness of human being with the Nature.</font> And if you cannot combine Nature with your Self, then you cannot be called as a[n] evolved Soul.<br>
+<font color="red">In that thing I was telling him about Yangtze River, where he comes from the same ... uh-uh-uh-uh ... state Yangtze, that Yangtze River I have traveled through with My husband, and it's-ss the one Lao Tze has used for describing a human accent.</font><br>
+Is a river which goes in different angles and makes lots of currents, and is very dangerous to ply through that.<br>
+But they are having an, now a uh tourist uh ... arrangement to go through that, and My husband as he was in the maritime, they invited us to see that.<br>
+<font color="red">So, in that the message was: that, you see, you are passing through a very beautiful land, you see across the banks beautiful ... uh ... trees and very beautiful mountains, which you see in the paintings of Chinese. They are really like that. But you should not get lost: you have to go further. You can watch ... uh ... these ... uh, all these beautiful scenes, uh sit down there, enjoy yourself, but still you have to go with the stream.<br>
+And then you go further and further, He describes very well in His Tao.<br>
+Tao means that it is.</font><br>
+And it started showing such beautiful uh ... uh-uh-uh scenes, sometimes, that I really [laughing:] felt that, 'I should get out of the boat and sit down there,' like ...<br>
+<font color="red">And, but He was meaning that in your meditation, when you are moving, you should not get tempted by this outward ... uh-uh-uh-uh ... fascination of nature also, but you enjoy, be one with it, you just see it, enjoy it. And then He says that the river flows closer to the sea, that is the ultimate aim of the river, then she becomes absolutely silent and she spreads outs [out]. And then gradually she moves towards the sea.<br>
+Is such a beautiful description, and I have seen it Myself when I can understand the poet how He wanted to con... communicate that how the nature should teach us how to be meditative within ourselves.</font>"<br>
 <font size="+0"><b>1994-0406 Public Program, An Ancient Knowledge, Centennial Hall, Town Hall, 483 George Street, Sydney, New South Wales, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> So when this power, Kuṇḍalinī, passes through these six centers within us, She nourishes them, and integrates them.<br>
+<font color="red">Lao Tze called it as Tao.</font><br>
+[To the translator:] <font color="red">Lao Tze from ...</font><br>
+<b>Sahaja Yogi tranlator:</b> Call It what, Śhrī Mātājī? Sorry.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> They all talked of the same thing.<br>
 <font size="+0"><b>1994-0418 Public Program, Kanda Panse Hall, Panse (Holy Field), Chiyoda, Tokyo, Japan</b></font>
 </p>
 

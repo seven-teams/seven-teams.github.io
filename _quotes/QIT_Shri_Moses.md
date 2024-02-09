@@ -660,7 +660,7 @@ All these new theories have started, I think, fifty years back, or about sixty y
 
 <p>
 "<font color="red">To think that Moses was separate from Christ is another very big mistake! There's no difference at all!></font>br>
-Christ Himself has said: ``Those who are not against Me are with Me." Who are those who are not against Him?<br>
+Christ Himself has said: "Those who are not against Me are with Me." Who are those who are not against Him?<br>
 <font color="red">Moses was there on this Earth to cross only this path. It's very symbolic the way He crossed the sea: to show how to cross this path.<br>
 He was the Incarnation, one of the Incarnations, of the Primordial Master.</font><br>
 There were Ten Great Incarnations of Primordial Masters. <font color="red">One of them was Moses, Abraham, Lao Tze, Janaka, Nāṇaka.</font> There are ten of Them who were major Incarnations of the same principle. Muhammad.<br>
@@ -732,6 +732,20 @@ But for that happening, human being had to be prepared. People had to be balance
 <p>
 <font color="red">"Then we have people, in other countries, like Abraham, like Moses, we have Confucius, Lao Tze, we have Kṛiṣhṇa, Rāma, all of Them have said one thing, and one thing: that, "You seek your Spirit." "</font><br>
 <font size="+0"><b>1985-0419 Public Program, The Seeking of the Spirit, Hall, Bull Street, Birmingham, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now, this question follows another question: that if you are the Spirit, [then] you are your own guide, you are own guru, you are your own master. So now you put your right hand on the upper part of your stomach on the left-hand side, which is the center of mastery. <font color="red">This is the center which is created by the Masters, the Great Masters, who are Sadgurus, who are Real Masters, like Abraham, Moses, Janak, Nāṇak, Lao Tze, Muhammad Sāhab.</font> Now, you take this hand little deep, prarsee [press it], push it little deep into that area in the upper part of the abdomen, and ask a question three times, 'Mother, am I my own guide? Am I my own master? Am I my own guru?' Ask in your heart."</font><br>
+<font size="+0"><b>1985-0422 Public Program, Day 1, Université Paris Diderot Paris 7, 5 Rue Thomas Mann, Paris, France</b></font>
 </p>
 
 <div class="para-divider"></div>
