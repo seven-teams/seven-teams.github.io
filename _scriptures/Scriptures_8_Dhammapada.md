@@ -627,62 +627,68 @@ the true person's fragrance permeates all directions.</font>
 
 <p>
 <b>55 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Chandanaṁ tagaraṁ vā pi, uppalaṁ atha vassikī,<br>
+etesaṁ gandhajātānaṁ sīlagandho anuttaro.</font>
 </p>
 
 <p>
 <b>55 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... the perfume of virtue is supreme.</font><br>
+<font color="blue">How much finer<br>
+Is the fragrance of virtue<br>
+......<br></font><br>
+<font color="Peru">......<br>
+  amongst these kinds of good fragrance<br>
+  virtue's fragrance is unsurpassed.<br></font>
 </p>
 
 <p>
 <b>56 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Appamatto ayaṁ gandho yāyaṁ tagarachandanī,<br>
+yo cha sīlavataṁ gandho vāti devesu uttamo.</font>
 </p>
 
 <p>
 <b>56 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... the perfume of the good reaches heaven, and it s the perfume supreme amongst the gods.</font><br>
+<font color="blue">...... the fragrance of virtue<br>
+Rises to the heavens.</font><br>
+<font color="Peru">...... the<br>
+fragrance of one who has virtue<br>
+flutters supreme amongst the gods</font>
 </p>
 
 <p>
 <b>57 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Tesaṁ sampannasīlānaṁ, appamādavihārinaṁ,<br>
+sammad-aññāvimuttānaṁ, Māro maggaṁ na vindati.</font>
 </p>
 
 <p>
 <b>57 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>58 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>58 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">The path of those who are rich in virtue, who are ever watchful, whose true light makes them free, cannot be crossed by MARA, by death.</font><br>
+<font color="blue">Desire never crosses the path<br>
+Of virtuous and wakeful men.<br>
+......<br></font><br>
+<font color="Peru">Māra cannot find the path of<br>
+those who are endowed with virtue,<br>
+who live heedfully, and who are<br>
+completely freed through deep knowledge.</font>
 </p>
 
 <p>
 <b>59 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">evaṁ saṅkārabhūtesu, andhabhūte puthujjane,<br>
+atirocati paññāya Sammāsambuddhasāvako.</font>
 </p>
 
 <p>
 <b>59 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... among the blind multitudes shines pure the light of wisdom of the student who follows the Buddha, the one who is truly awake.</font><br>
+<font color="Peru">...... amongst<br>
+the blind and ordinary folk,<br>
+the Perfect Sambuddha's disciple<br>
+shines forth because of his wisdom.</font>
 </p>
 
 <div class="para-divider"></div>
