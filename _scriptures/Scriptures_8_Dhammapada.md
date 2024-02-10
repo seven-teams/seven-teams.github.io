@@ -701,98 +701,150 @@ shines forth because of his wisdom.</font>
 
 <p>
 <b>60 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Dīghā jāgarato ratti, dīghaṁ santassa yojanaṁ,<br>
+dīgho bālānaṁ saṁsāro Saddhammaṁ avijānataṁ.</font>
 </p>
 
 <p>
 <b>60 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">How long is the night to the watchman; how long is the road to the weary; how long is the wandering of lives ending in death for the fool who cannot find the path!</font><br>
+<font color="blue">How long the night to the watchman,<br>
+How long the road to the weary<br>
+traveller,<br>
+How long the wandering of many lives<br>
+To the fool who misses the way.</font><br>
+<font color="Peru">Long is the night for one awake,<br>
+long is a league for one tired,<br>
+long is the round of births and deaths<br> 
+for fools who know not True Dhamma.</font>
 </p>
 
 <p>
 <b>61 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Charañ-che nādhigaccheyya seyyaṁ sadisam-attano,<br>
+ekachariyaṁ daḷhaṁ kayirā: natthi bāle sahāyatā.</font>
 </p>
 
 <p>
 <b>61 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">If on the great journey of life a man cannot find one who is beter or at least as good as himself, let him joyfully travel alone: a fool cannot help him on his journey.</font><br>
+<font color="blue">If the traveller cannot find<br>
+Master or friend to go with him,<br>
+Let him travel alone<br>
+Rather than with a fool for company.</font><br>
+<font color="Peru">If while roaming one cannot find<br>
+one better or same as oneself,<br>
+one should resolve to go alone:<br>
+there can be no friendship with fools.</font>
 </p>
 
 <p>
 <b>62 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">"Puttā matthi dhanaṁ matthi," iti bālo vihaññati,<br>
+attā hi attano natthi, kuto puttā kuto dhanaṁ?</font>
 </p>
 
 <p>
 <b>62 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">'These are my sons. This is y wealth.' in this waythe fool troubles himself. He is not even the owner of himself: how much less of his sons and of his wealth!</font><br>
+<font color="blue">"My children, my wealth!"<br>
+So the fool troubles himself.<br>
+But how has he children or wealth?<br>
+He is not even his own master.</font><br>
+<font color="Peru">"Sons are mine, and riches are mine,"<br>
+so the fool suffers vexation,<br>
+when even self is not his own,<br>
+how then sons, and how then riches?</font>
 </p>
 
 <p>
 <b>63 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Yo bālo maññati bālyaṁ, paṇḍito vāpi tena so,<br>
+bālo cha paṇḍitamānī, sa ve bālo ti vucchati.</font>
 </p>
 
 <p>
 <b>63 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">If a fool can see his own folly, he in this at least is wise; but the fool who thinks he is wise, he indeed is the real fool.</font><br>
+<font color="blue">The fool who knows he is a fool<br>
+Is that much wiser.<br>
+The fool who thinks he is wise<br>
+Is a fool indeed.</font><br>
+<font color="Peru">The fool who knows his foolishness,<br>
+is at least wise in that matter,<br>
+the fould who's proud of his wisdom,<br>
+is said to be a fool indeed.</font>
 </p>
 
 <p>
 <b>64 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Yāvajīvam-pi che bālo paṇḍitaṁ payirupāsati,<br>
+na so Dhammaṁ vijānāti, dabbī sūparasaṁ yathā.</font>
 </p>
 
 <p>
 <b>64 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">If during the whole of his life a fool lives with a wise man, he never knows the path of widom ......</font><br>
+<font color="blue">......<br>
+A fool may live all his life<br>
+In the company of a master<br>
+And still miss the way.</font><br>
+<font color="Peru">Even if a fool attends on<br>
+a wise man for his whole life long,<br>
+he does not learn Dhamma ......</font>
 </p>
 
 <p>
 <b>65 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Muhuttam-api che viññū paṇḍitaṁ payirupāsati,<br>
+khippaṁ Dhammaṁ vijānāti, jivhā sūparasaṁ yathā.</font>
 </p>
 
 <p>
 <b>65 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">But if a man who watches and sees is only a moment with a wise man he soon knows the path of wisdom, ......</font><br>
+<font color="blue">......<br>
+If you are awake in the presence of a<br>
+master<br>
+One moment will show you the way.</font><br>
+<font color="Peru">If a perceptive man attends<br>
+on a wise man for a second,<br>
+he quickly learns Dhamma ......</font>
 </p>
 
 <p>
 <b>66 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Charanti bālā dummedhā amitteneva attanā,<br>
+karontā pāpakaṁ kammaṁ, yaṁ hoti kaṭukapphalaṁ.</font>
 </p>
 
 <p>
 <b>66 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">A fool who thinks he is wise goes through life with himself as his enemy, ......</font><br>
+<font color="blue">The fool is his own enemy.<br>
+The mischief is his undoing.<br>
+How bitterly he suffers!</font><br>
+<font color="Peru">Stupid fools live having<br>
+themselves as their own foes,<br>
+......</font>
 </p>
 
 <p>
 <b>67 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Na taṁ kammaṁ kataṁ sādhu, yaṁ katvā anutappati,<br>
+yassa assumukho rodaṁ, vipākaṁ paṭisevati.</font>
 </p>
 
 <p>
 <b>67 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">For that deed is not well done when being done one has to repent; and when one must reapwith tears the bitter fruits of the worng deed.</font><br>
+<font color="blue">Why do what you will regret?<br>
+Why bring tears upon yourself?<br>
+......</font><br>
+<font color="Peru">That deed is not at all well done,<br>
+which, having done, one has regret,<br>
+for which he has tears on his face,<br>
+as the result follows him round.</font>
 </p>
 
 <p>
