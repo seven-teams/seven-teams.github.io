@@ -31,7 +31,7 @@ Samples:<br>
 <b>14.</b> <a href="https://seven-teams.github.io/events/1990-0112-a"> <font color="DeepPink"><b>1990-0112 Messages from the Banners of the First Morchā (Silent Demonstration), in front of Secretariat Building, Mumbai, Maharashtra, India</b></font></a> started on 2024-0121 and updated on 2024-0203.<br>
 <b>15.</b> <a href="https://seven-teams.github.io/events/1976-0901-090x"> <font color="DeepPink"><b>1976-090x Mass and Meeting with Archbishop of Krakow, Wawel Cathedral, Wavel 3, Krakow, Poland</b></font></a> started on 2024-0121 and updated on 2024-0203.<br>
 <b>16.</b> <a href="https://seven-teams.github.io/events/1993-0519"> <font color="DeepPink"><b>1993-0519 Comments on Music, Evening Program (Sufi Music with Dance), Temple, Sufi Quarter, Istanbul, Turkey</b></font></a> started in 2023 and updated on 2024-0208.<br>
-<b>17.</b>......<br>
+<b>17.</b> <a href="https://seven-teams.github.io/events/1974-0321"> <font color="DeepPink"><b>1974-0321 Public Program, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font></a> started in 2023 and updated on 2024-0210.<br><br>
 <b>18.</b>......<br>
 <b>19.</b>......<br>
 <b>20.</b>......<br>
