@@ -1,1 +1,220 @@
-<?xml version="1.0" encoding="utf-8"?><feed xmlns="http://www.w3.org/2005/Atom" ><generator uri="https://jekyllrb.com/" version="3.9.2">Jekyll</generator><link href="https://seven-teams.github.io/feed/folder.xml" rel="self" type="application/atom+xml" /><link href="https://seven-teams.github.io/" rel="alternate" type="text/html" /><updated>2024-02-11T16:14:47-05:00</updated><id>https://seven-teams.github.io/feed/folder.xml</id><title type="html">Divine Treasures | Folder</title><subtitle>personal description</subtitle><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><entry><title type="html">testfolderpost</title><link href="https://seven-teams.github.io/folder/1000" rel="alternate" type="text/html" title="testfolderpost" /><published>0999-12-31T23:59:56-04:56</published><updated>0999-12-31T23:59:56-04:56</updated><id>https://seven-teams.github.io/folder/testfolderpost</id><content type="html" xml:base="https://seven-teams.github.io/folder/1000"><![CDATA[<h1 id="test">test</h1>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="blue @ test" /><summary type="html"><![CDATA[test]]></summary></entry></feed>
+<?xml version="1.0" encoding="utf-8"?><feed xmlns="http://www.w3.org/2005/Atom" ><generator uri="https://jekyllrb.com/" version="3.9.2">Jekyll</generator><link href="https://seven-teams.github.io/feed/folder.xml" rel="self" type="application/atom+xml" /><link href="https://seven-teams.github.io/" rel="alternate" type="text/html" /><updated>2024-02-14T18:44:02-05:00</updated><id>https://seven-teams.github.io/feed/folder.xml</id><title type="html">Divine Treasures | Folder</title><subtitle>personal description</subtitle><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><entry><title type="html">Poem “What peace is?” by Dan Allen</title><link href="https://seven-teams.github.io/folder/2024-0221-DA-What-peace-is" rel="alternate" type="text/html" title="Poem “What peace is?” by Dan Allen" /><published>2024-02-21T00:00:00-05:00</published><updated>2024-02-21T00:00:00-05:00</updated><id>https://seven-teams.github.io/folder/Poem_DA_What_peace_is</id><content type="html" xml:base="https://seven-teams.github.io/folder/2024-0221-DA-What-peace-is"><![CDATA[<p><br /></p>
+
+<p>
+Peril, doom and gloom<br />
+Jealousy, plotting and revolt<br />
+Words that have weight<br />
+for those who measure, assess and contemplate<br />
+<br />
+But seek not "peace" within any action<br />
+And certainly not through inaction<br />
+<br />
+"Peace" fi any thing is a state of being.<br />
+The center of the storm<br />
+A thing beyond words<br />
+Nirvikalpa.....<br />
+</p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="blue @ Poetry" /><category term="black @ Dan Allen" /><category term="brown @ TBD" /><category term="crimson @ TBD" /><category term="maroon @ Peace" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Poem “The meeting with God” by Dan Allen</title><link href="https://seven-teams.github.io/folder/2024-0221-DA-The-meeting-with-God" rel="alternate" type="text/html" title="Poem “The meeting with God” by Dan Allen" /><published>2024-02-21T00:00:00-05:00</published><updated>2024-02-21T00:00:00-05:00</updated><id>https://seven-teams.github.io/folder/Poem_DA_The_meeting_with_God</id><content type="html" xml:base="https://seven-teams.github.io/folder/2024-0221-DA-The-meeting-with-God"><![CDATA[<p><br /></p>
+
+<p>
+You picked up love<br />
+And put ti into my hands<br />
+1 held it as an obstacle<br />
+To my thoughts<br />
+I was one of the empty barrels<br />
+I made a lot of sounds<br />
+Love that you poured into me<br />
+Filed my hollowness<br />
+The sounds died<br />
+Or should I say, "had no space to live"<br />
+You filled me<br />
+As the Flutist fills the flute<br />
+You reaped what you sowed<br />
+I was your fruit and you loved me<br />
+1was the music that penetrated your ears<br />
+Filling your heart with love<br />
+You loved, and I became your love<br />
+That was my hidden potential.<br />
+</p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="blue @ Poetry" /><category term="black @ Dan Allen" /><category term="brown @ TBD" /><category term="crimson @ TBD" /><category term="maroon @ God" /><category term="maroon @ Meeting" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Poem “Summer” by Dan Allen</title><link href="https://seven-teams.github.io/folder/2024-0221-DA-Summer" rel="alternate" type="text/html" title="Poem “Summer” by Dan Allen" /><published>2024-02-21T00:00:00-05:00</published><updated>2024-02-21T00:00:00-05:00</updated><id>https://seven-teams.github.io/folder/Poem_DA_Summer</id><content type="html" xml:base="https://seven-teams.github.io/folder/2024-0221-DA-Summer"><![CDATA[<p><br /></p>
+
+<p>
+On a summer day, Is the time to see<br />
+The wind frolic with the branches of a mighty tree<br />
+Loftily it stands, idle<br />
+Like an instrument to be played<br />
+Until an industrious wind sets into motion,<br />
+a sway<br />
+With a rustle and a whirl<br />
+A prosodic rhythm begets the mood<br />
+Venting gleams of sun light, dancing amidst the shadows<br />
+Leaves tussle, the music begins, A choir of sounds<br />
+With a murmur of the wind’s roar<br />
+No mistaking now, where in the middle of the score<br />
+I get lost, on my summer day<br />
+sensing the girth of our beings, finding my pace<br />
+In these times I see no need to dream<br />
+to envision myself at a stream<br />
+to escape the drudgeries of life<br />
+to have a shelter from strife<br />
+I savor these moments, On a summer day<br />
+Pleasantly warmed, by the suns' rays<br />
+</p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="blue @ Poetry" /><category term="black @ Dan Allen" /><category term="brown @ TBD" /><category term="crimson @ TBD" /><category term="maroon @ Summer" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Poem “Sky” by Dan Allen</title><link href="https://seven-teams.github.io/folder/2024-0221-DA-Sky" rel="alternate" type="text/html" title="Poem “Sky” by Dan Allen" /><published>2024-02-21T00:00:00-05:00</published><updated>2024-02-21T00:00:00-05:00</updated><id>https://seven-teams.github.io/folder/Poem_DA_Sky</id><content type="html" xml:base="https://seven-teams.github.io/folder/2024-0221-DA-Sky"><![CDATA[<p><br /></p>
+
+<p>
+I long to fill my bucket with sky<br />
+But for the holes - bucket would be full<br />
+So, I pray to the divine to fix my buckets' holes<br />
+So that I may feel its fullness<br />
+<br />
+Wonderful sky, you are peace and tranquility<br />
+Even in your rage / have never seen you cast a cloud to<br />
+the ground<br />
+And, I watch how you hold the sun and hide your<br />
+stars until you tire<br />
+Then gently put the sun down, allowing again the stars<br />
+to shine<br />
+<br />
+I see you everywhere<br />
+Everywhere, except in my bucket with holes<br />
+There is only emptiness there<br />
+Emptiness and longing<br />
+<br />
+What would it be to have wisdom?<br />
+To lose sight of emptiness and longing<br />
+To lose sight and be full<br />
+Oh, Divine, please fix my buckets' holes<br />
+</p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="blue @ Poetry" /><category term="black @ Dan Allen" /><category term="brown @ TBD" /><category term="crimson @ TBD" /><category term="maroon @ Sky" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Poem “Hope” by Dan Allen</title><link href="https://seven-teams.github.io/folder/2024-0221-DA-Hope" rel="alternate" type="text/html" title="Poem “Hope” by Dan Allen" /><published>2024-02-21T00:00:00-05:00</published><updated>2024-02-21T00:00:00-05:00</updated><id>https://seven-teams.github.io/folder/Poem_DA_Hope</id><content type="html" xml:base="https://seven-teams.github.io/folder/2024-0221-DA-Hope"><![CDATA[<p><br /></p>
+
+<p>
+I have wondered what is pain?<br />
+I have lingered long in the rain<br />
+Confusion has muddled and bound me<br />
+While above the clouds shined the sun's rays<br />
+And within the winter has slept a spring day<br />
+I have laughed at the truth within myself<br />
+I have coerced confessions out of the dark side of me<br />
+I have doubted my worth and found many faults<br />
+Yet still, I pine for the waves of pleasant sounds to<br />
+reach my island's shore<br />
+Friendly voices, fountains and springs<br />
+And love from another<br />
+For another being<br />
+I have held on, and believe it to be true<br />
+And every day feeds my beliefs<br />
+Till in my garden, there is plenty to eat<br />
+</p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="blue @ Poetry" /><category term="black @ Dan Allen" /><category term="brown @ TBD" /><category term="crimson @ TBD" /><category term="maroon @ Hope" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Poem “Collide sky” by Dan Allen</title><link href="https://seven-teams.github.io/folder/2024-0221-DA-Collide-sky" rel="alternate" type="text/html" title="Poem “Collide sky” by Dan Allen" /><published>2024-02-21T00:00:00-05:00</published><updated>2024-02-21T00:00:00-05:00</updated><id>https://seven-teams.github.io/folder/Poem_DA_Collide_sky</id><content type="html" xml:base="https://seven-teams.github.io/folder/2024-0221-DA-Collide-sky"><![CDATA[<p><br /></p>
+
+<p>
+I was a swell<br />
+Then a wave<br />
+Yet, I did not realize what I had become<br />
+Until I lost my form to the shore<br />
+<br />
+Like a molecule<br />
+In the vastness of space<br />
+Like an arbitrary segment of time<br />
+I cling to myself, binding together my veracity<br />
+<br />
+All the while on a crash course<br />
+With reality<br />
+<br />
+The mothers hand stretches forth<br />
+From under her cosmic folds<br />
+She speaks softly a warning<br />
+"Surrender before you collide"<br />
+<br />
+Her words form partial considerations within me<br />
+Like thoughts fastened together haphazardly from<br />
+random knowledge<br />
+Like pieces of memories<br />
+Laid about, for so long, in my well<br />
+<br />
+Still the mothers voice stays with me<br />
+As her hand, all the while, removes pieces of my form<br />
+<br />
+I desire to become formless<br />
+I desire to become one with the emptiness -<br />
+So that I will never again be alone<br />
+I desire to become one with that creative force<br />
+<br />
+One once thought, naïvely, that to become bigger<br />
+was the way<br />
+To have some part of myself survive the crash<br />
+But now I see that, the passage is smaller than the<br />
+eye of a needle<br />
+Just big enough for my spirit to go through<br />
+</p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="blue @ Poetry" /><category term="black @ Dan Allen" /><category term="brown @ TBD" /><category term="crimson @ TBD" /><category term="maroon @ Colide" /><category term="maroon @ Sky" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Poem “Blue” by Dan Allen</title><link href="https://seven-teams.github.io/folder/2024-0221-DA-Blue" rel="alternate" type="text/html" title="Poem “Blue” by Dan Allen" /><published>2024-02-21T00:00:00-05:00</published><updated>2024-02-21T00:00:00-05:00</updated><id>https://seven-teams.github.io/folder/Poem_DA_Blue</id><content type="html" xml:base="https://seven-teams.github.io/folder/2024-0221-DA-Blue"><![CDATA[<p><br /></p>
+
+<p>
+In times remembered<br />
+When feeling down<br />
+Your essence comes upon me<br />
+Laying my troubles down<br />
+<br />
+Against a bloom<br />
+Between green leaves<br />
+Your shades of feelings<br />
+Creep down deep inside me<br />
+<br />
+Blue, in an afternoon sky<br />
+Lingering in the meadow<br />
+Or at the bow of a knoll<br />
+I see you resting, fondling the pasture<br />
+<br />
+Blue, without a sound<br />
+Hurling shades and hues<br />
+Penetrating a hush<br />
+Enmeshing quietly<br />
+<br />
+In reflections on calm water<br />
+Or upon soothed souls<br />
+Within placid eyes<br />
+Blue, your beauty I behold<br />
+<br />
+Together today and tomorrow<br />
+Blue, I will drink you. I will breathe you in<br />
+I will watch you riding the sunrise<br />
+And I will join you at the gathering of clouds<br />
+</p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="blue @ Poetry" /><category term="black @ Dan Allen" /><category term="brown @ TBD" /><category term="crimson @ TBD" /><category term="maroon @ Blue" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Poem “A tear” by Dan Allen</title><link href="https://seven-teams.github.io/folder/2024-0221-DA-A-tear" rel="alternate" type="text/html" title="Poem “A tear” by Dan Allen" /><published>2024-02-21T00:00:00-05:00</published><updated>2024-02-21T00:00:00-05:00</updated><id>https://seven-teams.github.io/folder/Poem_DA_A_tear</id><content type="html" xml:base="https://seven-teams.github.io/folder/2024-0221-DA-A-tear"><![CDATA[<p><br /></p>
+
+<p>
+A tear, a falling raindrop from my eye.<br />
+Amidst the fluffy white clouds sprinkled throughout the sky.<br />
+Dazed an exquisite dove winged upon the ground.<br />
+Wondering why freedom has bestowed him, earth bound.<br />
+Mind, oh the rhyme of wanting to touch the highest peak.<br />
+Down along the struggle how the dove sang his weep.<br />
+Muscles honed as glass hesitating until the fall.<br />
+Ensuing with a downward plunge, how fast, as fast as rhythm he saw.<br />
+Then that split second, he'd risen up his beak.<br />
+He danced unto the sky for the freedom that he reaped.<br />
+Sing me, yes, that song little dove of your achievements that once was.<br />
+Tell me where has your piper gone, and of who this story is of.<br />
+Which of us has risen unto that sky above<br />
+And of who casts that teardrop that now, bestows life unto a bud.<br />
+</p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="blue @ Poetry" /><category term="black @ Dan Allen" /><category term="brown @ TBD" /><category term="crimson @ TBD" /><category term="maroon @ Tear" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Poem “A look to show the future” by Dan Allen</title><link href="https://seven-teams.github.io/folder/2024-0221-DA-A-look-to-show-the%20future" rel="alternate" type="text/html" title="Poem “A look to show the future” by Dan Allen" /><published>2024-02-21T00:00:00-05:00</published><updated>2024-02-21T00:00:00-05:00</updated><id>https://seven-teams.github.io/folder/Poem_DA_A_look</id><content type="html" xml:base="https://seven-teams.github.io/folder/2024-0221-DA-A-look-to-show-the%20future"><![CDATA[<p><br /></p>
+
+<p>
+Moses must have known<br />
+Jesus must have known<br />
+Mohammed must have known<br />
+As, the other saints.<br />
+What it must be like to make blind men see.<br />
+Your tears fall on stone, and slowly etch the crack.<br />
+To awaken the love in shelled for so long in mankind.<br />
+</p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="blue @ Poetry" /><category term="black @ Dan Allen" /><category term="brown @ TBD" /><category term="crimson @ TBD" /><category term="maroon @ Future" /><category term="maroon @ Look" /><category term="maroon @ Show" /><summary type="html"><![CDATA[]]></summary></entry><entry><title type="html">Poem by Dan Allen</title><link href="https://seven-teams.github.io/folder/2024-0221-DA" rel="alternate" type="text/html" title="Poem by Dan Allen" /><published>2024-02-21T00:00:00-05:00</published><updated>2024-02-21T00:00:00-05:00</updated><id>https://seven-teams.github.io/folder/Poem_DA</id><content type="html" xml:base="https://seven-teams.github.io/folder/2024-0221-DA"><![CDATA[<p><br /></p>
+
+<p>
+What if the babbling brook was not permitted to babble?<br />
+Nor the whispering wind able to sigh<br />
+What if there was never any opposition?<br />
+No friction, no resistance, no struggle<br />
+What if all the stones were as the river rocks; Smooth, even and flat<br />
+What if we loved our spirit more than our life?<br />
+Then what prayers would we need?<br />
+The play continues, the wheel turns<br />
+And we feel that we have never been here before<br />
+We fear tomorrow, as we fear the unknown<br />
+We hold fast to the wavering reed<br />
+As the current of false impression glides over us,<br />
+Here in this stream of life.<br />
+</p>]]></content><author><name>{&quot;name&quot;=&gt;nil, &quot;avatar&quot;=&gt;nil, &quot;bio&quot;=&gt;nil, &quot;location&quot;=&gt;nil, &quot;employer&quot;=&gt;nil, &quot;pubmed&quot;=&gt;nil, &quot;googlescholar&quot;=&gt;nil, &quot;email&quot;=&gt;nil, &quot;researchgate&quot;=&gt;nil, &quot;uri&quot;=&gt;nil, &quot;bitbucket&quot;=&gt;nil, &quot;codepen&quot;=&gt;nil, &quot;dribbble&quot;=&gt;nil, &quot;flickr&quot;=&gt;nil, &quot;facebook&quot;=&gt;nil, &quot;foursquare&quot;=&gt;nil, &quot;github&quot;=&gt;nil, &quot;google_plus&quot;=&gt;nil, &quot;keybase&quot;=&gt;nil, &quot;instagram&quot;=&gt;nil, &quot;impactstory&quot;=&gt;nil, &quot;lastfm&quot;=&gt;nil, &quot;linkedin&quot;=&gt;nil, &quot;orcid&quot;=&gt;nil, &quot;pinterest&quot;=&gt;nil, &quot;soundcloud&quot;=&gt;nil, &quot;stackoverflow&quot;=&gt;nil, &quot;steam&quot;=&gt;nil, &quot;tumblr&quot;=&gt;nil, &quot;twitter&quot;=&gt;nil, &quot;vine&quot;=&gt;nil, &quot;weibo&quot;=&gt;nil, &quot;xing&quot;=&gt;nil, &quot;youtube&quot;=&gt;nil, &quot;wikipedia&quot;=&gt;nil}</name></author><category term="blue @ Poetry" /><category term="black @ Dan Allen" /><category term="brown @ TBD" /><category term="crimson @ TBD" /><summary type="html"><![CDATA[]]></summary></entry></feed>
