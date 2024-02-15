@@ -3,7 +3,7 @@ title: '2013-0725 Poem &#8220;A Day will come&#8221; by Prasad Salunkhe'
 date: 2013-07-25
 permalink: /folder/2013-0725-PS-A-Day-will-come
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ Prasad Salunkhe
   - brown @ 2013
   - crimson @ TBD
