@@ -8,7 +8,7 @@ tags:
   - brown @ 1998
   - crimson @ ISPS
   - deeppink @ 1998-1219 Australian Sahaja Newsletter
-  - green @ Story Poem A Christmas Poem
+  - green @ Story of Poem A Christmas Poem
   - maroon @ Christmas
 ---
 

@@ -7,7 +7,7 @@ tags:
   - black @ Prasad Salunkhe
   - brown @ 2013
   - crimson @ TBD
-  - green @ Story Poem A Day will come
+  - green @ Story of Poem A Day will come
   - maroon @ Come  
   - maroon @ Day
 ---

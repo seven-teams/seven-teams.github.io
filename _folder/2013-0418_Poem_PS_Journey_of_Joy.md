@@ -7,7 +7,7 @@ tags:
   - black @ Prasad Salunkhe
   - brown @ 2013
   - crimson @ TBD
-  - green @ Story Poem Journey of Joy
+  - green @ Story of Poem Journey of Joy
   - maroon @ Journey
   - maroon @ Joy
 ---
