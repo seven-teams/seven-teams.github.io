@@ -7,7 +7,7 @@ tags:
   - black @ Dan Allen
   - brown @ 2017
   - crimson @ CA
-  - crimson @ Adi Shakti
+  - maroon @ Adi Shakti
 ---
 
 <br>
