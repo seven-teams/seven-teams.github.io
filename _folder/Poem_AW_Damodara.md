@@ -3,7 +3,7 @@ title: '2024-0203 Poem &#8220;Damodara&#8221; by Alan Wherry'
 date: 2024-02-03
 permalink: /folder/2024-0203-AW-Damodara
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Alan Wherry
   - brown @ TBD
   - cornflowerblue @ TBD
