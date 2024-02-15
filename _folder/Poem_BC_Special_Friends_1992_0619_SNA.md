@@ -59,5 +59,5 @@ So just hold out your hand.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="55">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1992-0619 Sahaja Newsletter (Australia), Page 6, link </font> <a href="https://seven-teams.github.io/archives/2023/0831"><font color="DarkGreen">Archive Post 13, Part 2</font></a>.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1992-0619 Sahaja Newsletter (Australia), Page 6, link <a href="https://seven-teams.github.io/archives/2023/0831"><font color="DarkGreen">Archive Post 13, Part 2</font></a>.</list-item>
 </wave-list>

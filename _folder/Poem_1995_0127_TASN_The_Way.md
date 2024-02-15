@@ -61,5 +61,5 @@ as puja to Shiva.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="55">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1995-0127 The Australian Sahaja Newsletter, Page 5, link </font> <a href="https://seven-teams.github.io/archives/2023/1209"><font color="DarkGreen">Archive Post 15, Part 3</font></a>.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1995-0127 The Australian Sahaja Newsletter, Page 5, link <a href="https://seven-teams.github.io/archives/2023/1209"><font color="DarkGreen">Archive Post 15, Part 3</font></a>.</list-item>
 </wave-list> 

@@ -17,5 +17,12 @@ tags:
 Where's that place, so hard to find,<br>
 Beyond the matrix of my mind?<br>
 Cool, inviting, precious Light<br>
-Lift me t o my heart's delight.<br>
+Lift me to my heart's delight.<br>
 </p>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="40">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="280"><b> L1. Link to author's gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframedbyedsaugstad"><font color="DarkGreen">Enlightened Poems Framed by Ed Saugstad"</font></a>. </list-item>
+</wave-list>

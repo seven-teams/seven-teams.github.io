@@ -34,7 +34,7 @@ Let mother's love help us realise ourselves.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="55">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1997-0705 The Australian Sahaja Newsletter, Page 1, link </font> <a href="https://seven-teams.github.io/archives/2023/1214"><font color="DarkGreen">Archive Post 16, Part 1</font></a>.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1997-0705 The Australian Sahaja Newsletter, Page 1, link <a href="https://seven-teams.github.io/archives/2023/1214"><font color="DarkGreen">Archive Post 16, Part 1</font></a>.</list-item>
 </wave-list>
 
 <br>
