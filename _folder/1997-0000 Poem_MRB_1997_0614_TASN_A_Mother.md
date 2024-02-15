@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Mary Rose Brownscombe
   - brown @ 1997
-  - crimson @ ISPS
+  - cornflowerblue @ ISPS
   - deeppink @ 1997-0614 The Australian Sahaja Newsletter
   - green @ Story of Poem A Mother
   - maroon @ Mother

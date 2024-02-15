@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Greg Turek
   - brown @ 2003
-  - crimson @ Sydney
+  - cornflowerblue @ Sydney
   - deeppink @ 2003-0321 Sahaja Yoga Australian Newsletter
   - green @ Story of Poem by GT
 ---

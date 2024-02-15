@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Millefort Lando
   - brown @ 2001
-  - crimson @ Cotonou (Benin)
+  - cornflowerblue @ Cotonou (Benin)
   - deeppink @ 2001-0907 Sahaja Yoga Australian Newsletter
   - maroon @ Established
   - maroon @ Is

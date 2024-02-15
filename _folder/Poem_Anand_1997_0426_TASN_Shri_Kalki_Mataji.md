@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Anand
   - brown @ 1997
-  - crimson @ Fiji
+  - cornflowerblue @ Fiji
   - deeppink @ 1997-0426 The Australian Sahaja Newsletter
   - green @ Story of 1997-1200 Poem Shri Kalki Mataji
   - maroon @ Shri Mataji

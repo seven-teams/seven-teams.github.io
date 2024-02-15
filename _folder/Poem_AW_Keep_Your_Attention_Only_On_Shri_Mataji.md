@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Alan Wherry
   - brown @ TBD
-  - crimson @ TBD
+  - cornflowerblue @ TBD
   - green @ Story of Poem Keep Your Attention Only On Shri Mataji
   - maroon @ Keep
   - maroon @ Attention

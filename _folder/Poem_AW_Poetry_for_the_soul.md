@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Alan Wherry
   - brown @ TBD
-  - crimson @ TBD
+  - cornflowerblue @ TBD
   - green @ Story of Poetry for the soul
   - maroon @ Soul
 ---

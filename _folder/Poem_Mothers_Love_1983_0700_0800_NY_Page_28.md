@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ TBD
   - brown @ 1983
-  - crimson @ TBD
+  - cornflowerblue @ TBD
   - deeppink @ 1983-0700 and 0800 Nirmala Yoga
   - green @ Story of Poem Mother's Love
   - maroon @ Mother

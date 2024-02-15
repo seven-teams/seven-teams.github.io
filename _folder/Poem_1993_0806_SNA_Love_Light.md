@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Peter Cordon
   - brown @ 1993
-  - crimson @ TBD
+  - cornflowerblue @ TBD
   - deeppink @ 1993-0806 Sahaja Newsletter (Australia)
   - maroon @ Love
   - maroon @ Light

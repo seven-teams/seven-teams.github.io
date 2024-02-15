@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Edward Saugstad
   - brown @ 1987
-  - crimson @ Cambridge
+  - cornflowerblue @ Cambridge
   - maroon @ Innocence
   - maroon @ Win
 ---

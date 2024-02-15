@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Australian Sahaja
   - brown @ 1983
-  - crimson @ TBD
+  - cornflowerblue @ TBD
   - deeppink @ 1983-0900 and 1000 Nirmala Yoga
   - green @ Story of Poem Innocence Is
   - maroon @ Innocence

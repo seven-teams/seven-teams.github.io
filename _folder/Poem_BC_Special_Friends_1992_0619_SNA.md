@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Bey Curtis
   - brown @ 1992
-  - crimson @ Gympie
+  - cornflowerblue @ Gympie
   - deeppink @ 1992-0619 Sahaja Newsletter (Australia)
   - maroon @ Special
   - maroon @ Friends

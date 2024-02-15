@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Dr. Rustom Burjorjee
   - brown @ 1984
-  - crimson @ TBD
+  - cornflowerblue @ TBD
   - deeppink @ 1984-0100 and 0200 Nirmala Yoga, Page 22
   - maroon @ Mother
 ---

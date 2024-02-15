@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Raymond Hampton
   - brown @ 2003
-  - crimson @ Sydney
+  - cornflowerblue @ Sydney
   - deeppink @ 2003-0110 Sahaja Yoga Australian Newsletter
   - maroon @ Salvation
   - maroon @ Shore

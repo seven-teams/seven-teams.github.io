@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Satyendra Srivastava
   - brown @ 1992
-  - crimson @ TBD
+  - cornflowerblue @ TBD
   - deeppink @ 1992-0403 Sahaja Newsletter (Australia)
   - maroon @ Second
   - maroon @ Skin

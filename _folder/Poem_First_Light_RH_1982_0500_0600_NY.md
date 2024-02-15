@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Ray Harris
   - brown @ 1982
-  - crimson @ TBD
+  - cornflowerblue @ TBD
   - deeppink @ 1982-0500 and 0600 Nirmala Yoga
   - maroon @ First
   - maroon @ Light

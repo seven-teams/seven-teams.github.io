@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Katie Cartmel
   - brown @ 2003
-  - crimson @ Sydney
+  - cornflowerblue @ Sydney
   - deeppink @ 2003-0516 Sahaja Yoga Australian Newsletter
   - maroon @ Earth
   - maroon @ Vision

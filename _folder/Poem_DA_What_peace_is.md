@@ -6,7 +6,8 @@ tags:
   - aqua @ Poetry
   - black @ Dan Allen
   - brown @ TBD
-  - crimson @ TBD
+  - cornflowerblue @ TBD
+  - maroon @ Is
   - maroon @ Peace
 ---
 

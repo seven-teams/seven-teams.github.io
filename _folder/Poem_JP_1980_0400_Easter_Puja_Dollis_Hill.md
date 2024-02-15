@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ John Peirson
   - brown @ 1980
-  - crimson @ UK
+  - cornflowerblue @ UK
   - deeppink @ 1983-0100 and 0200 Nirmala Yoga
 ---
 

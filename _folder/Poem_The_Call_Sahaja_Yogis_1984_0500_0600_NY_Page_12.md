@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ TBD
   - brown @ 1982
-  - crimson @ TBD
+  - cornflowerblue @ TBD
   - deeppink @ 1984-0500 and 0600 Nirmala Yoga
   - green @ Story of Poem The Call Sahaja Yogis
   - maroon @ Call

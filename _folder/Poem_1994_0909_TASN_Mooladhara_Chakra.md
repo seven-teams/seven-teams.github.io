@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ TBD
   - brown @ 1994
-  - crimson @ TBD
+  - cornflowerblue @ TBD
   - deeppink @ 1994-0909 The Australian Sahaja Newsletter
   - maroon @ Chakra
   - maroon @ Mooladhara

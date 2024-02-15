@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ TBD
   - brown @ 1984
-  - crimson @ TBD
+  - cornflowerblue @ TBD
   - deeppink @ 1984-1100 and 1200 Nirmala Yoga
   - maroon @ Mother
 ---

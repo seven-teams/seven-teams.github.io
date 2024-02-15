@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Lyndal Vercoe
   - brown @ 2002
-  - crimson @ Perth
+  - cornflowerblue @ Perth
   - deeppink @ 2002-0315 Sahaja Yoga Australian Newsletter
   - green @ Story of Poem Ode to the Conch
   - maroon @ Conch

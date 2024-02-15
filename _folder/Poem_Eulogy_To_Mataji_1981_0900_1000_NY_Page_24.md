@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Judith Bell
   - brown @ 1981
-  - crimson @ Sydney
+  - cornflowerblue @ Sydney
   - deeppink @ 1981-0900 and 1000 Nirmala Yoga
   - maroon @ Eulogy
   - maroon @ Mataji

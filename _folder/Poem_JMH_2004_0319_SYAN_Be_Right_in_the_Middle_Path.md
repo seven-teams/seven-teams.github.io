@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Jean-Michel Huet
   - brown @ 2004
-  - crimson @ Sydney
+  - cornflowerblue @ Sydney
   - deeppink @ 2004-0213 Sahaja Yoga Australian Newsletter
   - maroon @ Be
    - maroon @ Middle

@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Clodagh Pitman
   - brown @ 1997
-  - crimson @ Perth
+  - cornflowerblue @ Perth
   - deeppink @ 1998-0207 Australian Sahaja Newsletter
   - green @ Story of 1997-1200 Poem by CP
 ---

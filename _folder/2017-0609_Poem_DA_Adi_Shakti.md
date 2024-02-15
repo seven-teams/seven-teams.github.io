@@ -6,7 +6,7 @@ tags:
   - aqua @ Poetry
   - black @ Dan Allen
   - brown @ 2017
-  - crimson @ CA
+  - cornflowerblue @ CA
   - maroon @ Adi Shakti
 ---
 
