@@ -3,7 +3,7 @@ title: '2017-0609 Poem &#8220;Adi Shakti&#8221; by Dan Allen'
 date: 2024-02-14
 permalink: /folder/2024-0214-DA-Adi-Shakti
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Dan Allen
   - brown @ 2017
   - cornflowerblue @ CA

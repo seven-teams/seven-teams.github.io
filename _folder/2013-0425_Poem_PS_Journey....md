@@ -3,7 +3,7 @@ title: '2013-0725 Poem &#8220;Journey...&#8221; by Prasad Salunkhe'
 date: 2013-04-18
 permalink: /folder/2013-0418-PS-Journey-of-Joy
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Prasad Salunkhe
   - brown @ 2013
   - cornflowerblue @ TBD

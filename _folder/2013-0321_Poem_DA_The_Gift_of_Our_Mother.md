@@ -3,7 +3,7 @@ title: '2013-0321 Poem &#8220;The Gift of our Mother&#8221; by Dan Allen'
 date: 2013-03-21
 permalink: /folder/2013-03-21-The-Gift-of-our-Mother
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Dan Allen
   - brown @ 2013
   - cornflowerblue @ CA

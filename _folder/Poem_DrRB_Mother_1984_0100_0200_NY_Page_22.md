@@ -3,7 +3,7 @@ title: 'Poem &#8220;Mother&#8221; by Dr. Rustom Burjorjee from 1984-0100 and 020
 date: 1984-01-01
 permalink: /folder/1984-0101-DrRB-Mother
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Dr. Rustom Burjorjee
   - brown @ 1984
   - cornflowerblue @ TBD

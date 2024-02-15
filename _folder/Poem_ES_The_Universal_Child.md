@@ -3,7 +3,7 @@ title: '1996-0900 Poem &#8220;Universal Child&#8221; by Edward Saugstad for Shri
 date: 1996-09-15
 permalink: /folder/1996-0915-0900-ES-Universal-Child
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Edward Saugstad
   - brown @ 1996
   - cornflowerblue @ TBD

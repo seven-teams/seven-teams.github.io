@@ -3,7 +3,7 @@ title: '1998-0000 Poem &#8220;Pure Desire&#8221; by Edward Saugstad'
 date: 1998-01-02
 permalink: /folder/1998-0102-ES-Pure-Desire
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Edward Saugstad
   - brown @ 1998
   - cornflowerblue @ TBD

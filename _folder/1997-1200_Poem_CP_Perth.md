@@ -3,7 +3,7 @@ title: '1997-1200 Poem by Clodagh Pitman, Perth from 1998-0207 Australian Sahaja
 date: 1997-12-01
 permalink: /folder/1997-1200-CP-1998-0207-ASN
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Clodagh Pitman
   - brown @ 1997
   - cornflowerblue @ Perth

@@ -3,7 +3,7 @@ title: 'Poem &#8220;When Your Vishuddhi is Established&#8221; by Millefort Lando
 date: 2001-09-07
 permalink: /folder/2001-0907-ML-When-Your-Vishuddhi-is-Established
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Millefort Lando
   - brown @ 2001
   - cornflowerblue @ Cotonou (Benin)

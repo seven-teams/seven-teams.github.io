@@ -3,7 +3,7 @@ title: 'Poem by John Peirson Offered to Śhrī Mātājī during 1980-0406 Easter
 date: 1980-04-06
 permalink: /folder/1980-0406-JP
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ John Peirson
   - brown @ 1980
   - cornflowerblue @ UK

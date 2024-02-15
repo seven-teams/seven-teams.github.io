@@ -3,7 +3,7 @@ title: 'Poem by Dan Allen'
 date: 2024-02-14
 permalink: /folder/2024-0214-DA
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Dan Allen
   - brown @ TBD
   - cornflowerblue @ TBD

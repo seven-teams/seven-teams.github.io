@@ -3,7 +3,7 @@ title: 'Poem &#8220;Blessed Freedom&#8221; by Peter Cordon from 1992-0313 Sahaja
 date: 1992-03-13
 permalink: /folder/1992-0313-PC-Blessed-Freedom
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Peter Cordon
   - brown @ 1992
   - cornflowerblue @ TBD

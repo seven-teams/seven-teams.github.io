@@ -3,7 +3,7 @@ title: 'Poem &#8220;I love the little yogis&#8221; from 1993-0813 Sahaja Newslet
 date: 1993-08-13
 permalink: /folder/1993-0813-SNA-P4
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ TBD
   - brown @ 1993
   - cornflowerblue @ TBD

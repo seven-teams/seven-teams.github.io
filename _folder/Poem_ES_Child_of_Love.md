@@ -3,7 +3,7 @@ title: 'Poem &#8220;Child of Love&#8221; by Edward Saugstad'
 date: 2024-02-14
 permalink: /folder/2024-0214-ES-Child-of-Love
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Edward Saugstad
   - brown @ TBD
   - cornflowerblue @ TBD

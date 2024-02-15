@@ -3,7 +3,7 @@ title: '1998-1200 Poem &#8220;A Christmas Poem&#8221; by an ISPS Student from 19
 date: 1998-12-01
 permalink: /folder/1998-1201-1200-ISPS-Steudent-Christmas
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ ISPS Student
   - brown @ 1998
   - cornflowerblue @ ISPS

@@ -3,7 +3,7 @@ title: '1997-0000 Poem &#8220;A Mother&#8221; by Mary Rose Brownscombe, ISPS fro
 date: 1997-06-14
 permalink: /folder/1997-0614-MRB-A-Mother
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Mary Rose Brownscombe
   - brown @ 1997
   - cornflowerblue @ ISPS

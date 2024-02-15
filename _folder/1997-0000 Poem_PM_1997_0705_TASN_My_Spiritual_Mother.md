@@ -3,7 +3,7 @@ title: '1997-0000 Poem &#8220;My Spiritual Mother&#8221; by Pratiksha Mistri fro
 date: 1997-07-05
 permalink: /folder/1997-0705-MRB-A-Mother
 tags:
-  - aqua @ Poetry
+  - aquamarine @ Poetry
   - black @ Pratiksha Mistri
   - brown @ 1997
   - cornflowerblue @ TBD
