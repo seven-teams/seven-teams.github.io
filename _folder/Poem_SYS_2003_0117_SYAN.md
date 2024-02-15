@@ -96,8 +96,8 @@ It was a time of real joy and inspiration.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2003-0117 Sahaja Yoga Australian Newsletter, Page 3, from NSW ...:</b> This is a poem describing the experience of a group of Yuva Shakti who went to the Annual Woodford Folk Festi- val in Queensland from December 26 to January 01. We set up a Sahaja Yoga stall and had heaps of fun.<br>
+  <list-item color="BlanchedAlmond"  width="280"><b>2003-0117 Sahaja Yoga Australian Newsletter, Page 3, from NSW ...:</b> "This is a poem describing the experience of a group of Yuva Shakti who went to the Annual Woodford Folk Festival in Queensland from December 26 to January 01. We set up a Sahaja Yoga stall and had heaps of fun.<br>
   <br>
 Jai Shri Mataji<br>
-Sean Daly</list-item>
+Sean Daly"</list-item>
 </wave-list>

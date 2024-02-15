@@ -46,5 +46,5 @@ life which is to achieve the state of spirit.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> From childhood I was fascinated to see water from a fast flowing stream or the sea crash into a rock, the temporary patterns of the spray. It was only later I saw the metaphor, the illusion, when the drops flying high might think they're superior.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> "From childhood I was fascinated to see water from a fast flowing stream or the sea crash into a rock, the temporary patterns of the spray. It was only later I saw the metaphor, the illusion, when the drops flying high might think they're superior."</list-item>
 </wave-list>

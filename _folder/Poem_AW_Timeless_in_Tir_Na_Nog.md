@@ -39,7 +39,7 @@ And the nature watching us.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> Tievebulliagh - beyond time and space<br>
+  <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> "Tievebulliagh - beyond time and space<br>
 In May 1989, I was living in London, stressed, depressed and in need of a break. At the time, I was a founding director of Bloomsbury Publishing PLC, and to the outside world, I must have appeared to be a model of success – happily married with three lovely sons, etc.<br>
 <br>
 I had always wanted to visit Iona, the island off the coast of Scotland where Irish Christian monks lived in the 6th Century, notably St. Columbus, one of those who first brought Christianity to Britain.<br>
@@ -82,5 +82,5 @@ That night I wrote an account of what had happened to me on my return to the You
 <br>
 It had been a truly remarkable experience, a connection beyond my wildest dreams and the first time I had ever experienced anything that could be even vaguely regarded as spiritual.<br>
 <br>
-Some eight years later, I took my new Russian Sahaja wife and son to the place. To my astonishment, what I had written down that very same day and experienced could not possibly have happened as I described it. In the pleasant spring sunshine, there was no mountain remotely near the grave and a map hastily consulted, revealed that Tievebulliagh was some distance away, a distance I most certainly never walked.</list-item>
+Some eight years later, I took my new Russian Sahaja wife and son to the place. To my astonishment, what I had written down that very same day and experienced could not possibly have happened as I described it. In the pleasant spring sunshine, there was no mountain remotely near the grave and a map hastily consulted, revealed that Tievebulliagh was some distance away, a distance I most certainly never walked."</list-item>
 </wave-list>

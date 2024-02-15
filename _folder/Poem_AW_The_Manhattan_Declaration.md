@@ -46,6 +46,6 @@ To put it out there.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> Shri Mataji had declared Her divinity to Sahaja Yogis in 1979 in Dollis Hill ashram, London and in 1981 in a church in Manhattan. I was always fascinated by the latter. Who was there, what was the impact etc. Kay McHugh, an Australian air stewardess was there and this is what she told me:<br>
+  <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> "Shri Mataji had declared Her divinity to Sahaja Yogis in 1979 in Dollis Hill ashram, London and in 1981 in a church in Manhattan. I was always fascinated by the latter. Who was there, what was the impact etc. Kay McHugh, an Australian air stewardess was there and this is what she told me:"<br>
 ......</list-item>
 </wave-list>

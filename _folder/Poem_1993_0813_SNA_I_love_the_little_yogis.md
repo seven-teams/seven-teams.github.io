@@ -44,5 +44,5 @@ The old McNeill Carol.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>1993-0813 Sahaja Newsletter (Australia), Page 4, Editorial Note:</b> Our Newsletter Editor, Carole McNeill is sick this week.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>1993-0813 Sahaja Newsletter (Australia), Page 4, Editorial Note:</b> "Our Newsletter Editor, Carole McNeill is sick this week."</list-item>
 </wave-list>

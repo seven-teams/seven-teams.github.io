@@ -31,7 +31,7 @@ Thanks to Shri Mataji for blessing you and me<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2013-0419 Author's email:</b> Since yesterday Sahaja Yogis attended 3 federal health fairs. Sahaja Yoga was presented at following places:<br>
+  <list-item color="BlanchedAlmond"  width="280"><b>2013-0419 Author's email:</b> "Since yesterday Sahaja Yogis attended 3 federal health fairs. Sahaja Yoga was presented at following places:<br>
 <br>
 1- United State secret service<br>
 2- ATF (alcohol tobacco and firearms)<br>
@@ -39,5 +39,5 @@ Thanks to Shri Mataji for blessing you and me<br>
 <br>
 On my way back home, went to a Kayak store, while leaving gave realization to these 2 American seekers Rich and Joye. Heart was filled with joy.<br>
 So as I was driving home, this poetry dawn on me.<br>
-Dedicated to all my Sahajayogi family world wide.</list-item>
+Dedicated to all my Sahajayogi family world wide."</list-item>
 </wave-list>

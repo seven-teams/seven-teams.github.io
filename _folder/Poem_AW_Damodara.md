@@ -35,6 +35,6 @@ The Lord is named Damodara.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> I was browsing through a copy of Vishnu Sahasranama last night and chanced upon this.<br>
-I didn't really write, a creative sense, just wrote down was staring back at me from the page.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> "I was browsing through a copy of Vishnu Sahasranama last night and chanced upon this.<br>
+I didn't really write, a creative sense, just wrote down was staring back at me from the page."</list-item>
 </wave-list>
