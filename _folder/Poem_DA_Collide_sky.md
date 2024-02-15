@@ -1,7 +1,7 @@
 ---
 title: 'Poem &#8220;Collide sky&#8221; by Dan Allen'
-date: 2024-02-21
-permalink: /folder/2024-0221-DA-Collide-sky
+date: 2024-02-14
+permalink: /folder/2024-0214-DA-Collide-sky
 tags:
   - blue @ Poetry
   - black @ Dan Allen

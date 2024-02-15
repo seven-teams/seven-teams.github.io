@@ -1,7 +1,7 @@
 ---
 title: 'Poem by Dan Allen'
-date: 2024-02-21
-permalink: /folder/2024-0221-DA
+date: 2024-02-14
+permalink: /folder/2024-0214-DA
 tags:
   - blue @ Poetry
   - black @ Dan Allen

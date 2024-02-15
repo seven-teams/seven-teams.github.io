@@ -1,7 +1,7 @@
 ---
 title: 'Poem &#8220;A look to show the future&#8221; by Dan Allen'
-date: 2024-02-21
-permalink: /folder/2024-0221-DA-A-look-to-show-the future
+date: 2024-02-14
+permalink: /folder/2024-0214-DA-A-look-to-show-the future
 tags:
   - blue @ Poetry
   - black @ Dan Allen

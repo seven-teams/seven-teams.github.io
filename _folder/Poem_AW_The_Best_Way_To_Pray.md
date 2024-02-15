@@ -1,7 +1,7 @@
 ---
 title: 'Poem &#8220;The Best Way To Pray&#8221; by Alan Wherry'
-date: 2024-02-21
-permalink: /folder/2024-0221-AW-The-best
+date: 2024-02-14
+permalink: /folder/2024-0214-AW-The-best
 tags:
   - blue @ Poetry
   - black @ Alan Wherry

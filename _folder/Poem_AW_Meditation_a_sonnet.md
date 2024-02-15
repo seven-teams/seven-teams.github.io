@@ -1,7 +1,7 @@
 ---
 title: 'Poem &#8220;Meditation - a sonnet&#8221; by Alan Wherry'
 date: 2024-02-14
-permalink: /folder/2024-0221-AW-Meditation
+permalink: /folder/2024-0214-AW-Meditation
 tags:
   - blue @ Poetry
   - black @ Alan Wherry

@@ -1,7 +1,7 @@
 ---
 title: 'Poem &#8220;The meeting with God&#8221; by Dan Allen'
-date: 2024-02-21
-permalink: /folder/2024-0221-DA-The-meeting-with-God
+date: 2024-02-14
+permalink: /folder/2024-0214-DA-The-meeting-with-God
 tags:
   - blue @ Poetry
   - black @ Dan Allen
