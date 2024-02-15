@@ -3,7 +3,7 @@ title: 'Poem &#8220;Keep Your Attention Only On Shri Mataji&#8221; by Alan Wherr
 date: 2024-02-14
 permalink: /folder/2024-0214-AW-Keep
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ Alan Wherry
   - brown @ TBD
   - crimson @ TBD

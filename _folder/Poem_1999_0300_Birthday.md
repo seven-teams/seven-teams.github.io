@@ -3,7 +3,7 @@ title: '1999-0321 Poem &#8220;Mother&#8217;s Birthday&#8221; by a Sahaja Yogi Mu
 date: 1999-03-21
 permalink: /folder/1999-0321-Our-Mothers-Birthday-Benin
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ TBD
   - brown @ 1999
   - crimson @ Benin

@@ -3,7 +3,7 @@ title: 'Poem &#8220;The Hill of Uisneach&#8221; by Alan Wherry'
 date: 2024-02-14
 permalink: /folder/2024-0214-AW-The-Hill
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ Alan Wherry
   - brown @ TBD
   - crimson @ TBD

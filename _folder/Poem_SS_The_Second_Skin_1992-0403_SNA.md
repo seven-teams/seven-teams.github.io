@@ -3,7 +3,7 @@ title: 'Poem &#8220;The Second Skin&#8221; by Satyendra Srivastava from 1992-040
 date: 1992-04-03
 permalink: /folder/1992-0403-SS-The-Second-Skin
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ Satyendra Srivastava
   - brown @ 1992
   - crimson @ TBD

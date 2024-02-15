@@ -3,7 +3,7 @@ title: 'Poem &#8220;Innocence Is&#8221; by Australian Sahaja from 1983-0900 and 
 date: 1983-09-01
 permalink: /folder/1983-0901-AS-Innocence-Is
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ Australian Sahaja
   - brown @ 1983
   - crimson @ TBD

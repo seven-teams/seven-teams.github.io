@@ -3,7 +3,7 @@ title: 'Poem by John Peirson Offered to Śhrī Mātājī during 1980-0406 Easter
 date: 1980-04-06
 permalink: /folder/1980-0406-JP
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ John Peirson
   - brown @ 1980
   - crimson @ UK

@@ -3,7 +3,7 @@ title: 'Poem &#8220;To Mother&#8221; from 1984-0100 and 0200 Nirmala Yoga, Page 
 date: 1984-01-01
 permalink: /folder/1984-0101-0100-0200-NY-Page-37-Mother
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ TBD
   - brown @ 1984
   - crimson @ TBD

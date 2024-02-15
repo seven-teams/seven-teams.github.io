@@ -3,7 +3,7 @@ title: 'Poem &#8220;To the Shore of Salvation&#8221; by Raymond Hampton, Sydney 
 date: 2003-01-10
 permalink: /folder/2003-0110-RH-To-the-Shore-of-Salvation
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ Raymond Hampton
   - brown @ 2003
   - crimson @ Sydney

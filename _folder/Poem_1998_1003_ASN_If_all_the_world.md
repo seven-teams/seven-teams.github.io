@@ -3,7 +3,7 @@ title: 'Poem &#8220;If all the world&#8221; from 1998-1003 Australian Sahaja New
 date: 1998-10-03
 permalink: /folder/1998-1003-SNA
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ TBD
   - brown @ 1998
   - crimson @ TBD

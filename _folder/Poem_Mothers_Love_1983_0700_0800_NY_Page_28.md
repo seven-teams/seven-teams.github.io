@@ -3,7 +3,7 @@ title: 'Poem &#8220;Mother&#8217;s Love&#8221; from 1983-0700 and 0800 Nirmala Y
 date: 1983-07-01
 permalink: /folder/1982-1101-1100-1200-NY-Page-30
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ TBD
   - brown @ 1983
   - crimson @ TBD

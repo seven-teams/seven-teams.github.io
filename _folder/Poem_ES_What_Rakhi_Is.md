@@ -3,7 +3,7 @@ title: 'Poem &#8220;What Rakhi Is&#8221; by Edward Saugstad'
 date: 2024-02-14
 permalink: /folder/2024-0214-ES-What-Rakhi-Is
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ Edward Saugstad
   - brown @ TBD
   - crimson @ TBD

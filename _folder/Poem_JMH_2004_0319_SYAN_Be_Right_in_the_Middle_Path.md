@@ -3,7 +3,7 @@ title: 'Poem Be Right in the Middle Path by Jean-Michel Huet, Sydney from 2004-0
 date: 2004-03-19
 permalink: /folder/2004-0319-JMH-Be-Right-in-the-Middle-Path
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ Jean-Michel Huet
   - brown @ 2004
   - crimson @ Sydney

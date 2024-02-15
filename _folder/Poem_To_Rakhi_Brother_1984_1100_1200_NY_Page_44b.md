@@ -3,7 +3,7 @@ title: 'Poem &#8220;To Rakhi Brother&#8221; from 1984-1100 and 1200 Nirmala Yoga
 date: 1984-11-01
 permalink: /folder/1984-1101-1100-1200-NY-Rakhi-Brother
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ TBD
   - brown @ 1984
   - crimson @ TBD

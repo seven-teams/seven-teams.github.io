@@ -3,7 +3,7 @@ title: 'Poem &#8220;A Perfect Garden Plot&#8221; by Leny Steuten from 1993-1203 
 date: 1993-12-03
 permalink: /folder/1993-1203-LS-A-Perfect-Garden-Plot
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ TBD
   - brown @ 1993
   - crimson @ TBD

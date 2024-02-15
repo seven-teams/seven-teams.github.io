@@ -3,7 +3,7 @@ title: 'Poem &#8220;Special Friends&#8221; by Bey Curtis from 1992-0619 Sahaja N
 date: 1992-06-19
 permalink: /folder/1992-0619-BC-Special-Friends
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ Bey Curtis
   - brown @ 1992
   - crimson @ Gympie

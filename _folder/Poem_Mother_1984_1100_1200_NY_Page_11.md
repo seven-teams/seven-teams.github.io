@@ -3,7 +3,7 @@ title: 'Poem &#8220;Mother&#8221; from 1984-1100 and 1200 Nirmala Yoga, Page 11'
 date: 1984-11-01
 permalink: /folder/1984-1101-1100-1200-NY-Mother
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ TBD
   - brown @ 1984
   - crimson @ TBD

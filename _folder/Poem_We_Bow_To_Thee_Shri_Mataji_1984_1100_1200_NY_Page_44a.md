@@ -3,7 +3,7 @@ title: 'Poem &#8220;We Bow To Thee, Shri Mataji&#8221; from 1984-1100 and 1200 N
 date: 1984-11-01
 permalink: /folder/1984-1101-1100-1200-NY-We-Bow-To-Thee-Shri-Mataji
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ TBD
   - brown @ 1984
   - crimson @ TBD

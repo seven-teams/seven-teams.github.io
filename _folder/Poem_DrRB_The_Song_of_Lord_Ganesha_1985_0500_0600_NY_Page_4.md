@@ -3,7 +3,7 @@ title: 'Poem &#8220;The Song of Lord Ganesha&#8221; by Dr. Rustom Burjorjee from
 date: 1983-11-01
 permalink: /folder/1983-1101-DrRB-We-Sahaja-Children
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ Dr. Rustom Burjorjee
   - brown @ 1985
   - crimson @ TBD

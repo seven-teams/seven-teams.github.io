@@ -3,7 +3,7 @@ title: 'Poem &#8220;Sky&#8221; by Dan Allen'
 date: 2024-02-14
 permalink: /folder/2024-0214-DA-Sky
 tags:
-  - blue @ Poetry
+  - aqua @ Poetry
   - black @ Dan Allen
   - brown @ TBD
   - crimson @ TBD
