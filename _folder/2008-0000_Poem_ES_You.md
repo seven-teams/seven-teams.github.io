@@ -62,5 +62,5 @@ And soul and joy will never part.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Links</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b> L1. Link to author's gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframedbyedsaugstad"><font color="DarkGreen">Enlightened Poems Framed by Ed Saugstad"</font></a>. </list-item>
+  <list-item color="BlanchedAlmond"  width="300"><b> L1. Link to author's gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframedbyedsaugstad"><font color="DarkGreen">Enlightened Poems Framed by Ed Saugstad</font></a>. </list-item>
 </wave-list>
