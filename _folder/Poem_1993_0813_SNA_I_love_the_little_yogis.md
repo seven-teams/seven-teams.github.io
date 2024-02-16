@@ -36,7 +36,7 @@ The old McNeill Carol.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="55">Sources</list-title>
+<list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1993-0813 Sahaja Newsletter (Australia), Page 4, link <a href="https://seven-teams.github.io/archives/2023/0907"><font color="DarkGreen">Archive Post 13, Part 3</font></a>.</list-item>
 </wave-list>
 

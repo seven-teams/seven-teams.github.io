@@ -69,7 +69,7 @@ America is established.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="55">Sources</list-title>
+<list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> ......</list-item>
   <list-item color="Lavender"  width="280"><b>S1. </b> 2001-0907 Sahaja Yoga Australian Newsletter, Page 6, link <a href="https://seven-teams.github.io/archives/2023/0820"><font color="DarkGreen">Archive Post 10, Part 2</font></a>.</list-item>
 </wave-list>

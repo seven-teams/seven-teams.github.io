@@ -35,7 +35,7 @@ Extending a loving and guiding hand.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="55">Sources</list-title>
+<list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b>1983-0900 and 1000 Nirmala Yoga, Page 14.</list-item>
 </wave-list>
 

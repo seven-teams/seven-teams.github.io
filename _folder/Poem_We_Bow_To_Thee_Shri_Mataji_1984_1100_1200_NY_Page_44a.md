@@ -43,7 +43,7 @@ Becomes the bloom and the fruit,<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="55">Sources</list-title>
+<list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1984-1100 and 1200 Nirmala Yoga, Page 44.</list-item>
 </wave-list>
 

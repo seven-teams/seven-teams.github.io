@@ -62,6 +62,6 @@ At seeing its Mother's eternal worth; and seeing its Mother's eternal Love.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="55">Sources</list-title>
+<list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1984-0100 and 0200 Nirmala Yoga, Page 22.</list-item>
 </wave-list>
