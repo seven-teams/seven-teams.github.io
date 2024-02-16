@@ -73,6 +73,6 @@ And here I was at home, at last.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Links</list-title>
+<list-title color="DarkSeaGreen" width="30">Links</list-title>
   <list-item color="BlanchedAlmond"  width="290"><b> L1. Link to author's gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframedbyedsaugstad"><font color="DarkGreen">Enlightened Poems Framed by Ed Saugstad</font></a>. </list-item>
 </wave-list>
