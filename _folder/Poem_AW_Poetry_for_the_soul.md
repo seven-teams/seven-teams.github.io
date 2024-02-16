@@ -33,7 +33,7 @@ Silent in a host of saints and angels<br>
 In a blue, leaky circus tent, in Cabella, Liguria<br>
 On concrete steps Ganapatipule, Maharashtra.<br>
 In a barn near Canajoharie, upstate in New York.<br>
-A scout camp, Nizamuddin, New Delhi
+A scout camp, Nizamuddin, New Delhi<br>
 Sleeping in Red Army tents in primordial forest, Gorny Altai<br>
 In a desert cloudburst.<br>
 Lake Piru, California, USA.<br>
