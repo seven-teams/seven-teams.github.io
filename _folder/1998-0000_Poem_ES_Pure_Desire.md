@@ -47,6 +47,10 @@ In the love from our eyes.<br>
 
 <br>
 
+<div style="text-align: center"><img src="/images/1998-0000_Poem_'Pure_Desire'_by_Edward_Saugstad.jpg" /></div>
+
+<br>
+
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Links</list-title>
   <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to author's gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframedbyedsaugstad"><font color="DarkGreen">Enlightened Poems Framed by Ed Saugstad</font></a>. </list-item>

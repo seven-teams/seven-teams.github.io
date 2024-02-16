@@ -13,10 +13,6 @@ tags:
 
 <br>
 
-<div style="text-align: center"><img src="/images/2023-1225_Poem_'Let_There_Be_Light'_by_Edward_Saugstad.jpg" /></div>
-
-<br>
-
 <p>
 Adi Shakti came to Earth<br>
 To give Her children second birth.<br>
@@ -33,6 +29,10 @@ That radiates in every face.<br>
 And may our hearts expand to find<br>
 That this will include all mankind.<br>
 </p>
+
+<br>
+
+<div style="text-align: center"><img src="/images/2023-1225_Poem_'Let_There_Be_Light'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 

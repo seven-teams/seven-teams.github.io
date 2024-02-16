@@ -72,6 +72,12 @@ To come as <font color="red">Comforter</font> to you.<br>
 
 <br>
 
+<div style="text-align: center"><img src="/images/1999-1200_Poem_'Christmas_Comfort'_by_Edward_Saugstad_(Page_1_of_2).jpg" /></div>
+
+<div style="text-align: center"><img src="/images/1999-1200_Poem_'Christmas_Comfort'_by_Edward_Saugstad_(Page_2_of_2).jpg" /></div>
+
+<br>
+
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Links</list-title>
   <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to author's gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframedbyedsaugstad"><font color="DarkGreen">Enlightened Poems Framed by Ed Saugstad</font></a>. </list-item>

@@ -72,6 +72,10 @@ And here I was at home, at last.<br>
 
 <br>
 
+<div style="text-align: center"><img src="/images/Poem_'Sweet_Nirvicharita'_by_Edward_Saugstad.jpg" /></div>
+
+<br>
+
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Links</list-title>
   <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to author's gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframedbyedsaugstad"><font color="DarkGreen">Enlightened Poems Framed by Ed Saugstad</font></a>. </list-item>

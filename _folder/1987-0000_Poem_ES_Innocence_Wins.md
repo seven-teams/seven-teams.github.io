@@ -90,6 +90,12 @@ And gratefully, I always will.<br>
 
 <br>
 
+<div style="text-align: center"><img src="/images/1987-0000_Poem_'Innocence_Wins'_by_Edward_Saugstad_(Page_1_of_2),_Cambridge,_UK.jpg" /></div>
+
+<div style="text-align: center"><img src="/images/1987-0000_Poem_'Innocence_Wins'_by_Edward_Saugstad_(Page_2_of_2),_Cambridge,_UK.jpg" /></div>
+
+<br>
+
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Links</list-title>
   <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to author's gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframedbyedsaugstad"><font color="DarkGreen">Enlightened Poems Framed by Ed Saugstad</font></a>. </list-item>

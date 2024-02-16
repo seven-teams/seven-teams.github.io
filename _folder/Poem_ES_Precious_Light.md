@@ -22,6 +22,12 @@ Lift me to my heart's delight.<br>
 
 <br>
 
+<div style="text-align: center"><img src="/images/Poem_'Precious_Light'_by_Edward_Saugstad_(Frame_1).jpg" /></div>
+
+<div style="text-align: center"><img src="/images/Poem_'Precious_Light'_by_Edward_Saugstad_(Frame_2).jpg" /></div>
+
+<br>
+
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Links</list-title>
   <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to author's gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframedbyedsaugstad"><font color="DarkGreen">Enlightened Poems Framed by Ed Saugstad</font></a>. </list-item>
