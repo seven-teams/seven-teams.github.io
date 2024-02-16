@@ -40,6 +40,6 @@ In her Divine Love we shall grow<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>1998-0207 Australian Sahaja Newsletter, Page 1, Editorial Note:</b> "This poem was included in the card sent for Christmas Puja from the Australian Collective."</list-item>
 </wave-list>

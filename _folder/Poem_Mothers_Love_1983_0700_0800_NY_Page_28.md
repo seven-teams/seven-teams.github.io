@@ -55,6 +55,6 @@ manifested with His real nature, the eternal happiness.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>1983-0700 and 0800 Nirmala Yoga, Page 28, (likely) Author's Note:</b> "JAI MATAJI!"</list-item>
 </wave-list>

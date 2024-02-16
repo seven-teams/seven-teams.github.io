@@ -55,6 +55,6 @@ To drift far from the Lotus Feet of their Mother.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> "When I first came to Sahaja Yoga in 1990, a yogi asked if he could give me some advice, it was “Keep your attention always on Shri Mataji.” It seemed eminently good advice and I try to. Hence the poem."</list-item>
 </wave-list>

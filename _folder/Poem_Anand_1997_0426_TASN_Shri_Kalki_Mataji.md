@@ -42,7 +42,7 @@ Most eagerly-awaited arrival of the awesome Shri Kalki.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>1997-0427 Australian Sahaja Newsletter, Page 1, Author's Note:</b> "AUM TWAMEWASAKSHAT SHRI KALKI SAKSHAT SHRI NIRMALA DEVI NAMO NAMAH.<br>
 Lots of love<br>
 from your brother<br>

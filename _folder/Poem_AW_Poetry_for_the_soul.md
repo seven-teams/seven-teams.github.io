@@ -50,6 +50,6 @@ In Shri Mataji's room at 4 am I knew her divinity.<br>
 
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> "A quasi autobiographical poem. Derek Mahon, a Belfast poet, wrote of his native city, "at home in exile" I was always an outsider there but I didn't understand or feel that way. Napoleon's Nose, shown in the background of my poem, is a mountain that overlooks Belfast. I only ceased to be an outsider in the Sahaja Yoga collective."</list-item>
 </wave-list>

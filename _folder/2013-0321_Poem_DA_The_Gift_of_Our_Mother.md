@@ -38,7 +38,7 @@ That was my hidden potential.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>2013-0321 Author's email:</b> "Remembering Mother today on Her 90th birthday."</list-item>
 </wave-list>
 

@@ -40,6 +40,6 @@ Let mother's love help us realise ourselves.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>1997-0705 Australian Sahaja Newsletter, Page 1, Editorial Note:</b> "<i>By Pratiksha Mistri (age 12)</i>"</list-item>
 </wave-list>

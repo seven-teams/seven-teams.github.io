@@ -52,6 +52,6 @@ My journey continues on the new frontier<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>2013-0725 Haritha's email:</b> "On the Guru Puja Day, some poems were offered to our Holy Mother."</list-item>
 </wave-list>

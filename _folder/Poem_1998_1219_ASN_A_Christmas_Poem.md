@@ -44,7 +44,7 @@ We pray to you with strength and might.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond" width="280"><b>1998-1219 Australian Sahaja Newsletter, Page 2, Editorial Note:</b> "[Poem by a] year 6 pupil<br> 
 International School, Dharamshala"</list-item>
 </wave-list>

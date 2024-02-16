@@ -30,7 +30,7 @@ Thanks to Shri Mataji for blessing you and me<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>2013-0419 Author's email:</b> "Since yesterday Sahaja Yogis attended 3 federal health fairs. Sahaja Yoga was presented at following places:<br>
 <br>
 1- United State secret service<br>

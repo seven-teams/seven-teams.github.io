@@ -44,6 +44,6 @@ M a " is the sound my being, blissfully vibrating and resting in Thee.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>1984-0100 and 0200 Nirmala Yoga, Page 32, (likely) Author's Note:</b> "JAI SHRI MATAJI"</list-item>
 </wave-list>

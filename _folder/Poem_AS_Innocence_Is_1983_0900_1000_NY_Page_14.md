@@ -42,6 +42,6 @@ Extending a loving and guiding hand.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>1983-0900 and 1000 Nirmala Yoga, Page 14, (likely) Author's Note:</b> "Jai Mataji!!"</list-item>
 </wave-list>

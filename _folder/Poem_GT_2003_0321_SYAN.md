@@ -45,6 +45,6 @@ we will truly see peace abound.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>2003-0321 Sahaja Yoga Australian Newsletter, Page 2, Author's Note:</b> "A poem in praise of the work of Shri Maha Maya: the Divine military strategist"</list-item>
 </wave-list>

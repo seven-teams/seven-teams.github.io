@@ -50,6 +50,6 @@ Becomes the bloom and the fruit,<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Story</list-title>
+<list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>1984-1100 and 1200 Nirmala Yoga, Page 44, (likely) Author's Note:</b> "<i>JAI SHRI MATAJI</i>"</list-item>
 </wave-list>
