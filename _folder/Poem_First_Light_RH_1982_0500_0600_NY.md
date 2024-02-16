@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;First Light&#8217; by Ray Harris from 1982-0500 and 0600 Nirmala Yoga, Page 25'
+title: 'Poem &#8216;First Light&#8217; by Ray Harris from 1982-0500 and 0600 Nirmala Yoga, Page 25'
 date: 1982-05-01
 permalink: /folder/1982-0501-RH-First-Light
 tags:

@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;The tale of Herbert Crone&#8217; from 1991-1004 Sahaja Newsletter (Australia), Page 1'
+title: 'Poem &#8216;The tale of Herbert Crone&#8217; from 1991-1004 Sahaja Newsletter (Australia), Page 1'
 date: 1991-10-04
 permalink: /folder/1991-1004-SNA
 tags:

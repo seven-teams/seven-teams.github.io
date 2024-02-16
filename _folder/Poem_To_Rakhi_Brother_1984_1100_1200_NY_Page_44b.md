@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;To Rakhi Brother&#8217; from 1984-1100 and 1200 Nirmala Yoga, Page 44'
+title: 'Poem &#8216;To Rakhi Brother&#8217; from 1984-1100 and 1200 Nirmala Yoga, Page 44'
 date: 1984-11-01
 permalink: /folder/1984-1101-1100-1200-NY-Rakhi-Brother
 tags:

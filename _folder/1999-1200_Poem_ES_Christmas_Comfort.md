@@ -1,5 +1,5 @@
 ---
-title: '1999-1200 Poem &#8217;Christmas Comfort&#8217; by Edward Saugstad'
+title: '1999-1200 Poem &#8216;Christmas Comfort&#8217; by Edward Saugstad'
 date: 1999-12-01
 permalink: /folder/1999-1201-1200-ES-Christmas-Comfort
 tags:

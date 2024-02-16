@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;Eulogy To Mataji&#8217; by Judith Bell, Sydney from 1981-0900 and 1000 Nirmala Yoga, Page 24'
+title: 'Poem &#8216;Eulogy To Mataji&#8217; by Judith Bell, Sydney from 1981-0900 and 1000 Nirmala Yoga, Page 24'
 date: 1981-09-01
 permalink: /folder/1981-0901-JB-Eulogy-Mataji
 tags:

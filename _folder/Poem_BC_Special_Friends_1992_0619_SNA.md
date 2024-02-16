@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;Special Friends&#8217; by Bey Curtis from 1992-0619 Sahaja Newsletter (Australia), Page 6'
+title: 'Poem &#8216;Special Friends&#8217; by Bey Curtis from 1992-0619 Sahaja Newsletter (Australia), Page 6'
 date: 1992-06-19
 permalink: /folder/1992-0619-BC-Special-Friends
 tags:

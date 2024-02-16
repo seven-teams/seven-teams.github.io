@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;Sign of Divine&#8217; by Alan Wherry'
+title: 'Poem &#8216;Sign of Divine&#8217; by Alan Wherry'
 date: 2024-02-14
 permalink: /folder/2024-0214-AW-Sign-of-Divine
 tags:

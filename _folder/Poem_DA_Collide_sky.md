@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;Collide sky&#8217; by Dan Allen'
+title: 'Poem &#8216;Collide sky&#8217; by Dan Allen'
 date: 2024-02-14
 permalink: /folder/2024-0214-DA-Collide-sky
 tags:

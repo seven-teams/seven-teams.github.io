@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;The Hill of Uisneach&#8217; by Alan Wherry'
+title: 'Poem &#8216;The Hill of Uisneach&#8217; by Alan Wherry'
 date: 2024-02-14
 permalink: /folder/2024-0214-AW-The-Hill
 tags:

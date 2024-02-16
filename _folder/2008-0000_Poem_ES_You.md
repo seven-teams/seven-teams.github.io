@@ -1,5 +1,5 @@
 ---
-title: '2008-0000 Poem &#8217;You&#8217; by Edward Saugstad'
+title: '2008-0000 Poem &#8216;You&#8217; by Edward Saugstad'
 date: 2008-01-01
 permalink: /folder/2008-0101-ES-You
 tags:

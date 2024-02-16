@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;Om Shri Nirmala Ma Namo Namah&#8217; from 1984-0100 and 0200 Nirmala Yoga, Page 32'
+title: 'Poem &#8216;Om Shri Nirmala Ma Namo Namah&#8217; from 1984-0100 and 0200 Nirmala Yoga, Page 32'
 date: 1984-01-01
 permalink: /folder/1984-0101-0100-0200-NY-Page-33-As-Well-You-Know
 tags:

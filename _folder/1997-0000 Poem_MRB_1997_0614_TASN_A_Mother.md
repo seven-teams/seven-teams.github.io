@@ -1,5 +1,5 @@
 ---
-title: '1997-0000 Poem &#8217;A Mother&#8217; by Mary Rose Brownscombe, ISPS from 1997-0614 The Australian Sahaja Newsletter, Page 2'
+title: '1997-0000 Poem &#8216;A Mother&#8217; by Mary Rose Brownscombe, ISPS from 1997-0614 The Australian Sahaja Newsletter, Page 2'
 date: 1997-06-14
 permalink: /folder/1997-0614-MRB-A-Mother
 tags:

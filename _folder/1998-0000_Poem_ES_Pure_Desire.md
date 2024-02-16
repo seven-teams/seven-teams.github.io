@@ -1,5 +1,5 @@
 ---
-title: '1998-0000 Poem &#8217;Pure Desire&#8217; by Edward Saugstad'
+title: '1998-0000 Poem &#8216;Pure Desire&#8217; by Edward Saugstad'
 date: 1998-01-02
 permalink: /folder/1998-0102-ES-Pure-Desire
 tags:

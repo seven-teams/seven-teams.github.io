@@ -1,5 +1,5 @@
 ---
-title: '2013-0725 Poem &#8217;Journey of Joy&#8217; by Prasad Salunkhe'
+title: '2013-0725 Poem &#8216;Journey of Joy&#8217; by Prasad Salunkhe'
 date: 2013-04-18
 permalink: /folder/2013-0418-PS-Journey-of-Joy
 tags:

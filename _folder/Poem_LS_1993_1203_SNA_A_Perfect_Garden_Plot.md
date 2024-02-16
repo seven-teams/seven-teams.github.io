@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;A Perfect Garden Plot&#8217; by Leny Steuten from 1993-1203 Sahaja Newsletter (Australia), Page 1'
+title: 'Poem &#8216;A Perfect Garden Plot&#8217; by Leny Steuten from 1993-1203 Sahaja Newsletter (Australia), Page 1'
 date: 1993-12-03
 permalink: /folder/1993-1203-LS-A-Perfect-Garden-Plot
 tags:

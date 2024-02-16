@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;If all the world&#8217; from 1998-1003 Australian Sahaja Newsletter, Page 1'
+title: 'Poem &#8216;If all the world&#8217; from 1998-1003 Australian Sahaja Newsletter, Page 1'
 date: 1998-10-03
 permalink: /folder/1998-1003-SNA
 tags:

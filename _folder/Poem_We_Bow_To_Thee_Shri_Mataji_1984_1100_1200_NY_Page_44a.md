@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;We Bow To Thee, Shri Mataji&#8217; from 1984-1100 and 1200 Nirmala Yoga, Page 44'
+title: 'Poem &#8216;We Bow To Thee, Shri Mataji&#8217; from 1984-1100 and 1200 Nirmala Yoga, Page 44'
 date: 1984-11-01
 permalink: /folder/1984-1101-1100-1200-NY-We-Bow-To-Thee-Shri-Mataji
 tags:

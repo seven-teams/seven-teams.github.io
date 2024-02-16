@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;The Way&#8217; from 1995-0127 The Australian Sahaja Newsletter, Page 5'
+title: 'Poem &#8216;The Way&#8217; from 1995-0127 The Australian Sahaja Newsletter, Page 5'
 date: 1995-01-27
 permalink: /folder/1995-0127-TASN
 tags:

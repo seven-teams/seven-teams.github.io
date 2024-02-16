@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8217;I have become the hollow drum&#8217; by Edward Saugstad'
+title: 'Poem &#8216;I have become the hollow drum&#8217; by Edward Saugstad'
 date: 2024-02-14
 permalink: /folder/2024-0214-ES-I-have-become
 tags:
