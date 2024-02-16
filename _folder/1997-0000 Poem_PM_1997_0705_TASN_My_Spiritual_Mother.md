@@ -1,5 +1,5 @@
 ---
-title: '1997-0000 Poem &#8220;My Spiritual Mother&#8221; by Pratiksha Mistri from 1997-0705 The Australian Sahaja Newsletter, Page 1'
+title: '1997-0000 Poem &#8217;My Spiritual Mother&#8217; by Pratiksha Mistri from 1997-0705 The Australian Sahaja Newsletter, Page 1'
 date: 1997-07-05
 permalink: /folder/1997-0705-MRB-A-Mother
 tags:

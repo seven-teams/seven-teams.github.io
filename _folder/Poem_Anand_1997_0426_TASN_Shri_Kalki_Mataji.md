@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;Shri Kalki Mataji&#8221; by Anand, Fiji from 1997-0426 The Australian Sahaja Newsletter, Page 1'
+title: 'Poem &#8217;Shri Kalki Mataji&#8217; by Anand, Fiji from 1997-0426 The Australian Sahaja Newsletter, Page 1'
 date: 1997-04-26
 permalink: /folder/1997-0426-Anand-Shri-Kalki-Mataji
 tags:

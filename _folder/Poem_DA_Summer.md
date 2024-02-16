@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;Summer&#8221; by Dan Allen'
+title: 'Poem &#8217;Summer&#8217; by Dan Allen'
 date: 2024-02-14
 permalink: /folder/2024-0214-DA-Summer
 tags:

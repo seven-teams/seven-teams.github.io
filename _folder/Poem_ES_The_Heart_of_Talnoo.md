@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;The Heart of Talnoo&#8221; by Edward Saugstad'
+title: 'Poem &#8217;The Heart of Talnoo&#8217; by Edward Saugstad'
 date: 2024-02-14
 permalink: /folder/2024-0214-ES-The-Heart-of-Talnoo
 tags:

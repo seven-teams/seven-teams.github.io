@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;Keep Your Attention Only On Shri Mataji&#8221; by Alan Wherry'
+title: 'Poem &#8217;Keep Your Attention Only On Shri Mataji&#8217; by Alan Wherry'
 date: 2024-02-14
 permalink: /folder/2024-0214-AW-Keep
 tags:

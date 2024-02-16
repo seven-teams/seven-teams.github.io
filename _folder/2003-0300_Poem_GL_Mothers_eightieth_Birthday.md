@@ -1,5 +1,5 @@
 ---
-title: '2013-0725 Poem &#8220;Mother&#8217;s Eightieth Birthday&#8221; of Joy by Guido Lanza'
+title: '2013-0725 Poem &#8217;Mother&#8217;s Eightieth Birthday&#8217; of Joy by Guido Lanza'
 date: 2003-03-21
 permalink: /folder/2003-0321-0300-Mothers-Eightieth-Birthday
 tags:

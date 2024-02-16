@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;Love Light&#8221; by Peter Cordon from 1993-0806 Sahaja Newsletter (Australia), Page 4'
+title: 'Poem &#8217;Love Light&#8217; by Peter Cordon from 1993-0806 Sahaja Newsletter (Australia), Page 4'
 date: 1993-08-06
 permalink: /folder/1993-0806-PC-Love-Light
 tags:

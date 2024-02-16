@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;We Sahaja Children&#8221; by Dr. Rustom Burjorjee from 1983-1100 and 1200 Nirmala Yoga, Page 30'
+title: 'Poem &#8217;We Sahaja Children&#8217; by Dr. Rustom Burjorjee from 1983-1100 and 1200 Nirmala Yoga, Page 30'
 date: 1983-11-01
 permalink: /folder/1983-1101-DrRB-We-Sahaja-Children
 tags:

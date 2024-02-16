@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;The Song of Lord Ganesha&#8221; by Dr. Rustom Burjorjee from 1985-0500 and 0600 Nirmala Yoga, Page 4'
+title: 'Poem &#8217;The Song of Lord Ganesha&#8217; by Dr. Rustom Burjorjee from 1985-0500 and 0600 Nirmala Yoga, Page 4'
 date: 1983-11-01
 permalink: /folder/1983-1101-DrRB-We-Sahaja-Children
 tags:

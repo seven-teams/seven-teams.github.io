@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;To Mother&#8221; from 1984-0100 and 0200 Nirmala Yoga, Page 37'
+title: 'Poem &#8217;To Mother&#8217; from 1984-0100 and 0200 Nirmala Yoga, Page 37'
 date: 1984-01-01
 permalink: /folder/1984-0101-0100-0200-NY-Page-37-Mother
 tags:

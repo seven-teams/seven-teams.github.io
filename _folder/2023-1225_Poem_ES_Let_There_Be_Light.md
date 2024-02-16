@@ -1,5 +1,5 @@
 ---
-title: '2023-1225 Poem &#8220;Let There Be Light&#8221; by Edward Saugstad'
+title: '2023-1225 Poem &#8217;Let There Be Light&#8217; by Edward Saugstad'
 date: 2023-12-25
 permalink: /folder/2023-1225-ES-Let-There-Be-Light
 tags:

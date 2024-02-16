@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;Hope&#8221; by Dan Allen'
+title: 'Poem &#8217;Hope&#8217; by Dan Allen'
 date: 2024-02-14
 permalink: /folder/2024-0214-DA-Hope
 tags:

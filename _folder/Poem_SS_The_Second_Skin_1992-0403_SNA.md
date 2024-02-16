@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;The Second Skin&#8221; by Satyendra Srivastava from 1992-0403 Sahaja Newsletter (Australia), Page 4'
+title: 'Poem &#8217;The Second Skin&#8217; by Satyendra Srivastava from 1992-0403 Sahaja Newsletter (Australia), Page 4'
 date: 1992-04-03
 permalink: /folder/1992-0403-SS-The-Second-Skin
 tags:

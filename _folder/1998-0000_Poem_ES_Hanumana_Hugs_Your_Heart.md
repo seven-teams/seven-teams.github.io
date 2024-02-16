@@ -1,5 +1,5 @@
 ---
-title: '1998-0000 Poem &#8220;Hanumana Hugs Your Heart (The Living Legend: Archangel Gabriel)&#8221; by Edward Saugstad'
+title: '1998-0000 Poem &#8217;Hanumana Hugs Your Heart (The Living Legend: Archangel Gabriel)&#8217; by Edward Saugstad'
 date: 1998-01-01
 permalink: /folder/1998-0101-0000-ES-Hanumana
 tags:

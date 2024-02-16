@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;A look to show the future&#8221; by Dan Allen'
+title: 'Poem &#8217;A look to show the future&#8217; by Dan Allen'
 date: 2024-02-14
 permalink: /folder/2024-0214-DA-A-look-to-show-the future
 tags:

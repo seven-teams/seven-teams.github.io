@@ -1,5 +1,5 @@
 ---
-title: '2013-0725 Poem &#8220;A Day will come&#8221; by Prasad Salunkhe'
+title: '2013-0725 Poem &#8217;A Day will come&#8217; by Prasad Salunkhe'
 date: 2013-07-25
 permalink: /folder/2013-0725-PS-A-Day-will-come
 tags:

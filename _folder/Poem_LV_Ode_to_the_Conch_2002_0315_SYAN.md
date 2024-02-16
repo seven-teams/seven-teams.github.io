@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;Ode to the Conch&#8221; by Lyndal Vercoe, Perth from 2002-0315 Sahaja Yoga Australian Newsletter, Page 5'
+title: 'Poem &#8217;Ode to the Conch&#8217; by Lyndal Vercoe, Perth from 2002-0315 Sahaja Yoga Australian Newsletter, Page 5'
 date: 2002-03-15
 permalink: /folder/2002-0315-LV-Ode-to-the-Conch
 tags:

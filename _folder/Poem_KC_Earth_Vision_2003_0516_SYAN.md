@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;Earth Vision&#8221; by Katie Cartmel, Sydney from 2003-0516 Sahaja Yoga Australian Newsletter, Page 4'
+title: 'Poem &#8217;Earth Vision&#8217; by Katie Cartmel, Sydney from 2003-0516 Sahaja Yoga Australian Newsletter, Page 4'
 date: 2003-05-16
 permalink: /folder/2003-0516-KC-Earth-Vision
 tags:

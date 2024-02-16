@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;The Call Sahaja Yogis&#8221; from 1984-0500 and 0600 Nirmala Yoga, Page 12'
+title: 'Poem &#8217;The Call Sahaja Yogis&#8217; from 1984-0500 and 0600 Nirmala Yoga, Page 12'
 date: 1984-05-01
 permalink: /folder/1984-0501-0500-0600-NY-Page-12-The-Call-Sahaja-Yogis
 tags:

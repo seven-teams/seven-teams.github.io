@@ -1,5 +1,5 @@
 ---
-title: '1987-0000 Poem &#8220;Innocence Wins&#8221; by Edward Saugstad, Cambridge, UK'
+title: '1987-0000 Poem &#8217;Innocence Wins&#8217; by Edward Saugstad, Cambridge, UK'
 date: 1987-01-01
 permalink: /folder/1987-0101-0000-ES-Innocence-Wins
 tags:

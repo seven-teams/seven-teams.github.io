@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;Mooladhara Chakra&#8221; from 1994-0909 The Australian Sahaja Newsletter, Page 4'
+title: 'Poem &#8217;Mooladhara Chakra&#8217; from 1994-0909 The Australian Sahaja Newsletter, Page 4'
 date: 1994-09-09
 permalink: /folder/1994-0909-TASN
 tags:

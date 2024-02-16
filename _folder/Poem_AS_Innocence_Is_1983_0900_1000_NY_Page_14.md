@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;Innocence Is&#8221; by Australian Sahaja from 1983-0900 and 1000 Nirmala Yoga, Page 14'
+title: 'Poem &#8217;Innocence Is&#8217; by Australian Sahaja from 1983-0900 and 1000 Nirmala Yoga, Page 14'
 date: 1983-09-01
 permalink: /folder/1983-0901-AS-Innocence-Is
 tags:

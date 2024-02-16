@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;"How to hug a Baby Bear"&#8221; by Edward Saugstad'
+title: 'Poem &#8217;"How to hug a Baby Bear"&#8217; by Edward Saugstad'
 date: 2024-02-14
 permalink: /folder/2024-0214-ES-How-to-hug
 tags:

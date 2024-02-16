@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;Rakhi&#8221; from 1993-0813 Sahaja Newsletter (Australia), Page 3'
+title: 'Poem &#8217;Rakhi&#8217; from 1993-0813 Sahaja Newsletter (Australia), Page 3'
 date: 1993-08-13
 permalink: /folder/1993-0813-SNA-P3
 tags:

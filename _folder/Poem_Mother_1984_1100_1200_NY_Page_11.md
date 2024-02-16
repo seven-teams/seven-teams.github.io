@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8220;Mother&#8221; from 1984-1100 and 1200 Nirmala Yoga, Page 11'
+title: 'Poem &#8217;Mother&#8217; from 1984-1100 and 1200 Nirmala Yoga, Page 11'
 date: 1984-11-01
 permalink: /folder/1984-1101-1100-1200-NY-Mother
 tags:

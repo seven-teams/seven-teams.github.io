@@ -1,5 +1,5 @@
 ---
-title: '1996-0900 Poem &#8220;Universal Child&#8221; by Edward Saugstad for Shri Ganesha Puja'
+title: '1996-0900 Poem &#8217;Universal Child&#8217; by Edward Saugstad for Shri Ganesha Puja'
 date: 1996-09-15
 permalink: /folder/1996-0915-0900-ES-Universal-Child
 tags:
