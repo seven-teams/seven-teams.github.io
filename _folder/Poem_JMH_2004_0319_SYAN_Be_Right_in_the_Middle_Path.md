@@ -9,7 +9,7 @@ tags:
   - cornflowerblue @ Sydney
   - deeppink @ 2004-0213 Sahaja Yoga Australian Newsletter
   - maroon @ Be
-   - maroon @ Middle
+  - maroon @ Middle
   - maroon @ Path
   - maroon @ Right
 ---
