@@ -44,7 +44,18 @@ life which is to achieve the state of spirit.<br>
 
 <br>
 
+<div style="text-align: center"><img src="/images/Poem_'Sign_of_Divine'_by_Alan_Wherry.jpg" /></div>
+
+<br>
+
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> "From childhood I was fascinated to see water from a fast flowing stream or the sea crash into a rock, the temporary patterns of the spray. It was only later I saw the metaphor, the illusion, when the drops flying high might think they're superior."</list-item>
+</wave-list>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>. </list-item>
 </wave-list>

@@ -37,6 +37,10 @@ And the nature watching us.<br>
 
 <br>
 
+<div style="text-align: center"><img src="/images/Poem_'Timeless_In_Tir_Na_Log'_by_Alan_Wherry.jpg" /></div>
+
+<br>
+
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> "Tievebulliagh - beyond time and space<br>
@@ -83,4 +87,11 @@ That night I wrote an account of what had happened to me on my return to the You
 It had been a truly remarkable experience, a connection beyond my wildest dreams and the first time I had ever experienced anything that could be even vaguely regarded as spiritual.<br>
 <br>
 Some eight years later, I took my new Russian Sahaja wife and son to the place. To my astonishment, what I had written down that very same day and experienced could not possibly have happened as I described it. In the pleasant spring sunshine, there was no mountain remotely near the grave and a map hastily consulted, revealed that Tievebulliagh was some distance away, a distance I most certainly never walked."</list-item>
+</wave-list>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>. </list-item>
 </wave-list>

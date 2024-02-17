@@ -62,7 +62,18 @@ When all the mother’s warrior will be in heaven<br>
 
 <br>
 
+<div style="text-align: center"><img src="/images/2013-0725_Poem_'Journey...'_by_Prasad_Salunkhe.jpg" /></div>
+
+<br>
+
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>2013-0725 Haritha's email:</b> "On the Guru Puja Day, some poems were offered to our Holy Mother."</list-item>
+</wave-list>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>. </list-item>
 </wave-list>

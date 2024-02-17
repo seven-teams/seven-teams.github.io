@@ -36,3 +36,14 @@ To lose sight of emptiness and longing<br>
 To lose sight and be full<br>
 Oh, Divine, please fix my buckets' holes<br>
 </p>
+
+<br>
+
+<div style="text-align: center"><img src="/images/Poem_'Sky'_by_Dan_Allen.jpg" /></div>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>. </list-item>
+</wave-list>

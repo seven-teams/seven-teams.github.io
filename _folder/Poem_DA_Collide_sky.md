@@ -53,3 +53,14 @@ But now I see that, the passage is smaller than the<br>
 eye of a needle<br>
 Just big enough for my spirit to go through<br>
 </p>
+
+<br>
+
+<div style="text-align: center"><img src="/images/Poem_'Collide_sky'_by_Dan_Allen.jpg" /></div>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>. </list-item>
+</wave-list>

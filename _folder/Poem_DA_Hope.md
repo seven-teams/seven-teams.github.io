@@ -30,3 +30,14 @@ I have held on, and believe it to be true<br>
 And every day feeds my beliefs<br>
 Till in my garden, there is plenty to eat<br>
 </p>
+
+<br>
+
+<div style="text-align: center"><img src="/images/Poem_'Hope'_by_Dan_Allen.jpg" /></div>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>. </list-item>
+</wave-list>

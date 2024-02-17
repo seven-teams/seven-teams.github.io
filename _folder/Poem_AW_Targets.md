@@ -42,3 +42,14 @@ Don't put up roadblocks<br>
 Let your Brahmarandra open<br> 
 And connect to Ritambara Pragya.<br>
 </p>
+
+<br>
+
+<div style="text-align: center"><img src="/images/Poem_'Targets'_by_Alan_Wherry.jpg" /></div>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>. </list-item>
+</wave-list>

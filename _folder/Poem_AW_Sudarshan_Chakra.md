@@ -31,3 +31,14 @@ To establish the holy state.<br>
 To raise human beings to that level.<br>
 This is what He does.<br>
 </p>
+
+<br>
+
+<div style="text-align: center"><img src="/images/Poem_'Sudarshan_Chakra'_by_Alan_Wherry.jpg" /></div>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>. </list-item>
+</wave-list>

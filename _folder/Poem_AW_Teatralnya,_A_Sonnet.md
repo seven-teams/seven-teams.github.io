@@ -34,3 +34,14 @@ The most beautiful I've ever seen.<br>
 A gift from God<br>
 From the Adi Shakti Herself.<br>
 </p>
+
+<br>
+
+<div style="text-align: center"><img src="/images/Poem_'Teatralnya'_by_Alan_Wherry.jpg" /></div>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>. </list-item>
+</wave-list>

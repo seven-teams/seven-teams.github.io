@@ -44,8 +44,19 @@ To put it out there.<br>
 
 <br>
 
+<div style="text-align: center"><img src="/images/Poem_'The_Manhattan_Declaration'_by_Alan_Wherry.jpg" /></div>
+
+<br>
+
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> "Shri Mataji had declared Her divinity to Sahaja Yogis in 1979 in Dollis Hill ashram, London and in 1981 in a church in Manhattan. I was always fascinated by the latter. Who was there, what was the impact etc. Kay McHugh, an Australian air stewardess was there and this is what she told me:"<br>
 ......</list-item>
+</wave-list>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>. </list-item>
 </wave-list>

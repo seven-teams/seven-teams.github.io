@@ -33,3 +33,14 @@ Filling your heart with love<br>
 You loved, and I became your love<br>
 That was my hidden potential.<br>
 </p>
+
+<br>
+
+<div style="text-align: center"><img src="/images/Poem_'The_meeting_with_God'_by_Dan_Allen.jpg" /></div>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>. </list-item>
+</wave-list>
