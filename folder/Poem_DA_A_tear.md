@@ -28,3 +28,14 @@ Tell me where has your piper gone, and of who this story is of.<br>
 Which of us has risen unto that sky above<br>
 And of who casts that teardrop that now, bestows life unto a bud.<br>
 </p>
+
+<br>
+
+<div style="text-align: center"><img src="/images/Poem_'A_tear'_by_Dan_Allen.jpg" /></div>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>. </list-item>
+</wave-list>
