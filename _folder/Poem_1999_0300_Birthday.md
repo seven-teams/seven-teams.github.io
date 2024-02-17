@@ -40,6 +40,5 @@ Happy Birthday To You<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond" width="280"><b>Version 2:</b> All The World instead of Everybody and Sons instead of Children.<br> 
-International School, Dharamshala"</list-item>
+  <list-item color="BlanchedAlmond" width="280"><b>Version 2:</b> All The World instead of Everybody and Sons instead of Children.</list-item>
 </wave-list>
