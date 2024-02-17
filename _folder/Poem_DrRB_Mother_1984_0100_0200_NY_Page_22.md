@@ -34,7 +34,7 @@ She is awareness of the earth, She of cosmic second birth<br>
 &nbsp;&emsp;Of virtue, liberation and the end; eternal unbroken and without end.<br>
 Her throat is like a pale blue star - in which is held the cosmic sound<br>
 &nbsp;&emsp;Light and protection from the fumes of hell; and cosmic poison's futile wrath.<br>
-Within it divine souls take birth and angels praise in cosmic dance-
+Within it divine souls take birth and angels praise in cosmic dance-<br>
 &emsp;&emsp;&emsp;&emsp;their divine all-embracing Lord,<br>
 But She alone is above it all, and in sweet playfulness holds it tight.<br>
 &nbsp;&emsp;Her forehead is smooth and clear, radiant like the snowy mountain's brow.<br>
