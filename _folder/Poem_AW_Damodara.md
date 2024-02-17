@@ -1,4 +1,4 @@
-marine---
+---
 title: '2024-0203 Poem &#8216;Damodara&#8217; by Alan Wherry'
 date: 2024-02-03
 permalink: /folder/2024-0203-AW-Damodara
