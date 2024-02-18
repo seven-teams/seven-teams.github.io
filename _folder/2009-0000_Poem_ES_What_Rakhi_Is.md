@@ -1,11 +1,11 @@
 ---
-title: 'Poem &#8216;What Rakhi Is&#8217; by Edward Saugstad'
-date: 2024-02-14
-permalink: /folder/2024-0214-ES-What-Rakhi-Is
+title: '2009-0000 Poem &#8216;What Rakhi Is&#8217; by Edward Saugstad'
+date: 2009-01-01
+permalink: /folder/2009-0101-0000-ES-What-Rakhi-Is
 tags:
   - aquamarine @ Poetry
   - black @ Edward Saugstad
-  - brown @ TBD
+  - brown @ 2009
   - cornflowerblue @ TBD
   - maroon @ Rakhi
 ---
@@ -13,7 +13,7 @@ tags:
 <br>
 
 <p>
-<b>Daddy, what isRakhi?</b><br>
+<b>Daddy, what is Rakhi?</b><br>
 <b>Does it come with Santa Claus?</b><br>
 Rakhi is the sweetest gift,<br>
 It twinkles in the stars.<br>
@@ -45,7 +45,7 @@ To show their love and care.<br>
 <b>About something like a string?</b><br>
 It's not the string that's special<br>
 But the pure feelings that come<br>
-When Vishnumava's power<br>
+When Vishnumaya's power<br>
 Makes their hearts beat like one drum.<br>
 <br>
 <b>It would make nice music</b><br>
@@ -58,7 +58,7 @@ Is the bond that sets us free.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'What_Rakhi_Is'_by_Edward_Saugstad.jpg" /></div>
+<div style="text-align: center"><img src="/images/2009-0000_Poem_'What_Rakhi_Is'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 
