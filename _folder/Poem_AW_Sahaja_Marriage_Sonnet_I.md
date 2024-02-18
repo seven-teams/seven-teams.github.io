@@ -35,6 +35,13 @@ I'll marry you again, a thousand times over<br>
 <br>
 
 <wave-list>
+<list-title color="DarkSeaGreen" width="50">Comments</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> C1. Author's Footnote for Chibirikova:</b> "Old name for Siberia."</list-item>
+</wave-list>
+
+<br>
+
+<wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="285"><b> S1. 2019-0811 Sahaj-writing.</b> Link: <a href="https://richpay.wixsite.com/sahaj-writing/forum/writings/two-sahaja-marriage-sonnets"><font color="DarkGreen">Sahaja Marriage Sonnet I</font></a>.</list-item>
 </wave-list>
