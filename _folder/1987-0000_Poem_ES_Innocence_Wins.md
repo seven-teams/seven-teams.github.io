@@ -3,8 +3,8 @@ title: '1987-0000 Poem &#8216;Innocence Wins&#8217; by Edward Saugstad, Cambridg
 date: 1987-01-01
 permalink: /folder/1987-0101-0000-ES-Innocence-Wins
 tags:
-  - aquamarine @ Poetry
-  - black @ Edward Saugstad
+  - black @ Poetry
+  - blue @ Edward Saugstad
   - brown @ 1987
   - cornflowerblue @ Cambridge
   - maroon @ Innocence

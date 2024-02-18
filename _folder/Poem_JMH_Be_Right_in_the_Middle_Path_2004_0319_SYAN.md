@@ -3,8 +3,8 @@ title: 'Poem Be Right in the Middle Path by Jean-Michel Huet, Sydney from 2004-0
 date: 2004-03-19
 permalink: /folder/2004-0319-JMH-Be-Right-in-the-Middle-Path
 tags:
-  - aquamarine @ Poetry
-  - black @ Jean-Michel Huet
+  - black @ Poetry
+  - blue @ Jean-Michel Huet
   - brown @ 2004
   - cornflowerblue @ Sydney
   - deeppink @ 2004-0213 Sahaja Yoga Australian Newsletter

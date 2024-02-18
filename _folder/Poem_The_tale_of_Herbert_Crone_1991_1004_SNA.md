@@ -3,8 +3,8 @@ title: 'Poem &#8216;The tale of Herbert Crone&#8217; from 1991-1004 Sahaja Newsl
 date: 1991-10-04
 permalink: /folder/1991-1004-SNA
 tags:
-  - aquamarine @ Poetry
-  - black @ TBD
+  - black @ Poetry
+  - blue @ TBD
   - brown @ 1991
   - cornflowerblue @ TBD
   - deeppink @ 1991-1004 Sahaja Newsletter (Australia)

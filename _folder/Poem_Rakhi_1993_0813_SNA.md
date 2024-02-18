@@ -3,8 +3,8 @@ title: 'Poem &#8216;Rakhi&#8217; from 1993-0813 Sahaja Newsletter (Australia), P
 date: 1993-08-13
 permalink: /folder/1993-0813-SNA-P3
 tags:
-  - aquamarine @ Poetry
-  - black @ TBD
+  - black @ Poetry
+  - blue @ TBD
   - brown @ 1993
   - cornflowerblue @ TBD
   - deeppink @ 1993-0813 Sahaja Newsletter (Australia)

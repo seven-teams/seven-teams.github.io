@@ -3,8 +3,8 @@ title: '1995-0914 Poem &#8216;Sahaja Marriage Sonnet I&#8217; by Alan Wherry'
 date: 1995-09-14
 permalink: /folder/1995-0914-AW-Sahaja-Marriage-Sonnet-I
 tags:
-  - bisque @ Poetry
-  - black @ Alan Wherry
+  - black @ Poetry
+  - blue @ Alan Wherry
   - brown @ TBD
   - cornflowerblue @ TBD
   - deeppink @ 2019-0811 Sahaj-writing

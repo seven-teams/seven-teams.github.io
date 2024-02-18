@@ -3,8 +3,8 @@ title: 'Poem by Greg Turek, Sydney from 2003-0321 Sahaja Yoga Australian Newslet
 date: 2003-03-21
 permalink: /folder/2003-0321-GT-SYAN
 tags:
-  - aquamarine @ Poetry
-  - black @ Greg Turek
+  - black @ Poetry
+  - blue @ Greg Turek
   - brown @ 2003
   - cornflowerblue @ Sydney
   - deeppink @ 2003-0321 Sahaja Yoga Australian Newsletter

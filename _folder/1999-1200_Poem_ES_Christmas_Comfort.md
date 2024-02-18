@@ -3,8 +3,8 @@ title: '1999-1200 Poem &#8216;Christmas Comfort&#8217; by Edward Saugstad'
 date: 1999-12-01
 permalink: /folder/1999-1201-1200-ES-Christmas-Comfort
 tags:
-  - aquamarine @ Poetry
-  - black @ Edward Saugstad
+  - black @ Poetry
+  - blue @ Edward Saugstad
   - brown @ 1999
   - cornflowerblue @ TBD
   - maroon @ Christmas

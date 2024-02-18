@@ -3,8 +3,8 @@ title: '2013-0725 Poem &#8216;Journey of Joy&#8217; by Prasad Salunkhe'
 date: 2013-04-18
 permalink: /folder/2013-0418-PS-Journey-of-Joy
 tags:
-  - aquamarine @ Poetry
-  - black @ Prasad Salunkhe
+  - black @ Poetry
+  - blue @ Prasad Salunkhe
   - brown @ 2013
   - cornflowerblue @ TBD
   - green @ Story of Poem Journey of Joy

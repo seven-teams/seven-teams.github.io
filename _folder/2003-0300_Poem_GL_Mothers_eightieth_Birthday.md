@@ -3,8 +3,8 @@ title: '2013-0725 Poem &#8216;Mother&#8217;s Eightieth Birthday&#8217; of Joy by
 date: 2003-03-21
 permalink: /folder/2003-0321-0300-Mothers-Eightieth-Birthday
 tags:
-  - aquamarine @ Poetry
-  - black @ Guido Lanza
+  - black @ Poetry
+  - blue @ Guido Lanza
   - brown @ 2003
   - cornflowerblue @ TBD
   - maroon @ Mother

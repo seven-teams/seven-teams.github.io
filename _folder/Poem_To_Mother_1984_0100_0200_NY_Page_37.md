@@ -3,8 +3,8 @@ title: 'Poem &#8216;To Mother&#8217; from 1984-0100 and 0200 Nirmala Yoga, Page 
 date: 1984-01-01
 permalink: /folder/1984-0101-0100-0200-NY-Page-37-Mother
 tags:
-  - aquamarine @ Poetry
-  - black @ TBD
+  - black @ Poetry
+  - blue @ TBD
   - brown @ 1984
   - cornflowerblue @ TBD
   - deeppink @ 1984-0100 and 0200 Nirmala Yoga

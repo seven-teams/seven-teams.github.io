@@ -3,8 +3,8 @@ title: 'Poem &#8216;Surrender&#8217; by Alan Wherry'
 date: 2019-05-21
 permalink: /folder/2019-0521-AW-Surrender
 tags:
-  - aquamarine @ Poetry
-  - black @ Alan Wherry
+  - black @ Poetry
+  - blue @ Alan Wherry
   - brown @ TBD
   - cornflowerblue @ TBD
   - deeppink @ 2019-0521 Sahaj-writing

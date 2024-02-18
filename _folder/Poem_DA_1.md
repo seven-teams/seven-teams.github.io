@@ -1,10 +1,10 @@
 ---
 title: 'Poem by Dan Allen'
 date: 2024-02-14
-permalink: /folder/2024-0214-DA
+permalink: /folder/2024-0214-DA-1
 tags:
-  - aquamarine @ Poetry
-  - black @ Dan Allen
+  - black @ Poetry
+  - blue @ Dan Allen
   - brown @ TBD
   - cornflowerblue @ TBD
 ---

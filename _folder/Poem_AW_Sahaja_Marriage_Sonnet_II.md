@@ -3,8 +3,8 @@ title: 'Poem &#8216;Sahaja Marriage Sonnet&#8217; by Alan Wherry'
 date: 2019-08-11
 permalink: /folder/2019-0811-AW-Sahaja-Marriage-Sonnet-II
 tags:
-  - bisque @ Poetry
-  - black @ Alan Wherry
+  - black @ Poetry
+  - blue @ Alan Wherry
   - brown @ TBD
   - cornflowerblue @ TBD
   - deeppink @ 2019-0811 Sahaj-writing

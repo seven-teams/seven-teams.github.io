@@ -3,8 +3,8 @@ title: '2023-1225 Poem &#8216;Let There Be Light&#8217; by Edward Saugstad'
 date: 2023-12-25
 permalink: /folder/2023-1225-ES-Let-There-Be-Light
 tags:
-  - aquamarine @ Poetry
-  - black @ Edward Saugstad
+  - black @ Poetry
+  - blue @ Edward Saugstad
   - brown @ 2023
   - cornflowerblue @ TBD
   - maroon @ Be

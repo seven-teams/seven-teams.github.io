@@ -3,8 +3,8 @@ title: 'Poem &#8216;Mother&#8217;s Love&#8217; from 1983-0700 and 0800 Nirmala Y
 date: 1983-07-01
 permalink: /folder/1982-1101-1100-1200-NY-Page-30
 tags:
-  - aquamarine @ Poetry
-  - black @ TBD
+  - black @ Poetry
+  - blue @ TBD
   - brown @ 1983
   - cornflowerblue @ TBD
   - deeppink @ 1983-0700 and 0800 Nirmala Yoga

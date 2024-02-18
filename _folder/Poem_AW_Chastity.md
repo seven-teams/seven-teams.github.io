@@ -3,8 +3,8 @@ title: 'Poem &#8216;Chastity&#8217; by Alan Wherry'
 date: 2024-02-14
 permalink: /folder/2024-0214-AW-Chastity
 tags:
-  - aquamarine @ Poetry
-  - black @ Alan Wherry
+  - black @ Poetry
+  - blue @ Alan Wherry
   - brown @ TBD
   - cornflowerblue @ TBD
   - maroon @ Chastity

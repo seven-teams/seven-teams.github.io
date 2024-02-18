@@ -3,8 +3,8 @@ title: 'Poem &#8216;What peace is?&#8217; by Dan Allen'
 date: 2024-02-14
 permalink: /folder/2024-0214-DA-What-peace-is
 tags:
-  - aquamarine @ Poetry
-  - black @ Dan Allen
+  - black @ Poetry
+  - blue @ Dan Allen
   - brown @ TBD
   - cornflowerblue @ TBD
   - maroon @ Is

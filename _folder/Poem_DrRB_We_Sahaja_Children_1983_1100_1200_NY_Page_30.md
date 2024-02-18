@@ -3,8 +3,8 @@ title: 'Poem &#8216;We Sahaja Children&#8217; by Dr. Rustom Burjorjee from 1983-
 date: 1983-11-01
 permalink: /folder/1983-1101-DrRB-We-Sahaja-Children
 tags:
-  - aquamarine @ Poetry
-  - black @ Dr. Rustom Burjorjee
+  - black @ Poetry
+  - blue @ Dr. Rustom Burjorjee
   - brown @ 1983
   - cornflowerblue @ TBD
   - deeppink @ 1983-1100 and 1200 Nirmala Yoga

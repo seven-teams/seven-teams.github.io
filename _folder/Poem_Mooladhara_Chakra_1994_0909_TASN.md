@@ -3,8 +3,8 @@ title: 'Poem &#8216;Mooladhara Chakra&#8217; from 1994-0909 The Australian Sahaj
 date: 1994-09-09
 permalink: /folder/1994-0909-TASN
 tags:
-  - aquamarine @ Poetry
-  - black @ TBD
+  - black @ Poetry
+  - blue @ TBD
   - brown @ 1994
   - cornflowerblue @ TBD
   - deeppink @ 1994-0909 The Australian Sahaja Newsletter

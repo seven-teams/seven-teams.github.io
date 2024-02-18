@@ -3,8 +3,8 @@ title: '1998-0000 Poem &#8216;Hanumana Hugs Your Heart (The Living Legend: Archa
 date: 1998-01-01
 permalink: /folder/1998-0101-0000-ES-Hanumana
 tags:
-  - aquamarine @ Poetry
-  - black @ Edward Saugstad
+  - black @ Poetry
+  - blue @ Edward Saugstad
   - brown @ 1998
   - cornflowerblue @ TBD
   - maroon @ Archangel

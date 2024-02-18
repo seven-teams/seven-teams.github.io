@@ -3,8 +3,8 @@ title: 'Poem &#8216;Shri Kalki Mataji&#8217; by Anand, Fiji from 1997-0426 The A
 date: 1997-04-26
 permalink: /folder/1997-0426-Anand-Shri-Kalki-Mataji
 tags:
-  - aquamarine @ Poetry
-  - black @ Anand
+  - black @ Poetry
+  - blue @ Anand
   - brown @ 1997
   - cornflowerblue @ Fiji
   - deeppink @ 1997-0426 The Australian Sahaja Newsletter

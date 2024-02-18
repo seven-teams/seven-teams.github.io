@@ -3,8 +3,8 @@ title: 'Poem &#8216;Collide sky&#8217; by Dan Allen'
 date: 2024-02-14
 permalink: /folder/2024-0214-DA-Collide-sky
 tags:
-  - aquamarine @ Poetry
-  - black @ Dan Allen
+  - black @ Poetry
+  - blue @ Dan Allen
   - brown @ TBD
   - cornflowerblue @ TBD
   - maroon @ Colide

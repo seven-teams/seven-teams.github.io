@@ -3,8 +3,8 @@ title: 'Poem &#8216;Eulogy To Mataji&#8217; by Judith Bell, Sydney from 1981-090
 date: 1981-09-01
 permalink: /folder/1981-0901-JB-Eulogy-Mataji
 tags:
-  - aquamarine @ Poetry
-  - black @ Judith Bell
+  - black @ Poetry
+  - blue @ Judith Bell
   - brown @ 1981
   - cornflowerblue @ Sydney
   - deeppink @ 1981-0900 and 1000 Nirmala Yoga

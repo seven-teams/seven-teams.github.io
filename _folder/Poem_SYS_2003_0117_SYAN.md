@@ -3,8 +3,8 @@ title: 'Poem from 2003-0117 Sahaja Yoga Australian Newsletter, Page 3'
 date: 2003-01-17
 permalink: /folder/2003-0117-SYAN
 tags:
-  - aquamarine @ Poetry
-  - black @ Sydney Yuva Shakti
+  - black @ Poetry
+  - blue @ Sydney Yuva Shakti
   - brown @ 2003
   - cornflowerblue @ TBD
   - deeppink @ 2003-0117 Sahaja Yoga Australian Newsletter

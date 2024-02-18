@@ -3,8 +3,8 @@ title: '1999-0000 Poem &#8216;The Heart of Talnoo&#8217; by Edward Saugstad'
 date: 1999-01-01
 permalink: /folder/1999-0101-0000-ES-The-Heart-of-Talnoo
 tags:
-  - aquamarine @ Poetry
-  - black @ Edward Saugstad
+  - black @ Poetry
+  - blue @ Edward Saugstad
   - brown @ 1999
   - cornflowerblue @ TBD
   - maroon @ Heart

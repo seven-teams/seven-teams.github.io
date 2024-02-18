@@ -3,8 +3,8 @@ title: '1985-0000 Poem &#8216;Child of Love&#8217; by Edward Saugstad, Vancouver
 date: 1985-01-01
 permalink: /folder/1985-0101-0000-ES-Child-of-Love
 tags:
-  - aquamarine @ Poetry
-  - black @ Edward Saugstad
+  - black @ Poetry
+  - blue @ Edward Saugstad
   - brown @ 1985
   - cornflowerblue @ Vancouver
   - maroon @ Child

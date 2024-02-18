@@ -3,8 +3,8 @@ title: 'Poem &#8216;Precious Light&#8217; by Edward Saugstad'
 date: 2024-02-15
 permalink: /folder/2024-0215-ES-Precious Light
 tags:
-  - aquamarine @ Poetry
-  - black @ Edward Saugstad
+  - black @ Poetry
+  - blue @ Edward Saugstad
   - brown @ 1998
   - cornflowerblue @ TBD
   - maroon @ Light

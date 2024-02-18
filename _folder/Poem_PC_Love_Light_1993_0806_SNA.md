@@ -3,8 +3,8 @@ title: 'Poem &#8216;Love Light&#8217; by Peter Corden from 1993-0806 Sahaja News
 date: 1993-08-06
 permalink: /folder/1993-0806-PC-Love-Light
 tags:
-  - aquamarine @ Poetry
-  - black @ Peter Corden
+  - black @ Poetry
+  - blue @ Peter Corden
   - brown @ 1993
   - cornflowerblue @ TBD
   - deeppink @ 1993-0806 Sahaja Newsletter (Australia)

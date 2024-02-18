@@ -3,8 +3,8 @@ title: '2009-0000 Poem &#8216;What Rakhi Is&#8217; by Edward Saugstad'
 date: 2009-01-01
 permalink: /folder/2009-0101-0000-ES-What-Rakhi-Is
 tags:
-  - aquamarine @ Poetry
-  - black @ Edward Saugstad
+  - black @ Poetry
+  - blue @ Edward Saugstad
   - brown @ 2009
   - cornflowerblue @ TBD
   - maroon @ Rakhi

@@ -1,10 +1,10 @@
 ---
 title: 'Poem by Dan Allen'
 date: 2024-02-18
-permalink: /folder/2024-0218-DA-c
+permalink: /folder/2024-0218-DA-3
 tags:
-  - aquamarine @ Poetry
-  - black @ Dan Allen
+  - black @ Poetry
+  - blue @ Dan Allen
   - brown @ TBD
   - cornflowerblue @ TBD
   - green @ Story of Poem by DA
@@ -13,34 +13,39 @@ tags:
 <br>
 
 <p>
-A string slides<br>
-While dirt clings<br>
-to surrounding hairs<br>
+The air is heavy<br>
+Yet not so dense as to hold me high<br>
+The sight that fills my eyes<br>
+The thought that fills my mind<br>
+Is love?<br>
+But this love draws "fear" near<br>
 <br>
-Its’ place is found<br>
-The knots are sown<br>
-The cloth is done<br>
+High on a plank<br>
+I stare a 20 feet towards the ground<br>
+And being not sure of my balance,<br>
+I lay frozen<br>
+Watching moments elapse by<br>
 <br>
-So is the path of string<br>
-On its way to becoming more<br>
-While being less<br>
+Sometimes it seems better<br>
+To lay frozen with fear<br>
+Than to shirk off fear and take a chance<br>
+After all what is balance, but poise and lack of fear.<br>
 <br>
-An echo carries today<br>
-A memory away<br>
-In stillness, in fog<br>
+This six inch plank is now my path, narrow without options<br>
+Such a simple innocence path, that leads to over there.<br>
+But, what wish and wanting, incites ones desire to travel there?<br>
+What lack of contentment motivates one to leave?<br>
 <br>
-Sounds insulated<br>
-Smells profound,<br>
-Memories pull the string<br>
-<br>
-The knot unties<br>
-Emotions pour in<br>
-Filling the space where the union had been<br>
+Life is a passageway of desires<br>
+Desires that are consumed every day<br>
+For without desire there would be no life.<br>
+And I, otherwise would be satisfied<br>
+To lay here frozen on this plank and not venture past fear.<br>
 </p>
 
 <br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2024-0216 Author's email:</b> "I often think about how we talk to ourselves and how these thoughts create the story of who we are, who we think we are.  And our emotions get completely entangled in the drama. A drama that ends the moment we stop thinking."</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>2024-0215 Author's email:</b> "This poem is a reflection on fear. In my line of work there are times when we walk across wood beams during the framing of a house. Anyway I thought it is relevant to life in general,"</list-item>
 </wave-list>

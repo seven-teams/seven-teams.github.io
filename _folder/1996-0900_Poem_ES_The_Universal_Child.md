@@ -3,8 +3,8 @@ title: '1996-0900 Poem &#8216;Universal Child&#8217; by Edward Saugstad for Shri
 date: 1996-09-15
 permalink: /folder/1996-0915-0900-ES-Universal-Child
 tags:
-  - aquamarine @ Poetry
-  - black @ Edward Saugstad
+   - black @ Poetry
+  - blue @ Edward Saugstad
   - brown @ 1996
   - cornflowerblue @ TBD
   - maroon @ Child

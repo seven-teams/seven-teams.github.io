@@ -3,8 +3,8 @@ title: 'Poem &#8216;The Way&#8217; from 1995-0127 The Australian Sahaja Newslett
 date: 1995-01-27
 permalink: /folder/1995-0127-TASN
 tags:
-  - aquamarine @ Poetry
-  - black @ TBD
+  - black @ Poetry
+  - blue @ TBD
   - brown @ 1995
   - cornflowerblue @ TBD
   - deeppink @ 1995-0127 The Australian Sahaja Newsletter

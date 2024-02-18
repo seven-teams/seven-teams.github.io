@@ -3,8 +3,8 @@ title: 'Poem &#8216;Sign of Divine&#8217; by Alan Wherry'
 date: 2024-02-14
 permalink: /folder/2024-0214-AW-Sign-of-Divine
 tags:
-  - aquamarine @ Poetry
-  - black @ Alan Wherry
+  - black @ Poetry
+  - blue @ Alan Wherry
   - brown @ TBD
   - cornflowerblue @ TBD
   - green @ Story of Poem Sign of Divine

@@ -3,8 +3,8 @@ title: 'Poem &#8216;Timeless in Tir Na Nog&#8217; by Alan Wherry'
 date: 2024-02-14
 permalink: /folder/2024-0214-AW-Timeless
 tags:
-  - aquamarine @ Poetry
-  - black @ Alan Wherry
+  - black @ Poetry
+  - blue @ Alan Wherry
   - brown @ TBD
   - cornflowerblue @ TBD
   - green @ Story of Poem Timeless in Tir Na Nog

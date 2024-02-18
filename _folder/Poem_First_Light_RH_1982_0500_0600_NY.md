@@ -3,8 +3,8 @@ title: 'Poem &#8216;First Light&#8217; by Ray Harris from 1982-0500 and 0600 Nir
 date: 1982-05-01
 permalink: /folder/1982-0501-RH-First-Light
 tags:
-  - aquamarine @ Poetry
-  - black @ Ray Harris
+  - black @ Poetry
+  - blue @ Ray Harris
   - brown @ 1982
   - cornflowerblue @ TBD
   - deeppink @ 1982-0500 and 0600 Nirmala Yoga

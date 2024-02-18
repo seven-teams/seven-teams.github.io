@@ -3,8 +3,8 @@ title: 'Poem &#8216;Avahan - invitation&#8217; (inspired by Anil Panolil Chirika
 date: 2024-02-14
 permalink: /folder/2024-0214-AW-Avahan
 tags:
-  - aquamarine @ Poetry
-  - black @ Alan Wherry
+  - black @ Poetry
+  - blue @ Alan Wherry
   - brown @ TBD
   - cornflowerblue @ TBD
   - maroon @ Avahan

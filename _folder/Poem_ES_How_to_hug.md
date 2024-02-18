@@ -3,8 +3,8 @@ title: 'Poem &#8216;"How to hug a Baby Bear"&#8217; by Edward Saugstad'
 date: 2024-02-14
 permalink: /folder/2024-0214-ES-How-to-hug
 tags:
-  - aquamarine @ Poetry
-  - black @ Edward Saugstad
+  - black @ Poetry
+  - blue @ Edward Saugstad
   - brown @ TBD
   - cornflowerblue @ TBD
   - maroon @ Baby

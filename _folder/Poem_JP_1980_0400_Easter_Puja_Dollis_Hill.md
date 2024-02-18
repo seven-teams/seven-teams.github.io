@@ -3,8 +3,8 @@ title: 'Poem by John Peirson Offered to Śhrī Mātājī during 1980-0406 Easter
 date: 1980-04-06
 permalink: /folder/1980-0406-JP
 tags:
-  - aquamarine @ Poetry
-  - black @ John Peirson
+  - black @ Poetry
+  - blue @ John Peirson
   - brown @ 1980
   - cornflowerblue @ UK
   - deeppink @ 1983-0100 and 0200 Nirmala Yoga
