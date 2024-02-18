@@ -27,7 +27,7 @@ And they came to the centre of Light...<br>
 There once was a boy called Billy the Bull<br>
 Who walked with his nose in the air.<br>
 And when someone tried to show him their love,<br>
-He said that, I"really don't care!"<br>
+He said that, "I really don't care!"<br>
 <br>
 But deep down inside Billy cared very much<br>
 And he wanted to show that he cared;<br>
@@ -59,7 +59,7 @@ I'm a soul who has gone from this Earth.<br>
 When I was alive I was treated so bad<br>
 That I left, for I had little worth."<br>
 <br>
-And as she moved o'er, as fi to fly of,<br>
+And as she moved o'er, as if to fly of,<br>
 Billy begged her to stay and cheer-up.<br>
 Just because you were hurt, it's no reason to die.<br>
 Why didn't you fight and bear up?"<br>

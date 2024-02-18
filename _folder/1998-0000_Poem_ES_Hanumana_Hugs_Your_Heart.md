@@ -19,17 +19,17 @@ tags:
 <br>
 
 <p>
-Al the children of the world,<br>
+All the children of the world,<br>
 Every boy and every girl,<br>
 Give a bandhan, don't you cry,<br>
 Hanumana smiles nearby!<br>
 <br>
 Lord of Angels, see Him fly<br>
 Through the wide and windy sky,<br>
-Call His name and you will fee<br>
+Call His name and you will feel<br>
 All your pain and sorrow heal.<br>
 <br>
-Al the children of the world,<br>
+All the children of the world,<br>
 Every boy and every girl,<br>
 Give a bandhan, don't you cry,<br>
 Hanumana smiles nearby!<br>
@@ -39,7 +39,7 @@ He lifts mountains with His hands.<br>
 With His happy monkey jokes,<br>
 He turns egos into smoke.<br>
 <br>
-Al the children of the world,<br>
+All the children of the world,<br>
 Every boy and every girl,<br>
 Give a bandhan, don't you cry,<br>
 Hanumana smiles nearby!<br>
@@ -49,14 +49,14 @@ He is there both night and day.<br>
 If you share your love and toys,<br>
 He will fill your heart with joy.<br>
 <br>
-Al the children of the world<br>
+All the children of the world<br>
 Every boy and every girl,<br>
 Give a bandhan, don't you cry,<br>
 Hanumana smiles nearby!<br>
 <br>
 Hanumana smiles nearby,<br>
 In the Earth and in the sky,<br>
-In your school and in your home,
+In your school and in your home,<br>
 In the wind and in this poem.<br>
 </p>
 

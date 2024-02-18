@@ -33,7 +33,7 @@ Samples:<br>
 <b>16.</b> <a href="https://seven-teams.github.io/events/1993-0519"> <font color="DeepPink"><b>1993-0519 Comments on Music, Evening Program (Sufi Music with Dance), Temple, Sufi Quarter, Istanbul, Turkey</b></font></a> started in 2023 and updated on 2024-0208.<br>
 <b>17.</b> <a href="https://seven-teams.github.io/events/1974-0321"> <font color="DeepPink"><b>1974-0321 Public Program, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font></a> started in 2023 and updated on 2024-0210.<br>
 <b>18.</b> <a href="https://seven-teams.github.io/events/2006-0721"> <font color="DeepPink"><b>2006-0721 Conversation with Sahaja Yogis and Sir C.P., 1000 Months of Love, Palazzo Doria, Cabella Ligure, Alessandria, Italy</b></font></a> started in 2023 and updated on 2024-0211.<br>
-<b>19.</b>......<br>
+<b>19.</b> <a href="https://seven-teams.github.io/events/1975-1201-1200"> <font color="DeepPink"><b>1975-1200 Visit with Public Programs Organized by Jains, Mombasa, Kenya</b></font></a> started started on 2024-0218.<br>
 <b>20.</b>......<br>
 <b>21.</b>......<br>
 [The increment from 16 to 21 samples was inserted on 2024-0128.]<br>

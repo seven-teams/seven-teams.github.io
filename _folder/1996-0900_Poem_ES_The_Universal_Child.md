@@ -25,7 +25,7 @@ In gentle, curious.<br>
 Tickling buds;<br>
 <br>
 In plump<br>
-And soothing curves that glow
+And soothing curves that glow<br>
 With generous, happiest<br>
 Harmony;<br>
 <br>
