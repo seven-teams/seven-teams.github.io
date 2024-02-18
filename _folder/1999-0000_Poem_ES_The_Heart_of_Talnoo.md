@@ -1,11 +1,11 @@
 ---
-title: 'Poem &#8216;The Heart of Talnoo&#8217; by Edward Saugstad'
-date: 2024-02-14
-permalink: /folder/2024-0214-ES-The-Heart-of-Talnoo
+title: '1999-0000 Poem &#8216;The Heart of Talnoo&#8217; by Edward Saugstad'
+date: 1999-01-01
+permalink: /folder/1999-0101-0000-ES-The-Heart-of-Talnoo
 tags:
   - aquamarine @ Poetry
   - black @ Edward Saugstad
-  - brown @ TBD
+  - brown @ 1999
   - cornflowerblue @ TBD
   - maroon @ Heart
   - maroon @ Talnoo
@@ -42,7 +42,7 @@ Up near the sweet Talnoo Sahaja School.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'The_Heart_of_Talnoo'_by_Edward_Saugstad.jpg" /></div>
+<div style="text-align: center"><img src="/images/1999-0000_Poem_'The_Heart_of_Talnoo'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 
