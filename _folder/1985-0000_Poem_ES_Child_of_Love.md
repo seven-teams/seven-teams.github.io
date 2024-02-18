@@ -1,12 +1,12 @@
 ---
-title: 'Poem &#8216;Child of Love&#8217; by Edward Saugstad'
-date: 2024-02-14
-permalink: /folder/2024-0214-ES-Child-of-Love
+title: '1985-0000 Poem &#8216;Child of Love&#8217; by Edward Saugstad, Vancouver'
+date: 1985-01-01
+permalink: /folder/1985-0101-0000-ES-Child-of-Love
 tags:
   - aquamarine @ Poetry
   - black @ Edward Saugstad
-  - brown @ TBD
-  - cornflowerblue @ TBD
+  - brown @ 1985
+  - cornflowerblue @ Vancouver
   - maroon @ Child
   - maroon @ Love
 ---
@@ -38,7 +38,7 @@ That we may all now share in This.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'Child_of_Love'_by_Edward_Saugstad.jpg" /></div>
+<div style="text-align: center"><img src="/images/1985-0000_Poem_'Child_of_Love'_by_Edward_Saugstad_Vancouver.jpg" /></div>
 
 <br>
 
