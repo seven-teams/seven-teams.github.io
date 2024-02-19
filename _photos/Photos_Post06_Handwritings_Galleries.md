@@ -18,7 +18,8 @@ The photos of handwritings are very special photos Moments of Joy that are very 
 
 <p>The link to the website is:<a href="https://eternalmoments.smugmug.com/"> website</a></p>
 
-<p>The direct link to the altogether Handwritings Gallery is: <a href="https://eternalmoments.smugmug.com/Moments-of-Joy/Handwritings/"> link</a></p>
+<p>The direct links to the altogether Handwritings Gallery are: <a href="https://eternalmoments.smugmug.com/Moments-of-Joy/Handwritings-1901-to-1917"> 1901 to 1917</a> and <a href="https://eternalmoments.smugmug.com/Moments-of-Joy/Handwritings-1975-to-2012"> 1975 to 2012</a>
+[Note: the original 1 link was changed to two on 2024-0219.]</p>
 
 <p>
 Currently this gallery contains 108 handwritings (as photos) but we will gradually add more.<br>
