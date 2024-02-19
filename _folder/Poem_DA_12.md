@@ -34,7 +34,7 @@ I sleep in your senses<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_4_by_Dan_Allen.jpg" /></div>
+<div style="text-align: center"><img src="/images/Poem_4_by_Dan_Allen.jpeg" /></div>
 
 <br>
 

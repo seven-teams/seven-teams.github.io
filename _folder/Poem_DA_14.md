@@ -36,7 +36,7 @@ While we listen to the sounds of other's lives<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_6_by_Dan_Allen.jpg" /></div>
+<div style="text-align: center"><img src="/images/Poem_6_by_Dan_Allen.jpeg" /></div>
 
 <br>
 

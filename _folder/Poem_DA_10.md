@@ -34,7 +34,7 @@ While on this lake, alone, with merely me.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_2_(on_a_painting)_by_Dan_Allen.jpg" /></div>
+<div style="text-align: center"><img src="/images/Poem_2_(on_a_painting)_by_Dan_Allen.jpeg" /></div>
 
 <br>
 

@@ -27,7 +27,7 @@ Encircled petals, reflecting A subtle, beguiling light<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_by_Dan_Allen.jpg" /></div>
+<div style="text-align: center"><img src="/images/Poem_5_by_Dan_Allen.jpeg" /></div>
 
 <br>
 

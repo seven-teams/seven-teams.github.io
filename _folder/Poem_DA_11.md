@@ -34,7 +34,7 @@ My flowers are revered by him<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_3_(on_a_painting)_by_Dan_Allen.jpg" /></div>
+<div style="text-align: center"><img src="/images/Poem_3_(on_a_painting)_by_Dan_Allen.jpeg" /></div>
 
 <br>
 

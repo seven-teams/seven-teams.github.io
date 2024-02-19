@@ -37,7 +37,7 @@ But every thought merely strengthens the separation<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_1_(on_a_painting)_by_Dan_Allen.jpg" /></div>
+<div style="text-align: center"><img src="/images/Poem_1_(on_a_painting)_by_Dan_Allen.jpeg" /></div>
 
 <br>
 
