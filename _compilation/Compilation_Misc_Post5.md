@@ -44,7 +44,7 @@ Related to CCT, in these 10 years we have started the first 6 Steps, and below w
 <br>
 All these were only possible due to the tremendous help, contributions, and support from hundreds and hundreds of Sahaja Yogis and Sahaja Yoginīs from six continents and dozens and dozens of countries, for which we thank them all.<br>
 Gradually, more and more collections will be started or will unfold/expand naturally, and our first and foremost thanks are to all artists and collectors, whether of Photos or of publications or personal writings or of anything else, for their dedication and devotion to Śhrī Mātājī, incredible art, generosity, and spirit of sharing. One can only hope that the team will give full justice to acknowledge and praise all their contributions.<br>
-Please kindly share this post  with all our brothers and sisters.<br>
+Please kindly share this post with all our brothers and sisters.<br>
 <br>
 The Comprehensive Compilations Team (CCT)<br>
 sahajayoga.compilations@gmail.com<br>
