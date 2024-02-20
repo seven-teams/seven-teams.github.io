@@ -48,8 +48,20 @@ Home is where I sleep tonight.<br>
 In Shri Mataji's room at 4 am I knew her divinity.<br>
 </p>
 
+<br>
+
+<div style="text-align: center"><img src="/images/Poem_'Poetry_for_the_soul'_by_Alan_Wherry.png" /></div>
+
+<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's email:</b> "A quasi autobiographical poem. Derek Mahon, a Belfast poet, wrote of his native city, "at home in exile" I was always an outsider there but I didn't understand or feel that way. Napoleon's Nose, shown in the background of my poem, is a mountain that overlooks Belfast. I only ceased to be an outsider in the Sahaja Yoga collective."</list-item>
+</wave-list>
+
+<br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="25">Links</list-title>
+  <list-item color="BlanchedAlmond"  width="285"><b> L1. Link to the gallery of poems framed:</b> <a href="https://imageevent.com/sahaja/art/enlightenedpoemsframed"><font color="DarkGreen">Enlightened Poems Framed</font></a>.</list-item>
 </wave-list>
