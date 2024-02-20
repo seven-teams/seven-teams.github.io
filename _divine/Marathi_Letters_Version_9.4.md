@@ -14,7 +14,7 @@ Total Marathi Letters: 38 (increased by 1 as a retyped letter with PS has been i
 Originals: 25.75 letters.<br>
 Retyped or (original) rewritten text: 5.25 letters.<br>
 Translations: 35.16 letters (increased by 3).<br>
-Translations withouts original or retyped or (original) rewritting: 7.<br>
+Translations withouts original or retyped or (original) rewriting: 7.<br>
 Versions: almost 4.<br>
 Pages pdf file: 133 pages (increased by 2).<br>
 <br>
