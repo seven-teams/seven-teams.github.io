@@ -14,7 +14,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b></b><br></font>
+<font size="+2"><b>Just Allow A Space</b><br></font>
 </p>
 
 <p>
@@ -31,8 +31,7 @@ Then above, the God's Attention is not like yours. You see, your attention is mu
 And you develop that sort of a sheath here, you can say, and you start feeling the vibrations. But again, when you go this way a little bit more, it stops. Or this way more, it stops. Again you bring it in the center, and gradually allow the space to be more. Now this is what is the surrender: is the space more there. Because you don't allow this to work out [ego], or this to work out [superego] but just allow a space. So it starts opening out.<br>
 ......<br>
 When you allow this space to increase more, you see, then what happens: these chakras also open out. In these chakras your own Deities are there. They have their own thing and they are one with it, you see. So it works in unison. And that's why the integration takes place.<br>
-But this spacing, leaving this space itself, means surrender, in the normal way understanding. Because the Dynamic is there. [The] Dynamic is all-pervading, is working out. All right? It is all knowing. It is working out Its job. It is correct. But the problem is: your attention has not grown that subtle, is to enter into It. One [when] it becomes that subtle -- only human beings can become that -- it opens out this thing.<br>
-......<br>"<br>
+But this spacing, leaving this space itself, means surrender, in the normal way understanding. Because the Dynamic is there. [The] Dynamic is all-pervading, is working out. All right? It is all knowing. It is working out Its job. It is correct. But the problem is: your attention has not grown that subtle, is to enter into It. One [when] it becomes that subtle -- only human beings can become that -- it opens out this thing."<br>
 <font color="blue"><b>1978-0220 Talk to Sahaja Yogis, What Is the Surrender (Surrender, Will, Spirit, Attention, Mind), Āśhram, 234A Regent's Park Road, Finchley, London, UK</b></font><br>
 </p>
 
