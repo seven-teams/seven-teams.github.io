@@ -69,5 +69,5 @@ burns on.<br>
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="285"><b> S1. Received by Alan Wherry:</b> shared with Sahaj-writing in summer 2018 and with Folder Subteam on 2024-0218.</list-item>
-  <list-item color="Lavender" width="285"><b> S2. 2018-0710 Sahaj-writing.</b> Link: <a href="https://richpay.wixsite.com/sahaj-writing/forum/writings/rosa-mundi"><font color="DarkGreen"></font></a>.</list-item>
+  <list-item color="Lavender" width="285"><b> S2. 2018-0710 Sahaj-writing.</b> Link: <a href="https://richpay.wixsite.com/sahaj-writing/forum/writings/rosa-mundi"><font color="DarkGreen">Rosa mundi (for Our Mother)</font></a>.</list-item>
 </wave-list>

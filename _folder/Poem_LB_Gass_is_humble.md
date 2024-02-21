@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8216;Grass is humble &#8217; by Lynne Bryer'
+title: 'Poem &#8216;Grass is humble&#8217; by Lynne Bryer'
 date: 2018-08-19
 permalink: /folder/2018-0819-LB-Grass-is-humble 
 tags:
@@ -53,5 +53,5 @@ under the bright and changeless sky.<br>
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="285"><b> S1. Received by Alan Wherry:</b> shared with Sahaj-writing in summer 2018 and with Folder Subteam on 2024-0218.</list-item>
-  <list-item color="Lavender" width="285"><b> S2. 2018-0819 Sahaj-writing.</b> Link: <a href="https://richpay.wixsite.com/sahaj-writing/forum/writings/grass-is-humble"><font color="DarkGreen"></font></a>.</list-item>
+  <list-item color="Lavender" width="285"><b> S2. 2018-0819 Sahaj-writing.</b> Link: <a href="https://richpay.wixsite.com/sahaj-writing/forum/writings/grass-is-humble"><font color="DarkGreen">Grass is humble</font></a>.</list-item>
 </wave-list>
