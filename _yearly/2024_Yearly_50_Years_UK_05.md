@@ -35,7 +35,7 @@ But this spacing, leaving this space itself, means surrender, in the normal way 
 <font color="blue"><b>1978-0220 Talk to Sahaja Yogis, What Is the Surrender (Surrender, Will, Spirit, Attention, Mind), Āśhram, 234A Regent's Park Road, Finchley, London, UK</b></font><br>
 </p>
 
-Links to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/sets/1978-0220-spirit-attention"> NVA</a><br>
+Link to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/sets/1978-0220-spirit-attention"> NVA</a><br>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
