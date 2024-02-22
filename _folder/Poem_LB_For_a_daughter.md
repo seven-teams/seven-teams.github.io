@@ -49,5 +49,7 @@ sheaves rocked in your arms.<br>
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="285"><b> S1. Received by Alan Wherry:</b> shared with Sahaj-writing in summer 2018.</list-item>
-  <list-item color="Lavender" width="285"><b> S2. 2018-0710 Sahaj-writing.</b> Link: <a href="https://richpay.wixsite.com/sahaj-writing/forum/writings/https://richpay.wixsite.com/sahaj-writing/forum/writings/poem-for-a-daughter"><font color="DarkGreen">Poem For A Daughter</font></a>.</list-item>
+  <list-item color="Lavender" width="285"><b> S2. 2018-0710 Sahaj-writing.</b> Link: <a href="https://richpay.wixsite.com/sahaj-writing/forum/writings/poem-for-a-daughter"><font color="DarkGreen">Poem For A Daughter</font></a>.</list-item>
 </wave-list>
+
+https://richpay.wixsite.com/sahaj-writing/forum/writings/poem-for-a-daughter
