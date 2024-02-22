@@ -837,10 +837,9 @@ yassa assumukho rodaṁ, vipākaṁ paṭisevati.</font>
 
 <p>
 <b>67 Translations</b><br>
-<font color="DarkGreen">For that deed is not well done when being done one has to repent; and when one must reapwith tears the bitter fruits of the worng deed.</font><br>
+<font color="DarkGreen">For that deed is not well done when being done one has to repent; and when one must reap with tears the bitter fruits of the worng deed.</font><br>
 <font color="blue">Why do what you will regret?<br>
-Why bring tears upon yourself?<br>
-......</font><br>
+Why bring tears upon yourself?</font><br>
 <font color="Peru">That deed is not at all well done,<br>
 which, having done, one has regret,<br>
 for which he has tears on his face,<br>
@@ -849,98 +848,88 @@ as the result follows him round.</font>
 
 <p>
 <b>68 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Tañ-cha kammaṁ kataṁ sādhu, yaṁ katvā nānutappati,<br>
+yassa patīto sumano, vipākaṁ paṭisevati.</font>
 </p>
 
 <p>
 <b>68 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">But the deed is indeed well done when being done one has not to repent; and when one can reap with joy the sweet fruits of the right deed.</font><br>
+<font color="blue">Do only what you do not regret,<br>
+And fill yourself with joy.</font><br>
+<font color="Peru">But that deed is truly well done,<br>
+which, having done, one has no regret,<br>
+about which he is pleased and glad,<br>
+as the result follows him round.</font>
 </p>
 
 <p>
 <b>69 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Madhuvā maññati bālo, yāva pāpaṁ na pacchati,<br>
+yadā cha pacchati pāpaṁ, bālo dukkhaṁ nigacchati.</font>
 </p>
 
 <p>
 <b>69 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">The wrong action seems sweet to the fool until the reaction comes and brings pain, and the bitter fruits of wrong deeds have them to be eaten by the fool.</font><br>
+<font color="blue">For a while the fool's mischief<br>
+Tastes sweet, sweet as honey.<br>
+But in the end it turns bitter.<br>
+And how bitterly he suffers!</font><br>
+<font color="Peru">The fool thinks it sweet, as long as<br>
+the wicked deed does not ripen,<br>
+but when the wicked deed ripens,<br>
+the fool undergoes suffering.</font>
 </p>
 
 <p>
-<b>70 Transliteration</b><br>
+<b>70 Transliteration</b>Māse māse kusaggena bālo bhuñjeyya bhojanaṁ,<br>
+na so saṅkhātadhammānaṁ kalaṁ agghati soḷasiṁ.<br>
 <font color="Peru"></font>
 </p>
 
 <p>
 <b>70 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">...... the wise man whose thoughts feed on truth.</font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">...... those who have mastered Dhamma.</font>
 </p>
 
 <p>
 <b>71 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Na hi pāpaṁ kataṁ kammaṁ, sajju khīraṁ va mucchati,<br>
+ḍahantaṁ bālam-anveti bhasmacchanno va pāvako.</font>
 </p>
 
 <p>
 <b>71 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>72 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>72 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>73 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>73 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>74 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>74 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">A wrong action ...... like a smouldering fire concealed under ashes it consumes the wrong doer, the fool.</font><br>
+<font color="blue">...... the master whose food is the way.</font><br>
+<font color="Peru">A wicked deed ......<br>
+smouldering, it follows the fool,<br>
+like a fire covered with ashes.</font>
 </p>
 
 <p>
 <b>75 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Aññā hi lābhūpanisā, aññā nibbānagāminī,<br>
+evam-etaṁ abhiññāya bhikkhu buddhassa sāvako<br>
+sakkāraṁ nābhinandeyya, vivekam-anubrūhaye.</font>
 </p>
 
 <p>
 <b>75 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">But one is the path of earthly wealth, and another is the path of NIRVANA. Let the follower of Budha think of this and, without striving for reputation, let him ever strive after freedom.</font><br>
+<font color="blue">One way leads to wealth and fame,<br>
+  The other to the end of the way.<br>
+Look not for recognition<br>
+But follow the awakened<br>
+And set yourself free.</font><br>
+<font color="Peru">For the means to gains is one thing,<br>
+he way to Nibbāna another,<br>
+thus knowing this the disciple<br>
+of the Buddha should not delight<br>
+in honors, but practise alone.</font>
 </p>
 
 <div class="para-divider"></div>

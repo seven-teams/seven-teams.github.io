@@ -47,7 +47,7 @@ when time can stand no more delay,<br>
 and people throng the streets, mill in the square,<br>
 climb trees to see.<br>
 <br>
-&emsp;&emsp;&emsp;&emsp;&emsp;Even the soldiers,<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Even the soldiers,<br>
 nervous in the mob (since they alone are armed,<br>
 and so not free) are part of the convergence,<br>
 the dislocated, sudden calm of knowing:<br>

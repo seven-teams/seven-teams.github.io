@@ -1,7 +1,7 @@
 ---
 title: '1998-1200 Poem &#8216;A Christmas Poem&#8217; by an ISPS Student from 1998-1219 Australian Sahaja Newsletter, Page 2'
 date: 1998-12-01
-permalink: /folder/1998-1201-1200-ISPS-Steudent-Christmas
+permalink: /folder/1998-1201-1200-ISPS-Student-Christmas
 tags:
   - black @ Poetry
   - blue @ ISPS Student
