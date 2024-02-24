@@ -29,7 +29,7 @@ tags:
 
 <p>
 "But how can one man fight the evils of this whole world? In the modern times when everything is moving very fast, it is very difficult for a single person to achieve anything without compromising with the trend of the world. Hence, it is absolutely essential that those artists who seek freedom and who believe that they have to play a vital role to further the cause of art, should give up their petty differences and jealousies and unite together. <font color="DarkRed">If such a group of artists decides to accept good in their personal, economic and social life and pledge not to deviate from the right path, then no power, however destructive, can lay hands on them.</font> Unity of purpose can only grant them all the security needed for the creation of their Art."<br>
-<font size="+0"><b>1961-1000 Article `Art Culture and Artist' published in the souvenir Dignity of Art' brought out to commemorate the Inauguration of the 'Youth Society For Films' by the Union Home Minister Lal Bahadur Shastri on 1961-1008, the function presided over by the Chief Minister of Maharashtra Y. B. Chevam, Mumbai, Maharashtra, India</b></font>
+<font size="+0"><b>1961-1000 Article 'Art Culture and Artist' published in the souvenir Dignity of Art' brought out to commemorate the Inauguration of the 'Youth Society For Films' by the Union Home Minister Lal Bahadur Shastri on 1961-1008, the function presided over by the Chief Minister of Maharashtra Y. B. Chevam, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -77,7 +77,7 @@ I will only give, I am not going to take anything.<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"Today I want certain promises by you to be reached. And the foremost of all, as Christ has said, ``Love thy neighbor as thyself." I would say, one step ahead of that: ``Love thy neighbor, a Sahaja Yogi, more than yourself." Let us start here. We, I don't ask you to open the whole universe: among you[rselves].<br>
+<font color="DarkRed">"Today I want certain promises by you to be reached. And the foremost of all, as Christ has said, "Love thy neighbor as thyself." I would say, one step ahead of that: "Love thy neighbor, a Sahaja Yogi, more than yourself." Let us start here. We, I don't ask you to open the whole universe: among you[rselves].<br>
 First of all, decide: what have you done for others?<br>
 Second: [a] promise you have to make that you will never say a harsh word to any other Sahaja Yogi, even if he beats you hollow. You can tell Me about it. That is the greatest sin you will be committing from today.<br>
 ......<br>
@@ -91,12 +91,80 @@ Thirdly, you will not criticize Sahaj Yog, that is God's own methods, at any cos
 <div class="para-divider"></div>
 
 <p>
+"So, that Anna Mahārāj had come somewhere so I said that, "If he is seen somewhere call Me also." He was told that, "Mātājī is coming."<br>
+I went. He was smoking a cigarette in front of Me and was talking in his Hyderabadi language something with these four or five women. Very comfortably he is [was] sitting. I went. I said, "How are you?" He said, "My gurujī left his throne to meet You in Bombay [Mumbai]." I said, "Why not? After all, I'm his Mother and he came to meet Me. Do you have any objection?" He said, "He should not have done that. He is this and he is that. He is gone case and so forth." I said, "Now see My way. He just broke your legs." So, I put kumkum to him and then as I was leaving I asked him to put kumkum to My forehead. Just as he put on My Āgñyā chakra I just pulled him inside. He just started shaking, "Mother, Mother, save me! Leave me!" <font color="DarkRed">I said, "First you tell Me that you will not criticize your guru." "No, I will not criticize my guru. Leave me!" "And secondly, you drop your habit of smoking." "Yes. Leave me! Leave me!" I said, "Thirdly you should leave the company of women and go and sit in a jungle." When he promised all three things only then I left his hands. Else he was almost fully sucked and he couldn't move his fingers from there.</font><br>
+That drama was seen by all of them for a whole five minutes.<br>
+Then he left that place and now sits in jungles. But he still did his old ways.<br>
+Then I came to know that he was asking people to give him gold rings, of one and a quarter tolā [about 14.58 grams] and promised people that their problems will be over.<br>
+"Mahārāj, this is too much." "OK, you give whatever you can. If you cannot give a one and a quarter tolā, just give half a tolā. Whatever you can manage." He collected thousands of tolās of gold like this.<br>
+By God's blessing, he had a theft at his place and all his gold was stolen.<br>
+So, he said, "This is Mother's work." I said, "Mine? But I did not get that gold‽"<br>
+Then what do you do? If you cannot get the work done simply then you have to turn to diplomacy."<br>
+<font size="+0"><b>1977-1030 Talk to Sahaja Yogis, Mind and It's Relationship to Kuṇḍalinī, Āśhram, 234A Regent's Park Road, Finchley, London, UK (date and location to be confirmed)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1978-0201 Public Program (Hindi), Brahma kā Gyān (Knowledge of Brahma) or Mūlādhāra to Viśhuddhi, Āgñyā, and Sahasrāra, 9 Raisina Road, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1978-0619 Public Program, The Difference Between East and West, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1978-0716 Public Program, East--West, Love, and Money, Caxton Hall, 10 Caxton Street, Westminster, London, UK (other date 0717)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1979-0122 Public Program (Marathi), Ātmyālā Miḍavilyāhśivāya Parameśhwar or Avadhūtas, YMCA Hall, New Link Road, D.N. Nagar, Andheri West (14 kms NW of Mumbai), Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <b>Version 1:</b><br>
-<font color="DarkRed">"A couple of days ago, I asked people to promise that they would no longer consume alcohol, and half of them got up and left. Just a promise -- it was not like I asked them to make any payments!"</font><br>
+<font color="DarkRed">"A couple of days ago, I asked people to promise that they would no longer consume alcohol, and half of them got up and left. Just a promise -- it was not like I asked them to make any payments!<br>
+......"</font><br>
 <br>
 <b>Version 2:</b><br>
-<font color="DarkRed">"A couple of days ago, I asked people to promise that they would no longer consume alcohol, and half of them got up and left. I then said that, "Just take the oath," I did not say that you will have to pay for that. But the moment I said this, half the people got up and left."</font><br>
+<font color="DarkRed">"A couple of days ago, I asked people to promise that they would no longer consume alcohol, and half of them got up and left. I then said that, "Just take the oath," I did not say that you will have to pay for that. But the moment I said this, half the people got up and left.<br>
+......</font><br>
 <font size="+0"><b>1979-0223 Public Program (Marathi), Kuṇḍalinī Śhakti ani Sat Chakra (Kuṇḍalinī Śhakti and the Seven Chakras), Ahmednagar, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1979-0227 Story on Quitting Smoking, Part 2, Dhule, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"But there was one person who could not leave it. One day he came to Me and said, "Mother, I don't understand, whenever I sit for meditation, my face bloats up like the face of Hanumāna."<br>
+Hanumānji is a very jovial Deity, and His ways are so hilarious.<br>
+I said, "Really?" He said, "Yes. I feel I am looking like Hanumānjī, You please cure me. What is happening to me in Sahaja Yoga?" I said, "Do you take tobacco?" He said, "How do You know?" I said, "That is why, if you are seeing Hanumānjī, I understood, these are all His tricks. You just now hold your ears and ask for forgiveness. <font color="DarkRed">Also promise Me, everything will be all right.</font>" "<br>
+<font size="+0"><b>1979-0311 Public Program (English + Hindi), Day 2, Session 2 (evening), On Gāndhī and Collective Consciousness, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1979-0321 Birthday Pūjā (Hindi), Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -109,16 +177,97 @@ Thirdly, you will not criticize Sahaj Yog, that is God's own methods, at any cos
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1979-0517 Public Program, Seeking and Evolution, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1979-0615 Public Program, Higher Life, Reading, Berkshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1979-0618 Conversation with Sahaja Yogis, Questions and Answers, Jim Proctor's House, Cookridge (10 kms NW of Leeds), West Yorkshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1979-0724 Public Program, We Have to Seek our Wholesomeness, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Rabindranath [Tagore] wrote beautiful prose. A kid lost his way in the market and started crying loudly. People asked him what he wanted, [but] he kept on crying. <font color="DarkRed">People promised him to give a horse or elephant or all that but he said, "I just want my mother," and kept on crying. He did not eat and kept crying and became calm when he got his mother.</font>"<br>
+<font size="+0"><b>1979-0922 Talk to Sahaja Yogis (Marathi), Kuṇḍalinī and Śhrī Gaṇeśha Principle, Navarātri Celebrations (1st Day), Amar Hind Mandal, West Dadar, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Like this make a group of younger people. <font color="DarkRed">Whoever wants to enlist should do so today after the Pūjā as a promise: that we are going to do the work and gather the people.</font> There should be twenty-five names, can even be more. The elderly are not to be bothered and the children can be left.<br>
+The young people should take responsibility in their own areas and take it upon themselves. They should meet over tea or otherwise.<br>
+......<br>
+<font color="DarkRed">It is a privilege to come for a Pūjā and for the sake of that privilege, next year all those who have come here must promise to give Realization to at least ten people. Each and every person must take that vow today and I will give you the Śhakti.</font><br>
+And also every person must absolutely come and meditate wherever there is a collective meditation. Only when each of you take that vow, will I fully empower you."<br>
+<font size="+0"><b>1979-0930 Navarātri Pūjā (Hindi) (9th Day), Sahajayoga kī Eka Hī Yukti Hai (Sahaja Yoga is the Only Means), CKP Hall, Dadar, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now we have got, astrologically there are three and a half auspicious days where you don't have to consultant any uh ... any books of astrology, which are called as Pañchāṅg, to find out whether it is an auspicious time or not. For any Pūjā, for any [<font color="orange">unclear</font>] good work you have to do, people consultant, in India, the Pañchāṅg, is the book to find out which date is auspicious [and] which is not.<br>
 One of them is today. Is a day you can do anything good, you decide anything good. <font color="DarkRed">Today is the day to take an oath, to think of something great, to visualize something big, to ask a boon, to do a big Pūjā, is one of the greatest uh day.</font> One of the, we call them muhūrtas, which where you do not consultant these books.<br>
-And that's why rājyābhiṣhek of, I mean the crowning ceremony of Śhrī Rāma took place on this day."<br>
+And that's why rājyābhiṣhek of, I mean the crowning ceremony of Śhrī Rāma took place on this day.<br>
+......<br>
+Dīpawali, dīp means these lights, āwali means the row of lights.<br>
+<font color="DarkRed">'So I am going to be one of them. And we are going to enlighten the path of the people who want to have Self-realization.'<br>
+All these great ideas come to us when we touch our depths. And we feel responsible for all the rest of the humanity.</font><br> 
+But then we gradually realize that there are lots of problems with our us ... own being, and the Kuṇḍalinī goes back into it, comes up again, and you realize that you have to correct yourself quite a lot.<br>
+Then this correction portion starts. You start thinking about yourself more than about others. And also other things which were identified with us like our own personal problems, our own personal ideas, ambitions, professions and all the things that, with which we have been enamored so far start peeping into our minds. <font color="DarkRed">And we start forgetting that moment when we got our Realization and all that we promised within ourselves to do.</font><br>
+<font color="DarkRed">So, the New [Year] Day comes to remind you: 'Doesn't matter, whatever has happened has happened, is finished. Today a new day has come to you again for you to promise again. Again start your journey, know the sun has come. And now be refreshed, the newness bring[s] the freshness of life.' And then you again start, greater enthusiasm on the New [Year] Day, with new ideas, with new promises, with new vows and with greater understanding about Sahaj Yog.</font>"<br>"
 <font size="+0"><b>1979-1020 Diwālī Pūjā (Diwālī Day), Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"So, today is a day when one has to determine: `How far you are a guru,' first point. You have to take a pledge that you will establish your Guru Principle, second point. Thirdly, you have to pledge that you will establish Guru Principles in others.</font> Fourthly, you have to know that there is a little snag: that your Guru is a Mother. She's too kind to be a Guru, too mild to be a Guru, and extremely tolerant. So it is better that you take up this strictness towards yourself, and look after yourself."<br>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1979-1022 Public Program, The Problem of Ego, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1980-0313 Public Program, The Meaning of Sahaja Yoga, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1980-0323 Birthday Pūjā, Guarding Against Slothfulness, London BVB, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"So, today is a day when one has to determine: 'How far you are a guru,' first point. You have to take a pledge that you will establish your Guru Principle, second point. Thirdly, you have to pledge that you will establish Guru Principles in others.</font> Fourthly, you have to know that there is a little snag: that your Guru is a Mother. She's too kind to be a Guru, too mild to be a Guru, and extremely tolerant. So it is better that you take up this strictness towards yourself, and look after yourself."<br>
 <font size="+0"><b>1982-0704 Guru Pūjā, Establishing the Guru Principle, Guru Pūrṇimā Seminar, Day 2 (early morning), Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>
 
