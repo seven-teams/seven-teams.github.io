@@ -1327,6 +1327,22 @@ But no one really thought about it that, 'Is the Truth,' or that there should ha
 <div class="para-divider"></div>
 
 <p>
+"All the Saints have said that, "You have to know your Self." Unless and until you know your Self, the illusion and the ignorance won't go.<br>
+If you see in the Chinese, right from Confucius, Lao Tze, all of them have talked about it. For Christians, Christ has said the same thing.<font color="red"> For Sikhs, Guru Nāṇaka has the said the same thing, that, "You must seek the Truth."</font> "<br>
+<font size="+0"><b>1990-1101 Public Program, Day 1, Girls Guide Hall, Brickfields, Kuala Lumpur, Malaysia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+
+<p>
 "I never read Scriptures, [laughs] I don't think I have to read them because I know them, but I was reading uh the Qur'ān and also the Bible uh from this science, Christian science thing. All other scriptures also. I mean, what they are saying is absolutely true, that you have to be righteous, you have to be above vi[o]lence, you have to be detached. 
 All these things are absolutely the same, no doubt. There's no change. In all these Scriptures they say the same thing. This was said about eight thousand] [8,000] years back by Śhrī Rāma, then by Śhrī Kṛiṣhṇa, then it was said by Socrates, Lao Tze, Abraham. All of Them have said the same thing. <font color="red">Then Muhammad Sāhab said the same thing, Nāṇaka said the same thing.</font>"<br>
 <font size="+0"><b>1992-0221 Public Program, Day 2, Brisbane, Queensland, Australia</b></font>

@@ -191,6 +191,23 @@ All these new theories have started, I think, fifty years back, or about sixty y
 <div class="para-divider"></div>
 
 <p>
+"We have heard about the All-pervading Divine Power. <font color="red">Right from Lao Tze to Christ, to Buddha, all of Them have talked about it.</font><br>
+We did not know about ether before, but we have heard about the Divine Power which is all-pervading.<br>
+Once you are united with it, connected with it, then only you realize that you are a part and parcel of the whole. But before that, it's only talk. Talk of religion, talk about all philosophies, is just a talk.<br>
+Without any experience of this Divine Power, if we are going to believe into these talks and these dogmas, also these mental projections, we'll reach a state where we will say: 'We don't believe in it.' But this is not the way to know the Divine."</font><br>
+<font size="+0"><b>1986-0917 Public Program, Collège Saint-Michel, Boulevard Saint-Michel 24, Etterbeek, Brussels-Capital Region, Belgium</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "All the Incarnations who came on this Earth were a milestone on the ladder of our evolution. But They all had one type of work to do.<br>
 Like the Goddess had to kill the rākṣhasas and save the devotees.<br>
 That is why Śhrī Kṛiṣhṇa arranged this play. This was all a play. There is no need to be so serious about it. Śhrī Kṛiṣhṇa won everyone with His sweetness. He explained all our faults in a sweet and roundabout way. It was a very beautiful Incarnation of His.<br>

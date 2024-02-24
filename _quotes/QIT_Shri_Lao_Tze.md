@@ -522,14 +522,19 @@ This is what it is!"<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Mahāvīra talked about it, Nāṇaka talked about it, uh-uh Buddha talked about it, Zen talked about it, Lao Tze talked about it.</font><br>
+All this has happened! They were not insane people by any chance. They never harmed anyone by Their theories as Freud has done.<br>
+And we should not doubt Them because we have limited intelligence."<br>
 <font size="+0"><b>1986-0916 Public Program, Hall, The General Art Center Op Gouden Wieken (demolished in 1992), Scheveningseweg 237, The Hague, Netherlands</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"We have heard about the All-pervading Divine Power. <font color="red">Right from Lao Tze to Christ, to Buddha, all of Them have talked about it.</font><br>
+We did not know about ether before, but we have heard about the Divine Power which is all-pervading.<br>
+Once you are united with it, connected with it, then only you realize that you are a part and parcel of the whole. But before that, it's only talk. Talk of religion, talk about all philosophies, is just a talk.<br>
+Without any experience of this Divine Power, if we are going to believe into these talks and these dogmas, also these mental projections, we'll reach a state where we will say: 'We don't believe in it.' But this is not the way to know the Divine."</font><br>
 <font size="+0"><b>1986-0917 Public Program, Collège Saint-Michel, Boulevard Saint-Michel 24, Etterbeek, Brussels-Capital Region, Belgium</b></font>
 </p>
 
@@ -616,7 +621,8 @@ But only thing it was not so said so clearly. Because there were not people inte
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"All the Saints have said that, "You have to know your Self." Unless and until you know your Self, the illusion and the ignorance won't go.<br>
+<font color="red">If you see in the Chinese, right from Confucius, Lao Tze, all of them have talked about it.</font> For Christians, Christ has said the same thing. For Sikhs, Guru Nāṇaka has the said the same thing, that, "You must seek the Truth." "</font><br>
 <font size="+0"><b>1990-1101 Public Program, Day 1, Girls Guide Hall, Brickfields, Kuala Lumpur, Malaysia</b></font>
 </p>
 
@@ -646,13 +652,6 @@ But we are like we have closed our eyes."<br>
 "I never read Scriptures, [laughs] I don't think I have to read them because I know them, but I was reading uh the Qur'ān and also the Bible uh from this science, Christian science thing. All other scriptures also. I mean, what they are saying is absolutely true, that you have to be righteous, you have to be above vi[o]lence, you have to be detached. 
 All these things are absolutely the same, no doubt. There's no change. In all these Scriptures they say the same thing. <font color="red">This was said about eight thousand] [8,000] years back by Śhrī Rāma, then by Śhrī Kṛiṣhṇa, then it was said by Socrates, Lao Tze, Abraham. All of Them have said the same thing.</font> Then Muhammad Sāhab said the same thing, Nāṇaka said the same thing."<br>
 <font size="+0"><b>1992-0221 Public Program, Day 2, Brisbane, Queensland, Australia</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -799,7 +798,8 @@ Is such a beautiful description, and I have seen it Myself when I can understand
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">It's not only that Indian Saints have talked about this, [but] also Tao, Tao of Lao Tze.</font> Chinese know about it but they just don't know what to do. For Japanese, there was Zen who has also said the same thing.<br>
+I am not saying something new to you."<br>
 <font size="+0"><b>1995-0312 Public Program, Hall, Kolej Damanasara Utama University College, Petaling Jaya (15 kms W of Kuala Lumpur), Malaysia</b></font>
 </p>
 

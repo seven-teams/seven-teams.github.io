@@ -15,11 +15,11 @@ tags:
 <br>
 
 <p style="text-align:right;">
-I am but a puppet<br>
+<i>I am but a puppet<br>
 Dancing on benevolent divine strings<br>
 Discovering all my inner treasures<br>
 Becoming more and more real<br>
-in the light of Love<br>
+in the light of Love</i><br>
 </p>
 
 <br>
