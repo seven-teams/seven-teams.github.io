@@ -1,11 +1,11 @@
 ---
 title: 'Poem &#8216;Milk of Divine Kindness&#8217; by Edward Saugstad'
-date: 2024-02-15
-permalink: /folder/2024-0215-ES-Milk-of-Divine-Kindness
+date: 2024-02-24
+permalink: /folder/2024-0224-ES-Milk-of-Divine-Kindness
 tags:
   - black @ Poetry
   - blue @ Edward Saugstad
-  - brown @ 1998
+  - brown @ 2024
   - cornflowerblue @ TBD
   - maroon @ Divine
   - maroon @ Kindness

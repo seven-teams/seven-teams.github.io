@@ -5,7 +5,7 @@ permalink: /folder/2024-0224-ES-I-am-but-a-puppet
 tags:
   - black @ Poetry
   - blue @ Edward Saugstad
-  - brown @ 1998
+  - brown @ 2024
   - cornflowerblue @ TBD
   - maroon @ Am
   - maroon @ I  
