@@ -9,7 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"This is the one, started already! My vision for Sahaja Yoga is that, that all the good people, righteous people, God-loving people will rise above all that is useless, worldly, and reside in the Heavens with all the blessings of God, for ever and ever."</font><br>
+<font color="DarkRed">"<b>My vision for Sahaja Yoga is that, that all the good people, righteous people, God-loving people will rise above all that is useless, worldly, and reside in the Heavens with all the blessings of God, for ever and ever.</b>"</font><br>
 <font size="+0"><b>1987-0506 Talk to Sahaja Yogis, The Need to Go Deeper and Questions and Answers, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
 </p>
 
@@ -18,13 +18,13 @@ tags:
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>RACHA PRABHU TUNEY YAHA BRAHMANDA SARA</b></font><br>
-<b>Oh God You have created the whole universe</b><<br>
+<b>Oh God You have created the whole universe</b><br>
 <font color="DarkRed"><b>PRANON SEY PYARA, BRAHMANDA SARA</b></font><br>
-<b>The whole universe is dearer than our lives</b><<br>
+<b>The whole universe is dearer than our lives</b><br>
 <font color="DarkRed"><b>TUHI MAI BANDHU, TUHI JAGAT JANANI</b></font><br>
-<b>You are my Mother and brother, You are the Mother of the universe</b><<br>
+<b>You are my Mother and brother, You are the Mother of the universe</b><br>
 <font color="DarkRed"><b>SAKAL JAGAT MEIN YAH TERA PASARA</b></font><br>
-<b>The whole universe is but Your Form </b><<br>
+<b>The whole universe is but Your Form </b><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <font size="+0">There is a lot of surrendering in this song and Śhrī Mātājī told the Yogis to learn the song as it makes you surrendered. This song has to be sung with the awareness of the greatness of God and thus a surrendered heart surrendered to the greatness of God.<br>
 When singing we have to be conscious (janīv) that the entire universe has bĪn created by Him. "Who are we?"<br>
