@@ -21,7 +21,7 @@ And join in this enlightened Play.<br>
 <br>
 How does it feel, this Kingdom come,<br>
 That shines within each lucky one?<br>
-You enjoy your own deep light<br>
+You enjoy your own deep Light<br>
 And Peace that glows to highest heights.<br>
 <br>
 Let's give thanks for all the Grace<br>
