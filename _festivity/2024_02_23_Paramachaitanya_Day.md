@@ -199,9 +199,8 @@ then allow the cool vibration to flow through you</font><br>
 <font size="+0"><font color="MediumVioletRed"><b>Tujhach. Mataji Pare Prakash. Antari</b></font><br>
 Let your light come within us<br>
 <font color="MediumVioletRed">Tujhech. Sahaj. Yog. He Phire Jagavari</font><br>
-Let us thus spread Sahaja Yoga in the whole world<br>
+Let us thus spread Sahaja Yoga in the whole world</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-<br>
 </p>
 
 <p>  
