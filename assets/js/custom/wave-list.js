@@ -108,6 +108,7 @@ const ItemBase = (tag, { color = "blue", width = 100 } = {}) => Parent => class 
     return staticHtml`
       <${tag} style="${styleMap({
         backgroundColor: this.color,
+        minWidth: "min-content",
         width: `${this.width}`
       })}">
         <slot></slot>
