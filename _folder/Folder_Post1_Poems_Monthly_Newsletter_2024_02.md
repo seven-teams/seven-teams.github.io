@@ -22,7 +22,7 @@ Since the first announcement on the Folder of Poems on 2024-0218 which mentioned
 8. <a href="https://seven-teams.github.io/folder/2018-0710-LB-Vindicated"> <font color="DeepPink"><b>Vindicated</b></font></a><br>
 9. <a href="https://seven-teams.github.io/folder/2018-0710-LB-The-earth-is-in-meditation"> <font color="DeepPink"><b>The earth is in meditation</b></font></a><br>
 10. <a href="https://seven-teams.github.io/folder/2018-0710-LB-The-door-of-mysteries"> <font color="DeepPink"><b>The door of mysteries</b></font></a><br>
-11. <a href="https://seven-teams.github.io/folder/2018-0710-LB-Rosa-mundi"> <font color="DeepPink"><b>Rosa mundi (for Our Mother)’</b></font></a><br>
+11. <a href="https://seven-teams.github.io/folder/2018-0710-LB-Rosa-mundi"> <font color="DeepPink"><b>Rosa mundi (for Our Mother)</b></font></a><br>
 12. <a href="https://seven-teams.github.io/folder/2018-0710-LB-Learning-to-be-still"> <font color="DeepPink"><b>Learning to be still</b></font></a><br>
 13. <a href="https://seven-teams.github.io/folder/2018-0819-LB-Grass-is-humble"> <font color="DeepPink"><b>Grass is humble</b></font></a><br>
 14. <a href="https://seven-teams.github.io/folder/1990-0201-0200-LB-Release"> <font color="DeepPink"><b>Release</b></font></a><br>
