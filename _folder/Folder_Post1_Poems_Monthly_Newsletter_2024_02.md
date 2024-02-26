@@ -36,7 +36,7 @@ Please kindly share the news of the newsletter and the links with all our brothe
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-The Photo Subteam<br>
+The Folder Subteam<br>
 sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
