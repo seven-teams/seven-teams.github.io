@@ -11,7 +11,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 This is the first monthly newsletter on Poems.<br>
-Since the first announcement on the Folder of Poems on 2024-0218 which mentioned 120 Poems uploaded, the following 20 extra poems have been uploaded.<br>
+Since the first announcement on the Folder of Poems on 2024-0218 which mentioned 120 Poems uploaded, the following 20 extra Poems have been uploaded.<br>
 1. <a href="https://seven-teams.github.io/folder/2024-0219-DA-1"> <font color="DeepPink"><b>Poem</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/2024-0219-DA-2"> <font color="DeepPink"><b>Poem</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/2024-0219-DA-3"> <font color="DeepPink"><b>Poem</b></font></a><br>
