@@ -45,6 +45,18 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
+<font color="DarkGreen"><b>P5.</b></font> <b>1992-0900 Poster for Public Program on 0910 at Eden Park, Cincinnati, OH, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1992-0900_Poster_for_Public_Program_on_0910_at_Eden_Park,_Cincinnati,_OH,_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P6.</b></font> <b>1993-0900 Poster for Public Program on 0915 at Prospect Dobroliubova, Saint Petersburg, Russia (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1993-0900_Poster_for_Public_Program_on_0915_at_Prospect_Dobroliubova,_Saint_Petersburg,_Russia_(Jo_Bajescu_Collection).jpeg" /></div>
+
+<br>
+
 <font color="DarkGreen"><b>P8.</b></font> <b>1994-0900 Poster for Public Programs on 1001 and 1003 in New York City, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
 <div style="text-align: center"><img src="/images/1994-0900_Poster_for_Public_Programs_on_1001_and_1003_in_New_York_City,_NY,_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
