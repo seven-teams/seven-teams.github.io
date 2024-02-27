@@ -33,14 +33,73 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>P3.</b></font> <b>1997-0600 Poster for Public Program on 0618, Berkeley, CA, U.S.A. (CCT Scans Collection)</b> (1 page, uploaded on 2023-0502)
+<font color="DarkGreen"><b>P3.</b></font> <b>1992-0600 Poster for Public Programs on 0611 and 0612 at Royal Albert Hall, London, UK (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1992-0600_Poster_for_Public_Programs_on_0611_and_0612_at_Royal_Albert_Hall,_London,_UK_(Jo_Băjescu_Collection).jpg" /></div>
+
+<br>
+<font color="DarkGreen"><b>P4.</b></font> <b>1992-0600 Poster for Public Programs on 0701 and 0702 at 'Artemis' in Amsterdam, Netherlands (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1992-0600_Poster_for_Public_Programs_on_0701_and_0702_at_'Artemis'_in_Amsterdam,_Netherlands_(Jo_Băjescu_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P5.</b></font> <b>1992-0900 Poster for Public Program on 0910 at Eden Park, Cincinnati, OH, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1992-0900_Poster_for_Public_Program_on_0910_at_Eden_Park,_Cincinnati,_OH,_U.S.A._(Jo_Băjescu_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P6.</b></font> <b>1993-0900 Poster for Public Program on 0915 at Prospect Dobroliubova, Saint Petersburg, Russia (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1993-0900_Poster_for_Public_Program_on_0915_at_Prospect_Dobroliubova,_Saint_Petersburg,_Russia_(Jo_Băjescu_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P7.</b></font> <b>1993-1000 Poster for Public Program on 1009 in Los Angeles, CA, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1993-1000_Poster_for_Public_Program_on_1009_in_Los_Angeles,_CA,_U.S.A._(Jo_Băjescu_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P8.</b></font> <b>1994-0900 Poster for Public Programs on 1001 and 1003 in New York City, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1994-0900_Poster_for_Public_Programs_on_1001_and_1003_in_New_York_City,_NY,_U.S.A._(Jo_Băjescu_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P9.</b></font> <b>1996-1200 Poster for Public Program on 1211 in Lucknow, UP, India (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1996-1200_Poster_for_Public_Program_on_1211_in_Lucknow,_UP,_India_(Jo_Băjescu_Collection).jpg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P10.</b></font> <b>1996-1200 Poster for Public Program on 1220 in Mumbai, Maharashtra, India (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1996-1200_Poster_for_Public_Program_on_1220_in_Mumbai,_Maharashtra,_India_(Jo_Băjescu_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P11.</b></font> <b>1997-0600 Poster for Public Program on 0610 at Cathedral of St. John the Divine, New York City, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1997-0600_Poster_for_Public_Program_on_0610_at_Cathedral_of_St._John_the_Divine,_New_York_City,_NY,_U.S.A._(Jo_Băjescu_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P12.</b></font> <b>1997-0600 Poster for Public Program on 0618, Berkeley, CA, U.S.A. (CCT Scans Collection)</b> (1 page, uploaded on 2023-0502)
 
 <div style="text-align: center"><img src="/images/1997-0600_Poster_for_Public_Program_on_0618,_Berkeley,_CA,_U.S.A._(from_tif_ reduced_size)_(CCT_Scans_Collection).jpg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>P4.</b></font> <b>1997-1100 Poster for Public Program on 1118, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0502), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
+<font color="DarkGreen"><b>P13.</b></font> <b>1997-1100 Poster for Public Program on 1118, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0502), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
 <div style="text-align: center"><img src="/images/1997-1100_Poster_for_Public_Program_on_1118,_Prague,_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P14.</b></font> <b>2001-0700 Poster for Public Program on 0802 at Empire State Plaza, Albany, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227), <font color="SeaGreen"><b>
+
+<div style="text-align: center"><img src="/images/2001-0700_Poster_for_Public_Program_on_0802_at_Empire_State_Plaza,_Albany,_NY,_U.S.A._(Jo_Băjescu_Collection).jpg" /></div>
 
 <br>
