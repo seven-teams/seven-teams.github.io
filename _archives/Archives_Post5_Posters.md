@@ -75,6 +75,18 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
+<font color="DarkGreen"><b>P10.</b></font> <b>1996-1200 Poster for Public Program on 1220 in Mumbai, Maharashtra, India (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1996-1200_Poster_for_Public_Program_on_1220_in_Mumbai,_Maharashtra,_India_(Jo_Bajescu_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P11.</b></font> <b>1997-0600 Poster for Public Program on 0610 at Cathedral of St. John the Divine, New York City, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+
+<div style="text-align: center"><img src="/images/1997-0600_Poster_for_Public_Program_on_0610_at_Cathedral_of_St._John_the_Divine,_New_York_City,_NY,_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
+
+<br>
+
 <font color="DarkGreen"><b>P12.</b></font> <b>1997-0600 Poster for Public Program on 0618, Berkeley, CA, U.S.A. (CCT Scans Collection)</b> (1 page, uploaded on 2023-0502)
 
 <div style="text-align: center"><img src="/images/1997-0600_Poster_for_Public_Program_on_0618,_Berkeley,_CA,_U.S.A._(from_tif_reduced_size)_(CCT_Scans_Collection).jpg" /></div>
