@@ -1,5 +1,5 @@
 ---
-title: 'Photos Post 30: Updates'
+title: 'Photos Post 30: Updates (Lotus Feet Galleries)'
 date: 2024-02-05
 permalink: /photos/2024/0205
 tags:

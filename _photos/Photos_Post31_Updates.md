@@ -1,5 +1,5 @@
 ---
-title: 'Photos Post 31: Updates'
+title: 'Photos Post 31: Updates (Moments of Jos Displays Galleries)'
 date: 2024-02-28
 permalink: /photos/2024/0228
 tags:
