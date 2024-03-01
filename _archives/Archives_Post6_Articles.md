@@ -25,8 +25,6 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A1.</b></font> <b>1989-1212 Article 'A yogin from the USSR' by a Staff reporter published in daily newspaper 'The Statesman', New Delhi, India (Karan Khurana Collection)</b> (1 page, uploaded on 2024-0229)
 
-<div style="text-align: center"><img src="/images/1989-1212_Article_'A_yogin_from_the_USSR'_by_a_Staff_reporter_published_in_daily_newspaper_'The_Statesman',_New_Delhi,_India_(Karan_Khurana_Collection).jpeg" /></div>
-
 <br>
 
 <font color="DarkGreen"><b>A2.</b></font> <b>1990-0606 and 0607 Articles (Chinese) in 'World Journal', 141-07 20th Avenue, Whitestone, NY, U.S.A.</b> (1 page, uploaded on 2023-0508)

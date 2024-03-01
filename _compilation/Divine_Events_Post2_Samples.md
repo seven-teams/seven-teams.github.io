@@ -36,7 +36,7 @@ Samples:<br>
 <b>19.</b> <a href="https://seven-teams.github.io/events/1975-1201-1200"> <font color="DeepPink"><b>1975-1200 Visit with Public Programs Organized by Jains, Mombasa, Kenya</b></font></a> started on 2024-0218.<br>
 <b>20.</b> <a href="https://seven-teams.github.io/events/1989-1212"> <font color="DeepPink"><b>1989-1212 Talk to Sahaja Yogis, Āśhram, New Delhi, India</b></font></a> started on 2024-0219.<br>
 <b>21.</b> <a href="https://seven-teams.github.io/events/1966-0816-0800"> <font color="DeepPink"><b>1966-0800 Hosted by the Family of the Chairman of Mitsubishi Heavy Industries, Ltd., Tokyo, Japan</b></font></a> started on 2024-0225.<br>
-<b>22.</b>......<br>
+<b>22.</b> <a href="https://seven-teams.github.io/events/1989-1211"> <font color="DeepPink"><b>1989-1211 Press Conference, New Delhi, India</b></font></a> started in 2023 and updated on 2024-0225 and 2024-0229.<br>
 <b>23.</b>......<br>
 <b>24.</b>......<br>
 [The increment from 16 to 21 samples was inserted on 2024-0128. The increment from 21 to 24 was inserted on 2024-0225.]<br>
