@@ -77,7 +77,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>P10.</b></font> <b>1996-1200 Poster for Public Program on 1220 in Mumbai, Maharashtra, India (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
-<div style="text-align: center"><img src="/images/1996-1200_Poster_for_Public_Program_on_1220_in_Mumbai,_Maharashtra,_India_(Jo_Bajescu_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1996-1200_Poster_for_Public_Program_on_1220_in_Mumbai_Maharashtra_India_(Jo_Bajescu_Collection).jpeg" /></div>
 
 <br>
 
