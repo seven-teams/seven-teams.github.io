@@ -26,7 +26,7 @@ I1. Divine Cool Breeze (USA), Volume 13, Issues 1 and 2 (28 pages, uploaded on 2
 
 [Download the original CCT scan pdf here](https://bit.ly/3pu4xwO)
 
-<iframe src="/pdf/?usedownload=true#/files/DCB_13-1-2-compressed_CCT_Scans_Collection.pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1999-0300_to_0500_Divine_Cool_Breeze_(U.S.A.)_compressed_(CCT_Scans_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
@@ -34,4 +34,4 @@ I2. Divine Cool Breeze (USA), Volume 13, Issues 3 to 5 (40 pages, uploaded on 20
 
 [Download the original CCT scan pdf here](https://bit.ly/3Civprf)
 
-<iframe src="/pdf/?usedownload=true#/files/DCB_13-3-5-compressed_CCT_Scans_Collection.pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1999-0300_to_0500_Divine_Cool_Breeze_(U.S.A.)_compressed_(CCT_Scans_Collection).pdf" width="1000px" height="1000px"></iframe>
