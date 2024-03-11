@@ -252,7 +252,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>2002SYAUSNEW39.</b></font> <b>2002-1122 Sahaja Yoga Australian Newsletter (CCT Scans Collection)</b> (2 pages, scan, uploaded on 2023-0817)
+<font color="DarkGreen"><b>2002SYAUSNEW39.</b></font> <b>2002-1122 Sahaja Yoga Australian Newsletter (CCT Scans Collection)</b> (4 pages, scan, uploaded on 2023-0817)
 
 <iframe src="/pdf/?usedownload=true#/files/2002-1122_Sahaja_Yoga_Australian_Newsletter_(CCT_Scans_Collection).pdf" width="1000px" height="1000px"></iframe>
 
