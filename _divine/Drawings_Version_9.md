@@ -14,7 +14,7 @@ Total drawings: 52.<br>
 Total figures: 56.<br>
 <br>
 
-<iframe src="/pdf/?usedownload=true#/files/Drawings_from_Divine_Message_Version_9.pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-4c24068b9f8f43919c1fa24e69f8f939.r2.dev/Drawings_from_Divine_Message_Version_9.pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 Please kindly share the file with all our brothers and sisters.<br>

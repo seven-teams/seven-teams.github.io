@@ -31,17 +31,17 @@ C3. The XYZ Unknown Collection has 237 photos Moments of Joy which represents 2.
 <br>
 <b>D. TOTAL NUMBER OF NAMED COLLECTIONS: 34 (cf. 26 on 2023-0312 and 21 on 2022-0312).</b><br>
 <br>
-<b>E. TOTAL NUMBER OF GALLERIES IN THE CHRONOLOGY FOLDER: 113.<br>
+<b>E. TOTAL NUMBER OF GALLERIES IN THE CHRONOLOGY FOLDER: 113.</b><br>
 <b>
-<b>F. TOTAL NUMBER OF COUNTRIES: 62 (including TBD and 19 countries with no Photos).<br>
+<b>F. TOTAL NUMBER OF COUNTRIES: 62 (including TBD and 19 countries with no Photos).</b><br>
 <br>
-<b>G. TOTAL NUMBER OF EMPTY GALLERIES OF COUNTRIES: 154 (including 26 galleries from the 19 countries with no Photos).<br>
+<b>G. TOTAL NUMBER OF EMPTY GALLERIES OF COUNTRIES: 154 (including 26 galleries from the 19 countries with no Photos).</b><br>
 <br>
-<b>H. TOTAL NUMBER OF GALLERIES OF PERMANENT DISPLAYS FOLDER: 67.<br>
+<b>H. TOTAL NUMBER OF GALLERIES OF PERMANENT DISPLAYS FOLDER: 67.</b><br>
 <br>
-<b>I. TOTAL NUMBER OF GALLERIES OF MOMENTS OF JOY DISPLAYS FOLDER: 17.<br>
+<b>I. TOTAL NUMBER OF GALLERIES OF MOMENTS OF JOY DISPLAYS FOLDER: 17.</b><br>
 <br>
-<b>J. LOWER ESTIMATE OF IMAGES STILL TO BE UPLOADED: 30,000.<br>
+<b>J. LOWER ESTIMATE OF IMAGES STILL TO BE UPLOADED: 30,000.</b><br>
 <br>
 We thank you in advance for your understanding, contributions, help, support, and feedback. Please write to us at sahajayoga.compilations@gmail.com<br>
 <br>

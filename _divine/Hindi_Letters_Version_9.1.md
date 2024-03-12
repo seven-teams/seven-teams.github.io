@@ -17,7 +17,7 @@ Translations in progress: 0.5 letters (decreased by 1.5).<br>
 Second versions translations: 2.5 letters (increased by 0.5).<br>
 <br>
 
-<iframe src="/pdf/?usedownload=true#/files/Hindi_Letters_from_Divine_Message_Version_9_1.pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-4c24068b9f8f43919c1fa24e69f8f939.r2.dev/Hindi_Letters_from_Divine_Message_Version_9_1.pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 Please kindly share the file with all our brothers and sisters.<br>

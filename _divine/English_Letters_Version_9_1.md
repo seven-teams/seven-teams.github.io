@@ -17,7 +17,7 @@ Complete originals: 9 letters (increased by 1). [Missing or incomplete originals
 Pages: 67 (increased by 1).<br>
 <br>
 
-<iframe src="/pdf/?usedownload=true#/files/English_Letters_from_Divine_Message_Version_9_1.pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-4c24068b9f8f43919c1fa24e69f8f939.r2.dev/English_Letters_from_Divine_Message_Version_9_1.pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 Please kindly share the file with all our brothers and sisters.<br>

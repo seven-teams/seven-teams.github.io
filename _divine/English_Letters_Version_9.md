@@ -16,7 +16,7 @@ Originals: 8.8 letters, maybe 8.9 letters.<br>
 Complete originals: 8 letters. [Missing or incomplete originals: 23 letters.]<br>
 <br>
 
-<iframe src="/pdf/?usedownload=true#/files/English_Letters_from_Divine_Message_Version_9.pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-4c24068b9f8f43919c1fa24e69f8f939.r2.dev/English_Letters_from_Divine_Message_Version_9.pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 Please kindly share the file with all our brothers and sisters.<br>
