@@ -21,7 +21,7 @@ A4. Percentage of the targeted 5 million images: 0.66344%.<br>
 <br>
 <b>B. TOTAL NUMBER OF PHOTOS: 24,892.</b><br>
 B1. A total of 1,678 Photos were uploaded since the second annual report on 2023-0312, which means a daily average of 4.5846 Photos per day in the last year.<br>
-B2. A total of 4,938 Photos were uploaded since the first annual report on 2022-0312, which means a daily average of 6.7551 Photos per day in the last 2 years.<br>
+B2. A total of 3,828 Photos were uploaded since the first annual report on 2022-0312, which means a daily average of 5.2366 Photos per day in the last 2 years.<br>
 B3. The XYZ Unknown Collection has 1,432 Photos which represents 5.7528% of the total.<br>
 <br>
 <b>C. TOTAL NUMBER OF PHOTOS MOMENTS OF JOY: 8,280.</b><br>
