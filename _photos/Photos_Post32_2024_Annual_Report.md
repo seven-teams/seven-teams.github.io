@@ -32,7 +32,7 @@ C3. The XYZ Unknown Collection has 237 photos Moments of Joy which represents 2.
 <b>D. TOTAL NUMBER OF NAMED COLLECTIONS: 34 (cf. 26 on 2023-0312 and 21 on 2022-0312).</b><br>
 <br>
 <b>E. TOTAL NUMBER OF GALLERIES IN THE CHRONOLOGY FOLDER: 113.</b><br>
-<b>
+<br>
 <b>F. TOTAL NUMBER OF COUNTRIES: 62 (including TBD and 19 countries with no Photos).</b><br>
 <br>
 <b>G. TOTAL NUMBER OF EMPTY GALLERIES OF COUNTRIES: 154 (including 26 galleries from the 19 countries with no Photos).</b><br>
