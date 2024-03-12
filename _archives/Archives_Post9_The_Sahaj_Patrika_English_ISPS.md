@@ -25,6 +25,6 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 [Download the original CCT scan pdf here](https://bit.ly/The_Sahaj_Patrika_English_ISPS_Issue_2)
 
-<iframe src="/pdf/?usedownload=true#/files/1997-0900_The_Sahaj_Patrika_English_ISPS_Volume_1_Issue_2_Yogi_Mahajan_Collection_low-compressed.pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1997-0900_The_Sahaj_Patrika_English_ISPS_Volume_1_Issue_2_Yogi_Mahajan_Collection_low-compressed.pdf" width="1000px" height="1000px"></iframe>
 
 <br>

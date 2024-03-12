@@ -22,4 +22,5 @@ Jai Shri Mataji<br>
 <br>
 The Compilation Team<br>
 
-[Download pdf here](http://seven-teams.github.io/files/Sahaja_Yoga_Treatments_Book1.pdf)
+
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/Sahaja_Yoga_Treatments_Book1.pdf" width="1000px" height="1000px"></iframe>

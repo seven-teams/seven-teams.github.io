@@ -23,6 +23,6 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>Ad1.</b></font> <b>1988-0408 Ad 'Felicitations to Her Holiness Shri Mataji Nirmaladeviji' published in 'The Times of India Bombay', Mumbai, Maharashtra, India, Page 4 (Anna Mancini Collection)</b> (1 page, scanned by CCT and uploaded on 2024-0121)
 
-<div style="text-align: center"><img src="/images/1988-0408_Ad_'Felicitations_to_Her_Holiness_Shri_Mataji_Nirmaladeviji'_published_in_'The_Times_of_India_Bombay',_Mumbai,_Maharashtra,_India,_Page_4_(Anna_Mancini_Collection).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1988-0408_Ad_'Felicitations_to_Her_Holiness_Shri_Mataji_Nirmaladeviji'_published_in_'The_Times_of_India_Bombay'_Mumbai_Maharashtra_India_Page_4_(Anna_Mancini_Collection).jpg" /></div>
 
 <br>

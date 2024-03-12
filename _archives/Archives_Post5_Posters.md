@@ -47,13 +47,13 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>P5.</b></font> <b>1992-0900 Poster for Public Program on 0910 at Eden Park, Cincinnati, OH, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
-<div style="text-align: center"><img src="/images/1992-0900_Poster_for_Public_Program_on_0910_at_Eden_Park,_Cincinnati,_OH,_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1992-0900_Poster_for_Public_Program_on_0910_at_Eden_Park_Cincinnati_OH_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
 
 <br>
 
 <font color="DarkGreen"><b>P6.</b></font> <b>1993-0900 Poster for Public Program on 0915 at Prospect Dobroliubova, Saint Petersburg, Russia (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
-<div style="text-align: center"><img src="/images/1993-0900_Poster_for_Public_Program_on_0915_at_Prospect_Dobroliubova,_Saint_Petersburg,_Russia_(Jo_Bajescu_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1993-0900_Poster_for_Public_Program_on_0915_at_Prospect_Dobroliubova_Saint_Petersburg_Russia_(Jo_Bajescu_Collection).jpeg" /></div>
 
 <br>
 
@@ -83,7 +83,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>P11.</b></font> <b>1997-0600 Poster for Public Program on 0610 at Cathedral of St. John the Divine, New York City, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
-<div style="text-align: center"><img src="/images/1997-0600_Poster_for_Public_Program_on_0610_at_Cathedral_of_St._John_the_Divine,_New_York_City,_NY,_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1997-0600_Poster_for_Public_Program_on_0610_at_Cathedral_of_St._John_the_Divine_New_York_City_NY_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
 
 <br>
 
