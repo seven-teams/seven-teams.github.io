@@ -56,7 +56,7 @@ This was the way it had to be.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/1990-0200_Poem_'Release'_by_Lynne_Bryer_(Alan_Wherry_Collection).webp" /></div>
+<div style="text-align: center"><img src="/images/1990-0200_Poem_'Release'_by_Lynne_Bryer.webp" /></div>
 
 <br>
 

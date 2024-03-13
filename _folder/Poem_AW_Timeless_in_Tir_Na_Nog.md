@@ -37,7 +37,7 @@ And the nature watching us.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'Timeless_In_Tir_Na_Log'_by_Alan_Wherry.jpg" /></div>
+<div style="text-align: center"><img src="/images/Poem_'Timeless_In_Tir_Na_Nog'_by_Alan_Wherry.jpg" /></div>
 
 <br>
 

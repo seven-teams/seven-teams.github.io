@@ -16,7 +16,7 @@ tags:
 <br>
 
 <p>
-O Conch.
+O Conch.<br>
 You form of perfection<br>
 Who could imitate you?<br>
 <br>
@@ -64,5 +64,5 @@ At perfect pitch of praise.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2002-0315 Sahaja Yoga Australian Newsletter, Page 5, Author's Note:</b> "Having recently had the opportunity to manufacture some of the weapons for the Devi in the play for Sivratri, I had some problems making the Conch. Out of this difficulty a poem came. Here it is."</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>2002-0315 Sahaja Yoga Australian Newsletter, Page 5, Author's Note:</b> "Having recently had the opportunity to manufacture some of the weapons for the Devi in the play for Shivratri, I had some problems making the Conch. Out of this difficulty a poem came. Here it is."</list-item>
 </wave-list>
