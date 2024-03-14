@@ -11,7 +11,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to bring to your attention five new gallery:<br>
+We are pleased to bring to your attention five new galleries:<br>
 <b>1.</b> <a href="https://imageevent.com/sahaja/shrimatajisplaces/nirmalahouseinmaglianosabina"><font color="DarkGreen"><b>Nirmala House in Magliano Sabina</b></font></a>.<br>
 <b>2.</b> <a href="https://imageevent.com/sahaja/shrimatajisplaces/nirmalahouseinsantangeloromano"><font color="DarkGreen"><b>Nirmala House in Sant'Angelo Romano</b></font></a>.<br>
 <b>3.</b> <a href="https://imageevent.com/sahaja/momentsofgrowth/schooltrips"><font color="DarkGreen"><b>School Trips</b></font></a>.<br>
