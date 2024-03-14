@@ -23,7 +23,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>LETIndia1.</b></font> <b> 1979-00000 The Life Eternal (CCT Scans Collection)</b> (32 pages, uploaded on 2023-0713, scanned by CCT members as a hard copy in 1997 and rescanned as a pdf file and shared publicly by CCT in 2014-09; INCOMPLETE REPRINT)
 
-<iframe src="/pdf/?usedownload=true#/files/1979-0000_The_Life_Eternal_(CCT_Scans_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1979-0000_The_Life_Eternal_(CCT_Scans_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
@@ -35,7 +35,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>LETIndia3.</b></font> <b> 1981-00000 The Life Eternal (CCT Scans Collection)</b> (24 pages, uploaded on 2023-0713, scanned by CCT members as a hard copy in 1997 and rescanned as a pdf file in 2014-09 and shared publicly by in 2014-10 by CCT)
 
-<iframe src="/pdf/?usedownload=true#/files/1981-0000_The_Life_Eternal_(CCT_Scans_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1981-0000_The_Life_Eternal_(CCT_Scans_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
