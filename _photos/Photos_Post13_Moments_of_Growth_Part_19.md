@@ -16,7 +16,7 @@ We are pleased to bring to your attention five new galleries:<br>
 <b>2.</b> <a href="https://imageevent.com/sahaja/shrimatajisplaces/nirmalahouseinsantangeloromano"><font color="DarkGreen"><b>Nirmala House in Sant'Angelo Romano</b></font></a>.<br>
 <b>3.</b> <a href="https://imageevent.com/sahaja/momentsofgrowth/schooltrips"><font color="DarkGreen"><b>School Trips</b></font></a>.<br>
 <b>4.</b> <a href="https://imageevent.com/sahaja/momentsofgrowth/preschooltrips"><font color="DarkGreen"><b>Preschool Trips</b></font></a>.<br>
-<b>5.</b> <a href="https://imageevent.com/sahaja/momentsofgrowth/indiatoursbysuagstads"><font color="DarkGreen"><b>India Tours</b></font></a>.<br>
+<b>5.</b> <a href="https://imageevent.com/sahaja/momentsofgrowth/indiatoursbysaugstads"><font color="DarkGreen"><b>India Tours</b></font></a>.<br>
 Please kindly share the news and the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
