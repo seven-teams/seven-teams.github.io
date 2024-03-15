@@ -35,7 +35,7 @@ I bow to the Lord God Almighty.<br>
 </p>
 
 <p>
-<font color="DarkRed">"Today, we are going to do Pūjā to Śhiva, Śhrī Śhiva.<br>
+<font color="DarkRed">"<b>Today, we are going to do Pūjā to Śhiva, Śhrī Śhiva.</b><br>
 As you know, Śhrī Śhiva is the reflection of Sadāśhiva within us. I've already told about the reflection. Sadāśhiva is the God Almighty, the One who sees the play of Ādi Śhakti. But He is the Father who is watching each one of His Creation, or Her Creation.<br>
 His support to Ādi Śhakti is entirely, fully, strengthening. There's no doubt in His mind about the capability of the Ādi Śhakti. But when He finds that in the play of Ādi Śhakti, the people or the world as such, try to disturb Her or spoil Her work, then He gets into His wrathful mood, and He destroys all such people, and maybe, He destroys the whole world.<br>
 On one side He's wrathful, no doubt, on the other side, He is the Ocean of Compassion and Joy. That's why, when He's reflected within us, we get our Self-realization, we get the light of our Spirit, and we get into the Ocean of Joy."</font><br>
@@ -80,11 +80,11 @@ So, surrendering has another side: assumption. Assumption that I am a Sahaja Yog
 <div style="text-align: center"><img src="/images/image1339.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"<b>We pray to Lord Śhiva to look after our Union. I surrender to You. Now Gaurī Kuṇḍalinī surrenders to the Spirit. We pray to Lord Śhiva to look after this. I forget everything else. I leave it in Your holy hands. You raise me up. I forget all that was in me before, just lift me up. You raise me up. Everything I have dropped out, no other desire but just lift me higher. Make me Your servant. The rest of it is not important. All the other manifestations of this desire are over. Now I am absolutely surrendered to You, my Spirit. Lift me higher and higher and higher. Away from all the thoughts and things that were not the Spirit. Make me complete Spirit."</b><br>
+<font color="DarkRed">"<b>We pray to Lord Śhiva to look after our Union. I surrender to You. Now Gaurī Kuṇḍalinī surrenders to the Spirit. We pray to Lord Śhiva to look after this. I forget everything else. I leave it in Your holy hands. You raise me up. I forget all that was in me before, just lift me up. You raise me up. Everything I have dropped out, no other desire but just lift me higher. Make me Your servant. The rest of it is not important. All the other manifestations of this desire are over. Now I am absolutely surrendered to You, my Spirit. Lift me higher and higher and higher. Away from all the thoughts and things that were not the Spirit. Make me complete Spirit.</b><br>
 Forget all that was there. That elevation, that ascent becomes fast quick trip. A very fast thing. If you just try this every moment, anything that goes against the Spirit must be given up. And that Spirit is what? The pure desire.<br>
 We have to be one with the Spirit, and all the rest is not important. You are in the beautiful Kingdom of God where all ugliness drops out like when the lotus opens out; all the mud drops out from it.<br>
 <b>In the same beautiful way, let My children become fragrant beautiful offering to Lord Sadāśhiva.</b><br>
-May God bless you.</font><br>
+May God bless you."</font><br>
 <font size="+0"><b>Śhrī Mātājī's prayer for the Spirit (left heart): prayer, praises and protocol, pg. 142</b></font>
 </p>
 
