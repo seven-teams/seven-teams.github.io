@@ -59,7 +59,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>P7.</b></font> <b>1993-1000 Poster for Public Program on 1009 in Los Angeles, CA, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
-<div style="text-align: center"><img src="/images/1993-1000_Poster_for_Public_Program_on_1009_in_Los_Angeles,_CA,_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1993-1000_Poster_for_Public_Program_on_1009_in_Los_Angeles_CA_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
 
 <br>
 
@@ -71,7 +71,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>P9.</b></font> <b>1996-1200 Poster for Public Program on 1211 in Lucknow, UP, India (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
-<div style="text-align: center"><img src="/images/1996-1200_Poster_for_Public_Program_on_1211_in_Lucknow,_UP,_India_(Jo_Bajescu_Collection).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1996-1200_Poster_for_Public_Program_on_1211_in_Lucknow_UP_India_(Jo_Bajescu_Collection).jpg" /></div>
 
 <br>
 
