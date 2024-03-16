@@ -90,9 +90,9 @@ And gratefully, I always will.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/1987-0000_Poem_'Innocence_Wins'_by_Edward_Saugstad_(Page_1_of_2),_Cambridge,_UK.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/1987-0000_Poem_'Innocence_Wins'_by_Edward_Saugstad_(Page_1_of_2)_Cambridge_UK.jpg" /></div>
 
-<div style="text-align: center"><img src="/images/1987-0000_Poem_'Innocence_Wins'_by_Edward_Saugstad_(Page_2_of_2),_Cambridge,_UK.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/1987-0000_Poem_'Innocence_Wins'_by_Edward_Saugstad_(Page_2_of_2)_Cambridge_UK.jpg" /></div>
 
 <br>
 

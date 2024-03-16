@@ -107,9 +107,9 @@ New hope shine for each boy and girl.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'The_Bully_and_the_Ghost'_by_Edward_Saugstad_(Page_1_of_2).jpg" /></div>
+<div style="text-align: center"><img srchttps://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'The_Bully_and_the_Ghost'_by_Edward_Saugstad_(Page_1_of_2).jpg" /></div>
 
-<div style="text-align: center"><img src="/images/Poem_'The_Bully_and_the_Ghost'_by_Edward_Saugstad_(Page_2_of_2).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'The_Bully_and_the_Ghost'_by_Edward_Saugstad_(Page_2_of_2).jpg" /></div>
 
 <br>
 

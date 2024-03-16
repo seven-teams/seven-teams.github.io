@@ -72,9 +72,9 @@ To come as <font color="red">Comforter</font> to you.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/1999-1200_Poem_'Christmas_Comfort'_by_Edward_Saugstad_(Page_1_of_2).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/1999-1200_Poem_'Christmas_Comfort'_by_Edward_Saugstad_(Page_1_of_2).jpg" /></div>
 
-<div style="text-align: center"><img src="/images/1999-1200_Poem_'Christmas_Comfort'_by_Edward_Saugstad_(Page_2_of_2).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/1999-1200_Poem_'Christmas_Comfort'_by_Edward_Saugstad_(Page_2_of_2).jpg" /></div>
 
 <br>
 

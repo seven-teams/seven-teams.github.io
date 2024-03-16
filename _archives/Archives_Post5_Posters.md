@@ -41,7 +41,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>P4.</b></font> <b>1992-0600 Poster for Public Programs on 0701 and 0702 at 'Artemis' in Amsterdam, Netherlands (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
-<div style="text-align: center"><img src="/images/1992-0600_Poster_for_Public_Programs_on_0701_and_0702_at_'Artemis'_in_Amsterdam,_Netherlands_(Jo_Bajescu_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1992-0600_Poster_for_Public_Programs_on_0701_and_0702_at_'Artemis'_in_Amsterdam_Netherlands_(Jo_Bajescu_Collection).jpeg" /></div>
 
 <br>
 
@@ -65,7 +65,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>P8.</b></font> <b>1994-0900 Poster for Public Programs on 1001 and 1003 in New York City, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
-<div style="text-align: center"><img src="/images/1994-0900_Poster_for_Public_Programs_on_1001_and_1003_in_New_York_City,_NY,_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1994-0900_Poster_for_Public_Programs_on_1001_and_1003_in_New_York_City_NY_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
 
 <br>
 

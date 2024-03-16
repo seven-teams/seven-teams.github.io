@@ -105,7 +105,7 @@ And laughed "tee-hee"<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'How_to_hug_a_Baby_Bear'_by_Edward_Saugstad.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'How_to_hug_a_Baby_Bear'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 
