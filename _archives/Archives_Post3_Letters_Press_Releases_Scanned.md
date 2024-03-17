@@ -56,4 +56,6 @@ The Comprehensive Compilations Team<br>
 
 <font color="DarkGreen"><b>PR1.</b></font> <b>1988-0126 Press Release, Interview with Foreign Correspondents (29 Republic Day), On the Controversy of Dr. Bhimrao Ramji Ambedkar and His Role in the Framing of the Indian Constitution, Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India (Yogi Mahajan Collection)</b> (2 pages, uploaded on 2023-0201)
 
-<iframe src="/pdf/?usedownload=true#/files/1988-0126_Press_Release,_Interview,_On_the_Controversy_of_Dr._Ambedkar,_Pratishthan,_Pune,_MH,_India,_(Yogi_Mahajan_Collection).pdf" width="1000px" height="1000px"></iframe>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1988-0126_Press_Release_Interview_with_Foreign_Correspondents_(29_Republic_Day)_On_the_Controversy_of_Dr._Bhimrao_Ramji_Ambedkar_and_His_Role_in_the_Framing_of_the_Indian_Constitution_Pratishthan_NDA_Road_Warje_Pune_P1_(Yogi_Mahajan_Coll).jpg" /></div>
+
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1988-0126_Press_Release_Interview_with_Foreign_Correspondents_(29_Republic_Day)_On_the_Controversy_of_Dr._Bhimrao_Ramji_Ambedkar_and_His_Role_in_the_Framing_of_the_Indian_Constitution_Pratishthan_NDA_Road_Warje_Pune_P2_(Yogi_Mahajan_Coll).jpg" /></div>

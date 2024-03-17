@@ -25,6 +25,6 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 [Download the original CCT scan pdf here](https://bit.ly/Sahaj_Patrika_Hindi_Issue_1)
 
-<iframe src="/pdf/?usedownload=true#/files/1995_1205_Sahaj_Patrika_(Hindi)_Issue_2,_New_Delhi_CCT_Scans_Collection_low-compressed.pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1995_1205_Sahaj_Patrika_(Hindi)_Issue_2_New_Delhi_CCT_Scans_Collection_low-compressed.pdf" width="1000px" height="1000px"></iframe>
 
 <br>

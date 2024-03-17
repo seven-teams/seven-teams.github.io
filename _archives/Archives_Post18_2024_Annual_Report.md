@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Here is the progress made in the last year (since the first annual report on 2023-0316).
+Here is the progress made in the last year (since the first annual report on 2023-0316), in relation to the <a href="https://seven-teams.github.io/archives/table.html"> <font color="blue"><b>Data Table</b></font></a> and the <a href="https://seven-teams.github.io/archives/"> <font color="blue"><b>Archive Posts</b><br>
 <br>
 <b>Second Summary of the 14 numerical indices.</b><br>
 i. Rows of the Table: 1,932 (an increment of 652 rows, i.e., of 1.7814 rows per day).<br> 

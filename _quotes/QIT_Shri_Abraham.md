@@ -747,6 +747,20 @@ Their job was just to give awakening to people."<br>
 <div class="para-divider"></div>
 
 <p>
+"Now, so first we put our right hand on our heart. And then we put our right hand in the upper portion of our abdomen where is the center of our mastery. This is created by all the Great Masters. <font color="red">Like Abraham, Moses, Lao Tze, so many of Them who were real Masters, They have created this.</font> Like Guru Nāṇaka, Janaka, all these people have created this great center within us."<br>
+<font size="+0"><b>1990-0811 Public Program, Canadadeśha, Music Academy, 1270 Chestnut Street, Kitsilano, Vancouver, BC, Canada</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"For example, in the Arabic countries, Zoroaster took birth five times, and later many Ādi Gurus took birth, like Abraham, Moses, and last of all Śhrī Muhammad Sāhib also took birth there. Because it was very necessary, and that is why these Gurus took birth to accomplish some definite work."</font><br>
 <font size="+0"><b>1991-0101 New Year Pūjā (Hindi+English), Mukand Steel Factory, Kalwa, Thane, Maharashtra, India</b></font>
 </p>

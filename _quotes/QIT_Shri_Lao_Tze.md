@@ -369,7 +369,10 @@ This is the only problem we have. That: we have all the ideals, we have all the 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"This is Yin and Yang, is, if you see these two are Yin and Yeng [Yang]. And what is described in the martial arts is, is actually later on followed by it.<br>
+But actually Zen is nothing, Zen means meditation. Zen, Zen means meditation.<br>
+<font color="red">And, you see, the description, even of Lao Tze, of Tao is the same of the Kuṇḍalinī rising. You see, the Yangtze River, I've gone through that, you see, and it's really the description of the Kuṇḍalinī Itself how It raises, and Tao is nothing but the Kuṇḍalinī. He's describes that. The name is different. But Ta-o means the Kuṇḍalinī.</font><br>
+Now, these are the two things which are in our brain, you see, really placed like that, Yin and Yang. You see there, if you cut your heads transverse you will find these two things placed like that, this Yin and Yang. And this is what Zen was talking about."<br>
 <font size="+0"><b>1985-0303 Public Program, Adelaide, SA, Australia</b></font>
 </p>
 
@@ -614,7 +617,7 @@ But only thing it was not so said so clearly. Because there were not people inte
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now, so first we put our right hand on our heart. And then we put our right hand in the upper portion of our abdomen where is the center of our mastery. This is created by all the Great Masters. <font color="red">Like Abraham, Moses, Lao Tze, so many of Them who were real Masters, They have created this.</font> Like Guru Nāṇaka, Janaka, all these people have created this great center within us."<br>
 <font size="+0"><b>1990-0811 Public Program, Canadadeśha, Music Academy, 1270 Chestnut Street, Kitsilano, Vancouver, BC, Canada</b></font>
 </p>
 
@@ -685,14 +688,19 @@ And this represents ten valencies, like Ten Commandments. Carbon has got four va
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"The first wrong idea he [Paul] started was that ... of original sin.<br>
+How can it be original sin, when He attended the wedding?<br>
+[Repeats for th translator:] How can marriage be an original sin [<font color="orange">unclear</font>]?<br>
+He attended the wedding! That means, did He want to encourage the original sin‽ 'That means all those who got married have been committing original sins. <font color="red">Śhrī Rāma, Śhrī Kṛiṣhṇa, Muhammad Sāhab, uh-uh-uh Nāṇak Sāhab, Lao Tze, all of Them got married: They were all sinners.</font>' On absolutely wrong premises."<br>
 <font size="+0"><b>1992-0723 Public Program, Zala Festivalna, 1111 ж.к. Гео Милев, Sofia, Bulgaria</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"William Blake, a great poet from England, has said that, ``This idea of original sin has been invented by some devil."<br>
+<font color="red">According to this [idea], everybody and every Incarnation, like Śhrī Kṛiṣhṇa, Śhrī Rāma, Muhammad Sāhab, Nāṇak Sāhab, Lao Tze, everybody is a sinner!</font><br>
+Such an absurd thing that was put forward, and because it was a very dominating religion, was the official religion behaving like a tyrannical king, people had to accept! Those people who did not believe in it were boiled, were roasted in the huts."<br>
 <font size="+0"><b>1992-0724 Public Program, Salle Gaveau, 45-47 Rue La Boétie, Paris, France</b></font>
 </p>
 
@@ -777,7 +785,8 @@ Is such a beautiful description, and I have seen it Myself when I can understand
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"And you know everything! All the subtle knowledge which was not known to you.<br>
+<font color="red">Then you can understand uh-uh-uh Tao of Lao Tze, you can ... you can understand uh Buddha, Zen, Viditama, Christ, and all other Incarnations. You get connected to them. And that is how you achieve this power.</font>"<br>
 <font size="+0"><b>1994-0420 Public Program, Taipei City, Taiwan}\label{1994-0420 Public Program, Taipei City, Taiwan</b></font>
 </p>
 

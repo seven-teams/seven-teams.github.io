@@ -636,6 +636,21 @@ That was also important part. But that was forgot[ten]!<br>
 <div class="para-divider"></div>
 
 <p>
+"Now, so first we put our right hand on our heart. And then we put our right hand in the upper portion of our abdomen where is the center of our mastery. This is created by all the Great Masters. Like Abraham, Moses, Lao Tze, so many of Them who were real Masters, They have created this. <font color="red">Like Guru Nāṇaka, Janaka, all these people have created this great center within us.</font>"<br>
+<font size="+0"><b>1990-0811 Public Program, Canadadeśha, Music Academy, 1270 Chestnut Street, Kitsilano, Vancouver, BC, Canada</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+
+<p>
 "During the Tretā Yuga, at the time of Śhrī Rāma, Ādi Śhakti incarnated in three separate human personalities, expressing Her three aspects:<br>
 <br>
 \; <font color="red">1. Sītā [Jānakī] (Mahālakṣhmī) as the daughter of Rāja Janaka</font><br>

@@ -1327,6 +1327,20 @@ But no one really thought about it that, 'Is the Truth,' or that there should ha
 <div class="para-divider"></div>
 
 <p>
+"Now, so first we put our right hand on our heart. And then we put our right hand in the upper portion of our abdomen where is the center of our mastery. This is created by all the Great Masters. Like Abraham, Moses, Lao Tze, so many of Them who were real Masters, They have created this. <font color="red">Like Guru Nāṇaka, Janaka, all these people have created this great center within us.</font>"<br>
+<font size="+0"><b>1990-0811 Public Program, Canadadeśha, Music Academy, 1270 Chestnut Street, Kitsilano, Vancouver, BC, Canada</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "All the Saints have said that, "You have to know your Self." Unless and until you know your Self, the illusion and the ignorance won't go.<br>
 If you see in the Chinese, right from Confucius, Lao Tze, all of them have talked about it. For Christians, Christ has said the same thing.<font color="red"> For Sikhs, Guru Nāṇaka has the said the same thing, that, "You must seek the Truth."</font> "<br>
 <font size="+0"><b>1990-1101 Public Program, Day 1, Girls Guide Hall, Brickfields, Kuala Lumpur, Malaysia</b></font>
@@ -1364,6 +1378,32 @@ While we all have this Divinity within ourselves, we have all these powers withi
 This-s old science is not only from India. It comes from everywhere. <font color="red">As I told you Confucius knew this, Socrates knew this, and, also, many people like William Blake and C.S. Lewis, all these people knew about it.</font><br>
 But nobody could put it through to people because, I think, people did not want to accept it."<br>
 <font size="+0"><b>1992-0226 Public Program, Christchurch Town Hall (now Christchurch Town Hall of the Performing Arts), 86 Kilmore Street, Christchurch Central City, Christchurch, New Zealand</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"The first wrong idea he [Paul] started was that ... of original sin.<br>
+How can it be original sin, when He attended the wedding?<br>
+[Repeats for th translator:] How can marriage be an original sin [<font color="orange">unclear</font>]?<br>
+He attended the wedding! That means, did He want to encourage the original sin‽ 'That means all those who got married have been committing original sins. <font color="red">Śhrī Rāma, Śhrī Kṛiṣhṇa, Muhammad Sāhab, uh-uh-uh Nāṇak Sāhab, Lao Tze, all of Them got married: They were all sinners.</font>' On absolutely wrong premises."<br>
+<font size="+0"><b>1992-0723 Public Program, Zala Festivalna, 1111 ж.к. Гео Милев, Sofia, Bulgaria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"William Blake, a great poet from England, has said that, ``This idea of original sin has been invented by some devil."<br>
+<font color="red">According to this [idea], everybody and every Incarnation, like Śhrī Kṛiṣhṇa, Śhrī Rāma, Muhammad Sāhab, Nāṇak Sāhab, Lao Tze, everybody is a sinner!</font><br>
+Such an absurd thing that was put forward, and because it was a very dominating religion, was the official religion behaving like a tyrannical king, people had to accept! Those people who did not believe in it were boiled, were roasted in the huts."<br>
+<font size="+0"><b>1992-0724 Public Program, Salle Gaveau, 45-47 Rue La Boétie, Paris, France</b></font>
 </p>
 
 <div class="para-divider"></div>

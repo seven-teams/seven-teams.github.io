@@ -1633,6 +1633,30 @@ But nobody could put it through to people because, I think, people did not want 
 <div class="para-divider"></div>
 
 <p>
+"The first wrong idea he [Paul] started was that ... of original sin.<br>
+How can it be original sin, when He attended the wedding?<br>
+[Repeats for th translator:] How can marriage be an original sin [<font color="orange">unclear</font>]?<br>
+He attended the wedding! That means, did He want to encourage the original sin‽ 'That means all those who got married have been committing original sins. <font color="red">Śhrī Rāma, Śhrī Kṛiṣhṇa, Muhammad Sāhab, uh-uh-uh Nāṇak Sāhab, Lao Tze, all of Them got married: They were all sinners.</font>' On absolutely wrong premises."<br>
+<font size="+0"><b>1992-0723 Public Program, Zala Festivalna, 1111 ж.к. Гео Милев, Sofia, Bulgaria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"William Blake, a great poet from England, has said that, ``This idea of original sin has been invented by some devil."<br>
+<font color="red">According to this [idea], everybody and every Incarnation, like Śhrī Kṛiṣhṇa, Śhrī Rāma, Muhammad Sāhab, Nāṇak Sāhab, Lao Tze, everybody is a sinner!</font><br>
+Such an absurd thing that was put forward, and because it was a very dominating religion, was the official religion behaving like a tyrannical king, people had to accept! Those people who did not believe in it were boiled, were roasted in the huts."<br>
+<font size="+0"><b>1992-0724 Public Program, Salle Gaveau, 45-47 Rue La Boétie, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<p>
 "The first thing was the idea of original sin.<br>
 William Blake, a great poet, said: that, :This idea has come through the head of some Satan."<br>
 According to this theory, 'Everyone of us is a sinner, all the Incarnations like Śhrī Kṛiṣhṇa, Śhrī Rāma, They were sinners. <font color="red">Prophets like Muhammad, Nāṇaka, Lao Tze, all of Them were sinners.</font>'<br>

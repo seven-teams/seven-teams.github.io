@@ -226,6 +226,22 @@ Then seriousness developed and the people became serious-minded, and made their 
 <div class="para-divider"></div>
 
 <p>
+"And you know everything! All the subtle knowledge which was not known to you.<br>
+<font color="red">Then you can understand uh-uh-uh Tao of Lao Tze, you can ... you can understand uh Buddha, Zen, Viditama, Christ, and all other Incarnations. You get connected to them. And that is how you achieve this power.</font>"<br>
+<font size="+0"><b>1994-0420 Public Program, Taipei City, Taiwan}\label{1994-0420 Public Program, Taipei City, Taiwan</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+
+<p>
 <font color="red">""</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 10: The Central Path of Sustenance</b></font>
 </p>
