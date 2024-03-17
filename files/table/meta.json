@@ -81,6 +81,7 @@
   },
   "Remarks": {
     "filter": { "type": true },
+    "sorter": { "enable": true },
     "popup": { "enable": true }
   },
   "Formats": {
