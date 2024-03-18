@@ -13,7 +13,7 @@ tags:
 The substance is like the ocean which flows continuously towards the shores and the ripples which touch the shores are again repelled back, and a nice pattern is formed. It is such a spontaneous thing and is so beautiful, creates such a beautiful pattern in the atmosphere. All these waves when they weave together the pattern of love they soothe human beings, they enchant human beings and the whole thing is very blissful.<br>
 On such occasions, a special type of feelings develop, which we cannot express in words so the expression could be in any form. But the main thing is the expression. God has expressed Himself by Creation, by creating this Creation. While the Creation has to express its gratitude by glorifying Him, and this play must go on eternally. It’s the most beautiful play. Those who indulge into this play lead an eternal life.<br>
 That life is unending, never breaks and binds the whole universe with its beautiful music."</font><br>
-<font size="+0"><b>1980-0323 Birthday Pūjā, Guarding Against Slothfulness, London BVB, UK</b></font>
+<font size="+0"><b>1980-0323 Birthday Pūjā, Guarding Against Slothfulness, Bharatiya Vidya Bhavan, 4A Castletown Road, London W14 9HE, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image646.png" /></div>

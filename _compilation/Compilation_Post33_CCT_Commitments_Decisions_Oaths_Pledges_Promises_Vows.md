@@ -254,7 +254,7 @@ Then this correction portion starts. You start thinking about yourself more than
 
 <p>
 <font color="DarkRed">""</font><br>
-<font size="+0"><b>1980-0323 Birthday Pūjā, Guarding Against Slothfulness, London BVB, UK</b></font>
+<font size="+0"><b>1980-0323 Birthday Pūjā, Guarding Against Slothfulness, Bharatiya Vidya Bhavan, 4A Castletown Road, London W14 9HE, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
