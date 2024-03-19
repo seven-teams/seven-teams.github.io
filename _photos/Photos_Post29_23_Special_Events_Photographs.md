@@ -1,7 +1,7 @@
 ---
-title: 'Photos Post 29: Special Events (after 1975), Part 10'
-date: 2024-02-17
-permalink: /photos/2024/0217
+title: 'Photos Post 29: Special Events (after 1975), Part 23'
+date: 2024-03-19
+permalink: /photos/2024/0319-a
 tags:
   - blue @ Special Events Photographs
   - crimson @ Photographs of Shri Mataji
@@ -12,9 +12,8 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 6 Photos of the special event <font color="Crimson"><b>1993-1007 Public Program, Vancouver, Canada</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution and 5 medium resolutions from the Named Collections.<br>
+We are pleased to let you know that 6 Photos of the special event <font color="Crimson"><b>1993-1006 Arrival, Vancouver, Canada</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 6 medium resolutions from the Named Collections.<br>
 The direct link to the 6 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad/1993">Collection 1993</a>.<br>
-[Note: 2 Photos were uploaded only on 2024-0319.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
