@@ -112,7 +112,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>2000SYAUSNEW15.</b></font> <b>2000-0609 Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (9 pages, original file, uploaded on 2023-0821)
 
-<iframe src="/pdf/?usedownload=true#/files/2000-0609Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#/files/2000-0609_Sahaja_Yoga_Australian_Newsletter_(Gerald_Sullivan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 

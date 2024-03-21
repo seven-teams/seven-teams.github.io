@@ -31,7 +31,7 @@ And of who casts that teardrop that now, bestows life unto a bud.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'A_tear'_by_Dan_Allen.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'A_tear'_by_Dan_Allen.jpg" /></div>
 
 <br>
 
