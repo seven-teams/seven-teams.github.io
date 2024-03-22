@@ -30,7 +30,7 @@ Nirvikalpa.....<br>
 
 <br>
 
-<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'What_peace_is%3F'_by_Dan_Allen.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'What_peace_is'_by_Dan_Allen.jpg" /></div>
 
 <br>
 
