@@ -34,7 +34,7 @@ Prophesied we'd all stand together on Bharat's shore.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'Sonnet_For_Tagore'_by_Alan_Wherry.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'Sonnet_For_Tagore'_by_Alan_Wherry.jpg" /></div>
 
 <br>
 

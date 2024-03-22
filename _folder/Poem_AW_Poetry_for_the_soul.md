@@ -50,7 +50,7 @@ In Shri Mataji's room at 4 am I knew her divinity.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'Poetry_for_the_soul'_by_Alan_Wherry.png" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'Poetry_for_the_soul'_by_Alan_Wherry.png" /></div>
 
 <br>
 

@@ -42,7 +42,7 @@ sheaves rocked in your arms.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_For_A_Daughter_by_Lynne_Bryer.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'For_A_Daughter'_by_Lynne_Bryer.jpg" /></div>
 
 <br>
 

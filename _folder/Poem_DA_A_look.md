@@ -26,7 +26,7 @@ To awaken the love in shelled for so long in mankind.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'A_look_to_show_the_future'_by_Dan_Allen.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'A_look_to_show_the_future'_by_Dan_Allen.jpg" /></div>
 
 <br>
 

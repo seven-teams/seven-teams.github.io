@@ -24,7 +24,7 @@ in the light of Love</i><br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'I_am_but_a_puppet'_by_Edward_Saugstad_(with_the_Blue_Fairy_and__Pinocchio_characters_of_the_1940_Movie_'Pinocchio').jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'I_am_but_a_puppet'_by_Edward_Saugstad_(with_the_Blue_Fairy_and__Pinocchio_characters_of_the_1940_Movie_'Pinocchio').jpg" /></div>
 
 <br>
 

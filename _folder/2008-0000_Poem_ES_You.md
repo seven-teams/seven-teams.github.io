@@ -56,7 +56,7 @@ And soul and joy will never part.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/2008-0000_Poem_'You'_by_Edward_Saugstad.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/2008-0000_Poem_'You'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 

@@ -62,7 +62,7 @@ In the wind and in this poem.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/1998-0000_Poem_'Hanumana_Hugs_Your_Heart'_by_Edward_Saugstad.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/1998-0000_Poem_'Hanumana_Hugs_Your_Heart'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 

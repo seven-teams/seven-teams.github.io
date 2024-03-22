@@ -62,7 +62,7 @@ When all the mother’s warrior will be in heaven<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/2013-0725_Poem_'Journey...'_by_Prasad_Salunkhe.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/2013-0725_Poem_'A_Day_will_come'_by_Prasad_Salunkhe.jpg" /></div>
 
 <br>
 

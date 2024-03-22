@@ -56,7 +56,7 @@ This was the way it had to be.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/1990-0200_Poem_'Release'_by_Lynne_Bryer.webp" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/1990-0200_Poem_'Release'_by_Lynne_Bryer.webp" /></div>
 
 <br>
 

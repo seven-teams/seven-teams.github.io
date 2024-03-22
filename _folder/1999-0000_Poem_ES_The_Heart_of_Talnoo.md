@@ -42,7 +42,7 @@ Up near the sweet Talnoo Sahaja School.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/1999-0000_Poem_'The_Heart_of_Talnoo'_by_Edward_Saugstad.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/1999-0000_Poem_'The_Heart_of_Talnoo'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 

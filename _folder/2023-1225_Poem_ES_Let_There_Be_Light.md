@@ -32,7 +32,7 @@ That this will include all mankind.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/2023-1225_Poem_'Let_There_Be_Light'_by_Edward_Saugstad.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/2023-1225_Poem_'Let_There_Be_Light'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 

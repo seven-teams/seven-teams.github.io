@@ -72,7 +72,7 @@ And here I was at home, at last.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'Sweet_Nirvicharita'_by_Edward_Saugstad.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'Sweet_Nirvicharita'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 

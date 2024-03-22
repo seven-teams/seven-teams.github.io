@@ -40,7 +40,7 @@ In separation have I suffered long,<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'I_have_become_the_hollow_drum'_by_Edward_Saugstad.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'I_have_become_the_hollow_drum'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 

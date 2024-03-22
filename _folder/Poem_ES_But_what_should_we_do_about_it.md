@@ -36,7 +36,7 @@ heart brimming with love.<br>
 
 <br>
 
-<div style="text-align: center"><img src="/images/Poem_'But_what_should_we_do_about_it'_by_Edward_Saugstad.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_'But_what_should_we_do_about_it'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 
