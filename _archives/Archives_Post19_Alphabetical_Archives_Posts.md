@@ -42,4 +42,4 @@ tags:
 <b>15.</b> <a href="https://seven-teams.github.io/archives/2023/0706-b"><font color="maroon"><b>The Sahaj Patrika (ISPS, English)</b></font></a>: 1 file<br>
 <br>
 <b>SPECIAL POSTS:</b><br>
-<b>S1.</b> <a href="https://seven-teams.github.io/archives/2023/0826"><font color="maroon"><b>Articles Honoring Sir C.P.</b></font></a>: 1 file<br>
+<b>S1.</b> <a href="https://seven-teams.github.io/archives/2023/0826"><font color="maroon"><b>Articles Honoring Sir C.P.</b></font></a>: 4 files<br>
