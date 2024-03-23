@@ -28,7 +28,9 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>1995THEAUSSAHNEW1.</b></font> <b>1995-0113 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1209 as 2 and 5 pages)
 
-<iframe src="/pdf/?usedownload=true#/files/1995-0113_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1995-0120_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1995-0120_The_Australian_Sahaja_Newsletter_Version_2_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1995-0113_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 

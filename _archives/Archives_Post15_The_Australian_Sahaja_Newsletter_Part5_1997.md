@@ -54,6 +54,18 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
+<font color="DarkGreen"><b>1997THEAUSSAHNEW5.</b></font> <b>1997-0405 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2024-0323)
+
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1997-0405_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
+<font color="DarkGreen"><b>1997THEAUSSAHNEW5.</b></font> <b>1997-0412 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2024-0323)
+
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1997-0412_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
 <font color="DarkGreen"><b>1997THEAUSSAHNEW5.</b></font> <b>1997-0419 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1213 as 2 and 4 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1997-0419_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
@@ -98,7 +110,10 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>1997THEAUSSAHNEW11.</b></font> <b>1997-0531 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1213 as 2 and 5 pages)
 
-<iframe src="/pdf/?usedownload=true#/files/1997-0531_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1997-0531_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1997-0531_The_Australian_Sahaja_Newsletter_Version_2_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1997-0531_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 

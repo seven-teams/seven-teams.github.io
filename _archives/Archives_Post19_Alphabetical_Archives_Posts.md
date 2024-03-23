@@ -32,12 +32,12 @@ tags:
  &emsp; &emsp; &emsp;<b>12.3.</b> <a href="https://seven-teams.github.io/archives/2023/0817"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 3 (2002)</b></font></a>: 42 files<br>
  &emsp; &emsp; &emsp;<b>12.4.</b> <a href="https://seven-teams.github.io/archives/2023/0727"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 4 (2003)</b></font></a>: 41 files<br>
  &emsp; &emsp; &emsp;<b>12.5.</b> <a href="https://seven-teams.github.io/archives/2023/0706-a"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 5 (2004)</b></font></a>: 16 files<br>
-<b>13.</b> <b>The Australian Sahaja Newsletter</b>: Total files 150<br>
+<b>13.</b> <b>The Australian Sahaja Newsletter</b>: Total files 152<br>
  &emsp; &emsp; &emsp;<b>13.1.</b> <a href="https://seven-teams.github.io/archives/2023/0914"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 1 (1993)</b></font></a>: 14 files<br>
  &emsp; &emsp; &emsp;<b>13.2.</b> <a href="https://seven-teams.github.io/archives/2023/1007"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 2 (1994)</b></font></a>: 39 files<br>
  &emsp; &emsp; &emsp;<b>13.3.</b> <a href="https://seven-teams.github.io/archives/2023/1209"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 3 (1995)</b></font></a>: 36 files<br>
  &emsp; &emsp; &emsp;<b>13.4.</b> <a href="https://seven-teams.github.io/archives/2023/1210"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 4 (1996)</b></font></a>: 36 files<br>
- &emsp; &emsp; &emsp;<b>13.5. <a href="https://seven-teams.github.io/archives/2023/1213"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 5 (1997)</b></font></a>: 25 files</b><br>
+ &emsp; &emsp; &emsp;<b>13.5. <a href="https://seven-teams.github.io/archives/2023/1213"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 5 (1997)</b></font></a>: 27 files</b><br>
 <b>14.</b> <a href="https://seven-teams.github.io/archives/2023/0713"><font color="maroon"><b>The Life Eternal Trust India Annual Magazines and Souvenirs</b></font></a>: 3 files<br>
 <b>15.</b> <a href="https://seven-teams.github.io/archives/2023/0706-b"><font color="maroon"><b>The Sahaj Patrika (ISPS, English)</b></font></a>: 1 file<br>
 <br>
