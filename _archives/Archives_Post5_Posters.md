@@ -101,4 +101,4 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>P14.</b></font> <b>2001-0700 Poster for Public Program on 0802 at Empire State Plaza, Albany, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227), <font color="SeaGreen"><b>
 
-<div style="text-align: center"><img src="/images/2001-0700_Poster_for_Public_Program_on_0802_at_Empire_State_Plaza,_Albany,_NY,_U.S.A._(Jo_Bajescu_Collection).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2001-0700_Poster_for_Public_Program_on_0802_at_Empire_State_Plaza_Albany_NY_U.S.A._(Jo_Bajescu_Collection).jpg" /></div>

@@ -149,7 +149,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A21.</b></font> <b>2003-0417 Article 'Ever more enduring at eighty' by Meher Moos published in 'The Afternoon Despatch & Courier', Page 10, Mumbai, Maharashtra, India (Mrs. Kalpana Srivastava Collection)</b> (1 page, uploaded on 2023-0824)
 
-<div style="text-align: center"><img src="/images/2003-0417_Article_'Ever_more_enduring_at_eighty'_by_Meher_Moos_published_in_'The_Afternoon_Despatch_Courier',_Page_10,_Mumbai,_Maharashtra,_India_(Mrs._Kalpana_Srivastava_Collection).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2003-0417_Article_'Ever_more_enduring_at_eighty'_by_Meher_Moos_published_in_'The_Afternoon_Despatch_Courier'_Page_10_Mumbai_Maharashtra_India_(Mrs._Kalpana_Srivastava_Collection).jpg" /></div>
 
 <br>
 
