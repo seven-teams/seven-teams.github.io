@@ -38,7 +38,7 @@ The Comprehensive Compilations Team<br>
 
 <br>
 
-<iframe src="/pdf/?usedownload=true#/files/1981-1222_Letter_(Marathi)_of_Ramesh_Modi_to_Raul_Bai_(Mahipalsingh_Jaisingh_Raul_Coll,_scanned_by_Ankit_Khare).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1981-1222_Letter_(Marathi)_of_Ramesh_Modi_to_Raul_Bai_(Mahipalsingh_Jaisingh_Raul_Coll_scanned_by_Ankit_Khare).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
