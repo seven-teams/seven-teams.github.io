@@ -97,7 +97,7 @@ New centers should be opened.<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image1002.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1002.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>You are my brothers and sisters<br>

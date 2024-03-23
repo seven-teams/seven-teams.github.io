@@ -14,7 +14,7 @@ tags:
 <font size="+0"><b>1992-0927 Navarātri Pūjā (1st Day), 10th Position or Divine Knowledge is the Reality, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1048.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1048.png" /></div>
 
 <p style="text-align:center;">
 <font color="red">"The siddhis that people attempt to achieve are: Aṇima, Laghima, Mahima, Īśhatva, Vaśhitva, Prākāmya, Bhukti, Icchā, Prāpti, Mukti. Aṇima is to become like a small particle.<br>

@@ -31,7 +31,7 @@ Now you should assume your power. On Navarātri now, you should understand that 
 <font size="+0"><b>1992-0927 Navarātri Pūjā (1st Day), 10th Position or Divine Knowledge is the Reality, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1052.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1052.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"On this day of this Pūjā, <b>it’s such a combination that it’s the Dussehra, I am here and also you can call it the last day of the Devī Pūjā.</b><br> 

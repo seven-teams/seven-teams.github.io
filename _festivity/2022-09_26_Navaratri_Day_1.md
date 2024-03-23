@@ -15,7 +15,7 @@ He has never worshiped anybody else except Mother. Hence He is so great. All oth
 <font size="+0"><b>1978-1002 Letter to All Sahaja Yogis (Marathi) (1st Day of Navarātri), London, UK from Nirmala Yoga, Issue 11 (September-October 1982), Pages 25 and 26</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1019.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1019.png" /></div>
 
 <p style="text-align:center;">
 <font color="red">"Today we worship the Himalayas and the seven Goddesses whose blessings are here and pray to them to bless us with Devī Śhakti.<br>
