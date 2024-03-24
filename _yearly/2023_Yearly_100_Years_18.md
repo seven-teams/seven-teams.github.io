@@ -9,7 +9,7 @@ tags:
 <br>
 <div style="text-align: left"><img src="/images/100Years.jpg" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image1190_1995-0604_Photo_credit_Michael_Markl.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1190_1995-0604_Photo_credit_Michael_Markl.jpg" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
