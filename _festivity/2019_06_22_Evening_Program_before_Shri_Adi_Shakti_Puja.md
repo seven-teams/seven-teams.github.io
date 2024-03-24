@@ -32,7 +32,7 @@ the Goddess Shri Mataji Nirmala Devi<br>
 <font size="+0"><b>1977-0126 Talk to Sahaja Yogis (28th Republic Day), Day 1, Questions on Chakras, Bordi, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image111.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image111.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Shri Adi Shakti, to describe You is the work of poets and saints, yet words cannot even begin to express Your magnificence.<br>

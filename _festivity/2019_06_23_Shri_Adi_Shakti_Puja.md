@@ -51,7 +51,7 @@ Shrī-Devī Atharva-Shīrsham (The highest praise of the supreme Devi)</font><br
 <font size="+0"><b>1996-0609 Śhrī Ādi Śhakti Pūjā, Kuṇḍalinī -- the Binding Principle or You Dissolve into the Divine Power, Hangar, Cabella Ligure, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image113.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image113.png" /></div>
 
 <p style="text-align:center;">
 <font size="-1"><font color="DarkGreen"><b>Bin.ti Suniye Adi Shakti Meri</b></font></font><br>
