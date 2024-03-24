@@ -1,10 +1,10 @@
 ---
-title: 'Poem &#8216;The Mother of the Universe&#8217; by Ganeshan from 1979-1200 Anant Jeevan, Page 25'
+title: 'Poem &#8216;The Mother of the Universe&#8217; by S. Ganeshan from 1979-1200 Anant Jeevan, Page 25'
 date: 1979-12-01
 permalink: /folder/1979-1201-1200-G-The_Mother-of-the-Universe
 tags:
   - black @ Poetry
-  - blue @ Ganeshan
+  - blue @ S. Ganeshan
   - brown @ 1979
   - cornflowerblue @ TBD
   - deeppink @ 1979-1200 Anant Jeevan

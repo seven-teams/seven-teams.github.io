@@ -1,5 +1,5 @@
 ---
-title: 'Poem Be Right in the Middle Path by Jean-Michel Huet, Sydney from 2004-0319 Sahaja Yoga Australian Newsletter, Page 5'
+title: 'Poem &#8216;Be Right in the Middle Path&#8217; by Jean-Michel Huet, Sydney from 2004-0319 Sahaja Yoga Australian Newsletter, Page 5'
 date: 2004-03-19
 permalink: /folder/2004-0319-JMH-Be-Right-in-the-Middle-Path
 tags:
