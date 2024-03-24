@@ -36,7 +36,7 @@ And later on, or sometimes simultaneously, They incarnated in milder forms to he
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image525.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image525.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkSlateBlue"><b>Salutations to You O Goddess Chāmuṇḍā Nārāyanī,<br>

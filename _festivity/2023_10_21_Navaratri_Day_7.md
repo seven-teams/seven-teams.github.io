@@ -36,7 +36,7 @@ In those days, it was very simple because devils came as devils and you could se
 <font size="+0"><b>2001-1021 Navarātri Pūjā (5th Day), You Should Become Really Soldiers of Love and Peace (Overcome Hatred with Love or To Hate is a Very Bad Quality), Sportcamp, Avras, Loutraki, Greece</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1258.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1258.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
 <b>Tāmagnivarnā tapasā jwalanti. Vairochanim karma faleshu jushtām.<br>
