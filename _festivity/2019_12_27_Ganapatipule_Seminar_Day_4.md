@@ -38,7 +38,7 @@ Humble means not asking for your own comfort but comfort of others."</font><br>
 <font size="+0"><b>1982-0607 Talk to Sahaja Yogis, Nirmala Palace Āśhram, 99 Nightingale Lane, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image277.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image277.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">Auṃ Twameva sākshāt Śhrī Śhāntā sākshāt<br>

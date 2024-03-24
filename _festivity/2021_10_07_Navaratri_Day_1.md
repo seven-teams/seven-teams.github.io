@@ -137,7 +137,7 @@ We offer You this bath of Your Holy Feet, please accept it!</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image780.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image780.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Today we worship the Himalayas and the seven Goddesses whose blessings are here and pray to them to bless us with Devī Śhakti.<br>

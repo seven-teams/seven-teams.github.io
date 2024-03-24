@@ -92,7 +92,7 @@ In the same way, we have to promise that we will be consuming all that is evil, 
 <a href="https://www.youtube.com/watch?v=CnQgic6aK7E&ab_channel=SahajayogaCulture">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image531.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image531.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Now for the first time also that now you can give back to nature, to the Mother Earth, which is the womb of this universe.<br>

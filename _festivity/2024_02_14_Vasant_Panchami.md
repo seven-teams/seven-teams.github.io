@@ -103,7 +103,7 @@ It's even in the deeper sense, if you see, people who have created all the scien
 <font size="+0"><b>1979-1203 Public Program, Session 1 (morning), Realization Is Not of the Intellect, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1329.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1329.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue"><b>Sura-Asura-Sevita-Pāda-Pangkajā<br>

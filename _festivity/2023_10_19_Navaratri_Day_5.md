@@ -45,7 +45,7 @@ When this glāni takes place, then Incarnations are born to solve the problem."<
 <font size="+0"><b>1993-1024 Navarātri Pūjā (Dussehra Day), Reintrospect Yourself, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1246.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1246.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"You are Sahaja Yogis.<br>
