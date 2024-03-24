@@ -9,7 +9,7 @@ tags:
 <br>
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image990_Photo_credit_Michael_Markl.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image990_Photo_credit_Michael_Markl.jpg" /></div>
 
 <p style="color:DarkGreen; text-align:center">
 <font size="+2"><b>The Right Side Movement Is The Collectivity</b><br></font>

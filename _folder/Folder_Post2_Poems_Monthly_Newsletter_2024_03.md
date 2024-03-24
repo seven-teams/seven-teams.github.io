@@ -12,7 +12,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 Since the Febryary 2024 newsletter, the following 5 extra Poems have been uploaded.<br>
 1. <a href="https://seven-teams.github.io/folder/2024-0313-AW-Attention"> <font color="DeepPink"><b>Attention</b></font></a><br>
-2. <a href="https://seven-teams.github.io/folder/2024-0313-AW-Black-Brown-Red-White-Yellow"> <font color="DeepPink"><b>lack, Brown, Red, White and Yellow</b></font></a><br>
+2. <a href="https://seven-teams.github.io/folder/2024-0313-AW-Black-Brown-Red-White-Yellow"> <font color="DeepPink"><b>Black, Brown, Red, White and Yellow</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/2024-0313-AW-Dharmatit"> <font color="DeepPink"><b>Dharmatit</b></font></a><br>
 4. <a href="https://seven-teams.github.io/folder/2024-0313-AW-Divine-Discretion"> <font color="DeepPink"><b>Divine Discretion</b></font></a><br>
 5. <a href="https://seven-teams.github.io/folder/2018-0527-LV-why-not"> <font color="DeepPink"><b>Why not?</b></font></a><br>
