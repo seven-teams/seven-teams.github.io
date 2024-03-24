@@ -123,7 +123,7 @@ O Mother, please place them on my head too, taking mercy on me<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image1240.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1240.png" /></div>
 
 <p>
 <font color="DarkRed">"<b>Now what happens actually when you project this Pūjā?</b><br>

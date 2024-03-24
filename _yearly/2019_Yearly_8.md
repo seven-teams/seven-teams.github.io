@@ -9,7 +9,7 @@ tags:
 
 ![PICTURE 9](/images/image9.png)
 
-<div style="text-align: center"><img src="/images/image17.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image17.png" /></div>
 
 <br>
 <p style="color:DarkOrchid; text-align:center">

@@ -124,7 +124,7 @@ I bless you all from My heart, all of you, for a very happy and prosperous Diwā
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image560.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image560.png" /></div>
 
 <p style="text-align:center;">
 <font color="Crimson">"Lakṣhmī Principle that is understood, I’ve told you many a time, described Lakṣhmī to you that She stands on a lotus and She has two lotuses in Her hands.<br> 

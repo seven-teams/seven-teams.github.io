@@ -18,7 +18,7 @@ Islam is the name of that religion, is the religion of every Sahaja Yogi, of eve
 <font size="+0"><b>1980-1123 Śhrī Guru Nāṇaka Jayanti Pūjā, You Are to Become Prophets, Temple of All Faiths, Hampstead, London, UK (perhaps Caxton Hall)</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image571.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image571.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Is a great thing we are worshiping today Guru Nāṇaka, that's Me, that may you become Great Guru Nāṇakas. 

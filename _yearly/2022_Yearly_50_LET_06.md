@@ -8,7 +8,7 @@ tags:
 
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image896_Photo_credit_Jo_Bajescu.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image896_Photo_credit_Jo_Bajescu.jpg" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">

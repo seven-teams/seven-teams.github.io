@@ -126,7 +126,7 @@ Please grant us the boon of Śhrī Nirmala Vidyā.<br>
 <font size="+0"><b> 1990-0811 Śhrī Saraswatī Pūjā, Tent, Grounds, Āśhram, Lyons Bay (near Vancouver), BC, Canada</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image627.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image627.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue"><b>Sura-Asura-Sevita-Pāda-Pangkajā<br>

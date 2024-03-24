@@ -108,7 +108,7 @@ O my heart, please stay under the Mother's Protection</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image602.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image602.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one Teacher God, the Primordial Master, Dattātreya. 
