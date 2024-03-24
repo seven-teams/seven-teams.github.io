@@ -31,7 +31,7 @@ Is not a place you have come for holiday or just for some sort of a relaxation o
 <font size="+0"><b>1985-1230 Talk to Sahaja Yogis, Malgund (2.4 kms N of Gaṇapatīpuḷe), Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image579.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image579.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Here, as we see in Gaṇapatīpuḷe, Śhrī Gaṇeśhana ... uh <b>Gaṇeśha is in is ... Its complete, matured form</b> so that we develop also our Mahāgaṇeśha within ourselves, and our eyes become pure, powerful and divine.</font><br>

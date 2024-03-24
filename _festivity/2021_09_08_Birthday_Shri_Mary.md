@@ -16,7 +16,7 @@ Mahālakṣhmī’s Incarnation is very important for Sahaja Yoga. First She est
 <font size="+0"><b>1993-0908 Śhrī Mahālakṣhmī Pūjā, National Palace of Culture (NDK), Boulevard Bulgaria, 1463 NDK, Sofia, Bulgaria</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image764.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image764.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"I bow to all the Seekers of Truth.<br>

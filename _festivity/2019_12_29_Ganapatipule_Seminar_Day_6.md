@@ -15,7 +15,7 @@ All the culture, all the beauty of gracious living flows through happy married l
 <font size="+0"><b>1981-1129 Talk to Sahaja Yogis, Marriage is Meant to Give Joy or The Key of Married Life is Purity, after Marriages Celebration, Temple of All Faiths, Hampstead, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image282.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image282.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">Gehe nije varanadhamalasath karabhjaam,<br> 

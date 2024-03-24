@@ -14,7 +14,7 @@ Makar Saṅkrānti indicates the day when the Sun becomes warmer. The heat of th
 <font size="+0"><b>2002-0114 Makar Saṅkrānti Pūjā (Marathi), Gain Self-confidence from the Light of the Sun and Become Radiant, House of Kalpana Shrivastava, Mumbai, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image611.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image611.png" /></div>
 
 <p style="text-align:center;">
 <font color="Sienna"><b>"Saṅkrānti means Power of the Sun. Sun power means self-confidence. Sun gives us heat and light. 

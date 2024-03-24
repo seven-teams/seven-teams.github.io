@@ -22,7 +22,7 @@ Nirmalā"</font><br>
 <font size="+0"><b>1976-1021 Letter to Sahaja Yogis (Hindi) (Naraka Chaturdaśhī Day), Diwālī, 2, Parklands, Ice House Wood, Hurst Green, Oxted, Surrey, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1275.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1275.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"This well-being is brought forth with this Lakṣhmī, <b>with one hand that is giving, the another is the protection</b>. This hand which gives, should not, the other hand should not know. It should be so done so gracefully, graciously."</font><br>

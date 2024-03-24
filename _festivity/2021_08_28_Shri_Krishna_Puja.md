@@ -62,7 +62,7 @@ Love is the only way. Is not possible to have collectivity unless and you have .
 <font size="+0"><b>1984-0818 Śhrī Kṛiṣhṇa Pūjā (the day before Janmāṣhṭamī Day), Tent, Backyard, House of Judy Gaddy, 442 Liberty Road, Engelwood, NJ, U.S.A.</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image758.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image758.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"So, when you meet a friend, you know, how you feel like: just uh taking him to your heart.<br>

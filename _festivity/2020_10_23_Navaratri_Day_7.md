@@ -71,7 +71,7 @@ Salutation be to you, Devī Durgā.
 <font size="+0"><b>2002-1027 Navarātri Pūjā (13th day after Dussehra Day), Develop Wisdom through Meditation, Bhakti and Śhraddhā, Lake Piru Recreational Area Campground, 4780 Piru Canyon Rd, Piru (87 kms NW of Los Angeles), CA, U.S.A.</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image534.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image534.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"By worshiping the Goddess as the Protector of the whole Universe, praising Her different attributes, even Her Face, Her Hands, everything has a meaning.<br>

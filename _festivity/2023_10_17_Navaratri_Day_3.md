@@ -65,7 +65,7 @@ They don't believe in God. They think that they have created God, and they can m
 <font size="+0"><b>2002-1027 Navarātri Pūjā (13th day after Dussehra Day), Develop Wisdom through Meditation, Bhakti and Śhraddhā, Lake Piru Recreational Area Campground, 4780 Piru Canyon Rd, Piru (87 kms NW of Los Angeles), CA, U.S.A.</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1243.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1243.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"When there is worship always there's a bell rung. That is good for all the negativity to run away."</b></font><br>

@@ -45,7 +45,7 @@ In Sahaja Yoga also, we go step by step. First of all, we have to know our Spiri
 <font size="+0"><b>1983-0616 Public Program, Day 1, Paris, France</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image432.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image432.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Śhrī Mātājī, salutations to Thee again and again.<br>

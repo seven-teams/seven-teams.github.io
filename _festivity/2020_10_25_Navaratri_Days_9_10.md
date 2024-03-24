@@ -15,7 +15,7 @@ tags:
 <font size="+0"><b>1980-0505 Sahasrāra Pūjā, Sincerity is the Key of Your Success, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image540.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image540.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>What is Your prowess to be compared to?<br> 

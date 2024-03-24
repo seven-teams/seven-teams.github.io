@@ -37,7 +37,7 @@ This bhajan was composed by Bābā Māmā.
 <font size="+0"><b>1984-0218 Śhrī Chandramā Pūjā (Marathi+English+Marathi), Vaitarna, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image792.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image792.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"Today is the famous, great, Full Moon, called as Śhārada Indu. Śhārada Indu -- that's the name of the Goddess also, Śhārada Indu. The Moon on the autumn season. This is the biggest Moon, and -- of course not in England -- but in India that day the Moon is giving the greatest light ......"</font><br>

@@ -15,7 +15,7 @@ tags:
 <font size="+0"><b>1977-0220 Public Program, Creation and Evolution, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image794.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image794.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Navarātri is like a Mother’s Day where you give thanksgiving to Her:<br>

@@ -18,7 +18,7 @@ In order to understand this, today, Sahaja Yoga has come to this world."</font><
 <font size="+0"><b>1994-1231 Śhrī Gaṇeśha Pūjā (Hindi+English+Marathi), Mukand Steel Factory, Kalwa, Thane, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image767.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image767.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkGreen">"Śhrī Gaṇeśha is the embodiment of the existing reality of Paramachaitanya, or Śhrī Gaṇeśha is the manifestation of the invisible Paramachaitanya. And He establishes this perception on every chakra. Unless and until nirmalatā [immaculacy] exists in every chakra, only holiness shines from every chakra, rising of the Kuṇḍalinī is highly improbable. Even if She rises, She keeps falling each time. <b>The relationship between Kuṇḍalinī and Śhrī Gaṇeśha is that of Mother and Child."</b></font><br>

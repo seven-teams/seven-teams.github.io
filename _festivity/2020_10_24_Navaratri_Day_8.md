@@ -40,7 +40,7 @@ The war is within ourselves, is not without. First when you ascend the seventh c
 <font size="+0"><b>2001-1021 Navarātri Pūjā (5th Day), You Should Become Really Soldiers of Love and Peace (Overcome Hatred with Love or To Hate is a Very Bad Quality), Sportcamp, Avras, Loutraki, Greece</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image537.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image537.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"So today on this day of Aṣhṭamī, which is a very powerful day, <b>you assume that power within yourself that, 'I can fight all these horrible diseases within myself. And for others I will have compassion and love.</b>
@@ -127,7 +127,7 @@ Ayi Giri Nandini (Mahiṣhāsuramardinī)</font><br>
 <a href="https://www.youtube.com/watch?v=T_V1ka6e4Xo&ab_channel=SahajayogaCulture">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image539.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image539.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Once you become the Spirit, means when you become the light what you do exactly is to give the light. 
