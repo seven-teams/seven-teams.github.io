@@ -9,7 +9,7 @@ tags:
 <br>
 <div style="text-align: left"><img src="/images/100Years.jpg" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image1183_Photo_credit_Matthew_Fogarty.jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1183_Photo_credit_Matthew_Fogarty.jpeg" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
