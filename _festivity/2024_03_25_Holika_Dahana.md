@@ -19,7 +19,7 @@ So in between duty and dharma the dilemma is in between these two. In this situa
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Today, the great day of Holikā Dahana</b>, where the symbolism of this occasion is that the satanic forces were burnt by the innocence of Prahlāda. And that is what we have to remember, that when the Sahaja Yogis take to innocence and complete dependence on to their vibratory awareness, which is the indication of God's Manifestation through them, they are completely protected, and even a satanic person like Holikā could not burn him [them].<br>
 And this is the day today, we have to recognize that, as Sahaja Yogis, we stand no dangers in life. We are fearless people, but we are humble people, loving people, and anxious to save as many as possible. To eman... to raise the whole humanity into another awareness, in the process of your evolution you have to achieve ghaṭ, for which you have to work hard."</font><br>
-<font size="+0"><b>1983-0328 Public Program (Holikā Dahana) (English + Hindi), Concept and Reality, Birthday Celebration, Ajwan-E-Ghalib, New Delhi, India</b></font>
+<font size="+0"><b>1983-0328 Public Program (Holikā Dahana) (English + Hindi), Concept and Reality, Birthday Celebration, Ajwan-E-Ghalib, New Delhi, India</b></font><br>
 <br>
 <font color="MediumPurple"><b>"So, today, on the</b></font> <font color="red"><b>Holī</b></font> <font color="MediumPurple"><b>day if you only say the mantra of ‘Holika Dahan’ 
 then with the mantra of ‘Holikamardinī’ "</b></font><br>
@@ -29,7 +29,7 @@ then with the mantra of ‘Holikamardinī’ "</b></font><br>
 <p>
 <font color="DarkRed">"<b>Holī was started during the time of Śhrī Kṛiṣhṇa.</b> Before Him in the time of Śhrī Rāma ... He was very austere. Because of that the society became very peaceful but people were devoid of all joy. So He thought that there should be a way by which people should be able to laugh freely and be joyful. And like it happens to all such ventures it happened in the case of Holī also that it produced an opposite effect.<br>
 ......<br>
-The story of how it started is like this. There was a demoness called Holikā. She was the sister of Prahlād and Prahlād's father used to trouble him a lot. Holikā had a boon that she would not be burnt by the fire. Prahlād's father wanted to kill him and told Holikā to take the child [Prahlād] and sit on the burning pyre thinking that she would not die. But it is surprising that she died and Prahlād was not hurt in the fire and came out of it unscathed.<br>
+<b>The story of how it started is like this.</b> There was a demoness called Holikā. She was the sister of Prahlād and Prahlād's father used to trouble him a lot. Holikā had a boon that she would not be burnt by the fire. Prahlād's father wanted to kill him and told Holikā to take the child [Prahlād] and sit on the burning pyre thinking that she would not die. But it is surprising that she died and Prahlād was not hurt in the fire and came out of it unscathed.<br>
 This is a very big happening which demonstrated that it is very wrong to be cruel and aggressive. She had the boon but still she got burnt. That's why we have this custom on Holī.<br>
 In our country [India] all such things have a lot of truthfulness. We have to understand that if we do wrong things, trouble others ... then these are demonic qualities.<br>
 ......<br>
@@ -55,7 +55,7 @@ But <b>on the Day of Holī, any person, whether he is a master or a servant, any
 <font color="green"><b>Natha Ghari Naache Maajha Sakha Pandurang</b></font><br>
 Amidst the fragrant colourful powder strewed in the air,<br>
 Panduranga who is my master as well as my friend is dancing in his abode.<br>
-<font size="+0">-Abeer Gulaal - Abhang by Sant Chokhamela</font><br>
+<font size="+0">- Abeer Gulaal - Abhang by Sant Chokhamela</font><br>
 <font color="DarkGreen"><font size="+0">Abir Gulal</font></font><br>
 <a href="https://youtu.be/TjPTm04s6l8">video</a> 
 </p>
@@ -68,8 +68,8 @@ Only when it is burnt can you ascend on Nirmala Tattwa.<br>
 Then you celebrate the real Holī, enjoy and play with color.</font><br>
 <font color="DarGreen"><b>Sahaja Yoga’s</b></font> <font color="red"><b>Holī</b></font> <font color="DarGreen"><b>should be the Holī of Śhrī Kṛiṣhṇa.</b></font>]<br>
 [SYNOPSIS!]<br>  
-<font size="+0">1995-0318 Holī Pūjā (the day after the Raṃgavalī Holī), Holī Message, Sahaja Yoga Temple, C-17, Shaheed Jeet Singh Marg, Block C, Qutab Institutional Area (behind Qutub Hotel), New Delhi, India</font><br>  
-<font color="DarGreen">Tere ranga me aise range ham, dujā ranga nā lāge,</font><br>
+<font size="+0"><b>1995-0318 Holī Pūjā (the day after the Raṃgavalī Holī), Holī Message, Sahaja Yoga Temple, C-17, Shaheed Jeet Singh Marg, Block C, Qutab Institutional Area (behind Qutub Hotel), New Delhi, India</b></font><br>  
+<font color="DarkGreen">Tere ranga me aise range ham, dujā ranga nā lāge,</font><br>
 <font size="+0"><b>We are colored so deep and complete in Your color</b></font><br>  
 <font color="red">Tum bin koi nazar nā āe, in naino ke āge</font><br>
 <font size="+0"><b>No other color will reflect through us, We are unable to see anything but You</b></font><br>
