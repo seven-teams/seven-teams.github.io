@@ -240,6 +240,20 @@ Then seriousness developed and the people became serious-minded, and made their 
 
 <div class="para-divider"></div>
 
+<p>
+"How do you know your Self? When this Kuṇḍalinī rises, She passes through six centers. She passes through six centers, and pierces through the, we call it seventh one, through the bra... fontanel-bone area, which is actualization. You can feel It on top of your head.<br>
+I mean, every Saint, every Sufi has talked about it, if you have read them. Lao Tze has talked about it. <font color="red">Everyone, Buddha has talked about it, that you have to have your Self-realization.</font> Self-realization means knowing about your Self. All of them have said this!"<br>
+<font size="+0"><b>2000-0616 Public Program, Town Hall, 123 West and 43rd Street, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>

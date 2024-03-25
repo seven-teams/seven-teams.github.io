@@ -20,7 +20,7 @@ By keeping the dharma all right only, you could get your Realization.</b>"</font
 <font size="+0"><b>1989-0814 Śhrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1215.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1215.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Today we are celebrating here in this holy land the Birthday of Śhrī Kṛiṣhṇa.<br>

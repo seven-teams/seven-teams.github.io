@@ -1720,6 +1720,24 @@ But this exclusiveness has brought this problem, and they are fighting among eac
 
 <div class="para-divider"></div>
 
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">Muhammad Sāhab has said it, in the Qur'ān, that: "Your hands will speak when there will be Resurrection."<br>
+I do not accept anybody who says, 'I am a Muslim,' and whose hands are not speaking.<br>
+That's the main things should happen to all of you.<br>
+Has ... Christ has talked about it, Muhammad Sāhab has talked about it, Lao Tze has talked about it, everybody has talked about it.</font> But so far, nobody has felt it.<br>
+Now, all of you have felt, I really bow to you for that."<br>
+<font size="+0"><b>2000-0611 Public Program, Massey Theater, 735 Eight Avenue, New Westminster (21 kms SE from Vancouver), BC, Canada</b></font>
+</p>
+
+<div class="para-divider"></div>
+
 [<font color="orange">WARNING: Quotes for the period 1980-01 to 2007-07 will follow in due time.</font>]
 
 <div class="para-divider"></div>

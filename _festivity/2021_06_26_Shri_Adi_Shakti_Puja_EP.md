@@ -49,7 +49,7 @@ Shrī Nirmalā Chalisa</font><br>
 <a href="https://www.youtube.com/watch?v=NmQ7mIhsVxA&list=PLC8554007A2C98EA0&index=20&ab_channel=AndreeaAiacoboaie">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image721.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image721.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>Vishw'eshwari twam paripasi vishwam</b></font><br>

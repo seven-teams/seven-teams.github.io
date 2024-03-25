@@ -16,7 +16,7 @@ That life is unending, never breaks and binds the whole universe with its beauti
 <font size="+0"><b>1980-0323 Birthday Pūjā, Guarding Against Slothfulness, Bharatiya Vidya Bhavan, 4A Castletown Road, London W14 9HE, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image646.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image646.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Many people have always asked Me that why God created this Universe ......<br>

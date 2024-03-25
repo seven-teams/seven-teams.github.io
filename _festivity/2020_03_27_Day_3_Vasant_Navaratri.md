@@ -13,7 +13,7 @@ tags:
 <font size="+0"><b>1983-0204 Public Program, D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image356.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image356.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Kul’angana Kul’anta-stha, Kaulinı Kula-yoginı,<br> 
@@ -52,7 +52,7 @@ So Nābhī chakra is surrounded by Ten Gurus, the Prophets who give you the bala
 <font size="+0"><b>1983-0131 Public Program, Day 2, The Nābhī Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image358.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image358.png" /></div>
 
 <p style="text-align:center;">
 <font size="+0"><b>Sahaja Yogi: </b></font><font color="DarkGreen"><b>Śhrī Mātājī, we all the Sahaja Yogis here, we pray to You and we promise You that we will be one, just one flower so that when You can see us,<br> 

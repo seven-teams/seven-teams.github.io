@@ -44,7 +44,7 @@ If we see in the surroundings, the ocean, so beautiful and clean is washing the 
 <font size="+0"><b>1986-0101 Śhrī Mahāgaṇeśha Pūjā (English+Marathi), Malgund (2.4 kms N of Gaṇapatīpuḷe), Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image580.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image580.png" /></div>
 
 <p style="color:blue; text-align:center;">
 <b>Swagat. Agat. Swa-gatam<br> 

@@ -37,7 +37,7 @@ And if you want to awaken the powers of Śhrī Gaṇeśha within you, this is po
 <font size="+0"><b>1994-1231 Śhrī Gaṇeśha Pūjā (Hindi+English+Marathi), Mukand Steel Factory, Kalwa, Thane, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image768.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image768.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkGreen"><b>"But Śhrī Gaṇeśha’s greatest contribution to Sahaja Yoga is that He makes you feel My vibrations.</b><br> 

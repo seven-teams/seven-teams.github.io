@@ -16,7 +16,7 @@ Enlightenment, we have to understand that we get completely enlightened by Love.
 <font size="+0"><b>1993-0803 Śhrī Śhakti Pūjā, Power of Love, Camp, Shores of Volga, Togliatti, Russia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image804.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image804.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"I must tell you that the Goddess took Her birth nine times on this Earth.<br>

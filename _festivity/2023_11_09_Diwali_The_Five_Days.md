@@ -63,14 +63,14 @@ Now, see symbolically, Christ is born and the New Year is celebrated, next day. 
 <font size="+0">This is the last, the fifth day of Diwālī celebrations. On this day the brother and sister relationship is celebrated.</font>
 </p>  
 
-<div style="text-align: center"><img src="/images/image1276.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1276.png" /></div>
 
 <p>
 <font color="DarkRed">During the Diwālī Festival, we will worship Śhrī Mātājī in Her forms of Śhrī Lakṣhmī, Śhrī Mahāhakṣhmī, and Śhrī Ādi Śhakti. We would like to begin by offering Śhrī Mātājī the welcome song that was sung to Her before the evening program during the 1987 Diwālī Festival in Italy.</font><br>
 <font color="DarkGreen"><b>Śhrī Lakṣhmī Welcome Song 1987:</b></font> <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image1277.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1277.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Trayanam devanam triguna-janitanam tava Śhive,<br>

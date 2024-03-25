@@ -66,7 +66,7 @@ You have come here to ascend and your gain is your gain. Your fighting is not yo
 </b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image295.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image295.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>So today’s special day, a very great day. Let us ask that – when you are doing this Pūjā, ask for new religions within you to be enshrined, to be sustained within ourselves and try to imbibe them.<br>

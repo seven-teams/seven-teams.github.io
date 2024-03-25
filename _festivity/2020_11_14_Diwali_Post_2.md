@@ -17,7 +17,7 @@ In the darkness of Kali Yuga when you find from every place confusion of the wor
 <font size="+0"><b>1988-1113 Diwālī Pūjā (5th day after Diwālī Day), You Are the Dīpas, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image557.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image557.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Sahaja Yoga – the Diwālī, the Dīpawali of the Sahaja Yogis."</b></font><br>

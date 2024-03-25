@@ -62,7 +62,7 @@ And as soon as you start paying attention to that, that person gets all right. Y
 <font size="+0"><b>1992-0809 Śhrī Mahālakṣhmī Pūjā, Saint Petersburg, Russia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image607.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image607.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"So today the <b>first and the foremost vow is</b>, as I told you, that we have to get cleansed up in such a way that we become free of ego and superego. 

@@ -74,7 +74,7 @@ Innocence is the sustainance [sustenance], is the basis of spirituality. If a pe
 <font size="+0"><b>1984-0121 Śhrī Gaṇeśha Pūjā, First Job of Sahaja Yoga Is to Establish Śhrī Gaṇeśha Within You and We Have to Have Certain Maryādās, House of Dr. Ramesh Adinath Saṃghavī, B.N-1, Sapt Shrung, Krishnanagar Housing Society, Saharanpur Road, Nasik, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1325.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1325.png" /></div>
 
 <p style=" text-align:center;">
 <font color="red"><b>"This is the importance of this day. Today if you ask for any wish, then Śhrī Gaṇeśha will fulfill it. It is His right to fulfill all your desires, because you are all realized. Ask Him with all your heart and He will help you in every way, every moment, every instant."</b></font><br>

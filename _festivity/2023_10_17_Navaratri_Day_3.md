@@ -16,7 +16,7 @@ tags:
 <font size="+0"><b>1984-0923 Navarātri Pūjā (1st Day), The Discipline, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1241.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1241.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"...... the Goddess always uses lion as Her vehicle. Sh... that is the vāhana specially used when, at different levels, She has to be compassionate as well as very harsh to the people who are trying to destroy humanity."</b></font><br>

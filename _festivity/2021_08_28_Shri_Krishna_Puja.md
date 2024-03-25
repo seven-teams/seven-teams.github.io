@@ -32,7 +32,7 @@ Now, the seed that he has sown, is the seed of spirituality. It is Śhrī Kṛis
 <font size="+0"><b>1983-0918 Śhrī Kṛiṣhṇa Pūjā, Bring Out the Potential of This Country by Exciting the Deities, Śhrī Kṛiṣhṇa Himself (He's to Be Pleased) and The Task of Sahaja Yoga Is to Establish the Truth within Yourself, House of Dr. Vinod Worlikar, 17301 Maria Avenue, Cerritos (32 kms SE of Los Angeles), CA, U.S.A.</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image756.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image756.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"So, today, actually, with all this theme that I’m talking about, uh about collectivity, which is the blessing of uh Śhrī Kṛiṣhṇa.<br>

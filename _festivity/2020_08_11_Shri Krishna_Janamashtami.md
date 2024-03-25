@@ -109,7 +109,7 @@ And He had a capacity more expressing His witness-hood, as a Sākṣhi. He had t
 <font size="+0"><b>1984-0818 Śhrī Kṛiṣhṇa Pūjā, Backyard, House of Judy Gaddy, Engelwood, NJ, U.S.A.</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image480.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image480.png" /></div>
 
 </p>
 <p style=" text-align:center;">

@@ -698,7 +698,7 @@ He attended the wedding! That means, did He want to encourage the original sin�
 <div class="para-divider"></div>
 
 <p>
-"William Blake, a great poet from England, has said that, ``This idea of original sin has been invented by some devil."<br>
+"William Blake, a great poet from England, has said that, "This idea of original sin has been invented by some devil."<br>
 <font color="red">According to this [idea], everybody and every Incarnation, like Śhrī Kṛiṣhṇa, Śhrī Rāma, Muhammad Sāhab, Nāṇak Sāhab, Lao Tze, everybody is a sinner!</font><br>
 Such an absurd thing that was put forward, and because it was a very dominating religion, was the official religion behaving like a tyrannical king, people had to accept! Those people who did not believe in it were boiled, were roasted in the huts."<br>
 <font size="+0"><b>1992-0724 Public Program, Salle Gaveau, 45-47 Rue La Boétie, Paris, France</b></font>
@@ -883,7 +883,7 @@ That means this mind is created out of our reaction through our conditionings or
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now this mind is a myth. <font color="red">If I tell you, you should not be shocked, though Lao Tze has said that, 'It's a myth.'</font> It is!"<br>
 <font size="+0"><b>1996-0312 Public Program, Hall, Kolej Damanasara Utama University College, Petaling Jaya (15 kms W of Kuala Lumpur), Malaysia</b></font>
 </p>
 
@@ -897,7 +897,9 @@ That means this mind is created out of our reaction through our conditionings or
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">Buddhism also had two beautiful uh flowering: one was called as Zen system, and another in China was called, as Lao Tze has written, is His Tao.</font> But when they took to the Sun side, the development started, I think, in a very imbalanced manner.<br>
+If you go to the right side too much, then, what happens: you become extremely hot tempered. You can become very aggressive. You can develop powers, of uh-uh-uh sort of destroying others, and be very powerful warriors and all that.<br>
+But it had a reaction. Because such people became emotionally dried out."<br>
 <font size="+0"><b>1996-0707 Public Program, National Palace of Culture (NDK), Boulevard Bulgaria, 1463 NDK, Sofia, Bulgaria</b></font>
 </p>
 
@@ -911,7 +913,11 @@ That means this mind is created out of our reaction through our conditionings or
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"But, you see, it [The Chi] is, it has something to do with that, and that is what is our ego and superego.<br>
+The Chinese what they have written, it's correct.<br>
+<font color="red">But Chinese also don't know who is Lao Tze, can you imagine? Lao Tze is the man who talked about this thing, is the one who told them about Kuṇḍalinī, and they don't know who is Lao Tze.</font>>br>
+Specially in America, I don't know what sort of Chinese live here. [Some soft laughter.]<br>
+It's such a Great Source of Knowledge, and what they have said is a perfect thing."</font><br>
 <font size="+0"><b>1999-0616 Public Program (also Follow On to Public Talk to VIPs), The Town Hall, 123 West and 43rd Street, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -932,16 +938,23 @@ That means this mind is created out of our reaction through our conditionings or
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"<br>
+"It's absolutely in a very abstract manner that so many Saints had, Sufis had, that joy which cannot be explained, also the Zen had. All that what they talked about, they didn't do the Kuṇḍalinī awakening, that's the point is. They were all awakened people, wide awake, and they had a different life, and they have described it.<br>
+We just shriek them but we don't know how these people have lead that kind of a life.<br>
+But they are Saints, they are Sufis, and they are the people who have achieved this. <font color="red">Like Lao Tze had so, has described about it.</font><br>
 ......<br>
-"</font><br>
+Muhammad Sāhab has said it, in the Qur'ān, that: "Your hands will speak when there will be Resurrection."<br>
+I do not accept anybody who says, 'I am a Muslim,' and whose hands are not speaking.<br>
+That's the main things should happen to all of you.<br>
+<font color="red">Has ... Christ has talked about it, Muhammad Sāhab has talked about it, Lao Tze has talked about it, everybody has talked about it.</font> But so far, nobody has felt it.<br>
+Now, all of you have felt, I really bow to you for that."<br>
 <font size="+0"><b>2000-0611 Public Program, Massey Theater, 735 Eight Avenue, New Westminster (21 kms SE from Vancouver), BC, Canada</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"How do you know your Self? When this Kuṇḍalinī rises, She passes through six centers. She passes through six centers, and pierces through the, we call it seventh one, through the bra... fontanel-bone area, which is actualization. You can feel It on top of your head.<br>
+I mean, every Saint, every Sufi has talked about it, if you have read them. <font color="red">Lao Tze has talked about it.</font> Everyone, Buddha has talked about it, that you have to have your Self-realization. Self-realization means knowing about your Self. All of them have said this!"<br>
 <font size="+0"><b>2000-0616 Public Program, Town Hall, 123 West and 43rd Street, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 

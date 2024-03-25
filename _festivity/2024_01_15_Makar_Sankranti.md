@@ -30,7 +30,7 @@ We celebrate this change because the Sun has now moved into the new dimension so
 <font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English + Marathi), Carry the Sun with You, House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1317.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1317.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"To speak in a very sweet manner is a sign of good breeding, good culture and fear of God. <b>Those who fear God will never speak rudely to another person, because in another person also the same Spirit is shining</b> and why should we be sharp or angry with another person who is created by God Almighty as we are created.<br>

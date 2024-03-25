@@ -46,7 +46,7 @@ This center has got twelve ... twelve petals. This is with ... the ruler of this
 <font size="+0"><b>1990-1122 Public Talk, Doctors Conference, Weikfield Factory, Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image367.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image367.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"And if you are today worshiping Me as the Jagadambā, then
@@ -65,7 +65,7 @@ know that the Jagadambā Itself is nothing else but Ādi Śhakti."</b></font><br
 <font size="+0"><b>1981-0518 Public Program, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image368.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image368.png" /></div>
 
 
 <p style="text-align:center;">

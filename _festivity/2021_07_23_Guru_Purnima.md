@@ -16,7 +16,7 @@ That’s why <b>it was said that guru is a person who makes you meet God; he rai
 <font size="+0"><b>1979-0708 Guru Pūjā, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image730.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image730.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
 <b>Guru Charnan. ki lagi lagan. hai</b><br>
@@ -38,7 +38,7 @@ This is the first Principle of the Guru, is the gravity. As I told you, it is so
 <font size="+0"><b>1988-0731 Guru Pūjā, The First Principle of the Guru Is the Gravity (First Thing and Foremost Thing Is that We Must Have Gravity in Temperament and Value System of a Balance and You Have to Become the Fruits of Sahaja Yoga), Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image731.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image731.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
 <b>Gururav. Swami Aseswayamprakash.</b><br>
@@ -59,7 +59,7 @@ So today you have to take some vows. And you have to say that we are going to do
 <font size="+0"><b>1977-0701 Guru Pūjā (Guru Pūrṇimā Day) (first more formal Pūjā in the West), Self-realization, Living Room, Gavin Brown's Geological Institute (Terrace House), 160 North Gower Street, 2nd Floor, Euston, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image732.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image732.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Gurorrashtakam Yah pathet punya dehi</b></font><br>

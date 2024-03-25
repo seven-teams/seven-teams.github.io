@@ -54,7 +54,7 @@ You must understand that the goodness of a person is very important. If you are 
 <font size="+0"><b>2003-1004 Pūjā (9th Day of Navarātri), House, 268 Overpack Avenue, Ridgefield Park, NJ, U.S.A.</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image813.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image813.png" /></div>
 
 <p style="text-align:center;">
 <font color="Navy"><b>We should devote ourselves to that Devī<br>

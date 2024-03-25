@@ -17,7 +17,7 @@ This is Her great work [done] with such love and affection, and with very great 
 <font size="+0"><b>2001-0603 Śhrī Ādi Śhakti Pūjā, Albera Ligure, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image452.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image452.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Today it’s a different day altogether for all of you because this is the Pūjā of Ādi Śhakti, and Ādi Śhakti is a complete personality."</b></font><br>

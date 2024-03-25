@@ -20,7 +20,7 @@ In the human beings, it is a very important center because this is the only cent
 <font size="+0"><b>1999-0509 Sahasrāra Pūjā, Hangar, Albera Ligure, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image411.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image411.png" /></div>
 
 <p style=" text-align:center;">
 <b>Sahaja Yogi:</b><font color="Purple"> Salutations to the Queen of Sahasrāra, salutations to the Queen of the Seven Peaks.</font><br>

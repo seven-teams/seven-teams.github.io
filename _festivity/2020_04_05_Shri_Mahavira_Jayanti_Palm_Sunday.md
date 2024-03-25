@@ -66,7 +66,7 @@ so only He could enter into the being fully and could kill or, you can say, dest
 <font size="+0"><b>1991-0328 Śhrī Mahāvīra Pūjā, Gidgegannup, Darling Ranges (45 kms NE of Perth), WA, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image395.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image395.png" /></div>
 
 <p style="text-align:center;">
 <font color="Maroon">Naman Kare Barambar Śhrī Mātājī</font><br>

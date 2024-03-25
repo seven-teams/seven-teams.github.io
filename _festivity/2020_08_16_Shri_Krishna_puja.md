@@ -13,7 +13,7 @@ tags:
 <font size="+0"><b>1984-0818 Śhrī Kṛiṣhṇa Pūjā, Tent, Backyard, House of Judy Gaddy, Engelwood, NJ, U.S.A.</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image484.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image484.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue">"Viśhuddhi chakra which is placed here, which is called as the Complete Incarnation of Śhrī Kṛiṣhṇa.<br> 

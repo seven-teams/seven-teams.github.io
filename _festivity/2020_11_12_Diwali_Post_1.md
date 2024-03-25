@@ -16,7 +16,7 @@ No use talking about it. No use convincing about it. What works out is your desi
 <font size="+0"><b>2002-1103 Diwālī Pūjā (Naraka Chaturdaśhī Day), The Importance of Meditation, Lake Piru Recreational Area Campground, 4780 Piru Canyon Rd, Piru (87 kms NW of Los Angeles), CA, U.S.A.</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image552.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image552.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkGreen">"<b>"The first day of Diwālī is called as Dhanatrayodaśhī: is the thirteenth day of the Moon.</b> Because that day is the first day when Lakṣhmī, the first ... was born on the thirteenth day. That means She was born as a Gṛuhalakṣhmī, as a housewife. there are eight Lakṣhmīs, which she will read it now and I will tell you later on what is the meaning of them. Just one of them is Gṛuhalakṣhmī.<br>

@@ -15,7 +15,7 @@ So you are very different from all others because a Spirit has given birth to yo
 <font size="+0"><b>1983-1106 Diwālī Pūjā (Bhāūbīj Day), Become the Ideals (Unless and Until You Become Your Ideals You Are Not a Sahaja Yogi), Temple of All Faiths, Hampstead, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image566.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image566.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"And the Mahālakṣhmī Principle is the principle where you start seeking the Truth and nothing else."</b></font><br>
