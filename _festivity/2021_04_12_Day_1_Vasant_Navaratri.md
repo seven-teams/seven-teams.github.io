@@ -17,7 +17,7 @@ Gaṇeśha is Her Son and She is His Mother. In Sahaja Yoga, She protects all th
 <font size="+0"><b>2000-0405 Guḍhī Pāḍavā Pūjā (Hindi), Noida Bhavan, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image662.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image662.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Today is the Day of Guḍhī Pāḍavā. And it is celebrated in Maharashtra mostly, but now in other places too. 

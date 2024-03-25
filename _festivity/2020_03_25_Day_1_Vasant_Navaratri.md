@@ -75,7 +75,7 @@ In the Mūlādhār is placed the Kuṇḍalinī. She is the Mother of Śhrī Ga�
 </b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image349.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image349.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">"<b>So this New Year’s Day is the first day of advent of Goddess</b> – the nine days there are. <br>

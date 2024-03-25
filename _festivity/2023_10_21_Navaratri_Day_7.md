@@ -19,7 +19,7 @@ This is what has happened in this area before also. They were many kings who rul
 <font size="+0"><b>1985-0329 Śhrī Śhailaputrī Devī Pūjā (English + Hindi) (7th Day of Chaitra Navarātri), Exhibition Hall, Basement of the Puruṣhottam Hotel, Talnoo, Naddi (11 kms NNE of Dharmaśhālā), Himachal Pradesh, India]</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1257.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1257.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
 <b>Te devā abruvana - Namo Devyai Mahādevya shivāi satatam namah.<br>

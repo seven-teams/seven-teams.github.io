@@ -84,7 +84,7 @@ If some one hurts you, confuses or disturbs you then this power will protect you
 <font size="+0"><b>2000-0405 Guḍhī Pāḍavā Pūjā (Hindi), Noida Bhavan, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1235.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1235.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>"When He desired to create this nature, He collected a desire, we may say a wave or vibration, and filled within a container or Ghaṭ. It is that Ghaṭ. And this Ghaṭ means the God Almighty.<br>

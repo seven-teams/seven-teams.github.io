@@ -54,7 +54,7 @@ If you see your own desires, come out of what? Not out of the Divine Love but ou
 <font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image724.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image724.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Somebody asked Me, “Is it necessary to have this Pūjā.” I think if there is any Pūjā you should do, it is this one -- is Ādi Śhakti.<br>

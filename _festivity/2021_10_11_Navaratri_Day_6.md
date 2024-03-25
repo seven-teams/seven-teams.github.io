@@ -71,7 +71,7 @@ Victory to Yogeśhwarī (Goddess of Yoga), Victory to Maheśhwarī (Goddess of �
 <font size="+0"><b>1980-1019 Havan, Navarātri Celebrations (Dussehra Day), To Solve All Your Problems Is to Surrender, Temple of All Faiths, Hampstead, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image802.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image802.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"...... we have to make a very genuine promise <b>that this Havan that is going on here is the power of the Nābhī which is the Swāhā</b>,<br> 

@@ -75,7 +75,7 @@ So, that is going to work out what I call the collective ascent of human beings.
 <font size="+0"><b>1990-0422 Easter Pūjā, Hall, School, Eastbourne, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image401.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image401.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 <b>You are the end of evolution.<br>

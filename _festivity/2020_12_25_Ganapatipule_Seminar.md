@@ -33,7 +33,7 @@ He was Śhrī Gaṇeśha."</b></font><br>
 <font size="+0"><b>1987-1225 Christmas Pūjā (English+Marathi), Muktangan Bal-Ranjan Kendra Hall, Parvati Paytha, Aranyeśhwar Nagar, Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image585.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image585.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"So the first thing that was said about Christ throughout in all these music and songs you’s have heard now is that ‘Peace on Earth’: 

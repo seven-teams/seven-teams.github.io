@@ -26,7 +26,7 @@ Now, this right side gives you a kind of a[n] ego which troubles everyone, but y
 <font size="+0"><b>1990-0514 Śhrī Buddha Pūjā, Saint Petersburg, Russia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image431.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image431.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Thou art the Avatar of the Great Maitreya, expressing the three Mother Goddesses Mahālakṣhmī, Mahāsaraswatī and Mahākālī: Mā-treya, Divine Love in human form, the master of the White Horse.</b></font><br>

@@ -125,7 +125,7 @@ In battle, And becomes worthy of being worshipped in the three worlds.</font></f
 <a href="https://www.youtube.com/watch?v=ZRWM3jB01JU&feature=emb_logo&ab_channel=TimBruce">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image523.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image523.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Sahaj Yoga brings light in you. <b>This light will make you know how much filth is outside.</b>"</font><br>

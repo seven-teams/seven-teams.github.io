@@ -45,7 +45,7 @@ So today when we are worshiping Her, we have to worship Her in all these forms."
 <font size="+0"><b>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image817.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image817.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"You must pray to God and ask what you want.<br>

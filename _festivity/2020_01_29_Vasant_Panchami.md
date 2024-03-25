@@ -33,7 +33,7 @@ This creation power is the blessing of Saraswatī by which many arts have been g
 <font size="+0"><b>1992-0403 Śhrī Saraswatī Pūjā, Emerlin College, Yamunānagar, Haryana, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image306.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image306.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"The second power, which He gave us, which He sent to us, was Mahāsaraswatī and to this Mahāsaraswatī Power, 

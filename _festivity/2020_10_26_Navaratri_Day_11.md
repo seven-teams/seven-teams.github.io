@@ -13,7 +13,7 @@ tags:
 <font size="+0"><b>1980-0420 Pūjā, Significance of Pūjā, Flat of Marie Rouger, Paris, France</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image544.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image544.png" /></div>
 
 <p style="color:DarkSlateBlue; text-align:center;">
 <b>To The Devī,<br>
@@ -59,7 +59,7 @@ Now you should assume your power. On Navarātri now, you should understand that 
 <font size="+0"><b>1991-1013 Navarātri Pūjā (6th Day), False Religion or Recognize Me, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image546.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image546.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Last of all you have to pray that, <b>'Mother, we should recognize our Mother. 

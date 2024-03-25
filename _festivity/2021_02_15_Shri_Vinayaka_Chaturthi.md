@@ -80,7 +80,7 @@ This is very important because, unless and until your Śhrī Gaṇeśh is establ
 <a href="https://www.youtube.com/watch?v=LtqNdCxPQI0&ab_channel=bertrandSY">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image622.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image622.png" /></div>
 
 <p style="text-align:center;">
 <font size="+0"><font color="DarkGreen"><b>Your first tooth You have and four Holy hands</b></font></font><br>
