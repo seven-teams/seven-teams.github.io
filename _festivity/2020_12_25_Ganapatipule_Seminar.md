@@ -58,7 +58,7 @@ It’s a very big thing He has done for us is to create such a big confidence in
 <font size="+0"><b>1981-1225 Christmas Pūjā, You Have to Be Peaceful, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image586.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image586.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>It was a living example of a very Great Advent that He came on this Earth and led such a pure and holy life.</b><br>

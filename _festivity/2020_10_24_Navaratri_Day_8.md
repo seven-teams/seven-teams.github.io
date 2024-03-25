@@ -63,7 +63,7 @@ But Truth will prevail now. The time has come for Truth to prevail. It is surpri
 <font size="+0"><b>1985-0422 Public Program, Day 1, Université Paris Diderot Paris 7, 5 Rue Thomas Mann, Paris, France</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image538.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image538.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"You have to see that all the negativity goes away, around us, around the universe.<br> 

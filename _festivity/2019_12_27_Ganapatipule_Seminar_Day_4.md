@@ -53,7 +53,7 @@ Salutations to You!</b></font></font><br>
 <font size="+0"><b>1982-0704 Talk to Sahaja Yogis, Guru Pūrṇimā Seminar, Nirmala Palace Āśhram, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image278.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image278.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">We bow to the One who is the only son of His virgin mother<br> 

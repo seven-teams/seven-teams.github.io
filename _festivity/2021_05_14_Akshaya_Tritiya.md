@@ -14,7 +14,7 @@ So, that sort of Pūjā we should do tomorrow also, if possible, so that we'll h
 <font size="+0"><b>1987-0502 Talk to Sahaja Yogis, On Arrival before the Evening Program, the day before Sahasrāra Pūjā, Thredbo Village, Kosciuszko National Park, New South Wales, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image706.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image706.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Śhrī Mātājī: Akṣhay Tṛitīya Pūjā.<br>

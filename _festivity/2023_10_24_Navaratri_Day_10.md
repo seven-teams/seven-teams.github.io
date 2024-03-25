@@ -16,7 +16,7 @@ May God bless you!"</font><br>
 <font size="+0"><b>1991-1013 Navarātri Pūjā (6th Day), False Religion and Recognize Me, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1269.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1269.png" /></div>
 
 <p style="text-align:center;">
 <font color="Navy"><b>We should devote ourselves to that Devī<br>

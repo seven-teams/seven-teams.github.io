@@ -29,7 +29,7 @@ So in between duty and dharma the dilemma is in between these two. In this situa
 <font size="+0"><b>1995-0318 Holī Pūjā (the day after the Raṃgavalī Holī), Holī Message, Sahaja Yoga Temple, C-17, Qutub Institutional Area behind Qutub Hotel, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image332.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image332.png" /></div>
 
 <p style="text-align:center;">
 [1979-0314 Havan, before or after the Holī Pūjā, New Delhi, India]<br>	

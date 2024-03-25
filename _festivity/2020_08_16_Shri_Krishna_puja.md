@@ -46,7 +46,7 @@ tags:
 <font size="+0"><b>1989-0814 Shrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image486.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image486.png" /></div>
 
 <p style=" text-align:center;">
 <font color="blue">"First and foremost thing is, that we must speak in a sweet manner.<br> 
