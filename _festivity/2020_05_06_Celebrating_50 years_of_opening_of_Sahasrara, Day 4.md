@@ -14,7 +14,7 @@ It is not in the limits of human understanding, how things are worked in the hea
 <font size="+0"><b>1982-0505 Sahasrāra Pūjā, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), France</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image426.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image426.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Sahasrāra is the day which is very important, which makes a big history in the spirituality and also in the evolutionary process."</b></font><br>

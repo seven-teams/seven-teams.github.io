@@ -14,7 +14,7 @@ So <b>in the left side, we have gaṇas, on the right side, we have angels. And 
 <font size="+0"><b>1989-0423 Śhrī Hanumāna Pūjā (St. George's Day), You Are All Angels, Cliftonville, Margate (123 kms ESE of London), UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image689.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image689.png" /></div>
 
 <p style=" text-align:center;">
 <font color="SaddleBrown">"<b>Today we have come here to do Hanumāna’s Pūjā.</b>

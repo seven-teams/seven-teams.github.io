@@ -34,7 +34,7 @@ Then at Sahasrāra, the question does not arise."</b></font><br>
 <font size="+0"><b>1995-0318 Holī Pūjā (the day after the Raṃgavalī Holī), Holī Message, Sahaja Yoga Temple, C-17, Qutub Institutional Area behind Qutub Hotel, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image915.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image915.png" /></div>
 
 <p style="text-align:center;">
 <font color="Purple"><b>"So, today, on the Holi day if you only say the mantra of ‘Holika Dahan’ then with the mantra of ‘Holikamardinī’ "</b></font><br>
