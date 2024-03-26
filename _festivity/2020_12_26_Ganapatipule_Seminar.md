@@ -14,7 +14,7 @@ tags:
 <font size="+0"><b>1981-0802 Pūjā, Trust (Trust Yourself and Trust Others and Open Your Heart to This Trust) and Become a Perfect Mechanism of God (It Is for You to Be the Showpiece of Sahaja Yoga and Organized in the Will of God), `Keeping Your Heart Open' Seminar, House of Felicity, Mill Farm, Sherbourne, Dorset, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image589.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image589.png" /></div>
 
 <p>
 <font color="DarkRed">"Then there are people who started, reflecting God in the musical notes and in the rhythm, of this universe. Then there are poets who started singing, the beauty of God, and His Greatness in their lyrics. That is how, the beauty is expressed, through the holy hands of holy people, all over the world. I don’t know nowadays if it is done so.<br>

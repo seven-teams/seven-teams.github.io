@@ -57,7 +57,7 @@ Yes we can show it's true</font><br>
 <font size="+0"><b>1992-0216 Śhrī Kuṇḍalinī Gaurī Pūjā, Nobody Can Befool Me, Āśhram, Lake Road, Blackburne, Melbourne, Victoria, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image679.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image679.png" /></div>
 
 <p style="text-align:center;">
 <b>Sahaja Yogi</b>: <font color="DarkGreen"><b>Shrī Mātājī, we all the Sahaja Yogis here, we pray to You and we promise You that we will be one, just one flower so that when You can see us, You will see only one flower, one color, one perfume and one flower offered at Your Divine Lotus Feet. 

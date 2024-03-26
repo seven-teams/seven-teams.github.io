@@ -53,7 +53,7 @@ Eternal bliss and awareness am I, I am Śhiva, I am Śhiva!</b><br>
 <font size="+0"><b>1991-0216 Śhivarātri Pūjā, Cinema Garden Theater, Chianciano Terme, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image317.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image317.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"So dissolve this desire into innocence. 

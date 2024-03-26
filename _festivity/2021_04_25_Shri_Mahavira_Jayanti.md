@@ -14,7 +14,7 @@ In Bible, Bhiaravnāthjī is addressed as Saint George and some refer him as Sai
 <font size="+0"><b>1993-0404 Śhrī Mahāvīra Jayanti Pūjā (Hindi), New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image685.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image685.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Today we are going to celebrate the birthday of Mahāvīra.</b><br>

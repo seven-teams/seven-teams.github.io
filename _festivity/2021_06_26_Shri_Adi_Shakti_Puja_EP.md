@@ -14,7 +14,7 @@ tags:
 <font size="+0"><b>1975-0120 Talk to Sahaja Yogis (Hindi), Day 1, Session 2 (evening), Kṣham Ki Śhakti Ka Mahatav (Power of Forgiveness) or Dharm va Adharm (Dharma and Adharma), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image719.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image719.png" /></div>
 
 <p style=" text-align:center;">
 <font color="FireBrick"><b>  SAHASRĀRĪ VANDUYA NIRMALĀ MĀTĀ DEYIJĪ SARVA SAHAJA YOGA</b></font><br>

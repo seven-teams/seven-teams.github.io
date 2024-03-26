@@ -52,7 +52,7 @@ Actually, all the events that occurred in the life span of Śhrī Rāma like Ahi
 <font size="+0"><b>1989-0814 Śhrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image683.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image683.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue"><b>"A king has to be like Rāma. He has to be like Rāma.</b> Representing your will, your goodwill, your sense

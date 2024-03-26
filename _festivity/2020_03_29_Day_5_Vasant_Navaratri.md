@@ -15,7 +15,7 @@ The effectiveness of this power is that the Kuṇḍalinī comes there. <b>When 
 <font size="+0"><b>2000-0405 Guḍhī Pāḍavā Pūjā (Hindi), Noida Bhavan, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image365.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image365.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"During Durgā Pūjā, Jagadambā that you pray too is the Kuṇḍalinī in you."</b></font><br>

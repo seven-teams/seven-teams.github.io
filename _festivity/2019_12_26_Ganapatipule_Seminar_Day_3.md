@@ -15,7 +15,7 @@ Actually He came on this Earth, first of all, to create a space within us, at th
 <font size="+0"><b>1981-1225 Christmas Pūjā, Āśhram, 44 Chelsham Road, Clapham, London, UK </b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image271.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image271.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
 <b>You are the forgiver.<br>

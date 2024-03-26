@@ -52,7 +52,7 @@ But His asceticism was there because of the Brahminism that was so prevalent in 
 <font size="+0"><b>1990-0616 Śhrī Mahāvīra Pūjā, Ca’n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image394.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image394.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue">"Now, why was He called Mahāvīra?<br>

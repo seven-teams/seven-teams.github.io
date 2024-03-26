@@ -74,7 +74,7 @@ Now, when you are one with that All-pervading Power – it’s a pure power, it�
 <font size="+0"><b>1999-0509 Sahasrāra Pūjā, Awareness Has to Become Paramachaitanya or Paramachaitanya Is with You, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image702.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image702.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Kirti Jayachi Trailokyachi</b></font><br>

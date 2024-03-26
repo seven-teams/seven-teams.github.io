@@ -15,7 +15,7 @@ Without desire, this universe would not have been created. This Desire of God is
 <font size="+0"><b>1982-1219 Śhrī Mahākālī Pūjā (English+Marathi+English), The Whole Universe Should Be Enlightened with Your Desires (We Have to Establish Our Desire within Ourselves that We Are Seekers and that We Have to Achieve Our Full Growth and Maturity), Lonavala (67 kms NNW of Pune), Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image776.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image776.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>"In Sahaja Yoga, Navarātri is the most important Pūjā, I would say.</b><br>
