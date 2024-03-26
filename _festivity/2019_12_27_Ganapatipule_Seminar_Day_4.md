@@ -17,7 +17,7 @@ And He would not stand any nonsense: nobody could take liberties with Him. But H
 <font size="+0"><b>1981-1225 Christmas Pūjā, You Have to Be Peaceful, Āśhram, 44 Chelsham Road, London, Clapham, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image276.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image276.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">You are peace.<br>

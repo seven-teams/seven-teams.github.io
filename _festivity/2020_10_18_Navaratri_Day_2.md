@@ -15,7 +15,7 @@ tags:
 <font size="+0"><b>1975-1222 Public Program (Hindi), Day 1, Prabhu ke Prem kā Anubhav (Experiences of Lord's Love), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image512.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image512.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">Sahaja Yogis [prayed to Śhrī Mātājī after the Pūjā]: All the Sahaja Yogis bow to You, <b>O Goddess

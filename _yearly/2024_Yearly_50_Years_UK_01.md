@@ -10,7 +10,7 @@ tags:
 <br>
 <div style="text-align: left"><img src="/images/50YearsUK.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image1315_1978-004_DCB.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1315_1978-004_DCB.jpg" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">                    

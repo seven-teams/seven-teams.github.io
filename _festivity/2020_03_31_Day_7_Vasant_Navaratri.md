@@ -14,7 +14,7 @@ So you leave it, the judgment to Her, you don’t judge yourself. This is very i
 <font size="+0"><b>1993-1005 Public Program, Earl Haig Secondary School, 100 Princess Avenue, North York (23 kms N of Toronto), ON, Canada</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image376.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image376.png" /></div>
 
 <p style="text-align:center;">
 <font color="Maroon"><b>"When your Kuṇḍalinī [is] raised and you get Self-realization, your Kuṇḍalinī crosses the Āgñyā chakra.<br>

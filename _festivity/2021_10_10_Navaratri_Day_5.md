@@ -131,7 +131,7 @@ Who wore a garland of human skulls as an ornament and killed the demon, Muṇḍ
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image798.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image798.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Śhrī Saraswatī is known as Skandamātā</b>, She was not His mother and was virgin.<br>

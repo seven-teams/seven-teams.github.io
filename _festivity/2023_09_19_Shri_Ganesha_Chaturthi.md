@@ -185,7 +185,7 @@ Salutations to You!</b><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image1225.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1225.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"<b>Only in your Āratī, in Marathi</b>, of Śhrī Gaṇeśha, they say that, "At the time when I am getting my Realization you must save me." That's the only thing they ask, "At the time of my Resurrection you must save me." It does not say that, 'At the time of my Resurrection you protect me,' no! "You save me." <b>Because He's the one who is sitting on every chakra like a vice-chancellor of the university. Even if you have Viṣhṇu on your side, Mahādeva on your side, but if Śhrī Gaṇeśha is there sitting and He says, 'No, not his ascent,' it doesn't work out, it's very difficult.</b>"</font><br>

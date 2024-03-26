@@ -68,7 +68,7 @@ The Power of Śhrī Mahādeva is the Subtlest and it punishes the evildoer in a 
 <font size="+0"><b>1999-0214 Śhivarātri Pūjā (Hindi+English), Principle of Śhiva Is in Your Heart, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image643.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image643.png" /></div>
 
 <p style="color:indigo; text-align:center;">
 <b>Aum Śhivam Śhivakaram Shāntam Śhiv’ākaram</b><br>

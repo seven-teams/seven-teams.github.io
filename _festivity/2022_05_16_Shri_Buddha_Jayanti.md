@@ -18,7 +18,7 @@ The Incarnation also has to reach a point of Realization in a different way. Lik
 <font size="+0"><b>1989-0520 Śhrī Buddha Pūjā, Gautama, The Lord of the Ego, Open Air near El Farell Hotel, Barcelona, Spain</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image976.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image976.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Buddha realized the greatest problem of human beings is his ego.<br>

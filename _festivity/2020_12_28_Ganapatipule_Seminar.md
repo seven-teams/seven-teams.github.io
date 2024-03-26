@@ -79,7 +79,7 @@ He’s saying, "I’m giving this daughter to you because you must take to Brahm
 <font size="+0"><b>2000-0323 Talk to Bridegrooms, before Śhrī Gaurī Pūjā before the Marriages Ceremony, Garden nearby Nirmal Dham, Behind BSF Camp Chhawala, New Delhi, India}</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image598.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image598.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"I wish you all very great love, prosperity and joy and that you all develop in Sahaja Yoga in a very

@@ -32,7 +32,7 @@ This is a place of Śhrī Gaṇeśha’s temple which is not very much frequente
 <font size="+0"><b>1985-1231 Talk to Sahaja Yogis, Śhrī Gaṇeśha's Principle (Innocence) and Childlike Temperament Can Be Developed If We Awaken Śhrī Gaṇeśha's Principle within Ourselves, before the Evening Program, Malgund (2.4 kms N of Gaṇapatīpuḷe), Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image275.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image275.png" /></div>
 
 <p style="text-align:center;">
 <font color="Blue">Gods, Goddesses of Vaikuntha<br>

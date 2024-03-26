@@ -17,7 +17,7 @@ That is what we do in Sahaja Yoga. <b>We do not follow any particular Saint or I
 <font size="+0"><b>1999-1123 Śhrī Guru Nāṇaka Jayanti (Hindi), House, Noida, Uttar Pradesh, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image849.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image849.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 <b>Ikoaŉkār saṯ nām karṯā purakẖ nirbẖao nirvair akāl mūraṯ ajūnī saibẖaŉ gur parsāḏ.</b><br>

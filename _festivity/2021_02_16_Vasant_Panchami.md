@@ -17,7 +17,7 @@ The Spirit, that is God, which is reflected in us, resides in the heart. The man
 <font size="+0"><b>1904-0000 Public Program, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image624.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image624.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue"><b>MAVENA NAYANI ANAND, HRUDAYAT SATCHIDANAND</b></font><br>

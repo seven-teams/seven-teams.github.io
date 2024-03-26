@@ -42,7 +42,7 @@ In the center, He resides as Śhrī Kṛiṣhṇa.</b></font><br>
 <font size="+0"><b>1982-0815 Śhrī Yogeśhwara Pūjā, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image477.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image477.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Śhrī Kṛiṣhṇa did little mischief with Indra.<br> 
