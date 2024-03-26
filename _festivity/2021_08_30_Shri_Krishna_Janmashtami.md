@@ -16,7 +16,7 @@ But in the Kingdom of God, we can say in Heavens, or even above everything else,
 <font size="+0"><b>1983-0828 Śhrī Kṛiṣhṇa Pūjā, The Ultimate of the Fatherhood, Garden, Āśhram, 1 Chemin du Joran, Tannay (13 kms N of Geneva), Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image760.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image760.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue">You are the Father, yet You are the friend.<br>

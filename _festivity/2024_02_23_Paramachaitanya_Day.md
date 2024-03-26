@@ -31,7 +31,7 @@ When singing we have to be conscious (janīv) that the entire universe has bĪn 
 (from 'Matru Snehita')</font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1333.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1333.png" /></div>
 
 <p style=" text-align:center;">
 <font color="MediumVioletRed"><b>Our Mother, who art on Earth,<br>

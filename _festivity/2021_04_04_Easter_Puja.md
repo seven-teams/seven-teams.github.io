@@ -18,7 +18,7 @@ So, we have to be eternally thankful to His life and to Him, that [for] the way 
 <font size="+0"><b>1988-0403 Easter and Birthday Pūjā, First and Foremost Thing You Have to Be Strong like Christ (We Have to Be Strong Ourselves, We Have to Ascend and We Have to Be Collective), Attention Should Be Towards Your Ascent (It's a State of Your Personality), Follow His Footsteps in Doing Remarkable Things (Carry the Work of Christ of Resurrection), and What You Wanted Is the State of that Complete Faith Within Yourself, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image656.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image656.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"As you know the Sun is thus Āgñyā chakra: Christ resides in the Sun. And in the body, in the being, He is the Spirit. 

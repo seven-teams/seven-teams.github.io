@@ -48,7 +48,7 @@ They are awakened and you start getting their attributes."</font><br>
 <font size="+0"><b>1977-0321 Birthday Pūjā, Cowasji Jehangir Hall, 15, Madam Cama Road, Mantralaya, Fort, Mumbai, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image353.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image353.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"According to me, Hazrate [Hazarat] Muhammad was one of the greatest incarnations because he was even greater than a Prophet. 
@@ -63,7 +63,7 @@ He announced some prophecies which none of the incarnations, such as Jesus, had 
 </b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image354.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image354.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"When you wash My Feet, you must know that they were given to Me by Brahmadeva Himself.<br>

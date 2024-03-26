@@ -104,7 +104,7 @@ Saa ghanta patu no devi papebhyo nah sutaniva.</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image1244.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1244.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"Now, what we call as <b>the Charaṇāmṛut is, means the Ambrose</b> then a ... a Ambrose, Ambrose of My Feet, or you can say Ambrose of My Feet, is not meant for everyone. Neither the blessings of the Pūjā are not meant for everyone. So try to avoid people who are not e yet fully equipped. First thing they will start is doubting. <b>If they do not doubt, also, there will be a problem with the protocol. They won't be able to accept it with that protocol.</b>"/font><br>

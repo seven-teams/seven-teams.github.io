@@ -16,7 +16,7 @@ So when we read about the Devī, about Her Incarnations -- how She came on this 
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Lucerne, Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1237.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1237.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 <b>Ā wahanam Janami</b><br>

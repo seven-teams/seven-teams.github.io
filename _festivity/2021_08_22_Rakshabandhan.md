@@ -32,7 +32,7 @@ Today is the Full Moon Day, and this day what we do is to tie a band of threads 
 <font size="+0"><b>1992-0919 Śhrī Viṣhṇumāyā Pūjā, Stop Feeling Guilty or She Exists in All the Five Elements, The Shawnee Inn, Shawnee on Delaware, Smithfield Township, PA, U.S.A.</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image750.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image750.png" /></div>
 
 <p style="color:blue; text-align:center;">
 <b>Yā Devī sarva bhūteshu Vishnumāy’eti shabditā<br>

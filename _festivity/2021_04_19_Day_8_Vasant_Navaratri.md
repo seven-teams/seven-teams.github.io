@@ -13,7 +13,7 @@ tags:
 <font size="+0"><b>1992-0216 Śhrī Kuṇḍalinī Gaurī Pūjā, Nobody Can Befool Me, Āśhram, Lake Road, Blackburne, Melbourne, Victoria, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image677.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image677.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">"...... the power of Kuṇḍalinī is Absolute Purity, auspiciousness, holiness, chastity, self-respect, pure love, detachment, concern, enlightened attention – to give you joy. As every mother wants that her child should get the joy. Whichever way is possible, She’ll try to give joy to Her children. In the same way, <b>this Kuṇḍalinī has only one power – how to give joy to Her own children, 

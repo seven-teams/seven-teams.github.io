@@ -14,7 +14,7 @@ tags:
 <font size="+0"><b>2003-0810 Śhrī Kṛiṣhṇa Pūjā (Hindi), Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image475.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image475.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Rādhā-Kṛishna sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>

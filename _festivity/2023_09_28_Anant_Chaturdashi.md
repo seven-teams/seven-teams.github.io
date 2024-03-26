@@ -16,7 +16,7 @@ That's how Śhrī Gaṇeśha is so important for all the Sahaja Yogis to be unde
 <font size="+0"><b>1983-0301 Śhrī Gaṇeśha Pūjā, Perth, WA, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1229.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1229.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 <b>You are the One to be worshipped first. Obeisance to You again and again.<br>

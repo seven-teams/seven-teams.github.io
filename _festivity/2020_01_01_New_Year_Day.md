@@ -15,7 +15,7 @@ Let all the people, let all the Sahaja Yogis raise their voices from the top of 
 <font size="+0"><b>1985-1116 Talk to Sahaja Yogis, Racism, during the Evening Program, after dinner the day before Diwālī Pūjā, Tivoli, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image285.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image285.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
 <b>Auṃ Twameva sākṣhāt Śhrī Ādi Śhakti charaṇa-yogī-sahasrāra-	śharaṇa Dāyinī<br>
@@ -29,7 +29,7 @@ Let all the people, let all the Sahaja Yogis raise their voices from the top of 
 </p>
 
 
-<div style="text-align: center"><img src="/images/image286.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image286.png" /></div>
 
 <p style="color:Purple; text-align:center;">
 <b>Thank you</b> for letting us participate in the salvation of mankind.<br>

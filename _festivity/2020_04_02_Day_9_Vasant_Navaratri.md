@@ -15,7 +15,7 @@ Nobody knew about it, it was all underground. All the knowledge about Kuṇḍal
 <font size="+0"><b>1990-0321 Birthday Pūjā, Ballroom, Curzon Hall, Sydney, New South Wales, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image386.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image386.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue"><b>"Śhrī Rāma’s chakra is on the right side of the heart – here She is in the form of Śhrī Sītā."</b></font><br>

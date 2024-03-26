@@ -185,7 +185,7 @@ I surrender at the feet of Shri Rama-chandra.<br>
 <a href="https://youtu.be/o-_qx6VXMA4">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image1272.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1272.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">"<b>When you offer Me flowers or anything else like water then the elements are happy, and the Deities are happy within their chakras so that they emit vibrations of their qualities and their blessings upon you.</b> They will give you their qualities and their blessings because this is how the Divine acts, and gradually after a Pūjā you will feel the whole thing is working out."</font><br>

@@ -69,7 +69,7 @@ So even Śhrī Kṛiṣhṇa has to use Her Power. Everybody has to use Her Powe
 <font size="+0"><b>1990-0811 Śhrī Saraswatī Pūjā, Lyons Bay (near Vancouver), BC, Canada</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image308.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image308.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"So one must learn how to respect the books, specially the Scriptures.<br>

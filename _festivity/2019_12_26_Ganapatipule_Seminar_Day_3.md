@@ -29,7 +29,7 @@ You are born of the Spirit.</b>
 <font size="+0"><b>1988-1224 Talk to Sahaja Yogis, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image272.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image272.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
 <b>You are Lord Kārttikeya<br>

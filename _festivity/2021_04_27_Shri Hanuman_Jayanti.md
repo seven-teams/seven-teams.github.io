@@ -71,7 +71,7 @@ So the devotion and the power (bhakti aur śhakti) are not different things. It 
 <font size="+0"><b>1999-0331 Śhrī Hanumāna Pūjā (Hindi), Krishna Sundar Garden, Amit Gaikwad Mala, Erandwane, Mhatre Bridge, Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image691.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image691.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>"I hope by today’s Pūjā, that enthusiasm, that venturesome nature will vibrate your Piṅgalā, and without feeling any ego about it, in the most humble manner as Hanumāna was, you will do the jobs.<br>

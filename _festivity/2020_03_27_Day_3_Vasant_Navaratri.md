@@ -32,7 +32,7 @@ We can go into ourselves, we can go into – our permeation is like water is mov
 <font size="+0"><b>1981-1101 Diwālī Pūjā, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image357.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image357.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
 <b>Auṃ̣ Twameva sākshāt Śhrī Viṣhṇu sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b><br>

@@ -33,7 +33,7 @@ Once the instrument is all right, then you project outside. And now how do you p
 <font size="+0"><b>1980-0719 Talk to Sahaja Yogis, The Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image707.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image707.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 <b>Kuṇḍalinī Kuṇḍalinī Nirmalā Mātā, Mātā Mā<br>
