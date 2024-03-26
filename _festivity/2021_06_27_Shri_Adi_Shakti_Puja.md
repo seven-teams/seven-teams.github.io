@@ -19,7 +19,7 @@ The expression of Ādi Śhakti within you is the Kuṇḍalinī, no doubt. That 
 <font size="+0"><b>1997-0525 Śhrī Ādi Śhakti Pūjā, You Must Give this Love to Others or Respect the Mother Earth, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image723.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image723.png" /></div>
 
 <p style="text-align:center;">
 <font color="FireBrick"><b>Aum sarve vai Devā Devīm-upa-tasthuhu "Kāsi twam Mahā-dev’īti"</b></font><br>

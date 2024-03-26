@@ -95,7 +95,7 @@ Today on the auspicious day of Śhrī Guru Nāṇaka’s Birthday let us pray fo
 On the auspicious occasion, we humbly offer the 19 invocations to Śhrī Guru Nāṇaka, compiled from Śhrī Mātājī's talks (mostly from the above 1982-1101 and 1999-1123 talks and 1995-0910 Śhrī Gaṇeśha Pūjā). 
 </p>
 
-<div style="text-align: center"><img src="/images/image574.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image574.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>-Salutations</b></font> to the One who was the Primal Master, placed in looking after our Void, sustaining us and giving us a model of an ideal Master.<br>

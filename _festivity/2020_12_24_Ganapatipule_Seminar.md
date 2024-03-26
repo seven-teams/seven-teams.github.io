@@ -36,7 +36,7 @@ May God bless you.</font><br>
 <font size="+0"><b>1986-0101 Talk to Sahaja Yogis, Beach, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image582.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image582.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Gods, Goddesses of Vaikuntha<br>

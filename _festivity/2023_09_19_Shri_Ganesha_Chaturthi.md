@@ -47,7 +47,7 @@ The Gaṇeśh Principle is what we call as abodhita [ignorant of wrong behavior]
 <font size="+0"><b>1979-0922 Talk to Sahaja Yogis (Marathi), Kuṇḍalinī and Śhrī Gaṇeśha Principle, Navarātri Celebrations (1st Day), Amar Hind Mandal, West Dadar, Mumbai, Maharashtra, India]</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1222.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1222.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"Tuesday is the day realized Souls (Sahaja Yogis) should worship Śhrī Gaṇeśha in the Mūlādhāra chakra."</font><br>

@@ -62,7 +62,7 @@ You have to rise into that new realm which is the Realm of God Almighty, what yo
 <font size="+0"><b>1984-0422 Easter Pūjā, The Way of Our Full Spiritual Growth and Sahaja Penance, Temple of All Faiths, Hampstead, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image658.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image658.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"On the Easter Day, we give people eggs to remind them that, ‘You are egg now and you have to become the bird.’ But I don’t think people know that,<br>

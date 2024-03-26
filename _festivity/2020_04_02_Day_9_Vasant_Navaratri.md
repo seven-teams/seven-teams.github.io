@@ -67,7 +67,7 @@ First the leader has to sacrifice and show how far he can go in sacrificing to k
 <font size="+0"><b>1982-0402 Śhrī Rāma Pūjā, Rāma Navamī, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image389.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image389.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue">"Also you must protect yourself, all of you: always give yourself a bandhan; always lead a clean life. 

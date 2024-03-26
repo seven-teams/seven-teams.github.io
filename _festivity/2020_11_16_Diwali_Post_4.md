@@ -18,7 +18,7 @@ The object of Sahaja Yoga is basically to become and experience the spiritual Se
 <font size="+0"><b>1900-0000 Nineteen Quotes from the e-mail booklet Come the Mother Calls!</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image562.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image562.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Today is a day we celebrate in India where relationship between brothers and sisters have to be established.</b><br> 

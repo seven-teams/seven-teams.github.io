@@ -34,7 +34,7 @@ This is a very big happening which demonstrated that it is very wrong to be crue
 In our country [India] all such things have a lot of truthfulness. We have to understand that if we do wrong things, trouble others ... then these are demonic qualities.<br>
 ......<br>
 We should not have these demonic qualities because we are Sahaja Yogis. We are a special race of people who have taken birth to transform this world and we should pay our attention towards that. We are very highly placed, higher than all others and we have to save all others from such tendencies. These days it has spread a lot. That's why all such hateful, cruel behavior by which we dominate others, torture others is very, very bad and there is no need to do all that in Sahaja Yoga."</font><br>
-<font size="+0">2002-0329 Holī Pūjā (Hindi) (Holī Raṃgavalī), Palam Vihar, Gurgaon, Haryana, India<b></b></font>
+<font size="+0"><b>2002-0329 Holī Pūjā (Hindi) (Holī Raṃgavalī), Palam Vihar, Gurgaon, Haryana, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1347.png" /></div>

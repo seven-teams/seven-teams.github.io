@@ -62,7 +62,7 @@ The Lord of the elephants, the One with the moon on His forehead, Śhrī Gaṇe�
 <font size="+0"><b>1990-0826 Talk to Sahaja Yogis, Any Country which Has Fundamentalism Behind It Will Have to Go Down in this Modern Times, before Śhrī Gaṇeśha Pūjā, Lanersbach, Austria</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1231.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1231.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"When you wash My Feet, you must know that they were given to Me by Brahmadeva Himself. And by taking water out of it you clear all the problems of your five elements which are in the control of the creator himself. So My Feet are the more important; they can cure your ailments of the five elements; even mental ailments are cured because that part of you is formed from ākāśh, the firmament."</font><br>

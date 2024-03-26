@@ -12,7 +12,7 @@ tags:
 <font color="DarkRed">"<b>Birthday of your Mother, and all such celebrations, have a very deep significance. Because on such occasions, special vibrations flow in the atmosphere.</b> When all the celestial bodies, the Eternal Personalities, Gods and Goddesses, s-s-sing the praise, and that's how the whole atmosphere is filled with mirth and happiness.<br>
 Human beings also, express their gratitude. Expression of gratitude and love is done in different, different ways in different countries, but the substance remains the same and the forms change.<br>
 The substance is like the ocean which flows continuously towards the shores, and the ripples which touch the shores are again repelled back, and a nice pattern is formed. It is such a spontaneous thing, and is so beautiful, creates such a beautiful pattern in the atmosphere. All these waves when they weave together the pattern of love, they soothe human beings, they enchant human beings, and the whole thing is very blissful.<br>
-On such occasions a special type of feelings develop, which we cannot express in words so the expression could be in any form. But the main thing is the expression. God has expressed Himself by Creation, by creating this Creation. While the Creation has to express its gratitude by glorifying Him, and this play must go on eternally. It's the most beautiful play. Those who indulge into this play lead an eternal life. That life is unending, never breaks and binds the whole universe with its beautiful music. "</font><br>
+On such occasions a special type of feelings develop, which we cannot express in words so the expression could be in any form. But the main thing is the expression. <b>God has expressed Himself by Creation, by creating this Creation. While the Creation has to express its gratitude by glorifying Him, and this play must go on eternally. It's the most beautiful play.</b> Those who indulge into this play lead an eternal life. That life is unending, never breaks and binds the whole universe with its beautiful music. "</font><br>
 <font size="+0"><b>1980-0323 Birthday Pūjā, Guarding Against Slothfulness, Bharatiya Vidya Bhavan, 4A Castletown Road, London W14 9HE, UK</b></font>
 </p>
 
@@ -48,7 +48,7 @@ The first thing is needed: a sincerity to yourself."</font><br>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>On My birthday today, I request you all to grow with Me. Grow in age. It means that you should become mature.</b> You have become one-pointed."</font><br>
-<font size="+0"><b>1990-0324 Birthday Pūjā (Hindi), Mumbai, Maharashtra, India</b></font>
+<font size="+0"><b>1990-0324 Birthday Pūjā (Hindi), Mumbai, Maharashtra, India</b></font><br>
 <br>
 <font color="DarkGreen"><b>O Param-pūjya Śhrī Mātājī Nirmalā Devī,<br>
 Out of the Highest Realm of Divinity, You have come on this Earth only because of Your infinite love, compassion and benevolence.<br>
@@ -177,7 +177,7 @@ The day of recollection of Divine devotion has come!</font><br>
 </p>
 
 <p>
-<font color="blue"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
+<font color="green"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -215,7 +215,7 @@ The day of recollection of Divine devotion has come!</font><br>
 
 <p style=" text-align:center;">
 <font color="Red"><b>Happy</b></font> <font color="DarkGreen"><b>Birthday</b></font> <font color="FireBrick"><b>Śhrī Mātājī</b></font><br>
-<a href="https://youtu.be/O3kudRDPf-E">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 <br>
 <font color="DarkGreen"><b>Ayi ho Ma ham sab ke liye</b><br>
 <font size="+0">You have come for our sake, O Mother</font><br>
@@ -228,7 +228,7 @@ The day of recollection of Divine devotion has come!</font><br>
 <b>Barhe Yog Sahaj Ma</b><br>
 <font size="+0">Let Sahaja Yoga prosper on this very day!</font><br>
 <font size="+0"><b>Aj. Ke Din - Jab. Rat. Dhale</b></font></font><br>
-<a href="">video</a>
+<a href="https://youtu.be/O3kudRDPf-E">video</a>
 </p>
 
 <p>

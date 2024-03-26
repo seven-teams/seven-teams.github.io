@@ -14,7 +14,7 @@ Now this, you don’t have to do when you are in deep meditative state. It start
 <font size="+0"><b>1991-0408 Śhrī Gaurī Pūjā, Residence near Āśhram, Parnell, Auckland, New Zealand</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image370.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image370.png" /></div>
 
 <p style="text-align:center;">
 <font color="FireBrick">"When you will clear your Viśhuddhi, your vision will change and you will receive the help from the Divine.<br> 
