@@ -16,7 +16,7 @@ You all know his childhood life and you have already heard about his qualities, 
 <font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi) (the day after Rām Navamī Day), If You Believe in Śhrī Rāma Follow His Ideal (Our Nature Can Change because He Is Our Ideal and You All Become Ideals for this World), Kolkata, West Bengal, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image681.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image681.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>On the night of Full Moon, you should meditate on Śhrī Rāma and surrender yourself to Him for protection.</b><br>

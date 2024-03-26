@@ -35,7 +35,7 @@ If you ask Me, I can’t join politics. Shastrijī asked Me several times. He sa
 <font size="+0"><b>1994-1203 Talk to Sahaja Yogis, Release of Sir C.P.'s book Lal Bahadur Shastri A Life of Truth in Politics, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image500.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image500.png" /></div>
 
 <p style="text-align:center;">
 Mahātmā Gāndhī [to Śhrī Mātājī when She was about 11]: Why don’t You write a poem?<br>	

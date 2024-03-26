@@ -36,7 +36,7 @@ Now, this center has a power to give us wisdom. Now wisdom is such, such a word 
 <font size="+0"><b>1981-0325 Public Program, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst,  New South Wales, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image347.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image347.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Śhrī Gaṇeśha, please be kind and merciful and forgiving,<br> 

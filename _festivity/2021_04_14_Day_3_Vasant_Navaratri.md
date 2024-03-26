@@ -14,7 +14,7 @@ tags:
 <font size="+0"><b>2001-0326 Public Program (Hindi+English+Hindi) (Guḍhī Pāḍavā Day), Kaliyuga meṃ Sahajayog kā Mahatva (Importance of Sahaj Yoga in Kali Yuga), Jawaharlal Nehru Stadium, Pragati Vihar, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image667.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image667.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Prabhavatı Prabha-rupa, Prasiddha Parameshvarı,<br> 

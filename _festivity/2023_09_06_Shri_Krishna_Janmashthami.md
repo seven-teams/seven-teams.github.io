@@ -96,7 +96,7 @@ He is in the Void, and if He is awakened, He brings you to the light: removes yo
 <font size="+0"><b>1993-0815 Śhrī Kṛiṣhṇa Pūjā, The Qualities of Śhrī Kṛiṣhṇa (Giver of Dharma, He did not believe in Forgiveness, The One Who Communicated, Mādhurya, Diplomacy, To Make Your Brain Dhārmik) and Americas, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1218.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1218.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Your will will be respected throughout. Every other thing can be looked after except for one that <b>you should be a perfect machine, a perfect channel, a perfect flute for My Lord to play that tune of love. It is for you to clear out all your seven holes. It is for you to clear out your hollowness and to be complete within yourself and He knows his job. He is the artist. But you are the instruments</b>. And the harmonious music from so many souls can fill the ears of these evil people and can penetrate into their heart and put love into them and may be that they themselves will give up their evil ways and fall at the Feet of Love."</font><br>

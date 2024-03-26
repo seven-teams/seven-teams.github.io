@@ -75,7 +75,7 @@ Mother, to thee I praise thee.</font><br>
 <font size="+0"><b>1986-0802 Talk to Sahaja Yogis, Arrival for the Inauguration, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image747.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image747.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">Mā Teri Jay Ho Tera Hi Vijay Ho,</font><br>

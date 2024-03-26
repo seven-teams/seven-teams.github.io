@@ -42,7 +42,7 @@ On one side He's wrathful, no doubt, on the other side, He is the Ocean of Compa
 <font size="+0"><b>1996-0303 Śhivarātri Pūjā, Motivate Your Attention or God's Realization, Bundilla Scout Camp, 6 Baden Powell Pl, Winston Hills (35 kms E of Sydney), New South Wales, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1337.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1337.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"So it is important that you should join hands, work it out, the work of the Goddess so that Śhiva is happy and we create a new world of spirituality and beauty.<br>
@@ -58,7 +58,7 @@ When Kuṇḍalinī is awakened, then foremost it heals your body to health beca
 <font size="+0"><b>1991-0209 Śhivarātri Pūjā (Hindi + English), Pandal, opposite side from the Sahaja Yoga Temple, C-17, Shaheed Jeet Singh Marg, Block C, Qutab Institutional Area (behind Qutub Hotel), New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1338.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1338.png" /></div>
 
 <p>
 <font color="DarkRed"><b>"Tonight we have gathered here to do Śhrī Śhiva Pūjā. Those people who have a clean heart can only do Śhiva Pūjā. Those whose heart is not clean cannot do Śhiva Pūjā. It's a simple Principle of Śhrī Śhivarātri."</b></font><br>
