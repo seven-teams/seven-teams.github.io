@@ -120,7 +120,7 @@ Durgati Harini Durgā Ambe</font><br>
 <a href="https://www.youtube.com/watch?v=b30MtjwiJDY&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image535.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image535.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"This Pūjā is very special, many will go deep and receive tremendous blessings.<br> 

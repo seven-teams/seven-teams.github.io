@@ -15,7 +15,7 @@ So today we must determine that we’ll have no rational activity about it, othe
 <font size="+0">1980-0420 Pūjā, Significance of Pūjā, Flat of Marie Rouger, Paris, France<b></b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image528.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image528.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Because in the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day.<br> 

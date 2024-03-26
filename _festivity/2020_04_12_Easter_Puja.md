@@ -56,7 +56,7 @@ His crossing has helped us today to open your Sāhasr... open your Āgñyā. <b>
 <font size="+0"><b>1998-0419 Easter Pūjā, Istanbul, Turkey</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image400.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image400.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 <b>You promised the comforter who is Śhrī Mātājī, the Holy Spirit.<br>

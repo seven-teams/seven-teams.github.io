@@ -42,7 +42,7 @@ Incarnation cannot be understood from human angle – can never be understood, I
 <font size="+0"><b>1987-0816 Śhrī Kṛiṣhṇa Pūjā, The Sixteen Thousand Powers of Śhrī Kṛiṣhṇa, Saint-Quentin-en-Yvelines (11 kms SW of Versailles), France</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image761.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image761.png" /></div>
 
 <p style="color:blue; text-align:center;">
 <b>Veda Houn. Bhakti Sathi</b><br>

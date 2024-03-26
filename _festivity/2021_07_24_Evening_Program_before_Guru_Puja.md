@@ -17,7 +17,7 @@ I hope you will all enjoy today’s music concert and all the entertainment that
 <font size="+0"><b>1991-0727 Talk to Sahaja Yogis, before the Evening Program, the day before Guru Pūjā, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image735.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image735.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>GURU EK . JAGI TRATA</b></font><br>

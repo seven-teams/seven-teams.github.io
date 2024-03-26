@@ -17,7 +17,7 @@ But today we have to consider the Mahālakṣhmī Principle. Now Mahālakṣhmī
 <font size="+0"><b>1983-0101 Śhrī Mahālakṣhmī Pūjā, Kolhapur, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image605.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image605.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"So, the New [Year] Day comes to remind you: ‘Doesn’t matter, whatever has happened has happened, is finished.<br>

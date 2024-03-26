@@ -73,7 +73,7 @@ So when you surrender ego, what do you do actually is to say that, “I’m not 
 <font size="+0"><b>1983-0904 Śhrī Kṛiṣhṇa Pūjā, Viśhuddhi Chakra, Sternwarterstraße, Vienna, Austria</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image487.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image487.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue">"Your will will be respected throughout. Every other thing can be looked after except
