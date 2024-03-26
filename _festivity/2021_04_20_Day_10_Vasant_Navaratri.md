@@ -39,7 +39,7 @@ Actually, all the events that occurred in the life span of Śhrī Rāma like Ahi
 <font size="+0"><b>1998-0405 Śhrī Rāma Pūjā (Rāma Navamī), House, Noida, Uttar Pradesh, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image682.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image682.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"So, one belongs to Paraśhurāma and one belongs to Rāma."</b></font><br>

@@ -78,7 +78,7 @@ So the innocence of a child and the innocence of a virgin, or you can say the ch
 <font size="+0"><b>1982-0815 Havan, before Śhrī Yogeśhwara Pūjā, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1217.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1217.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"That is what it is, where Śhrī Kṛiṣhṇa had to raise a complete mountain on His fingertips like this, to the right side. Govardhandhāri was called."</b></font><br>

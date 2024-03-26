@@ -119,7 +119,7 @@ Salutations to you O Kālarātrī (the longest night)</b></font><br>
 <a href="https://youtu.be/h8LHLwZHCQM">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image1260.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1260.png" /></div>
 
 <p style="text-align:center;">
 <b>Sahaja Yogi:</b> <font size="+0"><font color="DarkGreen"><b>You are the Queen of the Universe. And we are Your devotees, we are Your disciples. So if we are allowed to crown You, it means that we have to have complete adherence, allegiance and surrender.</b></font></font><br>

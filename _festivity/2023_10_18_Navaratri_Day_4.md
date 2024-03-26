@@ -16,7 +16,7 @@ The form of the Goddess in those days was not Māyā Swarūpi[n]. She was in Her
 <font size="+0"><b>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1249.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1249.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Nṛisiṁha rūpeṇ‛ogreṇa</b></font><br>
@@ -74,7 +74,7 @@ Enjoyment is only possible when you are beyond your mind. With your mind you can
 <font size="+0"><b>1995-1001 Navarātri Pūjā (cusp between 7th Day and 8th Day), You Must Project Your Depth and Not Reflect, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1251.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1251.png" /></div>
 
 <p style="text-align:center;">
 <font color="Indigo"><b>Visṛistau sṛisti-rūpā Tvam sthiti-rūpā cha pālane,<br>

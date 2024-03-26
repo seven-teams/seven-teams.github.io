@@ -34,7 +34,7 @@ And so today we remember Her Great Incarnation as Maria, who was very great beca
 <font size="+0"><b>1984-0908 Śhrī Mary Mahālakṣhmī Pūjā, Münich, Germany</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image482.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image482.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"If you have to celebrate say your Republic Day or your Independence Day we put the lights on, or we have fireworks, you see. To express ourselves that way is in the Rājalakṣhmī.<br>

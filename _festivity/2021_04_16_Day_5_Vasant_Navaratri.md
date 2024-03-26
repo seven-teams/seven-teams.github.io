@@ -18,7 +18,7 @@ The Kuṇḍalinī is the energy that you know which gives you your ascent, but 
 <font size="+0"><b>1991-0408 Śhrī Gaurī Pūjā, Residence near Āśhram, Parnell, Auckland, New Zealand</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image671.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image671.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Kushala Komalakara, Kuru-kulla Kuleshvarı,<br>

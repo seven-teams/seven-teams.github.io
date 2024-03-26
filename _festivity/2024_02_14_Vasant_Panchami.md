@@ -17,7 +17,7 @@ But we should know our own great power. That power is what we call creation powe
 <font size="+0"><b>1992-0403 Śhrī Saraswatī Pūjā, Emerlin College, Yamunānagar, Haryana, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1326.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1326.png" /></div>
 
 <p style="color:green; text-align:center;">
 <font color="DarkRed"><b>Yā kundendu tushāra hāra dhavalā</b></font><br>

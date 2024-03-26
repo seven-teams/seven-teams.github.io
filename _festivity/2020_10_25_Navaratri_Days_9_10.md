@@ -40,7 +40,7 @@ So the problem today is very delicate. There are no absolute Saints and there ar
 <font size="+0"><b>1980-1019 Havan, Navarātri Celebrations (Dussehra Day), To Solve All Your Problems Is to Surrender, Temple of All Faiths, Hampstead, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image541.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image541.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"...... On this day of Dussehra, let us decide that we are going to have Rām Rāj in Sahaja Yoga, 

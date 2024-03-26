@@ -37,7 +37,7 @@ Additionally, they learnt different meanings of the Śhakti. But one thing proba
 <font size="+0"><b>1994-1211 Śhrī Ādi Śhakti Pūjā (Hindi), Mahāmāyā, Mahākālī, Śhāradā Devī, Mahālakṣhmī, Jaipur, Rajasthan, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image668.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image668.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"...... it’s the Spirit which enlightens all your power.<br> 

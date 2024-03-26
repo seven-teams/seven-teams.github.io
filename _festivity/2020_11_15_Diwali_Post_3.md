@@ -32,7 +32,7 @@ So you are very different from all others because a Spirit has given birth to yo
 <font size="+0"><b>1980-1109 Diwālī Pūjā (Bhāūbīj Day), The Mahālakṣhmī Power, Temple of All Faiths, Hampstead, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image567.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image567.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"...... this new awakening within you that you have to achieve God now, is the Power of Mahālakṣhmī.</b> 

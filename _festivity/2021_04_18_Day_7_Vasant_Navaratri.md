@@ -14,7 +14,7 @@ Now, this desire to be one with the Divine is the purest and the highest. And to
 <font size="+0"><b>1983-0121 Śhrī Devī Pūjā, Keep Your Mother Pleased, Vaitarna, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image675.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image675.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">"Kuṇḍalinī Śhakti is the Power of Desire of Bhagavatī.<br>

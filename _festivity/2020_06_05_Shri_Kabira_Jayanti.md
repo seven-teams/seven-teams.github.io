@@ -16,7 +16,7 @@ Kabīr Dāsjī has written a beautiful poem about it that, "When the goat is liv
 <font size="+0"><b>1976-0330 Guḍhī Pāḍavā Pūjā, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image445.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image445.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">Śhrī Mātājī quotes from dohas of Śhrī Kabīr:<br> 
@@ -42,7 +42,7 @@ You don't have these handicaps, where Kabīra never had anybody to support him o
 <font size="+0"><b>1987-0506 Talk to Sahaja Yogis, The Need to Go Deeper and Questions and Answers, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image446.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image446.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>Nirbhay Nirgun Gun Re Gayunga</b><br>

@@ -15,7 +15,7 @@ Today is very special day because the Sun is particularly benevolent towards us 
 <font size="+0"><b>2008-0117 Makar Saṅkrānti Pūjā (Hindi), Hall, Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1316.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1316.png" /></div>
 
 <p style="text-align:center;">
 <font color="Chocolate"><b>Saṅkrānti means Power of the Sun. Sun power means self-confidence. Sun gives us heat and light. Now it depends on us whether to get scorched from the heat of the Sun or gain self-confidence from the light of the Sun and become radiant.<br>

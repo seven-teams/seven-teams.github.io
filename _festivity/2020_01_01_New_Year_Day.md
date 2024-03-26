@@ -46,7 +46,7 @@ Only he should be called a Sahaja Yogi who has achieved complete satisfaction an
 <font size="+0"><b>1984-0103 New Year Pūjā (Hindi), Sahaja Yogi ki Pahchān (Who Is a Sahaja Yogi), Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image287.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image287.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b><i>"So then everybody should today decide and take an oath that we'll do everything to spread Sahaja Yoga with humility."</i></b></font><br>

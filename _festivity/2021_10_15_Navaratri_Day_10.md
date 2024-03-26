@@ -79,7 +79,7 @@ All right, killing the demons was over. What is it? Done! Saraswatī’s work wa
 <font size="+0"><b>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image818.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image818.png" /></div>
 
 <p style="text-align:center;">
 <font size="+0"><b>Sahaja Yoginī: Recognize You as Ādi Śhakti.</b></font><br>
@@ -232,7 +232,7 @@ You being the Mother of Universe why should I seek elsewhere, and Ambe having em
 <a href="https://youtu.be/o-_qx6VXMA4">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image820.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image820.png" /></div>
 
 <p>
 <font color="DarkRed">"<b>Today especially it's a very great day of Dussehra we call it. This is the day when, as you know, Rāvaṇa was burned. Effigies of Rāvaṇa are burnt all over the place. When Śhrī Rāma came this was done. His victory.</b> 

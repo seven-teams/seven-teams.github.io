@@ -36,7 +36,7 @@ The glory of hundred thousand suns is shining on Your face<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image720.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image720.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkGreen">All sciences are part of You. The feminine power of all women is from You.<br>

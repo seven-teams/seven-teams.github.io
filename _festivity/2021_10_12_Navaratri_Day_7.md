@@ -46,7 +46,7 @@ It is this Goddess which is ruling this universe, which is in your center Heart,
 <font size="+0"><b>1995-0917 Śhrī Śhakti Devī Pūjā, Love and Joy of Collectivity, Moscow, Russia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image805.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image805.png" /></div>
 
 <p style=" text-align:center;">
 <font color="Indigo"><b>Bhavānī dayānī, Mahābāka bānī</b><br>

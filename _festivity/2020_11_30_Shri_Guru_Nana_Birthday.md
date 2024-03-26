@@ -35,7 +35,7 @@ Just desire, have earnestness in you and alertness to achieve it."</font><br>
 <font size="+0"><b>1982-0222 Public Program (English+Hindi), Day 5, Lord Śhiva, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image572.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image572.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"This day, in the name of Nāṇaka, I bless you all with that great spirit of mastery, 

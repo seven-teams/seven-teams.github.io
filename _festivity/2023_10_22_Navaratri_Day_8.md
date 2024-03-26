@@ -16,7 +16,7 @@ It's so Sahaja that today should be Aṣhṭamī, because that is the day the Go
 <font size="+0"><b>1984-0930 Aṣhṭamī Pūjā (8th Day of Navarātri), Discipline Has to Be Sahaja (What We Have to Do within Ourselves), Complexe Sportif René Leduc, 12 Rue du Père Brottier, Meudon (12 kms SW of Paris), Île-de-France, France</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1261.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1261.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>Salutations to the Devī, to the Mahādevī.<br>
@@ -52,7 +52,7 @@ So is a very important day and very vital and very deep."</font><br>
 <font size="+0"><b>1982-0201 Śhrī Durgā Pūjā (English + Marathi + English), House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1262.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1262.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 <b>O Goddess of the Universe,<br>

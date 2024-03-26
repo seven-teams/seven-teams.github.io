@@ -15,7 +15,7 @@ This pattern was on for some time. These few people who got Realization did lots
 <font size="+0"><b>1980-0505 Sahasrāra Pūjā, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image416.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image416.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkGreen">"<b>Tucha Kharokhar. Hya Vishwachi, Karati An Karaviti</b></font><br>
@@ -51,7 +51,7 @@ So, heart is the pivotal point for the second era now."</font><br>
 <font size="+0"><b>1984-0505 Sahasrāra Pūjā, Chapel, Château Mesnières, Mesnières-en-Bray, France</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image417.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image417.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"So, if you have to place your attention to Sahasrāra, first thing you have to do is to pay attention to your heart.<br>
@@ -74,7 +74,7 @@ May God bless you all."</font><br>
 <font size="+0"><b>1989-0506 Sahasrāra Pūjā, Theater Cinema della Rosa, Via delle Rose, 35, Sorrento, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image418.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image418.png" /></div>
 
 <p style="color:Purple; text-align:center;">
 <b>Thank You for introducing us to a relationship to the Divine.<br> 

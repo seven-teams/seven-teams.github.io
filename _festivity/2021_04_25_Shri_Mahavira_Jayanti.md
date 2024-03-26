@@ -35,7 +35,7 @@ But as He belonged to the left side, He has described Hell very clearly. Fundame
 <font size="+0"><b>1990-0616 Śhrī Mahāvīra Pūjā, Touch Your Depth and Complete Kevalagyān (There Is Hell and You Must Learn to Have Self-discipline), Ca'n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image686.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image686.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"He was a Reincarnation of Saint Michael and He resides on the left side, on the Iḍā nāḍī.<br>

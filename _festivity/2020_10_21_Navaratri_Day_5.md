@@ -61,7 +61,7 @@ This day we also worship the Durga in Her form of Śhrī Skandamātā (The Mothe
 On this day, the fifth night of Navarātri, we also sing Jogawa.</font><br>
 </p>
 
-<div style="text-align: center"><img src="/images/image526.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image526.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Śhrī Saraswatī is known as Skandamātā, She was not His mother and was virgin.<br> 

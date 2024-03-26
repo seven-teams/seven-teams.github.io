@@ -125,7 +125,7 @@ Today, on this great, great day, we see the Universe at Your Feet.</b></font><br
 <a href="https://www.youtube.com/watch?v=1Y2Z3tNAs0I&ab_channel=SahajaYogafamilymeditation">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image703.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image703.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Prana-tanam prasida twam</b></font><br>

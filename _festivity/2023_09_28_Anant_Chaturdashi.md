@@ -37,7 +37,7 @@ Ananta means which cannot be destroyed. Innocence cannot be destroyed. And that 
 <font size="+0"><b>1983-0920 Guru Pūjā (Anant Chaturdaśhī Day), This Finger Is Nothing but the Sahaja Yogis of America and They Have to Help by Their Dynamic Behavior and by Their Proper Understanding, Responsibility as the People Belonging to this Great Nation of Fatherhood, Houston, TX, U.S.A.</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1230.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1230.png" /></div>
 
 <p style="text-align:center;">
 <font color="Red"><b>Gananayakaya Ganadaivataya Ganadhyakshaya Dhimahi<br>

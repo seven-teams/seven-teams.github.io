@@ -13,7 +13,7 @@ tags:
 <font size="+0"><b>1982-0928 Public Program, Volksbildungshaus, Uraniastraße 1, Vienna, Austria</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image351.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image351.png" /></div>
 
 <p style="text-align:center;">
 <font color="LightSalmon">"In the process of creation Brahmadeva was made the Deity of the second chakra.
@@ -28,7 +28,7 @@ tags:
 <font size="+0"><b>1976-0205 Public Program Day 2, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image352.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image352.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"When Kuṇḍalinī crosses six chakras, it is called as complete Nirmal Vidyā.</b> The Desire of God

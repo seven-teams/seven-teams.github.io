@@ -65,7 +65,7 @@ We get this power from the center of Āgñyā. The person whose Āgñyā is clea
 <font size="+0"><b>2000-1225 Christmas Pūjā (Hindi + English), Success in Sahaja Yoga Is What Will Last Forever and Everybody Will Remember It (Try to Learn Sahaj Culture), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1307.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1307.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkGreen"><b>Putra Vatsalā Kalyāni Mahāpātaka Nāshini</b></font><br>

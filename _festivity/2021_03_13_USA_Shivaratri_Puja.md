@@ -40,7 +40,7 @@ Also He is the Ocean of Knowledge, so those who get self-realized get the Knowle
 <font size="+0"><b>1996-0303 Śhivarātri Pūjā, Motivate Your Attention or God's Realization, Bundilla Scout Camp, 6 Baden Powell Pl, Winston Hills (35 kms E of Sydney), New South Wales, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image642.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image642.png" /></div>
 
 <p style="color:indigo; text-align:center;">
 <font size="+0"><b>Nirgunaya, Nishkāmaya, Nirupaplavaya, Niravadhyaya, Nirantharaya, Nishkaranaya, Nirathangaya, Nishprapanchaya,<br>

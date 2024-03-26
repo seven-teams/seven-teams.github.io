@@ -45,7 +45,7 @@ Then He was given birth by the Holy Ghost who was the Mother of Christ on this E
 <font size="+0"><b>1982-0411 Easter Pūjā, How Christ Was Created, Resurrection of Christ, and Collective Resurrection (Mahāviṣhṇu State, Easter Is the Most Important Happening, You are a Collective Being and Collectivity Is the Nature of a Sahaja Yogi), Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image657.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image657.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"So, it was a very sad time when He was crucified. <b>But when He got resurrected it was the most joyous, most auspicious and most beautiful time.<br>

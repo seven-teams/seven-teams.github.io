@@ -15,7 +15,7 @@ tags:
 </p>
 
 
-<div style="text-align: center"><img src="/images/image548.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image548.png" /></div>
 
 <p style="text-align:center;">
 <font size="+0"><font color="DarkGreen"><b>Maulīne thothāvile ḍār</b></font></font><br>

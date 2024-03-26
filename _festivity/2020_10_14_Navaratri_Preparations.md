@@ -13,7 +13,7 @@ tags:
 <font size="+0"><b>1973-0828 Śhrī Kṛiṣhṇa Pūjā, Gita Mandir Hall, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image504.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image504.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Stuta Suuraih Purvam bhishts Samshrayattatha<br>

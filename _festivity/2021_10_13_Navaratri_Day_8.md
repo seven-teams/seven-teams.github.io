@@ -58,7 +58,7 @@ And Happiness itself, we bow constantly.
 <font size="+0"><b>1982-0926 Śhrī Durgā Pūjā, Mind Is just like a Donkey, House of Grégoire de Kalbermatten, Sternwartestrasse 62, Vienna, Austria</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image810.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image810.png" /></div>
 
 <p style=" text-align:center;">
 <font color="SaddleBrown">"Today is the eighth day of the Devī Pūjā and <b>on this day the Power of Kālī acts and She is the one called as Saṃhāra Kālī</b>,<br>

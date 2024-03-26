@@ -16,7 +16,7 @@ The first thing is needed: a sincerity to yourself."</font><br>
 <font size="+0"><b>1990-0321 Birthday Pūjā, Ballroom, Curzon Hall, Sydney, New South Wales, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image340.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image340.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Thank You for letting us participate in the salvation of mankind. 
@@ -39,7 +39,7 @@ But <b>if you decide that we have to ascend spiritually within us, then everythi
 </b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image341.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image341.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Thank You for descending from Your heavenly abode, Mātā Dwipa, to bring light into the darkness of Kali Yuga.<br> 
@@ -60,7 +60,7 @@ So He has created this Universe to create realized Souls, not to create useless 
 <font size="+0"><b>1983-0330 Birthday Pūjā and Havan (English+Marathi), New Marine Lines, Churchgate, Mumbai, Mahara</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image342.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image342.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Thank You for comforting us.<br>

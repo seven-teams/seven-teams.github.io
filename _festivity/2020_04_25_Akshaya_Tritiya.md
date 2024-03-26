@@ -13,7 +13,7 @@ tags:
 <font size="+0"><b>1992-0621 Śhrī Ādi Kuṇḍalinī Pūjā, Tent, Cabella Ligure, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image405.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image405.png" /></div>
 
 <p style="text-align:center;">
 <font color="Red"><b>Shrī Mātājī:</b></font> <font color="RedGreen">Akṣhay Tṛitīya. That's the day, when, I mean it is regarded as the most auspicious day to start anything.</b></font><br>
@@ -27,7 +27,7 @@ Once the instrument is all right, then you project outside. And now how do you p
 <font size="+0"><b>1980-0719 Talk to Sahaja Yogis, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image406.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image406.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Kuṇḍalinī Kuṇḍalinī Nirmalā Mātā, Mātā Mā<br>

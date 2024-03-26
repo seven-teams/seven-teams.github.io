@@ -41,7 +41,7 @@ Thank You for being our Guru.<br>
 Thank You for being our Mother.</font>
 </p>
 
-<div style="text-align: center"><img src="/images/image327.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image327.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"I am with you at every step, at every place. Everywhere. Wherever you are, at whichever place you are, I am with you, completely, in person, by My Spirit and by My word completely. This is My promise to you. But those who wish to go to Hell, they will also be sucked down. That is also arranged. Therefore be careful. Take to higher life.<br>

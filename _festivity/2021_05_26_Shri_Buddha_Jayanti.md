@@ -16,7 +16,7 @@ I should say, in the sense: He read Upaniṣhads, He read ... went to many gurus
 <font size="+0"><b>1991-0804 Śhrī Buddha Pūjā, You Must Become Desireless, Brielpoort Sports Hall, Deinze, Belgium</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image710.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image710.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"The Pūjā to Shrī Buddha is being performed<br>

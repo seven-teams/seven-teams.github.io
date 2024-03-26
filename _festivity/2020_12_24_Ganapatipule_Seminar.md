@@ -16,7 +16,7 @@ I must thank you very much for that. "</font><br>
 <font size="+0"><b>1990-1224 Talk to Sahaja Yogis, About Śhrī Jesus, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image581.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image581.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Sea’s the Father, is the Guru, and He must be worshiped. Before you do any Pūjā, Guru must be worshiped.<br> 

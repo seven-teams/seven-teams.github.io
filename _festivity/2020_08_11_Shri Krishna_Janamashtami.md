@@ -87,7 +87,7 @@ And this is the best state which you call as Sākṣhi Swarūpatva, which you ac
 <font size="+0"><b>1988-0806 Śhrī Kṛiṣhṇa Pūjā, Garlate (40 kms E of Como), Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image479.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image479.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">O Divine Power of Yoga, absorb our central nervous system into one, uniting us in one world, one enlightened brain.<br>

@@ -116,7 +116,7 @@ Salutations to You!</font><br>
 <a href="https://www.youtube.com/watch?v=xXa-evjxsE4&ab_channel=SahajaYoga">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image515.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image515.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>So one must know that these are the Laws of the Divine, that we have to live with self-respect, that we have to be chaste, that we have to have dignity, that we cannot steal money and steal things and be parasites.</b> That we cannot kill others and we cannot beat others and say harsh things, they are just the same. And that we have respect, the respect for all that is sublime. Respect for all the Saints that are Sahaja Yogis."</font><br>

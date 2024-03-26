@@ -95,7 +95,7 @@ He is incomparable; He cannot be described in words. But He has a very big; a ve
 <font size="+0"><b>1976-0229 Śhivarātri Pūjā (Hindi), Utpatti -- Ādi Śhakti aur Śhiva ka Swarūp (Genesis -- Ādi Śhakti and Śhiva in Form), Mumbai, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image639.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image639.png" /></div>
 
 <p style="color:indigo; text-align:center;">
 <font size="+0"><b>Lalat.Pe Hai Chandra Ma

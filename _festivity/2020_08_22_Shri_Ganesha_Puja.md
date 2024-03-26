@@ -18,7 +18,7 @@ Innocence has a great effect on our character and on our sense of chastity. Actu
 <font size="+0"><b>2002-0914 Śhrī Gaṇeśha Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image489.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image489.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">"Śhrī Gaṇeśha is the embodiment of the existing reality of Paramachaitanya, or Śhrī Gaṇeśha is the manifestation of the invisible Paramachaitanya.<br>
@@ -91,7 +91,7 @@ You got your Realization without any effort, I should say. It was Sahaj."</font>
 <font size="+0"><b>1995-0910 Śhrī Gaṇeśha Pūjā,  Hangar, Cabella Ligure, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image492.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image492.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkGreen">"<b>Only in your Āratī, in Marathi</b>, of Śhrī Gaṇeśha, they say that, “At the time when I am getting my Realization you must save me.” That’s the only thing they ask, "At the time of my Resurrection you must save me." It does not say that, 'At the time of my Resurrection you protect me,' no! "You save me."<br>

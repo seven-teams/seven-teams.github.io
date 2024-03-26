@@ -14,7 +14,7 @@ tags:
 <font size="+0"><b>2008-0210 Śhrī Gaṇeśha Jayanti Pūjā (Hindi), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1323.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1323.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkGreen">"<b>Today is a very important day for all of us, Sahaja Yogis, because today Śhrī Gaṇeśha was born.</b><br>

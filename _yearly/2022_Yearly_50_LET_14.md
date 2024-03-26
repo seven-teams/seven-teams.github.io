@@ -8,7 +8,7 @@ tags:
 
 <div style="text-align: left"><img src="/images/Celebrating50YearsLET.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image975_Photo_credit_Matthew_Fogarty.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image975_Photo_credit_Matthew_Fogarty.png" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">

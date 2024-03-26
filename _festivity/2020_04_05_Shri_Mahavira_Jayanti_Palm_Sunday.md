@@ -14,7 +14,7 @@ tags:
 <font size="+0"><b></b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image392.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image392.png" /></div>
 
 <p style="color:blue; text-align:center;">
 <b>Man Mamta Ko Thir Kar Laun-ji<br>
@@ -31,7 +31,7 @@ Tirveni Pe Haun Nahaunga nahungaaa</b><br>
 <font size="+0"><b>1993-0404 Śhrī Mahāvīra Jayanti Pūjā (Hindi), New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image393.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image393.png" /></div>
 
 <p style="color:blue; text-align:center;">
 <b>Auṃ̣ Twameva sākshāt Śhrī Mahāvīra sākshāt<br>

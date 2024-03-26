@@ -59,7 +59,7 @@ But the most important, the greatest advancement is done by giving the Universal
 <font size="+0"><b>1976-0330 Guḍhī Pāḍavā Pūjā (the day before Guḍhī Pāḍavā), We Have to Be in Meditation Meditation (Be in Thoughtless Awareness and Meditation Is Where You Are No More), New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image664.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image664.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"So today I wish you happy New Year for a journey in the spiritual life of this world."</b></font><br>

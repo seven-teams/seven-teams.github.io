@@ -17,7 +17,7 @@ Try to feel it in your heart, whatever is said, and that you are sitting before 
 <font size="+0"><b>1988-1018 Talk to Sahaja Yogis, Navarātri Celebrations (8th Day), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image532.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image532.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"<b>Worshiping is not just out of sheer reading or some sort of a chanting or anything, but it’s the deep attention of your heart.</b><br>
@@ -47,7 +47,7 @@ Her forms are of different types – that we know about, that She destroyed so m
 <font size="+0"><b>1999-1017 Navarātri Pūjā (8th Day), The Powers of Śhrī Mahākālī, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image533.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image533.png" /></div>
 
 <p style="color:DarkSlateBlue; text-align:center;">
 Salutations always to Durgā. Fortune for Her children and misfortune for Her enemies.<br>

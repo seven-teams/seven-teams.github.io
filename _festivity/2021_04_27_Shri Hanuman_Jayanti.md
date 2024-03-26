@@ -44,7 +44,7 @@ This is the sign of a powerful Sahaja Yogi. Anybody who is powerful has to be hu
 <font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image690.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image690.png" /></div>
 
 <p style=" text-align:center;">
 <font color="SaddleBrown">"Now, this conscience, which is Śhrī Hanumāna, is the subtle form of Him, which gives us, is in Sanskrit called as ‘sat-asat viveka buddhi’, means, sat means truth, asat means untruth 
@@ -117,7 +117,7 @@ With one voice let us praise, victory to Hanumān.</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image692.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image692.png" /></div>
 
 <p style="text-align:center;">
 <font color="Chocolate"><b> You control people who have too much right side.<br>

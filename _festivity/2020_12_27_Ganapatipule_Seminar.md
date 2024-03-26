@@ -31,7 +31,7 @@ Now the Qawwali was sung only by men, and in the praise of God, like bhajan. And
 <font size="+0"><b>1987-0102 Talk to Sahaja Yogis, On Qawwali and Auliyas, before and during the Evening Program, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image592.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image592.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"It is My nature to be one with music. It’s not necessary to understand all the intricacies and all that, but if you are in thoughtless awareness, the joy which was created by the artists starts flowing through your being and you can really enjoy the music."</b></font><br>

@@ -58,7 +58,7 @@ Today there was Lalitā Pañchamī, they sang the song of Lalitā. The way She t
 <font size="+0"><b>1976-0205 Public Program (Vasant Pañchamī), Day 2, Description of Kuṇḍalinī, after Śhrī Viṣhnu Havan, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image796.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image796.png" /></div>
 
 <p style="text-align:center;">
 <font color="Indigo"><b>Om Ghaṇṭā śhūla halāni śhaṅkha musale chakram dhanuḥ sāyakaṁ,<br>
@@ -78,7 +78,7 @@ So like this instrument has to be connected to the mains, you are also to be con
 <font size="+0"><b>1993-0428 Public Program, Theatro Akropol, Athens, Greece</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image797.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image797.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"You are Sahaja Yogis.<br>

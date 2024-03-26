@@ -16,7 +16,7 @@ So today we have to remember how He incarnated on this Earth, the innocence, the
 <font size="+0"><b>1990-1224 Talk to Sahaja Yogis, About Śhrī Jesus, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image274.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image274.png" /></div>
 
 <p style="text-align:center;">
 <font size="-1"><font color="Blue"><b>Let our ears hear that which is true; let our eyes see that which is pure;<br>

@@ -60,7 +60,7 @@ So this loving, beautiful relationship that we have with each other, after Sahaj
 <font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English+Marathi), Carry the Sun with You, House of Madhukar Dhumāḷ, Rāhurī, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image613.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image613.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkOrange">"Now the Sun is so much respected in this country, that in early morning time all the people get up and say namas-kārs to Sūrya 

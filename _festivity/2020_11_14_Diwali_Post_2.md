@@ -39,7 +39,7 @@ This is significant in putting these lights, that now you are the lights. It is 
 <font size="+0"><b>1992-1025 Diwālī Pūjā (Diwālī Day), Sala Olimpia (Olympia Sports Hall), Timişoara, Romania</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image558.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image558.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>So that’s the Lakṣhmī Day, when we say that Lakṣhmī Pūjān takes place, because that is the day you

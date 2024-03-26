@@ -14,7 +14,7 @@ tags:
 <font size="+0"><b>1981-0711 Public Program, College of Arts and Humanities, University, Brighton, East Sussex, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image381.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image381.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue"><b>"Many people among you have become thoughtlessly aware. I know this. 
@@ -46,7 +46,7 @@ The right-hand side is the ego, which is real problem, you understand that!<br>
 <font size="+0"><b>1978-1218 Public Program, Caxton Hall, Westminster, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image383.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image383.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue">"God has created you, you have not created yourself. 

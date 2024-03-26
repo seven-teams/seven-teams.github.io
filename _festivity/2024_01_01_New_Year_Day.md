@@ -51,7 +51,7 @@ Now the Mahālakṣhmī Principle within us starts manifesting when our Lakṣhm
 <font size="+0"><b>1992-0809 Śhrī Mahālakṣhmī Pūjā, Saint Petersburg, Leningrad Oblast, Russia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1312.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1312.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"So today the <b>first and the foremost vow is</b>, as I told you, that we have to get cleansed up in such a way that we become free of ego and superego. We should get rid of our ignorance and darkness. <b>And the second vow as I have said</b> that you have to become the light to remove the darkness and ignorance of others. By sharing My problems, by sharing My anxieties about them -- those who are lost -- and not to be involved into your own personal anxieties and petty things. My problems should be your problems now because you all belong to Me, to My body, to My being.<br>
@@ -99,7 +99,7 @@ He should now enjoy the supreme and unique bliss of his immense capacity to give
 <font size="+0"><b>1984-0103 New Year Pūjā (Hindi), Sahaja Yogi ki Pahachān (Who Is a Sahaja Yogi), Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1313.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1313.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"This is going to be your vow on the New Year day, that, 'Now we are going to start Sahaja Yoga in a new way, in a bigger way, in a more dynamic way.' "</b></font><br>

@@ -15,7 +15,7 @@ tags:
 </b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image301.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image301.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"It is such a fortunate day today that we should come on the birth of Śhrī Gaṇeśha – today is Vināyak Chaturthī, today – that we should celebrate this Pūjā."</b></font><br>
@@ -48,7 +48,7 @@ It is said that God made the creation in seven days. Monday is the day of Ādi �
 <font size="+0"><b>1991-1206 Śhrī Rājarājeśhwarī Pūjā, Chennai, Tamil Nadu, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image303.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image303.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"In Sahaj Yoga your Gaṇeśha’s Power gets awakened because of Kuṇḍalinī. The first thing which comes is wisdom. We call it Vināyaka [Gaṇeśha]. He only gives wisdom to everyone."</b></font><br>

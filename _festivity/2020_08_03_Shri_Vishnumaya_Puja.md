@@ -34,7 +34,7 @@ So Viśhuddhi chakra plays a tremendous part, role in, in Sahaja Yoga because it
 <font size="+0"><b>1983-0202 Public Program, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image470.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image470.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Auṃ Twameva sākshāt Śhrī Mantra-sāmarthya-pradāyinī  sākshāt </b><br>
@@ -55,7 +55,7 @@ For example, every brother has a special feeling for a sister, and her chastity 
 <font size="+0"><b>1980-0826 Talk to Sahaja Yogis (Rakṣhābandhan Day), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image471.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image471.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"This Viṣhṇumāyā is the one who has helped

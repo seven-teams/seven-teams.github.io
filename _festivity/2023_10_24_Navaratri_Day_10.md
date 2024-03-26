@@ -43,7 +43,7 @@ So Navarātri's -- <b>now, the tenth day of Navarātri, which is the most import
 </p>
 
 
-<div style="text-align: center"><img src="/images/image1270.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1270.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"...... on this day of this Pūjā, <b>it's such a combination that it's the Dussehra, I am here and also you can call it the last day of the Devī Pūjā</b>. We have to see within ourselves, introspect, 'What have I done for Sahaja Yoga?"</font><br>

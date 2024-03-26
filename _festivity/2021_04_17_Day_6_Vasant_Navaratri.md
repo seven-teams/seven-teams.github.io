@@ -15,7 +15,7 @@ So the major propelling force, you can say, the major work had to be done in the
 <font size="+0"><b>1990-0619 Śhrī Kuṇḍalinī Pūjā, The Advent of the Primordial Kuṇḍalinī, Mödling, Austria</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image673.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image673.png" /></div>
 
 <p style="text-align:center;">
 <font color="blue">"...... you should delve into the collective. When delving into the collective, you must open your heart.<br>

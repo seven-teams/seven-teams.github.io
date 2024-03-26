@@ -14,7 +14,7 @@ tags:
 <font size="+0"><b>1982-1101 Śhrī Guru Nāṇaka Jayanti Pūjā, Every Sahaja Yogi Has to Become a Guru, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, South West London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image210.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image210.png" /></div>
 
 <p style="text-align:center;">
 <font color="Green"><font size="+0"><b>Brahma Shodhile, Brahmand. Mirlale</b></font></font><br>

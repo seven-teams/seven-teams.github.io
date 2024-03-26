@@ -54,7 +54,7 @@ So you have to do full justice to Sahaja Yoga, that’s very important."</font><
 <font size="+0"><b>1992-0725 Śhrī Durgā Mahākālī Pūjā, France on the Verge of Destruction, Paris, France</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image788.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image788.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"So as it is we are today praying to the Goddess that, <b>'Help us to fight our negativity within us. Give us Your tiger so that we fight, give us Your lion so we fight.'</b><br> 

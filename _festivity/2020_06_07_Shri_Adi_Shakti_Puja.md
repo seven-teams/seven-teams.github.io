@@ -46,7 +46,7 @@ When She decides to create, She is endowed with Three Powers: She has Three Powe
 <font size="+0"><b>1977-0220 Public Program, The Creation, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image453.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image453.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Dene Zeri Amuchya Shiri,</b></font><br>
@@ -68,7 +68,7 @@ So far I have not said this to anyone because I thought there was no need. Those
 <font size="+0"><b>1975-0925 Letter to Grégoire, 2, Parklands, Ice House Wood, Hurst Green, Oxted, Surrey, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image454.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image454.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Śhrī Mātājī, Salutation to Thee Again and Again,<br>

@@ -36,7 +36,7 @@ The gurus have to satisfy the Mahālakṣhmī Principle, which is just pure seek
 <font size="+0"><b>1979-0530 Public Program, A Higher Life, A World of Bliss and Joy (The Three Paths of Evolution), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image600.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image600.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">"Today is the day of Guru Pūrṇimā. It is a Full Moon Day, that’s why it’s called as Pūrṇimā.<br>

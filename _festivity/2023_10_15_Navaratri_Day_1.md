@@ -42,7 +42,7 @@ With complete reverence and full attention, we make obeisance to Her.</font><br>
 <font size="+0"><b>1978-1002 Letter to All Sahaja Yogis (Marathi) (1st Day of Navarātri), London, UK from Nirmala Yoga, Issue 11 (September-October 1982), Pages 25 and 26</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1233.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1233.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Śhrī Gaṇeśha, I am going to be worthy of Your attention.<br>
@@ -56,7 +56,7 @@ Please make me innocent, so that I am in Your attention.<br>
 <font size="+0"><b>(Excerpt from the book '9 Nights of worship to the Goddess'</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1234.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1234.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">Today we worship the Himalayas and the seven Goddesses whose blessings are here, and pray to them to bless us with Devī Śhakti. We have received the blessings of the Devī Śhakti from a Mother. That is why, in the form of Mother, let us come to the feet (śharaṇāgat) of the Himalayas.<br>

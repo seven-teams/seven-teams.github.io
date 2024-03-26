@@ -18,7 +18,7 @@ Sixth, Ṣhaṣhṭhī of the Goddess, is regarded as a very important thing and
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image1265.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1265.png" /></div>
 
 <p style="text-align:center;">
 <b>Sahaja Yogi [reads]:</b> <font color="Maroon"><b>What is Your prowess to be compared to? Where can one find this beauty (of Yours) most charming, (yet) striking fear in enemies? Compassion in heart and relentlessness in battle are seen, O Devī, O Bestower of boons, only in You in all the three worlds!</b></font><br>
