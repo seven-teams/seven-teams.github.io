@@ -33,7 +33,7 @@ But first, the Gaurī has to come, and that’s how the Gaurī is this nine days
 <font size="+0"><b>1981-0404 Śhrī Gaṇeśha Gaurī Pūjā, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image663.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image663.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen">"<b>"So this New Year’s Day is the first day of advent of Goddess</b> – the nine days there are.<br>

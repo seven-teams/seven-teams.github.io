@@ -15,7 +15,7 @@ They all tried Their best. They did whatever was possible. The Saints were made 
 <font size="+0"><b>1988-0508 Sahasrāra Pūjā, Fregene (40 kms E of Rome), Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image421.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image421.png" /></div>
 
 <p style="color:DarkGreen; text-align:center;">
 <b>Vish'weshwari twam paripasi vishwam</b><br>

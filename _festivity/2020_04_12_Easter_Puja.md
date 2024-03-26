@@ -19,7 +19,7 @@ So, it was a very sad time when He was crucified. But when <b>He got resurrected
 <font size="+0"><b>1998-0419 Easter Pūjā, Istanbul, Turkey</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image398.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image398.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Christ was concerned all the time with the benevolence of the world. 

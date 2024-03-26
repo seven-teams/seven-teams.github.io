@@ -28,7 +28,7 @@ So in Saṅkrānt, this happens, that on fourteenth day [of January], today, Sun
 <font size="+0"><b>1996-0114 Makar Saṅkrānti Pūjā (Hindi+English+Marathi), Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image293.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image293.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Today is very special day because the Sun is particularly benevolent towards us on this day. 
