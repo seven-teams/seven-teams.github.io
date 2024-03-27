@@ -21,7 +21,7 @@ That was predestined, that spot, and that was spot is the Kailāśh. The ice nev
 <font size="+0"><b>1982-0222 Śhivarātri Pūjā, The Establishment of Śhiva on This Earth (We Have to Take Śhiva and Establish Him into the Virāṭ) and Śhiva Tattwa (What Makes Mother Pleased), New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image637.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image637.png" /></div>
 
 <p style="text-align:center">
 <font color="Indigo"><b>Gireesham Ganesham Gale Neela Varnam<br>

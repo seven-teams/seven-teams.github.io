@@ -130,7 +130,7 @@ Intelligence, so-called, is not wisdom. It can make you a very cunning, very agg
 <a href="https://www.youtube.com/watch?v=HNv44APLhL8&list=PLAFCF759D6F2B2407">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image56.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image56.png" /></div>
 
 <p style="color:DarkRed; text-align:center;">
 <b>You grant the subtlety of discretion.<br> 

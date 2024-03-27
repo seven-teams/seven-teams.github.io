@@ -38,7 +38,7 @@ In the same way, the Sahaja Yogis are not to be involved in the other cells, hum
 <font size="+0"><b>1985-0505 Sahasrāra Pūjā, Laxenburg Castle, Vienna, Austria</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image422.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image422.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"When your Mother is the Deity of Sahasrāra, 

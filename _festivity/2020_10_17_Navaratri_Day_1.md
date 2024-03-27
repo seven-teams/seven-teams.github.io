@@ -17,7 +17,7 @@ You should say the Mantras in Pūjā but with great faith (śhraddhā). There is
 <font size="+0"><b>1901-0000 Letter to Nirmala (Marathi) on the Meaning of Pūjā from Nirmala Yoga, Issue 12 (November-December 1982), Page 4</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image507.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image507.png" /></div>
 
 <p style="text-align:center;">
 <font color="Indigo"><b>Namo Devyai Mahā-devyai</b><br>

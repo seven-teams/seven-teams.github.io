@@ -44,7 +44,7 @@ That creation has awakened now. And that's why this is not only an occasion for 
 <font size="+0"><b>1990-0114 Makar Saṅkrānti Pūjā (Hindi + English), We Have to Take a Very High Flight and The Sun of Sahaja Yoga Has Risen to the Zenith (Give Up All the Burdens within Us and a new flight we have to take Fully Dedicate Yourself to Meditation and Surrender Yourself to Collectivity), Mukand Steel Works, Kalwa, Thane, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1318.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1318.png" /></div>
 
 <p style=" text-align:center;">
 <font color="Chocolate">"<b>Now the Sun is so much respected in this country, that in early morning time all the people get up and say namaskārs to Sūrya with all His names and do a particular type of exercise to show that they are completely surrendered to the will of the Sūrya.</b>"</font><br>

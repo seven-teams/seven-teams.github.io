@@ -28,7 +28,7 @@ I bow to the Lord God Almighty.
 <font size="+0"><b>1982-0220 Śhivarātri Pūjā, The Establishment of Lord Śhiva, New Delhi, India </b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image316.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image316.png" /></div>
 
 <p style="color:DarkSlateBlue; text-align:center;">
 <b>Na me dvesha-rāgau, na me lobha-mohau<br>

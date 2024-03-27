@@ -38,7 +38,7 @@ Now please put full attention on the Pūjā, and don’t worry about what is hap
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image203.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image203.png" /></div>
 
 <p style="text-align:center;">
 <font color="MidNightBlue"><b>Ayi śharaṇ’āgata vairi-vadhū-vara<br>

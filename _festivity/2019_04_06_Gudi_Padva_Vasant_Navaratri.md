@@ -17,7 +17,7 @@ But today is actually the Pūjā of the Gaurī, that is, the Kuṇḍalinī. So 
 <font size="+0"><b>1981-0404 Śhrī Gaṇeśha Gaurī Pūjā, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image143.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image143.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"Green is the color of the Gaurī.<br> 

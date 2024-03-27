@@ -39,7 +39,7 @@ So He had to create this creation in such a way that He could create His own ima
 <font size="+0"><b>1983-0330 Birthday Pūjā and Havan (English+Marathi), Birla Matushri Sabhagar, New Marine Lines, Churchgate, Mumbai, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image137.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image137.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Ayi ho Ma ham sab ke liye</b><br>

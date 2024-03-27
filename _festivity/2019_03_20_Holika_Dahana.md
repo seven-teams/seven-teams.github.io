@@ -51,7 +51,7 @@ So like that you see different colors are spread on the face. ...... red color, 
 <font size="+0"><b>1991-0228 Talk to Sahaja Yogis (Hindi+English), Raṃgavalī Holī Celebrations, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image134.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image134.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"On Holī we should burn all those things which spoil our attention and damage the Āgñyā.<br>

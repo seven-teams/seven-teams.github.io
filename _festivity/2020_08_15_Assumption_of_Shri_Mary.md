@@ -49,7 +49,7 @@ Indians are now more westernized, anglicized than they were ever before. Before 
 <font size="+0"><b>1982-0126 Pūjā, 33rd Republic Day Celebration, Lonavala, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image483.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image483.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>We have seen those days too when our country was not independent but you people are liberated now. Now we are independent. And what is swatantra [independence]? Know the Swa – one Self and the tantra – mechanism. Know the mechanism of one Self.<br> 

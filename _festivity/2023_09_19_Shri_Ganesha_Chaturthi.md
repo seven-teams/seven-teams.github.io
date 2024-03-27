@@ -90,7 +90,7 @@ Innocence has a great effect on our character and on our sense of chastity. Actu
 <font size="+0"><b>2002-0914 Śhrī Gaṇeśha Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1223.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1223.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"Today, we have gathered here to worship Śhrī Gaṇeśha.<br>

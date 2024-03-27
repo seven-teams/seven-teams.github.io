@@ -51,7 +51,7 @@ So now, <b>I have to just tell you that, on this day of this Pūjā, it's such a
 <font size="+0"><b>1993-1024 Navarātri Pūjā (Dussehra Day), Reintrospect Yourself, Tent, Cabella Ligure, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image208.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image208.png" /></div>
 
 <p style="text-align:center;">
 <font color="MidNightBlue"><b>Sāsi-tūna-dhanur-bāna-pānim nak-tan-charāntakam</b></font><br>

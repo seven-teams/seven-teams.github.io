@@ -33,7 +33,7 @@ You grant the power to communicate and convince.</b></font>
 <font size="+0"><b>1993-1010 Śhrī Virāṭa Virāṭaṅganā Pūjā, YMCA Camp Whittle, CA, U.S.A.</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image371.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image371.png" /></div>
 
 <p style="text-align:center;">
 <font color="FireBrick">"Even at Kuṇḍalinī when it reaches here at the Viśhuddhi chakra it makes all the sounds,<br> 

@@ -109,7 +109,7 @@ One has to realize that this Union with the Divine works out through a living fo
 <a href="https://www.youtube.com/watch?v=05wpMZ44Sxc">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image187.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image187.png" /></div>
 
 <p style="text-align:center;">
 <font size="+0"><font color="MidNightBlue"><b>Victory be to You,<br>

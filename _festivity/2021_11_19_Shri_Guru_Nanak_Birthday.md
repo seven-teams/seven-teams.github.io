@@ -37,7 +37,7 @@ We all belong to One Religion which believes in expanding our ourne ... awarenes
 <font size="+0"><b>1980-1123 Śhrī Guru Nāṇaka Jayanti Pūjā, You Are to Become Prophets, Temple of All Faiths, Hampstead, London, UK (perhaps Caxton Hall)</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image850.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image850.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"May God bless you all, this day, in the name of Nāṇaka<br> 

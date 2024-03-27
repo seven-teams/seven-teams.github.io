@@ -81,7 +81,7 @@ This is the fourth day of Diwali celebrations. This day is one of the three and 
 This is the last, the fifth day of Diwali celebrations. On this day the brother and sister relationship is celebrated.
 </p>
 
-<div style="text-align: center"><img src="/images/image215.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image215.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Diwālī day is specially meant to celebrate with the lights on a day when Lakṣhmī was born."</font><br>

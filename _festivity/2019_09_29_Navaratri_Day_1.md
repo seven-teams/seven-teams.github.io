@@ -66,7 +66,7 @@ Which has its origin in the opening of Thine Eyes.</b><br></font>
 <font size="+0"><b>2000-0405 Guḍhī Pāḍavā Pūjā (Hindi), Noida Bhavan, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image167.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image167.png" /></div>
 
 <p style="color:indigo; text-align:center;">
 O Parameśhwarī, Who is ever praised with devotion by Lord Śhiva,<br>

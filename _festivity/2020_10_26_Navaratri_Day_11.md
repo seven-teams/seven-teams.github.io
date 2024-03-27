@@ -155,7 +155,7 @@ It is not only recognition, but imbibe.' </b>"</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image547.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image547.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Your first and foremost responsibility is Sahaja Yoga. Because you should know what a work it is. It is such a great work, to transform the whole world – that is My vision. And this old age I think the same.<br>

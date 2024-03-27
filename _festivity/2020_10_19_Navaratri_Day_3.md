@@ -64,7 +64,7 @@ So that also what we call Islam is nothing but is the creation of Ādi Śhakti."
 Today is the third day of Navarātri. We worship the golden complexion Goddess Chandraghaṇṭā who rides a lion or tiger. She has a half-moon shaped like a bell on Her forehead or who uses the moon as Her bell. During the battle between Her and the demons, the horrible sound produced by Her bell sent thousands of demons to hell.</font><br>
 </p>
 
-<div style="text-align: center"><img src="/images/image518.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image518.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"...... the Goddess always uses lion as Her vehicle. That is the vāhana specially used when at different levels She has to be compassionate as well as very harsh to the people who are trying to destroy humanity."</b></font><br>
@@ -106,7 +106,7 @@ Sā ghanta patu no Devī papebhyo nah sutaniva.</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image519.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image519.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"When there is worship always there’s a bell rung. That is good for all the negativity to run away.</b></font><br>
