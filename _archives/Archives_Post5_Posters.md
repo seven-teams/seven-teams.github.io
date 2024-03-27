@@ -89,7 +89,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>P12.</b></font> <b>1997-0600 Poster for Public Program on 0618, Berkeley, CA, U.S.A. (CCT Scans Collection)</b> (1 page, uploaded on 2023-0502)
 
-<div style="text-align: center"><img src="/images/1997-0600_Poster_for_Public_Program_on_0618,_Berkeley,_CA,_U.S.A._(from_tif_reduced_size)_(CCT_Scans_Collection).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1997-0600_Poster_for_Public_Program_on_0618_Berkeley_CA_U.S.A._(from_tif_reduced_size)_(CCT_Scans_Collection).jpg" /></div>
 
 <br>
 
