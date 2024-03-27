@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>1911-0000 Darśhan O</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
+We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>1911-0000 Darśhan O</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
 The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Anna-Mancini-Collection/1911/"><font color="DarkGreen">Collection 1911</font></a>.<br> 
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
