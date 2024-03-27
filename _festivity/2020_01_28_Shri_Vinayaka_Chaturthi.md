@@ -28,7 +28,7 @@ After crossing the Āgñyā chakra, the attention of the seeker enters the limbi
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 12: Mūlādhāra Chakra</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image302.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image302.png" /></div>
 
 <p style="text-align:center;">
 <font color="green">"Today is [an] auspicious day, especially since it is Vināyaka Chaturthī [fourth day of a Moon fortnight]. It is [a] very beautiful day.<br>

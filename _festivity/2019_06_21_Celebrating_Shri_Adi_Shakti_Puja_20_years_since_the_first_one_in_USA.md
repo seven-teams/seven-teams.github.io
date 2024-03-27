@@ -46,7 +46,7 @@ from the awesome might that flows from You.</b></font><br>
 <font size="+0"><b>2001-0715 Public Talk to Invited VIPs and Journalists, Russell Hotel, 1-8 Russell Square, London WC1B 5BE, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image155.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image155.png" /></div>
 
 <p style="text-align:center;">
 <font size="-1">Canajoharie in 1999</font><br>

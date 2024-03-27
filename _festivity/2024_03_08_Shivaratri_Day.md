@@ -24,7 +24,7 @@ Similarly, when Sahaja Yogis act, they are not aware of the Śhakti within which
 <font size="+0"><b>1993-0219 Śhivarātri Pūjā (Hindi), Kyukī Mānava kā Aṃtima Lakṣhya yahī hai kī Vo Śhiva Tattwa ko Prāpta Kare (The Ultimate Aim of Human Beings Is to Attain that Śhiva Tattwa), Tent, Mumbai, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1336.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1336.png" /></div>
 
 <p style="color:Indigo; text-align:center;">
 <b>Auṃ Śhivam Śhivakaram Śhantam Śhivakaram<br>

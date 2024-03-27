@@ -33,7 +33,7 @@ You reside in the Muladhara, and are served by those devoted to the Kaula path.<
 <font size="+0"><b>1991-0408 Śhrī Gaurī Pūjā, Residence near Āśhram, Parnell, Auckland, New Zealand</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image672.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image672.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"If we have to ascend, if we have to go to the Kingdom of God, we have to cleanse yourselves, 

@@ -86,7 +86,7 @@ Wish you all many spiritual accomplishments during the Seminar.
 <a href="https://www.youtube.com/watch?v=TbbNsFKL07c&ab_channel=VIOLONISTUL">video</a> 
 </p>
 
-<div style="text-align: center"><img src="/images/image593.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image593.png" /></div>
 
 <p style="text-align:center;">
 <b>Śhrī Gaṇesha Swayambhu in Gaṇapatīpuḷe</b><br>

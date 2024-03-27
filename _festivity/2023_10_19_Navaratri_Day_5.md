@@ -69,7 +69,7 @@ Today there was Lalitā Pañchamī, they sang the song of Lalitā. The way She t
 <font size="+0"><b>1976-0205 Public Program (Vasant Pañchamī), Day 2, Description of Kuṇḍalinī, after Śhrī Viṣhnu Havan, New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1247.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1247.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>"Śhrī Saraswatī is known as Skandamātā, She was not His mother and was virgin. But, but She took Skanda [Kārttikeya] as Her Son and held Him to Her heart."</b></font><br>

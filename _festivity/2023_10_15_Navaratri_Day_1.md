@@ -19,7 +19,7 @@ So to help Me out, you should not take any sides with negativity. That's how you
 <font size="+0"><b>1985-1009 Talk to Sahaja Yogis, Like a Drama, On Arrival before the Public Program, Flat of Ruth and Kingsley Flint, Strasbourg, Grand Est, France</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image1232.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1232.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>Namo Devyai Māhādevyai</b><br>

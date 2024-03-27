@@ -33,7 +33,7 @@ So, like nine months the mother has to keep the child in her womb, for these nin
 <font size="+0"><b>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image545.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image545.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Now you are worshiping the Mother.</b><br>

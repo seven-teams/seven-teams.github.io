@@ -13,7 +13,7 @@ tags:
 
 <br>
 
-<div style="text-align: center"><img src="/images/image1206_15_Photo_credit_Matthew_Cooper.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1206_15_Photo_credit_Matthew_Cooper.jpg" /></div>
 
 <br>
 

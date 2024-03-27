@@ -10,7 +10,7 @@ tags:
 <br>
 <div style="text-align: left"><img src="/images/50YearsUK.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="/images/image1320_1982-0801_Photo_credit_Michael_Petrunia.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1320_1982-0801_Photo_credit_Michael_Petrunia.jpg" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">

@@ -112,7 +112,7 @@ May God bless you all!"</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="/images/image807.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image807.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"About the Devī, it is said She is Ati Raudra, Ati Saumya.<br>
