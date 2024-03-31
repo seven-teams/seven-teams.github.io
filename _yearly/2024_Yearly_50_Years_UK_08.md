@@ -21,7 +21,7 @@ tags:
 "Today we are here to worship the Resurrection of Christ, and also to thank Him for giving us an ideal life of a Saint who has to work for the benevolence of the whole world.<br>
 ......<br>
 As soon as you are connected with Christ, the whole attitude has to change.<br>
-So, to be connected with Christ means, `What are the qualities of Christ you have imbibed within yourself?' That's the minimum of minimum. What did you get out of His life? Is it that He has cured people, all right, so you should get cured? He gave eyes to people, so you must get your eyes back.<br>
+So, to be connected with Christ means, 'What are the qualities of Christ you have imbibed within yourself?' That's the minimum of minimum. What did you get out of His life? Is it that He has cured people, all right, so you should get cured? He gave eyes to people, so you must get your eyes back.<br>
 ......<br>
 When the Energy of Christ flows through you, you express Him.<br>
 ......"<br>
@@ -31,7 +31,7 @@ So you have to judge yourself. This is the time for you to judge.<br>
 You are in connection with Christ. He achieved His Resurrection, by which we have to achieve our Resurrection. But what have we done to achieve that Resurrection which He has achieved?<br>
 ......<br>
 So you have to be awakened to this fact that we are Sahaja Yogis. We have a special responsibility as our connection with Christ is our main responsibility is all the time, intensely to think what we can do for the betterment of human beings. And what are we doing about it?<br>
-First I used to say, ``Count your blessings," because that was the best way to make people understand that there are blessings in Sahaj Yoga. Now I would say, `Count your deeds.' What have you done for Sahaj Yog? Sahaja Yoga has done so much for you.<br>
+First I used to say, "Count your blessings," because that was the best way to make people understand that there are blessings in Sahaj Yoga. Now I would say, 'Count your deeds.' What have you done for Sahaj Yog? Sahaja Yoga has done so much for you.<br>
 To say that Paramachaitanya will look after is absolutely absurd! If Paramachaitanya could do everything, why should It create human beings? One Adam and Eve were sufficient.<br>
 You have to do it. Unless and until you become deep, it, it cannot trigger, it is helpless. It's only through you it is going to work out.<br>
 ......<br>
