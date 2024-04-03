@@ -25,7 +25,7 @@ First the leader has to sacrifice and show how far he can go in sacrificing to k
 ......<br>
 You see, 'formality of the heart'. You see to, not to say something, in such a way, that eh-eh-you touch the wrong side of the person ...... is saṅkocha.<br>
 ......<br>
-So this saṅkoch one has to learn, the maryādā: means the boundaries of your relationships with [].<br>
+So this saṅkoch one has to learn, the maryādā: means the boundaries of your relationships with [<font color="orange">unclear</font>].<br>
 ......<br>
 The saṅkocha is a complete cultural stuff. So, we have a cultural tradition which we have to learn from Śhrī Rām.<br>
 ......<br>

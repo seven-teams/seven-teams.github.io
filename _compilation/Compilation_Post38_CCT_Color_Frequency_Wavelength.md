@@ -38,7 +38,7 @@ You shouldn't see that. One color is power [red] and one is purity [green]. If y
 There's a mistake in coloring.</font><br>
 <b>Sahaja Yogi:</b> Which one, Mother?<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> [Laughs.] <font color="DarkRed">The ... this is a yellow one.</font><br>
-<b>Dr. Warren Reeves:</b> [] ah.<br>
+<b>Dr. Warren Reeves:</b> [<font color="orange">unclear</font>] ah.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">This is yellow.</font><br>
 <font color="DarkRed">And that is green.</font><br>
 <b>Dr. Warren Reeves:</b> This, this is green?<br>

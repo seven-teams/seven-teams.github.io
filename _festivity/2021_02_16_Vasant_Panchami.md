@@ -48,7 +48,7 @@ but actually the Saraswatī Pūjā is meant for people of ordinary awareness, me
 </p>
 
 <p>
-<font color="DarkRed">"<b>Today we have the idea to do Saraswatī’s Pūjā.</b> [unclear] I have seen that here people worship Mahākālī and Saraswatī, people worship Devī and people are simple natured. We should worship Saraswatī as well.<br>
+<font color="DarkRed">"<b>Today we have the idea to do Saraswatī’s Pūjā.</b> [<font color="orange">unclear</font>] I have seen that here people worship Mahākālī and Saraswatī, people worship Devī and people are simple natured. We should worship Saraswatī as well.<br>
 Saraswatī’s work is very great. First, Mahāsaraswatī created the entire universe. The earth element is special in this. The earth element has been placed in such a way between the Sun and the Moon that any living work can easily happen on it. From this living work, slowly and gradually human beings have been generated.<br>
 But we should know our own great power. That power is what we call creation power, it’s also called creativity. This creation power is the blessing of Saraswatī by which many arts have been generated. The evolution of art is due to the blessings of Saraswatī."</font><br>
 <font size="+0"><b>1992-0403 Śhrī Saraswatī Pūjā, Emerlin College, Yamunānagar, Haryana, India</b></font>
