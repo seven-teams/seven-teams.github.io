@@ -839,7 +839,7 @@ But still, one more evolution was needed in Him. And that was, is the, they say,
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"This concept was a [showing two right fingers:] doubly denied in the West. Is, first is: that they cannot accept a Goddess. [Second:] Woman has no part.<br>
+"This concept was a [showing two right fingers:] doubly denied in the West. Is, first is: that they cannot accept a Goddess. [Second:] Woman has no part.<br>
 <font color="red">S-s sight [right] from Socrates onward, nobody has talked much about a Woman, except of course there is Athena and all that, but it's very minor roles they have.</font><br>
 Greeks had Goddesses who were just like human beings, so that also gets ruled out. And very little was accepted. So when Christianity came, some or other Christians saw to it that there should be no mention of the Mother, in any way."<br>
 <font size="+0"><b>1990-1221 Śhrī Mahālakṣhmī Pūjā (Hindi + English), Hall, Kolhapur, Maharashtra, India</b></font>
@@ -1084,7 +1084,7 @@ Because they are all lost! Christians are lost, Muslims are lost, Hindus are los
 Ultimately Christ was crucified.<br>
 So you can see how, when there was Truth, untruth tried to finish it off: they couldn't bear it.<br>
 <font color="red">We have the example of Socrates. What was the need to kill Him? But they killed Him.</font><br>
-In this way, so far, we know in the past, all the people who are pivotal for the Truth are being finished. Because they don't want the Truth. "</font><br>
+In this way, so far, we know in the past, all the people who are pivotal for the Truth are being finished. Because they don't want the Truth."<br>
 <font size="+0"><b>2001-1225 Christmas Pūjā, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
