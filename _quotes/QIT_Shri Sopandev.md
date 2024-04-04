@@ -10,18 +10,18 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"Even Muhammad Sāhab has described His son-in-law in many ways. And He is the only One, or there's another Incarnation, of Brahmadeva, who came on this Earth, ʿAlī, came on this Earth. He was the Incarnation of Brahmadeva and His another Incarnation was Sopāndev, which ... you can go to Poona [Pune], you can see the temple of Sopāndev there."</font><br>
+<font color="red">"Even Muhammad Sāhab has described His son-in-law in many ways. And He is the only One, or there's another Incarnation, of Brahmadeva, who came on this Earth, ʿAlī, came on this Earth. He was the Incarnation of Brahmadeva and His another Incarnation was Sopāndev, which ... you can go to Poona [Pune], you can see the temple of Sopāndev there."</font><br>
 <font size="+0"><b>1988-0814 Śhrī Fāṭimah Pūjā, Saint-George (40 kms W of Lausanne), Switzerland</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Sometimes I feel, all these Incarnations have created a chaos for Me. If they had not done all this nonsense with these ignorant people, it would have been a much better world, you know.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Sometimes I feel, all these Incarnations have created a chaos for Me. If they had not done all this nonsense with these ignorant people, it would have been a much better world, you know.<br>
 <b>Dr. Rustom Burjorjee:</b> So why did They come, Śhrī Mātājī?<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Huh?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Huh?<br>
 <b>Dr. Rustom Burjorjee:</b> Why did They come?<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> They came to bring you to make the sopān [ladder] as this, what you call a, is the step by which you have to rise.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> They came to bring you to make the sopān [ladder] as this, what you call a, is the step by which you have to rise.<br>
 But everybody seems to be completely disobeyed.<br>
 <font size="+0"><b>1994-0711 Conversation with Sahaja Yogis, On Islam and Around a Letter from Ayatollah Dr. Mehdi Rouhani, Paris, France</b></font>
 </p>

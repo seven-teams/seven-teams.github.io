@@ -763,7 +763,7 @@ One is above [the] three Jātis, that is Paramātma. He has no caste."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"Such great people like Mārkaṇḍeya were born in our country, so why not you people?"</font><br>
+<font color="red">"Such great people like Mārkaṇḍeya were born in our country, so why not you people?"</font><br>
 <font size="+0"><b>1985-0216 Public Program (Hindi), Day 5, Sahasrāra and Ātmā, New Delhi, India</b></font>
 </p>
 
