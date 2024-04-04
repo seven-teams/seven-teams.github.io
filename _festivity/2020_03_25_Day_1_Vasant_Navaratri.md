@@ -25,7 +25,7 @@ You are Peace, Good Fortune, Love,<br>
 O joy-giving Destroyer of obstacles<br>
 <b>(Śhrī Lalita Sahasranama, verse 94)</b></font><br>
 <font color="DarkGreen"><b>Auṃ Twameva sākshāt Śhrī Gaurī Kundalinī Mātā <br>
-Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font>br>
+Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
 </p>
 
 <p>

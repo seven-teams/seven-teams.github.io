@@ -589,7 +589,7 @@ This is what it is!"<br>
 "That is how the beauty is expressed through the holy hands of holy people, all over the world.<br>
 I don't know nowadays if it is done so.<br>
 <font color="red">Even in those days-s-s, at the time of Socrates, Lao Tze, philosophy was the dominating subject.</font> People thought philosophy was the epitome of knowledge.<br>
-But suddenly then it turned to economics, and that's the place we have l... we lost our heritage of creativity, of the Divine Values, of the Divine Guṇas."</font><br>
+But suddenly then it turned to economics, and that's the place we have l... we lost our heritage of creativity, of the Divine Values, of the Divine Guṇas."<br>
 <font size="+0"><b>1987-0102 Talk to Sahaja Yogis (English + Marathi), Beauty Must Have Auspiciousness, before the Evening Program, Session 1 (before Dinner), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
@@ -673,16 +673,16 @@ All right. So then, this uh-uh-uh part of the ... history is there [of Prahlād]
 So that shows that, at that time also, the people in charge, or at the helm of affairs, didn't know what was reality.<br>
 <font color="red">So now, from Christ to Socrates and from Socrates to Me, we can say this way: that we are talking about it, though Socrates came uh in the year -- how much B.C. He was? To Socrates ...</font><br>
 <b>Sahaja Yoginī:</b> About five hundred years.<br>
-<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red"> Huh?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Huh?</font><br>
 <b>Sahaja Yoginī:</b> About five hundred years before Christ [500 B.C.].<br>
-<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red"> Christ. Five hundred [years before Christ].<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red"> Christ. Five hundred [years before Christ].</font><br>
 <font color="red">So, might be that Christ must have felt that, 'Socrates, He talked so openly, so nicely to people, as because He was Primordial Master.' He realized it, so He talked in parables. He thought that, 'No use talking straight like Socrates,' because, you see they ... are very straightforward people.</font><br>
 The-ee Primordial Masters have to be very, very ... they are by nature extremely straightforward.<br> 
 Ah even today's, those who are rea... those who were real gurus, they would not accept any uh-uh-uh person, they would throw away, they would beat people.<br>
 Uh-uh-uh even musicians in India, those who are great masters, they would beat theirs' disciples, see [if] they played something wrong, like very harsh people.<br>
 <font color="red">So, it was all right for Socrates also to tell things very plain and simple and all that, but still He was killed.</font><br>
 And then Christ, who was five hundred years later came. See, He saw the point: that, 'No use-ss talking,' because He came at Āgñyā, 'talking in that way.'<br>
-<font color="red">If you tell somebody, 'Don't do like this,' even reason it out like Socrates did: He is the Master of Logic, you can call Him. The whole logic system comes from Him. He's a Master of Logic.<font color="red"><br>
+<font color="red">If you tell somebody, 'Don't do like this,' even reason it out like Socrates did: He is the Master of Logic, you can call Him. The whole logic system comes from Him. He's a Master of Logic.</font><br>
 But despite that, it did not appeal to the logic of the people who were at the helm of affairs. So they have no logic in their heads, you see, they are just rationalist.<br>
 Rationality is blindness, but l... there's no logic.<br>
 <font color="red">So because there is no logic, they killed Him.</font><br>

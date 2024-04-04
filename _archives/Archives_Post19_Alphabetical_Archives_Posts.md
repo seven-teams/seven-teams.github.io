@@ -22,10 +22,10 @@ tags:
 <b>8.</b> <a href="https://seven-teams.github.io/archives/2023/0502"><font color="maroon"><b>Posters</b></font></a>: 14 files<br>
 <b>9.</b> <a href="https://seven-teams.github.io/archives/2023/0519"><font color="maroon"><b>Publications Related to Offerings</b></font></a>: 1 file<br>
 <b>10.</b> <a href="https://seven-teams.github.io/archives/2023/0629"><font color="maroon"><b>Sahaj Patrika (Hindi)</b></font></a>: 1 file<br>
-<b>11.</b> <b>Sahaja Newsletter Australia</b>: Total files 77<br>
- &emsp; &emsp; &emsp;<b>11.1.</b> <a href="https://seven-teams.github.io/archives/2023/0824-b"><font color="maroon"><b>Sahaja Newsletter Australia, Part 1 (1991)</b></font></a>: 5 files<br>
- &emsp; &emsp; &emsp;<b>11.2.</b> <a href="https://seven-teams.github.io/archives/2023/0831"><font color="maroon"><b>Sahaja Newsletter Australia, Part 2 (1992)</b></font></a>: 40 files<br>
- &emsp; &emsp; &emsp;<b>11.3.</b> <a href="https://seven-teams.github.io/archives/2023/0907"><font color="maroon"><b>Sahaja Newsletter Australia, Part 3 (1993)</b></font></a>: 32 files<br>
+<b>11.</b> <b>Sahaja Newsletter (Australia)</b>: Total files 78<br>
+ &emsp; &emsp; &emsp;<b>11.1.</b> <a href="https://seven-teams.github.io/archives/2023/0824-b"><font color="maroon"><b>Sahaja Newsletter (Australia), Part 1 (1991)</b></font></a>: 5 files<br>
+ &emsp; &emsp; &emsp;<b>11.2.</b> <a href="https://seven-teams.github.io/archives/2023/0831"><font color="maroon"><b>Sahaja Newsletter (Australia), Part 2 (1992)</b></font></a>: 41 files (includes 1 supplement)<br>
+ &emsp; &emsp; &emsp;<b>11.3.</b> <a href="https://seven-teams.github.io/archives/2023/0907"><font color="maroon"><b>Sahaja Newsletter (Australia), Part 3 (1993)</b></font></a>: 32 files<br>
 <b>12.</b> <b>Sahaja Yoga Australian Newsletter</b>: Total files 147<br>
  &emsp; &emsp; &emsp;<b>12.1.</b> <a href="https://seven-teams.github.io/archives/2023/0821"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 1 (2000)</b></font></a>: 33 files<br>
  &emsp; &emsp; &emsp;<b>12.2.</b> <a href="https://seven-teams.github.io/archives/2023/0820"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 2 (2001)</b></font></a>: 15 files<br>

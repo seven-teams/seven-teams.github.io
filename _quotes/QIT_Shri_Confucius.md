@@ -39,7 +39,7 @@ In the same way Ten Dharma[s] of human beings are formed inside the stomach."<br
 "Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again. In India we can say the Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had one Ādināth, the Guru long time back. Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth.<br>
 <font color="red">We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius.</font><br> 
 <font color="red">All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.</font><br>
-You must understand: everyone has one's own job.</font><br> 
+You must understand: everyone has one's own job.<br> 
 See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
 <font color="red">But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>
 So, these Ten Principles, as I told you, They established [dharma].</font><br> 
@@ -383,7 +383,9 @@ And thus you lose the barriers of fundamentalism.<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Confucius has taught the humanity how we can improve our relations with other human beings."</font><br>
+"<font color="red">In your country, you had very great philosophers once upon a time. Of course, you believe in humanism,</font> uh ... but there was another great, great philosopher, who was called as Lao Tze, of a very high spirituality, like a Great Incarnation of a Master.<br>
+......<br>
+<font color="red">Confucius has taught the humanity how we can improve our relations with other human beings.</font>"<br>
 <font size="+0"><b>1995-0913 Written (Prepared) Talk, On the Global Problems Facing Women, Inter-Regional Round Table, Fourth World Conference on Women: Action for Equality, Development and Peace, Guanjunyuan Hotel, Beijing, China</b></font>
 </p>
 

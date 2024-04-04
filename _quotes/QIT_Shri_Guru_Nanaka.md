@@ -918,7 +918,7 @@ All of Them have said that: "You have to lead a moral life." None of Them have s
 "Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again. In India we can say the Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had one Ādināth, the Guru long time back. <font color="red">Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth.</font><br>
 We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius.<br> 
 <font color="red">All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.</font><br>
-You must understand: everyone has one's own job.</font><br> 
+You must understand: everyone has one's own job.<br> 
 See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
 <font color="red">But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>
 So, these Ten Principles, as I told you, They established [dharma].</font><br> 
@@ -1134,13 +1134,13 @@ All these new theories have started, I think, fifty years back, or about sixty y
 <div class="para-divider"></div>
 
 <p>
-"To think that Moses was separate from Christ is another very big mistake! There's no difference at all!>br>
+"To think that Moses was separate from Christ is another very big mistake! There's no difference at all!<br>
 Christ Himself has said: "Those who are not against Me are with Me." Who are those who are not against Him?<br>
 Moses was there on this Earth to cross only this path. It's very symbolic the way He crossed the sea: to show how to cross this path.<br>
 He was the Incarnation, one of the Incarnations, of the Primordial Master.<br>
 There were Ten Great Incarnations of Primordial Masters. <font color="red">One of them was Moses, Abraham, Lao Tze, Janaka, Nāṇaka.</font> There are ten of Them who were major Incarnations of the same principle. Muhammad.<br>
 <font color="red">They are all related to each other. You will be surprised what relation exists between Them. There's no fight, which you learn in your Kuṇḍalinī. They are so integrated and such a concord exists between Them. There's no fight at all.</font><br>
-If there is any fight it is between the evil and the good."</font><br>
+If there is any fight it is between the evil and the good."<br>
 <font size="+0"><b>1983-0317 Public Program, Day 3, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
 </p>
 
@@ -1235,7 +1235,7 @@ This is the only problem we have. That: we have all the ideals, we have all the 
 <div class="para-divider"></div>
 
 <p>
-"Now, this question follows another question: that if you are the Spirit, [then] you are your own guide, you are own guru, you are your own master. So now you put your right hand on the upper part of your stomach on the left-hand side, which is the center of mastery. <font color="red">This is the center which is created by the Masters, the Great Masters, who are Sadgurus, who are Real Masters, like Abraham, Moses, Janak, Nāṇak, Lao Tze, Muhammad Sāhab.</font> Now, you take this hand little deep, prarsee [press it], push it little deep into that area in the upper part of the abdomen, and ask a question three times, 'Mother, am I my own guide? Am I my own master? Am I my own guru?' Ask in your heart."</font><br>
+"Now, this question follows another question: that if you are the Spirit, [then] you are your own guide, you are own guru, you are your own master. So now you put your right hand on the upper part of your stomach on the left-hand side, which is the center of mastery. <font color="red">This is the center which is created by the Masters, the Great Masters, who are Sadgurus, who are Real Masters, like Abraham, Moses, Janak, Nāṇak, Lao Tze, Muhammad Sāhab.</font> Now, you take this hand little deep, prarsee [press it], push it little deep into that area in the upper part of the abdomen, and ask a question three times, 'Mother, am I my own guide? Am I my own master? Am I my own guru?' Ask in your heart."<br>
 <font size="+0"><b>1985-0422 Public Program, Day 1, Université Paris Diderot Paris 7, 5 Rue Thomas Mann, Paris, France</b></font>
 </p>
 

@@ -66,7 +66,7 @@ And this one has to know what are the centers in the hand, where they are. They 
 "Now, all the Gurus, all the Gurus who came, say from ... we can start from Socrates, then Abraham, Moses, this is the Guru Tattwa, is the Principle of Master, Primordial Masters. The Principle is born again and again. In India we can say the Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], we had one Ādināth, the Guru long time back. Then we had Dattātreya, we had uh Janaka, Nāṇaka, Sāī Nāth.<br>
 <font color="red">We had in the Middle East Muhammad Sāhab, Lao Tze in China, Confucius.</font><br> 
 <font color="red">All these Great Principles of Gurus who were born, They had one job to do is to establish your dharma. Their job was not to give you Realization.</font><br>
-You must understand: everyone has one's own job.</font><br> 
+You must understand: everyone has one's own job.<br> 
 See, Mine is a horrible job [laughing:] because I have to do everybody's jobs.<br>
 <font color="red">But Their job was just to establish your dharma. They came at that time in those places where it was needed the most.<br>
 So, these Ten Principles, as I told you, They established [dharma].</font><br> 
@@ -199,9 +199,9 @@ So, try to gather nourishment. Like reading Devī Māhātmyam, reading about ...
 <font color="red"><b>Śhrī Mātājī:</b></font> Yes, of course!<br>
 <b>Same lady:</b> So, all Your followers that have received Realization in fact enlightenment?<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> Yes, yes.<br>
-You see, it means you have to be enlightened. It also means Ātma-sākṣhātkār. It also means uh-uh-uh, what you call that, to be the Pīr [twice-born]. <font color="red"><b>ŚIn ... in uh this thing, in uh, in Lao Tze uh uh, I think, uh ...</b><br>
+You see, it means you have to be enlightened. It also means Ātma-sākṣhātkār. It also means uh-uh-uh, what you call that, to be the Pīr [twice-born]. <font color="red"><b>In ... in uh this thing, in uh, in Lao Tze uh uh, I think, uh ...</b></font><br>
 <b>Dr. Warren Reeves:</b> Tao Kashin, Mother.<br>
-<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red"><b>Ś... He says Tao, Tao, that's you have to become that.</b> There, there are so many things. Everybody has said, "It is that you have to have."<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red"><b>Ś... He says Tao, Tao, that's you have to become that.</b></font> There, there are so many things. Everybody has said, "It is that you have to have."<br>
 <font size="+0"><b>1983-0303 Public Program, Day 2, God Has Created Us with a Purpose, Town Hall, Hay Street and Barrack Street, Perth, WA, Australia</b></font>
 </p>
 
@@ -242,13 +242,13 @@ All these new theories have started, I think, fifty years back, or about sixty y
 <div class="para-divider"></div>
 
 <p>
-"To think that Moses was separate from Christ is another very big mistake! There's no difference at all!>br>
+"To think that Moses was separate from Christ is another very big mistake! There's no difference at all!<br>
 Christ Himself has said: "Those who are not against Me are with Me." Who are those who are not against Him?<br>
 Moses was there on this Earth to cross only this path. It's very symbolic the way He crossed the sea: to show how to cross this path.<br>
 He was the Incarnation, one of the Incarnations, of the Primordial Master.<br>
 There were Ten Great Incarnations of Primordial Masters. <font color="red">One of them was Moses, Abraham, Lao Tze, Janaka, Nāṇaka.</font> There are ten of Them who were major Incarnations of the same principle. Muhammad.<br>
 <font color="red">They are all related to each other. You will be surprised what relation exists between Them. There's no fight, which you learn in your Kuṇḍalinī. They are so integrated and such a concord exists between Them. There's no fight at all.</font><br>
-If there is any fight it is between the evil and the good."</font><br>
+If there is any fight it is between the evil and the good."<br>
 <font size="+0"><b>1983-0317 Public Program, Day 3, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
 </p>
 
@@ -274,7 +274,7 @@ I mean, anything is the same! That you have to become a realized Soul."<br>
 "<font color="red">The second person who really emerged out of it, all this ritualism and all that that they had created out of Buddha's life, was Lao Tze, who preached about Tao. Tao is the All-pervading Divine Power, Power of Love. When He talked about It, He explained about It, and He is ss-started another group of people, who were to be given Realization.<br>
 But that also, [laughing:] today I find, has become Tao-ism.</font><br>
 Everything becomes ism, means imprisoned. Is not living! Is not there!<br>
-Is just a thought of Tao, people read, I have seen people ... uh there's one gentleman in India who has written a complete book on Tao. He's not even a realized Soul! What is he writing? I was just wondering, 'With his blind eyes, what is he describing, what colors can he describe?'"</font><br>
+Is just a thought of Tao, people read, I have seen people ... uh there's one gentleman in India who has written a complete book on Tao. He's not even a realized Soul! What is he writing? I was just wondering, 'With his blind eyes, what is he describing, what colors can he describe?' "<br>
 <font size="+0"><b>1983-0526 Public Program, Day 1, Brighton, East Sussex, UK</b></font>
 </p>
 
@@ -299,7 +299,7 @@ Also it creates two institutions within you, as ego and superego, which cross ov
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"The same we had Lao Tze, who was the Primordial Master, one of His ten Incarnations; and the Disciple Principle was born as Viditama who started Zen.</font> This is the reason why you find those who follow Zen, more in the paintings, poetry. [De même nous avons eu Lao Tze, qui est le Maître Primordial, une de ses dix Incarnations. Et le Principe du Disciple naquit comme Bodhidharma, qui lança le Zen. C'est pourquoi vous trouvez ceux qui sont pratiqué le Zen plutôt dans la peinture, la poésie.]"</font><br>
+<font color="red">"The same we had Lao Tze, who was the Primordial Master, one of His ten Incarnations; and the Disciple Principle was born as Viditama who started Zen.</font> This is the reason why you find those who follow Zen, more in the paintings, poetry. [De même nous avons eu Lao Tze, qui est le Maître Primordial, une de ses dix Incarnations. Et le Principe du Disciple naquit comme Bodhidharma, qui lança le Zen. C'est pourquoi vous trouvez ceux qui sont pratiqué le Zen plutôt dans la peinture, la poésie.]"<br>
 <font size="+0"><b>1984-0507 Interview with Michel Sadashiva Cherney for the Sahaja Yoga Magazine in French \textcolor{greeny}{\it L'Attention, Issue 4, Pages 32 to 37}, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), Île-de-France, France</b></font>
 </p>
 
@@ -393,7 +393,7 @@ Now, these are the two things which are in our brain, you see, really placed lik
 <div class="para-divider"></div>
 
 <p>
-"Now, this question follows another question: that if you are the Spirit, [then] you are your own guide, you are own guru, you are your own master. So now you put your right hand on the upper part of your stomach on the left-hand side, which is the center of mastery. <font color="red">This is the center which is created by the Masters, the Great Masters, who are Sadgurus, who are Real Masters, like Abraham, Moses, Janak, Nāṇak, Lao Tze, Muhammad Sāhab.</font> Now, you take this hand little deep, prarsee [press it], push it little deep into that area in the upper part of the abdomen, and ask a question three times, 'Mother, am I my own guide? Am I my own master? Am I my own guru?' Ask in your heart."</font><br>
+"Now, this question follows another question: that if you are the Spirit, [then] you are your own guide, you are own guru, you are your own master. So now you put your right hand on the upper part of your stomach on the left-hand side, which is the center of mastery. <font color="red">This is the center which is created by the Masters, the Great Masters, who are Sadgurus, who are Real Masters, like Abraham, Moses, Janak, Nāṇak, Lao Tze, Muhammad Sāhab.</font> Now, you take this hand little deep, prarsee [press it], push it little deep into that area in the upper part of the abdomen, and ask a question three times, 'Mother, am I my own guide? Am I my own master? Am I my own guru?' Ask in your heart."<br>
 <font size="+0"><b>1985-0422 Public Program, Day 1, Université Paris Diderot Paris 7, 5 Rue Thomas Mann, Paris, France</b></font>
 </p>
 
@@ -537,7 +537,7 @@ And we should not doubt Them because we have limited intelligence."<br>
 "We have heard about the All-pervading Divine Power. <font color="red">Right from Lao Tze to Christ, to Buddha, all of Them have talked about it.</font><br>
 We did not know about ether before, but we have heard about the Divine Power which is all-pervading.<br>
 Once you are united with it, connected with it, then only you realize that you are a part and parcel of the whole. But before that, it's only talk. Talk of religion, talk about all philosophies, is just a talk.<br>
-Without any experience of this Divine Power, if we are going to believe into these talks and these dogmas, also these mental projections, we'll reach a state where we will say: 'We don't believe in it.' But this is not the way to know the Divine."</font><br>
+Without any experience of this Divine Power, if we are going to believe into these talks and these dogmas, also these mental projections, we'll reach a state where we will say: 'We don't believe in it.' But this is not the way to know the Divine."<br>
 <font size="+0"><b>1986-0917 Public Program, Collège Saint-Michel, Boulevard Saint-Michel 24, Etterbeek, Brussels-Capital Region, Belgium</b></font>
 </p>
 
@@ -554,7 +554,7 @@ Without any experience of this Divine Power, if we are going to believe into the
 "That is how the beauty is expressed through the holy hands of holy people, all over the world.<br>
 I don't know nowadays if it is done so.<br>
 <font color="red">Even in those days-s-s, at the time of Socrates, Lao Tze, philosophy was the dominating subject.</font> People thought philosophy was the epitome of knowledge.<br>
-But suddenly then it turned to economics, and that's the place we have l... we lost our heritage of creativity, of the Divine Values, of the Divine Guṇas."</font><br>
+But suddenly then it turned to economics, and that's the place we have l... we lost our heritage of creativity, of the Divine Values, of the Divine Guṇas."<br>
 <font size="+0"><b>1987-0102 Talk to Sahaja Yogis (English + Marathi), Beauty Must Have Auspiciousness, before the Evening Program, Session 1 (before Dinner), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
@@ -625,7 +625,7 @@ But only thing it was not so said so clearly. Because there were not people inte
 
 <p>
 "All the Saints have said that, "You have to know your Self." Unless and until you know your Self, the illusion and the ignorance won't go.<br>
-<font color="red">If you see in the Chinese, right from Confucius, Lao Tze, all of them have talked about it.</font> For Christians, Christ has said the same thing. For Sikhs, Guru Nāṇaka has the said the same thing, that, "You must seek the Truth." "</font><br>
+<font color="red">If you see in the Chinese, right from Confucius, Lao Tze, all of them have talked about it.</font> For Christians, Christ has said the same thing. For Sikhs, Guru Nāṇaka has the said the same thing, that, "You must seek the Truth." "<br>
 <font size="+0"><b>1990-1101 Public Program, Day 1, Girls Guide Hall, Brickfields, Kuala Lumpur, Malaysia</b></font>
 </p>
 
@@ -672,16 +672,18 @@ But nobody could put it through to people because, I think, people did not want 
 
 <p>
 This is the area [void] which we say is-ss within us built up by the-ee Great Prophets. <font color="red">"You can start, say, Abraham, Moses, Socrates, Lao Tze, all these Great Prophets have built this area within us.</font><br>
-And this represents ten valencies, like Ten Commandments. Carbon has got four valencies, we have got ten valencies. And these ten valenji-cies [valencuies] are our real actual human nature, which we can call is the religion within ourselves."<br>
+And this represents ten valencies, like Ten Commandments. Carbon has got four valencies, we have got ten valencies. And these ten valenji-cies [valencies] are our real actual human nature, which we can call is the religion within ourselves."<br>
 <font size="+0"><b>1992-0228 Public Program, Newcastle (160 kms N of Sydney), New South Wales, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"<br>
+"I don't know how many of you have really seen the Buddhists or have met them, those who call themselves Buddhist. As in every religion, all of them got lost into some sort of a fundamentalisism [fundamentalism], because none of them got Realization. <font color="red">And that's why everybody established their own style of religion, even you can say that Tao of Lao Tze also, or Zen of Viditama, all of them are offshoots of the same.</font><br>
 .......<br>
-"</font><br>
+<font color="red">Then that's second type of Buddhism came, where this uh Lao Tze taught about Tao. But Tao actually is, He's the only one who started talking about Kuṇḍalinī, Tao is the Kuṇḍalinī. But that, too, was too much for these people. They just couldn't understand what He was talking about. But the way He expressed Himself in paintings and other things, just to deviate from that kind of a harsh Buddhism.</font><br> 
+But somehow, despite that, it never took proper roots. And they, I have met people who follow Tao and absolutely you don't understand how these people are following the path of Kuṇḍalinī.<br>
+There's a river called Yangtze by which, when you travel, you find variety of things. After every five minutes the scene changes, all the uh beautiful mountains take another form, and you have lots of waterfalls, and is very interesting. That is the Kuṇḍalinī. Tao is that river. But it said that you should not divert your attention to these temptations which are outside. You should see them, but move. <font color="red">And that is what is Tao, which He brought in.</font>"<br>
 <font size="+0"><b>1992-0531 Śhrī Buddha Pūjā, The Search for the Absolute, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
 </p>
 
@@ -793,7 +795,10 @@ Is such a beautiful description, and I have seen it Myself when I can understand
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"If any knowledge is coming from the West, we accept in India, isn't it? But if any knowledge is coming from India, why should anybody avoid it? Because it is for the benevolence of people. It has nothing to do with outside religions. It is something inner uh knowledge that was there.<br>
+<font color="red">Also we had lots of people, like Lao Tze, uh-uh-uh like Zen system, we had people also in England, like uh-uh-uh ... William Blake. So many of them had talked about this Inner Knowledge. And they were all Saints.</font><br>
+I was surprised that in Colombia, they had the knowledge of Kuṇḍalinī. And they used to make ornaments like Kuṇḍalinī.<br>
+So if you open your eyes and open your heart, you'll find: everywhere there was this knowledge about the ascent of man."<br>
 <font size="+0"><b>1994-0711 Public Program, The Inner Religion, Hôtel Concorde Lafayette (now Hyatt Regency Paris Étoile), Le Palais des Congrès, 7e Niveau, 2 Place de la Porte Maillot, Paris, France</b></font>
 </p>
 
@@ -816,17 +821,32 @@ I am not saying something new to you."<br>
 
 <p>
 "Confucius has taught the humanity how we can improve our relations with other human beings. <font color="red">But Lao Tze in Chine has very beautifully described Tao, meaning the Kuṇḍalinī.<br> 
-And I have had a voyage through the Yangtze River through which Lao Tze had gone many times. I know he was trying to show that river, which is the Kuṇḍalinī, is flowing towards the sea and one should not be tempted by the nature that is around. The nature around the Yangtze River is very, very beautiful, no doubt, but one has to go through the river. Also there are lots of currents which flow and can be quite dangerous and we need a good navigator who should take his ship across to the point where it is nearer the sea. At that stage it becomes very silent and extremely simple in its flow.<br>
-This country has been endowed with great philosophers, I would say the greatest was Lao Tze, because humanism was for the preparation of human beings for their ascent about which Lao Tze had spoken. But because of the subtle subject it was not described in such a clear-cut manner as I am talking to you."</font><br>
+And I have had a voyage through the Yangtze River through which Lao Tze had gone many times. I know He was trying to show that river, which is the Kuṇḍalinī, is flowing towards the sea and one should not be tempted by the nature that is around.</font> The nature around the Yangtze River is very, very beautiful, no doubt, but one has to go through the river. Also there are lots of currents which flow and can be quite dangerous and we need a good navigator who should take his ship across to the point where it is nearer the sea. At that stage it becomes very silent and extremely simple in its flow.<br>
+This country has been endowed with great philosophers, I would say the greatest was Lao Tze, because humanism was for the preparation of human beings for their ascent about which Lao Tze had spoken. But because of the subtle subject it was not described in such a clear-cut manner as I am talking to you."<br>
 <font size="+0"><b>1995-0913 Written (Prepared) Talk, On the Global Problems Facing Women, Inter-Regional Round Table, Fourth World Conference on Women: Action for Equality, Development and Peace, Guanjunyuan Hotel, Beijing, China</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"<br>
+<font color="red">"In your country, you had very great philosophers once upon a time. Of course, you believe in humanism, uh ... but there was another great, great philosopher, who was called as Lao Tze, of a very high spirituality, like a Great Incarnation of a Master.<br>
+What He has written about, described about Yangtze River is very interesting.</font> Because I went through [similing:] the Yangtze River Myself. <font color="red">And He calls it Tao, Tao: is actually mean... He is talking about Kuṇḍalinī. He was a poet, so, whatever He has described is uh rather subtle. And maybe, they must have thought that is better ah to understand other people than Ta... uh ... thun [than] Tao uh written by-ee Lao Tze. But all over the world, you will find it is Tao which people respect very much, and they r... right ... like to always interpret uh the meaning of the word Tao.<br>
+Really symbolically He has described that this River, Yangtze, is a difficult river to go through. And the surroundings, the banks of this river, are extremely beautiful.</font><br>
+You won't believe for twelve hours I was sitting outside watching the beauty of the banks. I've never seen such beautiful mountains, trees, and the whole movement of nature is like an artist painting something.<br>
+And all your paintings, most of them, I think are impressed by that kind of, you see, banks that I saw. Because I have studied your uh-uh-uh art and I felt that the way you have shown in your art, that is mostly the bank[s] of Yangtze River.<br>
+<font color="red">But the symbolic thing is this: that in the beginning it's a very difficult river, there're lots of currents, they form lots of circles, very heavy type, and is very difficult to climb. Till it ... it's for quite some time you have to pass very carefully. Just about few hours, when it reaches the sea, it becomes calm, absolutely calm.</font><br>
+In the same way, the Tao that He describes is, in the beginning, according to Him, is rather difficult. But when It reaches near the sea, It calms down.<br>
+<font color="red">It is a remarkable thing that: how He could see the Kuṇḍalinī so much well defined as this Yangtze River. It's [an] ex... extremely, very artistic, subtle idea. Shows what a poet He must have been, and the how highly developed sp... spiritually He was.</font><br>
 ......<br>
-"</font><br>
+I think, in this whole world, these days there are numberless people who are Seekers of Truth. Because normally we live in a relative world.<br>
+[Repeats for the translator:] Relative world.<br>
+We don't live in the Absolute World. Because of that, we have problems.<br>
+For example, one man thinks something is very good, he has a fixed idea's. Another man thinks that something else is good, and he has another fixed idea. But they are not satisfied, because they have to find out the Absolute Truth.<br>
+<font color="red">For that, in our whole creation through the evolutionary process, there's a built-in mechanism within us, which is the Ta-o. This, I think in those days it must have been hard to say something very openly, so He took this name Ta-o, and described the Yangtze River.</font><br>
+......<br>
+Now the greatest thing about this is: that you become a Universal Being. Like a drop becomes the ocean.<br>
+<font color="red">Lao Tze described this. These ways He has described.</font><br>
+And I'm sure, that you all will achieve it and you'll grow into it and you will enjoy yourself."<br>
 <font size="+0"><b>1995-0913 Public Program, Function Room, Jingguang New World Hotel-Manfulou, 1 Chaoyangmen Outer St, Guomao, Chaoyang, Beijing, China</b></font>
 </p>
 
@@ -915,9 +935,9 @@ But it had a reaction. Because such people became emotionally dried out."<br>
 <p>
 "But, you see, it [The Chi] is, it has something to do with that, and that is what is our ego and superego.<br>
 The Chinese what they have written, it's correct.<br>
-<font color="red">But Chinese also don't know who is Lao Tze, can you imagine? Lao Tze is the man who talked about this thing, is the one who told them about Kuṇḍalinī, and they don't know who is Lao Tze.</font>>br>
+<font color="red">But Chinese also don't know who is Lao Tze, can you imagine? Lao Tze is the man who talked about this thing, is the one who told them about Kuṇḍalinī, and they don't know who is Lao Tze.</font><br>
 Specially in America, I don't know what sort of Chinese live here. [Some soft laughter.]<br>
-It's such a Great Source of Knowledge, and what they have said is a perfect thing."</font><br>
+<font color="red">It's such a Great Source of Knowledge, and what They have said is a perfect thing."</font><br>
 <font size="+0"><b>1999-0616 Public Program (also Follow On to Public Talk to VIPs), The Town Hall, 123 West and 43rd Street, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -985,7 +1005,6 @@ I mean, every Saint, every Sufi has talked about it, if you have read them. <fon
 "The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. <font color="red">In China He was born as Confucius and as Lao Tze, and in Greece as Socrates.</font> He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."<br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 33</b></font>
 </p>
-
 
 <div class="para-divider"></div>
 
