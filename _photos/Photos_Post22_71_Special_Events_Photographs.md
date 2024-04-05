@@ -12,8 +12,8 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1985-1117 Evening Program, after Diwālī Pūjā, Italy</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
-The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Anna-Mancini-Collection/1985/">Collection 1985</a>.<br>
+We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1987-1026 Evening Program, Italy</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
+The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Anna-Mancini-Collection/1987/">Collection 1987</a>.<br>
 The event has as well 12 photos Moments of Joy which can be seen in the smallest gallery at the link <a href="https://eternalmoments.smugmug.com/Collections/Anna-Mancini-Collection/Moments-of-Joy"> Collection Moments of Joy</a>.<br> 
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
