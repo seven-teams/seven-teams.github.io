@@ -523,7 +523,10 @@ This is what it is!"<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">Now the contradiction, again people use, about Śhrī Kṛiṣhṇa, in so many other ways, that it is surprising: that not only Chris-s-s [Christ], not only Muhammad Sāhab, not only Lao Tze, not only Śhrī Rāma but even Kṛiṣhṇa was misused by His followers.</font><br>
+He's the One who is taṭasth, the One -- taṭastha means who stands on the banks of the attention and sees everything, who watches everything. He is the One who is the witness. It described: ``Sākṣhi rūpeṇa saṃsthitā," sā... it becomes a sākṣhi, a witness. That's what He has said, ``It's a play! it's a play!"<br>
+But in the name of Kṛiṣhṇa, you'll find all kinds of absurd things people do. They make dramas, they become Kṛiṣhṇas, they become [], they make people ..., befool them, make money out of it, or they sell books on the street.<br>
+Like if you go to Southall you'll find so many Westerners wearing funny dresses going round asking for alms from Indians. And Indians say, 'Oh look at that! These beggars, you see they have come to get some, let us give them some money.'' "<br>
 <font size="+0"><b>1986-0823 Talk to Sahaja Yogis, before Dinner and Śhrī Kṛiṣhṇa Pūjā, Hotel Primerose (now Hostellerie am Schwarzsee), Seestrasse 10, Schwarzsee (2k kms SE of Fribourg), Valais, Switzerland</b></font>
 </p>
 
@@ -576,7 +579,10 @@ We have to be honest to know the Truth. And that honesty is as simple as this: t
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"We have to make great people out of you. <font color="red">Many Abraham Lincolns and Lenin, Lao Tzes, Mozarts, all have to come out of you.</font> We have to create William Blake out of you.<br>
+They were only one or two, I was not present at that time, still they survived and created great works.<br>
+In the same way out of you, we have to create these great people.<br>
+But first you must realize: that you have to be absolutely cleansed out, and give up all the false, funny ideas that you have. "</font><br>
 <font size="+0"><b>1987-1221 Pūjā (Marathi + English + Marathi + English), Become Beautiful Vessels of Vibrations and Attention on Quality, House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
 
@@ -589,7 +595,12 @@ We have to be honest to know the Truth. And that honesty is as simple as this: t
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"I think Chinese will take to Sahaja Yoga very easily, you see, because they're very wise people to begin with and they have such an ancient tradition.<br>
+And all the traditional people take to Sahaja Yoga very fast, I've seen.<br>
+Like in Egypt some people I met, they've been calling Me but I said, "Let there be some more, then I'll come."<br>
+Also in Italy itself, Italy is doing very well.<br>
+<font color="red">And China I think is such a wise country, you had such great philosophers and you had Lao Tze, such a great philosopher because He's the One who came up with absolutely clear-cut ideas about ..., very clear-cut ideas and what He has preached in the Zen system of religion is the same as Sahaja Yoga.</font><br>
+Zen means dhyāna, means dhyān, is the meditation. And Zen system is practiced in the same manner as we practice Sahaja Yoga. But you have to have realized Souls to practice it."<br>
 <font size="+0"><b>1990-0228 Talk to Sahaja Yogis, in Transit, Changi Airport, Singapore</b></font>
 </p>
 
