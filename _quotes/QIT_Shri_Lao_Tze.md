@@ -525,7 +525,7 @@ This is what it is!"<br>
 <p>
 "<font color="red">Now the contradiction, again people use, about Śhrī Kṛiṣhṇa, in so many other ways, that it is surprising: that not only Chris-s-s [Christ], not only Muhammad Sāhab, not only Lao Tze, not only Śhrī Rāma but even Kṛiṣhṇa was misused by His followers.</font><br>
 He's the One who is taṭasth, the One -- taṭastha means who stands on the banks of the attention and sees everything, who watches everything. He is the One who is the witness. It described: ``Sākṣhi rūpeṇa saṃsthitā," sā... it becomes a sākṣhi, a witness. That's what He has said, ``It's a play! it's a play!"<br>
-But in the name of Kṛiṣhṇa, you'll find all kinds of absurd things people do. They make dramas, they become Kṛiṣhṇas, they become [], they make people ..., befool them, make money out of it, or they sell books on the street.<br>
+But in the name of Kṛiṣhṇa, you'll find all kinds of absurd things people do. They make dramas, they become Kṛiṣhṇas, they become [<font color="orange">unclear</font>] , they make people ..., befool them, make money out of it, or they sell books on the street.<br>
 Like if you go to Southall you'll find so many Westerners wearing funny dresses going round asking for alms from Indians. And Indians say, 'Oh look at that! These beggars, you see they have come to get some, let us give them some money.'' "<br>
 <font size="+0"><b>1986-0823 Talk to Sahaja Yogis, before Dinner and Śhrī Kṛiṣhṇa Pūjā, Hotel Primerose (now Hostellerie am Schwarzsee), Seestrasse 10, Schwarzsee (2k kms SE of Fribourg), Valais, Switzerland</b></font>
 </p>
