@@ -12,10 +12,10 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 16 Photos of the special event <font color="Crimson"><b>1980-1230 Public Program, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 16 high resolutions from the Named Collections and 1 medium resolution from the XYZ Unknown Collection.<br>
-The direct link to the 31 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1980"><font color="DarkGreen">India 1980</font></a>.<br> 
+We are pleased to let you know that 18 Photos of the special event <font color="Crimson"><b>1980-1230 Public Program, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 16 high resolutions from the Named Collections and 1 medium resolution from the XYZ Unknown Collection.<br>
+The direct link to the 33 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1980"><font color="DarkGreen">India 1980</font></a>.<br> 
 Please kindly share the links with all our brothers and sisters.<br>
-[Note: 1 Photo uploaded on 2024-0317.]<br>
+[Note: 1 Photo uploaded on 2024-0317 and 2 Phots uploaded on 2024-0407.]<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
