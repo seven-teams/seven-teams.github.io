@@ -188,7 +188,12 @@ So, try to gather nourishment. Like reading Devī Māhātmyam, reading about ...
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now this Unconscious Force is within us.<br>
+Actually, God is Love and Love is God.<br>
+But our idea of love is very limited. Because we are limited. We have not reached that state of unlimited. Our mind is limited. We think in a limited way. So far as we love our children, we love our family, we love our parents or we love our country, like that it goes on expanding.<br>
+But it is not a limited thing. So what is that love which is really universal, we should try to find out.<br>
+This Love is the One, is the Power, which is called as the Holy Ghost. Is called as the Ādi Śhakti, or they say is Rūḥ. In ... in Qur'ān, it's called as Rūḥ. This Power is All-pervading Power. It's called as Chaitanya, and is described as Saundaryalaharī by Ādi Śhaṅkarāchārya. Everybody has described it. <font color="red">Whether it is Lao Tze or it is uh, we can say, Zen system or any system which has still survived has described this as the Brahma or we can call the Power of God which is all-pervading.</font><br>
+But as human beings, we cannot feel it. We may feel the force of it. We may work because of it. Like Lion Club is one of the, we can say, the uh sprouting of that love. But this love, which is acting, which is manifesting, we cannot feel it."<br>
 <font size="+0"><b>1982-1226 Public Talk, Lions Club International, District 323-D, Pune, Maharashtra, India</b></font>
 </p>
 
@@ -860,7 +865,8 @@ And I'm sure, that you all will achieve it and you'll grow into it and you will 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now this Power is nothing mysterious today, It's the Power that is to sprout for our last breakthrough of our evolution. After the human awareness we have to jump into a new awareness which is a complete understanding of ourselves.<br>
+<font color="red">This new awareness that has been talked about, told about by Zen system which you know that is followed very well in Japan, then also by Lao Tze in China, by so many people it has been talked about that, `One has to become a person who is beyond the mind.'</font> "<br>
 <font size="+0"><b>1996-0219 Public Address to Doctors, Inauguration, International Sahaja Yoga Research and Health Center, Plot No. 1, Sector 8, H.H. Śhrī Nirmalā Devī Mārg, C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -944,7 +950,8 @@ Specially in America, I don't know what sort of Chinese live here. [Some soft la
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"In the center of these thoughts there is this, which is complete silence. When Kuṇḍalinī rises, She elongates those thoughts and the spaces in between and you become thoughtlessly aware.<br>
+Jung has thought about it. Jung has thought about thoughtless awareness. <font color="red">Lao Tze had talked.</font> So many people have talked about thoughtless awareness where you don't think, just watch."<br>
 <font size="+0"><b>1999-0627 Press Conference with One Reporter for 'VisionTV' Channel and with Four Journalists for 'Common Ground Magazine', 'U Magazine', 'The Link Newspaper', and 'Vancouver Indian Community Press', Sutton Place Hotel, 845 Burrard Street, Vancouver, BC, Canada</b></font>
 </p>
 
