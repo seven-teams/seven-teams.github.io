@@ -14,7 +14,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b>You Are The Form Of That Love of God's All-pervading Power</b><br></font>
+<font size="+2"><b>You Are The Form Of That Love Of God's All-pervading Power</b><br></font>
 </p>
 
 <p>
