@@ -269,7 +269,15 @@ I mean, anything is the same! That you have to become a realized Soul."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So, all the saṃnyāsa and all these ideas came gradually: everyone who came on this Earth, people have really made a mess out of them.<br>
+And Buddha's mess has gone to such an extent, that, if you see that you'll be shocked. It went into many formations.<br>
+But I heard from My son-in-law that he went and visited some of the caves where the very early Buddhist lived, very early Buddhist lived. In the caves because they were not supported by kings or anything so, they had a very bad time. And they used to live in the caves. And what My son-in-law told Me that in the caves there are writings: in Sanskrit, in Pali, and in Indian script, say-ing that, "It is the spontaneous happening that can bring forth the Self-realization." He's got that photographed.<br>
+So, it's coming forward.<br>
+You see, so they knew about it, the Sahaja Yoga. They knew about it.<br>
+But then as every religion has gone into a mess and lot of funny sort of uh-uh-uh, we can say the uh-uh-uh, funny sort of uh expressions, also, Buddhism has gone, it became Mahāyān, Hīnayān, all sorts of thing.<br>
+But one of them was called as Viditama, who ran away from India, settled down in Japan and he started the Zen system of religion, which he kept to the spontaneous happening. That's one was preserved.<br>
+<font color="red">Another was the Lao Tze style who did not talk of God and of Buddha, but of Ta-o Itself: the Energy or we can say about the Ādi Śhakti.</font><br>
+So these two good things came out of Him [Lord Buddha]."<br>
 <font size="+0"><b>1983-0526 Śhrī Buddha Pūjā, Brighton Center, Brighton, East Sussex, UK</b></font>
 </p>
 
@@ -524,7 +532,7 @@ This is what it is!"<br>
 
 <p>
 "<font color="red">Now the contradiction, again people use, about Śhrī Kṛiṣhṇa, in so many other ways, that it is surprising: that not only Chris-s-s [Christ], not only Muhammad Sāhab, not only Lao Tze, not only Śhrī Rāma but even Kṛiṣhṇa was misused by His followers.</font><br>
-He's the One who is taṭasth, the One -- taṭastha means who stands on the banks of the attention and sees everything, who watches everything. He is the One who is the witness. It described: ``Sākṣhi rūpeṇa saṃsthitā," sā... it becomes a sākṣhi, a witness. That's what He has said, ``It's a play! it's a play!"<br>
+He's the One who is taṭasth, the One -- taṭastha means who stands on the banks of the attention and sees everything, who watches everything. He is the One who is the witness. It described: "Sākṣhi rūpeṇa saṃsthitā," sā... it becomes a sākṣhi, a witness. That's what He has said, "It's a play! it's a play!"<br>
 But in the name of Kṛiṣhṇa, you'll find all kinds of absurd things people do. They make dramas, they become Kṛiṣhṇas, they become [<font color="orange">unclear</font>] , they make people ..., befool them, make money out of it, or they sell books on the street.<br>
 Like if you go to Southall you'll find so many Westerners wearing funny dresses going round asking for alms from Indians. And Indians say, 'Oh look at that! These beggars, you see they have come to get some, let us give them some money.'' "<br>
 <font size="+0"><b>1986-0823 Talk to Sahaja Yogis, before Dinner and Śhrī Kṛiṣhṇa Pūjā, Hotel Primerose (now Hostellerie am Schwarzsee), Seestrasse 10, Schwarzsee (2k kms SE of Fribourg), Valais, Switzerland</b></font>
@@ -582,7 +590,7 @@ We have to be honest to know the Truth. And that honesty is as simple as this: t
 "We have to make great people out of you. <font color="red">Many Abraham Lincolns and Lenin, Lao Tzes, Mozarts, all have to come out of you.</font> We have to create William Blake out of you.<br>
 They were only one or two, I was not present at that time, still they survived and created great works.<br>
 In the same way out of you, we have to create these great people.<br>
-But first you must realize: that you have to be absolutely cleansed out, and give up all the false, funny ideas that you have. "</font><br>
+But first you must realize: that you have to be absolutely cleansed out, and give up all the false, funny ideas that you have."<br>
 <font size="+0"><b>1987-1221 Pūjā (Marathi + English + Marathi + English), Become Beautiful Vessels of Vibrations and Attention on Quality, House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
 
@@ -877,7 +885,7 @@ And I'm sure, that you all will achieve it and you'll grow into it and you will 
 
 <p>
 "Now this Power is nothing mysterious today, It's the Power that is to sprout for our last breakthrough of our evolution. After the human awareness we have to jump into a new awareness which is a complete understanding of ourselves.<br>
-<font color="red">This new awareness that has been talked about, told about by Zen system which you know that is followed very well in Japan, then also by Lao Tze in China, by so many people it has been talked about that, `One has to become a person who is beyond the mind.'</font> "<br>
+<font color="red">This new awareness that has been talked about, told about by Zen system which you know that is followed very well in Japan, then also by Lao Tze in China, by so many people it has been talked about that, 'One has to become a person who is beyond the mind.'</font> "<br>
 <font size="+0"><b>1996-0219 Public Address to Doctors, Inauguration, International Sahaja Yoga Research and Health Center, Plot No. 1, Sector 8, H.H. Śhrī Nirmalā Devī Mārg, C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -999,7 +1007,10 @@ I mean, every Saint, every Sufi has talked about it, if you have read them. <fon
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"I hope you will understand, as a guru, what you have to do. As a guru, there are so many things, and a... as your character.<br>
+<font color="red">Yesterday, as they showed [in the drama] how Lao Tze has written about the masters, how they were above all, everything: above turmoil, above jealousies, above talking loose.</font><br> 
+They are so great, they are the masters and they will be the masters, and you will be the'm gurus if you try to do that.<br>
+This is what you have to achieve. I know some have achieved it, but most of you have to achieve, with compassion and love."<br>
 <font size="+0"><b>2000-0723 Guru Pūjā, Śhraddhā, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -1013,7 +1024,8 @@ I mean, every Saint, every Sufi has talked about it, if you have read them. <fon
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">Then we have also in Japan [China]: Ta-o. He talked about the All-pervading Power, which was Tao. And Lao Tze was the One who did ... He had described Saints, how the Saints are, how they behave, how they talk, what is their mannerism, everything.</font><br>
+But how you become a Saint, nobody said. I think, throughout, there has been no description: [of] how to make a person into a saintly personality."<br>
 <font size="+0"><b>2001-0506 Sahasrāra Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 

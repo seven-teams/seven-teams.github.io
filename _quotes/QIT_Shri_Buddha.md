@@ -191,6 +191,30 @@ All these new theories have started, I think, fifty years back, or about sixty y
 <div class="para-divider"></div>
 
 <p>
+"......<br>
+So, all the saṃnyāsa and all these ideas came gradually: everyone who came on this Earth, people have really made a mess out of them.<br>
+<font color="red">And Buddha's mess has gone to such an extent, that, if you see that you'll be shocked. It went into many formations.</font><br>
+But I heard from My son-in-law that he went and visited some of the caves where the very early Buddhist lived, very early Buddhist lived. In the caves because they were not supported by kings or anything so, they had a very bad time. And they used to live in the caves. And what My son-in-law told Me that in the caves there are writings: in Sanskrit, in Pali, and in Indian script, say-ing that, "It is the spontaneous happening that can bring forth the Self-realization." He's got that photographed.<br>
+So, it's coming forward.<br>
+You see, so they knew about it, the Sahaja Yoga. They knew about it.<br>
+But then as every religion has gone into a mess and lot of funny sort of uh-uh-uh, we can say the uh-uh-uh, funny sort of uh expressions, also, Buddhism has gone, it became Mahāyān, Hīnayān, all sorts of thing.<br>
+But one of them was called as Viditama, who ran away from India, settled down in Japan and he started the Zen system of religion, which he kept to the spontaneous happening. That's one was preserved.<br>
+Another was the Lao Tze style who did not talk of God and of Buddha, but of Ta-o Itself: the Energy or we can say about the Ādi Śhakti.<br>
+<font color="red">So these two good things came out of Him [Lord Buddha].</font><br>
+......"<br>
+<font size="+0"><b>1983-0526 Śhrī Buddha Pūjā, Brighton Center, Brighton, East Sussex, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "We have heard about the All-pervading Divine Power. <font color="red">Right from Lao Tze to Christ, to Buddha, all of Them have talked about it.</font><br>
 We did not know about ether before, but we have heard about the Divine Power which is all-pervading.<br>
 Once you are united with it, connected with it, then only you realize that you are a part and parcel of the whole. But before that, it's only talk. Talk of religion, talk about all philosophies, is just a talk.<br>
