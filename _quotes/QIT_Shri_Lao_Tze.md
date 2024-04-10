@@ -977,7 +977,8 @@ Jung has thought about it. Jung has thought about thoughtless awareness. <font c
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So, in every religion there have been enlightened people.<br>
+<font color="red">Among Buddhists also there has been a Viditama, Lao Tze, and many others, who have tt-talked about seeking, seeking the Truth.</font>"<br>
 <font size="+0"><b>1999-1225 Christmas Pūjā, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
