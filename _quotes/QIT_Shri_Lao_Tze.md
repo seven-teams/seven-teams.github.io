@@ -213,7 +213,7 @@ You see, it means you have to be enlightened. It also means Ātma-sākṣhātkā
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Everyone has said it: Christ has said it, Muhammad has said it, Buddha has said it, Mahāvīra has said it. Everyone has said the same thing! Like Lao Tze, you can say Zen system, everything has said that, ``You are to be born-again," there has to be some transformation within you. They didn't tell us lies!"</font><br>
 <font size="+0"><b>1983-0308 Press Conference, The Hotel Windsor, 111 Spring Street, Melbourne, Australia</b></font>
 </p>
 
@@ -762,10 +762,14 @@ Despite that, people were thinking, 'These are some absurd people, there's nothi
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> [It is] as if the Mahālakṣhmī Principle holds the reins. And you cannot cross the limits: you cannot go too much to the left or to the right.<br>
+By this Principle you realize what is wrong with the outside religions. You realize also that inside all the religions are born like flowers on the same of Tree of Spirituality. <font color="red">And automatically you start worshiping all the Prophets, right from Abraham, Moses, Confucius, Lao Tze, Muhammad Sāhab, Nāṇak.</font><br>
+<b>Sahaja Yogi translator:</b> Mh-hm?<br>
+<b>Guido Lanza:</b> Confucius, Lao Tze, Nāṇak.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You worship Them! It is not that you have respect, but you worship.</font><br>
+And thus you lose the barriers of fundamentalism.<br>
 <font size="+0"><b>1993-0908 Śhrī Mahālakṣhmī Pūjā, National Palace of Culture (NDK), Boulevard Bulgaria, 1463 NDK, Sofia, Bulgaria</b></font>
 </p>
-
 <div class="para-divider"></div>
 
 <p>
@@ -935,7 +939,7 @@ That means this mind is created out of our reaction through our conditionings or
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Like Lao Tze described that you are going through the Yangtze River, is beautiful, on the sides you see beautiful scenes. But you better be on the boat and reach the ocean."</font><br>
 <font size="+0"><b>1996-0321 Birthday Pūjā (Hindi + English), Mind is a Myth, Scouts Camp, New Delhi, India</b></font>
 </p>
 

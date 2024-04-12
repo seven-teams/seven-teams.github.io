@@ -191,6 +191,20 @@ All these new theories have started, I think, fifty years back, or about sixty y
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">Everyone has said it: Christ has said it, Muhammad has said it, Buddha has said it, Mahāvīra has said it.</font> Everyone has said the same thing! Like Lao Tze, you can say Zen system, everything has said that, ``You are to be born-again," there has to be some transformation within you. They didn't tell us lies!"<br>
+<font size="+0"><b>1983-0308 Press Conference, The Hotel Windsor, 111 Spring Street, Melbourne, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "......<br>
 So, all the saṃnyāsa and all these ideas came gradually: everyone who came on this Earth, people have really made a mess out of them.<br>
 <font color="red">And Buddha's mess has gone to such an extent, that, if you see that you'll be shocked. It went into many formations.</font><br>

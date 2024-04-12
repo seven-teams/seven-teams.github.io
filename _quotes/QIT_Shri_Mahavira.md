@@ -106,6 +106,20 @@ Now this Truth has been told by many Great Sages, by Prophets and many Incarnati
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">Everyone has said it: Christ has said it, Muhammad has said it, Buddha has said it, Mahāvīra has said it.</font> Everyone has said the same thing! Like Lao Tze, you can say Zen system, everything has said that, ``You are to be born-again," there has to be some transformation within you. They didn't tell us lies!"<br>
+<font size="+0"><b>1983-0308 Press Conference, The Hotel Windsor, 111 Spring Street, Melbourne, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now, what people are enamored is that, if they see some people dancing madly, they feel enamored. Is a sign that you have not been able to understand.<br>
 <font color="red">We have seen Christ, we have seen Buddha, Mahāvīra, Kabīra, Nāṇaka, we had Lao Tze and so many others. Did They behave like this? Did They become mad?</font> We have got Moses, did He become mad anytime? Was He mad anytime, behaving like a mad person?<br>
 All these new theories have started, I think, fifty years back, or about sixty years back, that people believe in these new theories and they have forgotten all the kn... traditional things that have come to us, our heritage. And we depend more on these nonsensical things, which has no moorings at all! Because the people who are supposed to be the founders of all the religions, have never behave like this, and why this new type of things that has started? That people are behaving in this manner, and accepting it to be a very normal thing."<br>

@@ -1434,6 +1434,25 @@ Now, what he has given us e... are according to this book ['Freudian Fraud'] is 
 <div class="para-divider"></div>
 
 <p>
+<font color="red"><b>Śhrī Mātājī:</b></font> [It is] as if the Mahālakṣhmī Principle holds the reins. And you cannot cross the limits: you cannot go too much to the left or to the right.<br>
+By this Principle you realize what is wrong with the outside religions. You realize also that inside all the religions are born like flowers on the same of Tree of Spirituality. <font color="red">And automatically you start worshiping all the Prophets, right from Abraham, Moses, Confucius, Lao Tze, Muhammad Sāhab, Nāṇak.</font><br>
+<b>Sahaja Yogi translator:</b> Mh-hm?<br>
+<b>Guido Lanza:</b> Confucius, Lao Tze, Nāṇak.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You worship Them! It is not that you have respect, but you worship.</font><br>
+And thus you lose the barriers of fundamentalism.<br>
+<font size="+0"><b>1993-0908 Śhrī Mahālakṣhmī Pūjā, National Palace of Culture (NDK), Boulevard Bulgaria, 1463 NDK, Sofia, Bulgaria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "About Kuṇḍalinī, many people knew It long time back.<br>
 I must say, there was Mārkaṇḍeya, who was thirteen thousand years back, He has talked about Kuṇḍalinī.<br>
 Ādi Śhaṅkarāchārya has talked about Kuṇḍalinī.<br>

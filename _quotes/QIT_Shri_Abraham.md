@@ -789,6 +789,25 @@ All these things are absolutely the same, no doubt. There's no change. In all th
 <div class="para-divider"></div>
 
 <p>
+<font color="red"><b>Śhrī Mātājī:</b></font> [It is] as if the Mahālakṣhmī Principle holds the reins. And you cannot cross the limits: you cannot go too much to the left or to the right.<br>
+By this Principle you realize what is wrong with the outside religions. You realize also that inside all the religions are born like flowers on the same of Tree of Spirituality. <font color="red">And automatically you start worshiping all the Prophets, right from Abraham, Moses, Confucius, Lao Tze, Muhammad Sāhab, Nāṇak.</font><br>
+<b>Sahaja Yogi translator:</b> Mh-hm?<br>
+<b>Guido Lanza:</b> Confucius, Lao Tze, Nāṇak.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You worship Them! It is not that you have respect, but you worship.</font><br>
+And thus you lose the barriers of fundamentalism.<br>
+<font size="+0"><b>1993-0908 Śhrī Mahālakṣhmī Pūjā, National Palace of Culture (NDK), Boulevard Bulgaria, 1463 NDK, Sofia, Bulgaria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "In every religion there is some sort of a stupid stuff pushed forward, in every. Nobody could really stop it. Because those people who are in charge of religion have no enlightenment, they have nothing to k... do with it, anywhere.<br>
 And that's how, I have seen, people, say, in Japan, they follow one religion, and in uh-uh-uh China they follow another religion, both are just the same: one is Zen, another is Tao. But the misunderstanding is that they think, 'We are ex-xu-xu-xclusive [exclusive].' They are not! None of them are exclusive!.<br>
 <font color="red">Muhammad Sāhab described all of Them: from Abraham to Moses, to Christ, to the Mother of Christ. And He said, :There have been more than one lākh Nabīs on this Earth."</font><br>

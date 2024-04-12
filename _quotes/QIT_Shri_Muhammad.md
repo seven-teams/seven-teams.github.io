@@ -1321,6 +1321,20 @@ In Sahaja Yoga lung... language we call it Mahākālī, Mahālakṣhmī, Mahāsa
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">Everyone has said it: Christ has said it, Muhammad has said it, Buddha has said it, Mahāvīra has said it.</font> Everyone has said the same thing! Like Lao Tze, you can say Zen system, everything has said that, ``You are to be born-again," there has to be some transformation within you. They didn't tell us lies!"<br>
+<font size="+0"><b>1983-0308 Press Conference, The Hotel Windsor, 111 Spring Street, Melbourne, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now when this center is illumined, around it is illumined your sustainance [sustenance]. That's your Inner Religion.<br>
 The ... we call it Ten Incarnations of the Primordial Master. There are many who came, but the Ones who came in India was called as Brahmadeva uh ... was called as Dattātreya, Janaka, Rāja Janaka, the father of Sītā. In China, Lao Tze, Confucius. In uh, in the Bible, Abraham and Moses. <font color="red">And later on, in the uh form of uh Muhammad Sāhab.</font> And then Janaka. No, no, Nāṇaka, I'm sorry, Nāṇaka. Nāṇak Sāhab. And in Greece, it was Socrates. They took birth on all these places. In the end, about fifty years back, or hundred years back, was born Great Primordial Master, in India, in Śhirḍī.<br>
 [Helping with the translation:] In Śhirḍī."<br>
@@ -1680,6 +1694,25 @@ There's a big difference in having just the same ... uh-uh-uh, uh what you call,
 So there's no question of differentiating each other, nor on countrywise, nothing."<br>
 <font size="+0"><b>1992-1230 Śhrī Mahālakṣhmī Pūjā (English+Marathi+Hindi+English), The Universal Love, Kalwa, Thane, Maharashtra, India</b></font>
 </p>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red"><b>Śhrī Mātājī:</b></font> [It is] as if the Mahālakṣhmī Principle holds the reins. And you cannot cross the limits: you cannot go too much to the left or to the right.<br>
+By this Principle you realize what is wrong with the outside religions. You realize also that inside all the religions are born like flowers on the same of Tree of Spirituality. <font color="red">And automatically you start worshiping all the Prophets, right from Abraham, Moses, Confucius, Lao Tze, Muhammad Sāhab, Nāṇak.</font><br>
+<b>Sahaja Yogi translator:</b> Mh-hm?<br>
+<b>Guido Lanza:</b> Confucius, Lao Tze, Nāṇak.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You worship Them! It is not that you have respect, but you worship.</font><br>
+And thus you lose the barriers of fundamentalism.<br>
+<font size="+0"><b>1993-0908 Śhrī Mahālakṣhmī Pūjā, National Palace of Culture (NDK), Boulevard Bulgaria, 1463 NDK, Sofia, Bulgaria</b></font>
+</p>
+
+<div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
