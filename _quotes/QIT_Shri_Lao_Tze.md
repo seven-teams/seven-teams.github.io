@@ -213,7 +213,7 @@ You see, it means you have to be enlightened. It also means Ātma-sākṣhātkā
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Everyone has said it: Christ has said it, Muhammad has said it, Buddha has said it, Mahāvīra has said it. Everyone has said the same thing! Like Lao Tze, you can say Zen system, everything has said that, ``You are to be born-again," there has to be some transformation within you. They didn't tell us lies!"</font><br>
+<font color="red">"Everyone has said it: Christ has said it, Muhammad has said it, Buddha has said it, Mahāvīra has said it. Everyone has said the same thing! Like Lao Tze, you can say Zen system, everything has said that, "You are to be born-again," there has to be some transformation within you. They didn't tell us lies!"</font><br>
 <font size="+0"><b>1983-0308 Press Conference, The Hotel Windsor, 111 Spring Street, Melbourne, Australia</b></font>
 </p>
 
@@ -300,13 +300,6 @@ The ... we call it Ten Incarnations of the Primordial Master. There are many who
 ......<br>
 Also it creates two institutions within you, as ego and superego, which cross over at this point [shows Āgñyā]. The right one passes like this, and crosses over and covers all this area in front [shows the left side and the front of Her head]. And the another one crosses over from the left side and covers this area [shows the right side and the back of Her head]. <font color="red">So you have these two things described in the Chinese style of uh Lao Tze's uh, say in religion.</font> These are the two institutions of Ha and Ṭha, two sympathetic nervous systems: one creating ego and another creating superego as a byproduct."<br>
 <font size="+0"><b>1983-0831 Public Program, Day 3, Geneva, Switzerland</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b>1983-1001 Talk to Sahaja Yogis, Seminar, Day 1, Session 1, Kennolyn Campgrounds, 8400 Glen Haven Road, Soquel (10 kms ENE of Santa Cruz), CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -399,7 +392,7 @@ Now, these are the two things which are in our brain, you see, really placed lik
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now the Indians are very clever, as far as the spiritual side is concerned, I must say. Now they would say that: "We must have at least ten Pūjās, somehow, when Mother comes here." So they'll manage: "This is also there," then, "This is also there," then, "What about Muhammad Sāhabs' birthday?", then, "What about Moses' birthday?", which it they don't know, but they'll find out somehow. [Laughter.] <font color="red">And then, "What about also Lao Tze's birthday, why not find it out?</font> So, when Mother is here, invariably every third day let us have a Pūjā." "<br>
 <font size="+0"><b>1985-0420 Talk to Sahaja Yogis, Mahāmāyā Śhakti, Seminar, Day 1, Session 1 (morning), Mason Hall, University, Birmingham, West Midlands, UK</b></font>
 </p>
 
@@ -780,7 +773,7 @@ And thus you lose the barriers of fundamentalism.<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Buddha said the same, Mahāvīra said the same, Christ said the same, Kṛiṣhṇa said the same, Rāma said the same, Lao Tze, you find everyone, the Zen, everybody said the same thing that we have to achieve that world, that we have to enter into the Kingdom of God."</font><br>
 <font size="+0"><b>1994-0321 Talk to Sahaja Yogis, Birthday Felicitations, before Birthday Pūjā, Kalā Mandir Hall, Kolkata, West Bengal, India</b></font>
 </p>
 
@@ -833,7 +826,10 @@ So if you open your eyes and open your heart, you'll find: everywhere there was 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So, this is [has] come from ancient times.<br>
+And then this Buddha came in, but Zen was the most fundamental the same as Buddhist, I should say as Buddha taught of. Is very close to that.<br>
+Then we had in China Tao. Tao means actually Kuṇḍalinī. And it [Śhrī Lao Tze] compared the Kuṇḍalinī with Yangtze River, Yangtze River [<font color="orange">unclear</font> you can].<br>
+I went with My husband all that river [in 1984-10], because he was in the shipping so they said, "This is the most difficult river which one has to cross.""</font><br>
 <font size="+0"><b>1995-0301 Talk to Sahaja Yogis, Zen System or Sahaja Yoga Is Also Zen, before the Public Program, Four Seasons Hotel, Tokyo, Japan</b></font>
 </p>
 
@@ -925,7 +921,10 @@ That means this mind is created out of our reaction through our conditionings or
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Now, you see, for this, best thing is to know about Ta-o, which is your speciality, spread is Chinese, in which He describes, you see. Tao, Lao Tze describes the journey through the River Yangtze.<br>
+I went Myself to see that [in 1984-10].<br>
+So He says on the side, or the banks, there are beautiful, very beautiful, mountains and beautiful trees and it's so beautiful that you feel like jumping out of the boat and going to the ... these gardens and to these mountains. But what your aim: is to go through this, Tao, means the Yangtze River, towards the river. So in the beginning, maybe there are some uh currents flowing, maybe you might lose faith in yourself. But by the time you reach near the sea, it becomes very silent, and you have to go to the sea, that's the point is.<br>
+So, you see, all these are there, these are just enticing. It's all right to see but it is nothing important. Because thse, all these will keep you on a mental level. You'll be always thinking, 'What is this vision? What is that?' There's nothing to be on the mental level: you have to beyond. All right? [Sips water.] If you don't see, you don't bother about it, they'll disappear."</font><br>
 <font size="+0"><b>1996-0310 Talk to Sahaja Yogis, before the Evening Program, Furama Hong Kong Hotel, 37 Dundas St, Mong Kok, Hong Kong, China</b></font>
 </p>
 
@@ -955,7 +954,9 @@ But it had a reaction. Because such people became emotionally dried out."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So the approach is different.<br>
+In one way, if you start going through science, through this, through that, you cannot reach anywhere. And moreover, your growth is stunted.<br>
+So, what you have to do is to go to this knowledge through believing in what They have said. <font color="red">Whatever Christ has said you have to believe, whatever Muhammad has said you have to believe, whatever Guru Nāṇak has said you have to believe, whatever Gyānadeva has said you have to believe, Lao Tze you have to believe.</font> Like that: because you are not of that spiritual level. So accept it."</font><br>
 <font size="+0"><b>1998-1216 Talk to Sahaja Yogis (Hindi + English + Hindi), Expression of Subtle Elements, before and during the Evening Program, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 
@@ -1022,7 +1023,12 @@ This is what you have to achieve. I know some have achieved it, but most of you 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"I'm surprised ... uh-uh-uh very little has been written so far, but I find Tao by Lao Tze.<br>
+I don't know if you have read the book of Lao Tze, uh about Ta-o, and meaning that what you are. Tao means what you are.<br>
+And He describes, very nicely, that when you are that what happens<br>
+Now the gap was: 'How to achieve that state?' How to reach that state was not given.<br>
+He only described people who were Ta-o, who were realized Souls, who were of what level [of] wonder. [Laughs.]<br>
+I was surprised that He never said about Kuṇḍalinī, but He talked about the River Yangtze. That it is Yangtze River. You see, in a symbolic way, He was more, a bit more poetic. But ultimately reaching the ocean, that river becomes the ocean. And then what are the qualities of the Ocean He described so beautifully."</font><br>
 <font size="+0"><b>2001-0320 Talk to Sahaja Yogis, Birthday Felicitations, Nirmal Dham, Behind BSF Camp Chhawala, New Delhi, India</b></font>
 </p>
 

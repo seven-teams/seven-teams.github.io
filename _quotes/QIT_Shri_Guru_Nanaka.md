@@ -1453,6 +1453,22 @@ And thus you lose the barriers of fundamentalism.<br>
 <div class="para-divider"></div>
 
 <p>
+"So the approach is different.<br>
+In one way, if you start going through science, through this, through that, you cannot reach anywhere. And moreover, your growth is stunted.<br>
+So, what you have to do is to go to this knowledge through believing in what They have said. <font color="red">Whatever Christ has said you have to believe, whatever Muhammad has said you have to believe, whatever Guru Nāṇak has said you have to believe, whatever Gyānadeva has said you have to believe, Lao Tze you have to believe.</font> Like that: because you are not of that spiritual level. So accept it."</font><br>
+<font size="+0"><b>1998-1216 Talk to Sahaja Yogis (Hindi + English + Hindi), Expression of Subtle Elements, before and during the Evening Program, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "About Kuṇḍalinī, many people knew It long time back.<br>
 I must say, there was Mārkaṇḍeya, who was thirteen thousand years back, He has talked about Kuṇḍalinī.<br>
 Ādi Śhaṅkarāchārya has talked about Kuṇḍalinī.<br>

@@ -1419,6 +1419,22 @@ This is the only problem we have. That: we have all the ideals, we have all the 
 <font size="+0"><b>1984-1205 Public Program (English+Marathi), Day 2, Pune, Maharashtra, India</b></font>
 </p>
 
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now the Indians are very clever, as far as the spiritual side is concerned, I must say. Now they would say that: "We must have at least ten Pūjās, somehow, when Mother comes here." <font color="red">So they'll manage: "This is also there," then, "This is also there," then, "What about Muhammad Sāhabs' birthday?", then, "What about Moses' birthday?", which it they don't know, but they'll find out somehow.</font> [Laughter.] And then, "What about also Lao Tze's birthday, why not find it out? So, when Mother is here, invariably every third day let us have a Pūjā." "<br>
+<font size="+0"><b>1985-0420 Talk to Sahaja Yogis, Mahāmāyā Śhakti, Seminar, Day 1, Session 1 (morning), Mason Hall, University, Birmingham, West Midlands, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
 <p>
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>
@@ -1749,6 +1765,22 @@ But now, why to feel that we are exclusive? This exclusiveness comes from where?
 Ta-o, the one religion that they follow in China, is nothing but Sahaja Yoga: Ta-o is Kuṇḍalinī. Zen is nothing [laughing:] but Sahaja. Zoroaster, everyone.<br>
 But this exclusiveness has brought this problem, and they are fighting among each other."<br>
 <font size="+0"><b>1995-0321 Talk to Sahaja Yogis, Birthday Felicitations, Nizamuddin Scouts Grounds, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"So the approach is different.<br>
+In one way, if you start going through science, through this, through that, you cannot reach anywhere. And moreover, your growth is stunted.<br>
+So, what you have to do is to go to this knowledge through believing in what They have said. <font color="red">Whatever Christ has said you have to believe, whatever Muhammad has said you have to believe, whatever Guru Nāṇak has said you have to believe, whatever Gyānadeva has said you have to believe, Lao Tze you have to believe.</font> Like that: because you are not of that spiritual level. So accept it."</font><br>
+<font size="+0"><b>1998-1216 Talk to Sahaja Yogis (Hindi + English + Hindi), Expression of Subtle Elements, before and during the Evening Program, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>

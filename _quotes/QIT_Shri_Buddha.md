@@ -264,6 +264,20 @@ Then seriousness developed and the people became serious-minded, and made their 
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"Buddha said the same, Mahāvīra said the same, Christ said the same, Kṛiṣhṇa said the same, Rāma said the same, Lao Tze, you find everyone, the Zen, everybody said the same thing that we have to achieve that world, that we have to enter into the Kingdom of God."</font><br>
+<font size="+0"><b>1994-0321 Talk to Sahaja Yogis, Birthday Felicitations, before Birthday Pūjā, Kalā Mandir Hall, Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "And you know everything! All the subtle knowledge which was not known to you.<br>
 <font color="red">Then you can understand uh-uh-uh Tao of Lao Tze, you can ... you can understand uh Buddha, Zen, Viditama, Christ, and all other Incarnations. You get connected to them. And that is how you achieve this power.</font>"<br>
 <font size="+0"><b>1994-0420 Public Program, Taipei City, Taiwan}\label{1994-0420 Public Program, Taipei City, Taiwan</b></font>
