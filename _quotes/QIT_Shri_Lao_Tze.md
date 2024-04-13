@@ -921,10 +921,10 @@ That means this mind is created out of our reaction through our conditionings or
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Now, you see, for this, best thing is to know about Ta-o, which is your speciality, spread is Chinese, in which He describes, you see. Tao, Lao Tze describes the journey through the River Yangtze.<br>
+"<font color="red">Now, you see, for this, best thing is to know about Ta-o, which is your speciality, spread is Chinese, in which He describes, you see. Tao, Lao Tze describes the journey through the River Yangtze.</font><br>
 I went Myself to see that [in 1984-10].<br>
-So He says on the side, or the banks, there are beautiful, very beautiful, mountains and beautiful trees and it's so beautiful that you feel like jumping out of the boat and going to the ... these gardens and to these mountains. But what your aim: is to go through this, Tao, means the Yangtze River, towards the river. So in the beginning, maybe there are some uh currents flowing, maybe you might lose faith in yourself. But by the time you reach near the sea, it becomes very silent, and you have to go to the sea, that's the point is.<br>
-So, you see, all these are there, these are just enticing. It's all right to see but it is nothing important. Because thse, all these will keep you on a mental level. You'll be always thinking, 'What is this vision? What is that?' There's nothing to be on the mental level: you have to beyond. All right? [Sips water.] If you don't see, you don't bother about it, they'll disappear."</font><br>
+<font color="red">So He says on the side, or the banks, there are beautiful, very beautiful, mountains and beautiful trees and it's so beautiful that you feel like jumping out of the boat and going to the ... these gardens and to these mountains. But what your aim: is to go through this, Tao, means the Yangtze River, towards the river. So in the beginning, maybe there are some uh currents flowing, maybe you might lose faith in yourself. But by the time you reach near the sea, it becomes very silent, and you have to go to the sea, that's the point is.</font><br>
+So, you see, all these are there, these are just enticing. It's all right to see but it is nothing important. Because thse, all these will keep you on a mental level. You'll be always thinking, 'What is this vision? What is that?' There's nothing to be on the mental level: you have to beyond. All right? [Sips water.] If you don't see, you don't bother about it, they'll disappear."<br>
 <font size="+0"><b>1996-0310 Talk to Sahaja Yogis, before the Evening Program, Furama Hong Kong Hotel, 37 Dundas St, Mong Kok, Hong Kong, China</b></font>
 </p>
 
@@ -956,7 +956,7 @@ But it had a reaction. Because such people became emotionally dried out."<br>
 <p>
 "So the approach is different.<br>
 In one way, if you start going through science, through this, through that, you cannot reach anywhere. And moreover, your growth is stunted.<br>
-So, what you have to do is to go to this knowledge through believing in what They have said. <font color="red">Whatever Christ has said you have to believe, whatever Muhammad has said you have to believe, whatever Guru Nāṇak has said you have to believe, whatever Gyānadeva has said you have to believe, Lao Tze you have to believe.</font> Like that: because you are not of that spiritual level. So accept it."</font><br>
+So, what you have to do is to go to this knowledge through believing in what They have said. <font color="red">Whatever Christ has said you have to believe, whatever Muhammad has said you have to believe, whatever Guru Nāṇak has said you have to believe, whatever Gyānadeva has said you have to believe, Lao Tze you have to believe.</font> Like that: because you are not of that spiritual level. So accept it."<br>
 <font size="+0"><b>1998-1216 Talk to Sahaja Yogis (Hindi + English + Hindi), Expression of Subtle Elements, before and during the Evening Program, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 
