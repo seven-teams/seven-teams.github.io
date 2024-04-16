@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 3 Photos from the special event <font color="Crimson"><b>1991-0806 Arrival, Āśhram, Vienna, Austria</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 medium resolutions from the Named Collections.<br>
-The direct link to the 3 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad/1991/">Collection 1991</a>.<br> 
+The direct link to the 3 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad-Collection/1991/">Collection 1991</a>.<br> 
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

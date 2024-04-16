@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>1996-0721 Talk to Sahaja Yogis, Samara, Russia</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 medium resolution from the Named Collections.<br>
-The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad/1996"><font color="DarkGreen">Collection 1996</font></a>.<br> 
+The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad-Collection/1996"><font color="DarkGreen">Collection 1996</font></a>.<br> 
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
