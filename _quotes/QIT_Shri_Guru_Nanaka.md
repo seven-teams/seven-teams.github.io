@@ -443,6 +443,16 @@ But today I am saying, 'Get your Self-realization.'<br>
 <div class="para-divider"></div>
 
 <p>
+"So, of the Ten Avatāras described here, seven Avatāras are within the abdomen. At least seven Avatāras.<br>
+The eighth Avatāra is said to be Rāma.<br>
+What are Avatārs? They are our leaders.<br>
+<font color="red">The Ten Gurus within the abdomen, the Main Gurus, such as Zarathustra and others I mentioned to you, Nanak, Janak, they are the Incarnations of Dattātreya, who is the Primordial Master, They reside within the abdomen. They guide our religion.</font>"<br>
+<font size="+0"><b>1979-0117 Public Program (Hindi), Day 4, Chakroṃ para Upasthita Devatā (Deities on All Chakras), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "It is surprising that there is a gentleman in Rangoon who is an Avadhūta. Not only in India, but they can be found all around the world. Prophet Muhammad was an Avadhūta. <font color="red">King Janaka was an Avadhūta, so was Nāṇak.</font><br>
 Many of them [Avadhūtas] did a lot of work in this Maharashtra. It is only because of their work here did I take My birth in this place.<br>
 Sāī Nāth was the last of them from Maharashtra.<br>

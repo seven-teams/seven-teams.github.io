@@ -101,6 +101,16 @@ If Guru Tattwa is not established within us, we cannot have our evolution. Guru 
 <div class="para-divider"></div>
 
 <p>
+"So, of the Ten Avatāras described here, seven Avatāras are within the abdomen. At least seven Avatāras.<br>
+The eighth Avatāra is said to be Rāma.<br>
+What are Avatārs? They are our leaders.<br>
+<font color="red">The Ten Gurus within the abdomen, the Main Gurus, such as Zarathustra and others I mentioned to you, Nanak, Janak, they are the Incarnations of Dattātreya, who is the Primordial Master, They reside within the abdomen. They guide our religion.</font>"<br>
+<font size="+0"><b>1979-0117 Public Program (Hindi), Day 4, Chakroṃ para Upasthita Devatā (Deities on All Chakras), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "So the dharma that has been established in us by God Almighty because if we want to go to the Kingdom of God, then in our freedom we must desire to get to God. If someone tries to pressurize us and says, 'You must ask for God,' then it is of no use, it is not an evaluation. That is why to reach in this state, a person has to seek the God as per his own independent sweet will and not due to any pressure, or any disease or any hardships or any sorrow, but only because of the fact and realizing that, 'It is the only motive of our life to seek God.'<br>
 <font color="red">That is why, when we desire for this Divine Gift, then the doors of God Almighty's Divine Blessings open for you, and around the center is a place of Ten Primordial Gurus. These are the Main Gurus which are the Incarnation[s] of Śhri Dattātreya. They are: Socrates, Moses, Muhammad Sāhab, Guru Nāṇak, Śhirḍī Sāī Nāth, and Zoroaster. They are all Incarnation[s] of one Incarnation.</font>"<br>
 <font size="+0"><b>1979-0322 Public Program (Hindi), Sahaja Yoga and the Subtle System, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India (other date 0321)</b></font>

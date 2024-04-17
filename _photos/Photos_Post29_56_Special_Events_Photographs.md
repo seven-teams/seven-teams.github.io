@@ -12,8 +12,8 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 5 Photos of the special event <font color="Crimson"><b>1989-0508 Lunch, Italy</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 9 low resolution from the Named Collections.<br>
-The direct link to the Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Herbert-Reininger-Collection/1989"><font color="DarkGreen">Collection 1989</font></a>.<br> 
+We are pleased to let you know that 5 Photos of the special event <font color="Crimson"><b>1989-0508 Lunch, Italy</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 5 low resolution from the Named Collections.<br>
+The direct link to the 5 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Herbert-Reininger-Collection/1989"><font color="DarkGreen">Collection 1989</font></a>.<br> 
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

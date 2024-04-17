@@ -44,7 +44,7 @@ When Kuṇḍalinī rises and reaches the Heart chakra then it manifests and bec
 <p>
 <font color="DarkRed">"<b>So this day is celebrated because it's a new year day and also because the New Moon appears on this day. It's ... is called Guḍhī Pāḍavā.</b> On this day they put up a small pitcher on a stick with a small flag. The pitcher represents the Kuṇḍalinī.<br>
 Śhālivāhana Kings were worshipers of the Goddess and it is said that they used to present Shawl to the Goddess and they were also called as Sāt[a]vāhanas in the beginning because they recognized the seven chakras [Sāt[a]vāhana means seven chakras]. That's why they were earlier called as Sāt[a]vāhana but later it changed to Śhālivāhana. But the symbol of Śhālivāhana used to be guḍhī means a flag and above that a pitcher having a particular shape, which represented the Kuṇḍalinī. They were worshipers of Kuṇḍalinī and recognized it.<br>
-That is the reason that they have made this thing like that and all those, who accept it, put up a `guḍhī' in their houses. They [Śhālivāhans] wanted to welcome Kuṇḍalinī on this day and Kuṇḍalinī [in the form of pitcher] was exhibited specially on that day."</font><br>
+That is the reason that they have made this thing like that and all those, who accept it, put up a 'guḍhī' in their houses. They [Śhālivāhans] wanted to welcome Kuṇḍalinī on this day and Kuṇḍalinī [in the form of pitcher] was exhibited specially on that day."</font><br>
 <font size="+0"><b>2002-0413 Guḍhī Pāḍavā Pūjā (Hindi), Terrace Garden, Palam Vihar, Gurgaon, Haryana, India</b></font>
 </p>
 
@@ -57,7 +57,7 @@ That is the reason that they have made this thing like that and all those, who a
 
 <p style="text-align:center;">
 <font color="DarkGreen">"<b>I was telling them that after the introduction of this calendar the Śhālivāhan King founded his kingdom and lived there from the day of the Guḍhī Pāḍavā [Guḍhī is a symbol of auspiciousness].</b> Since you know all this I did not tell you and explained to them in English.<br>
-With respect to the Guḍhī Pāḍavā the shawl has great significance. The Śhālivāhan Kings always carried the Goddess's shawl with them. You know the significance of Devī's shawl. You know it gives Her beauty. With the shawl She protects Herself from cold and wind. Also with it She protects Her chastity, as well as if any dirt is about to touch Her body it is prevented. So, a shawl which is offered to Goddess symbolizes Her protection, meaning `since You protect us we offer You this.' Further if the children are sleeping or are sick or have a problem, then She covers them with the shawl. So shawl is very important. You know, in the past it was a practice with all people in Maharashtra to take [put a] shawl over their bodies. Now that we have become modern we do not take it."</font><br>
+With respect to the Guḍhī Pāḍavā the shawl has great significance. The Śhālivāhan Kings always carried the Goddess's shawl with them. You know the significance of Devī's shawl. You know it gives Her beauty. With the shawl She protects Herself from cold and wind. Also with it She protects Her chastity, as well as if any dirt is about to touch Her body it is prevented. So, a shawl which is offered to Goddess symbolizes Her protection, meaning, 'As You protect us we offer You this.' Further if the children are sleeping or are sick or have a problem, then She covers them with the shawl. So shawl is very important. You know, in the past it was a practice with all people in Maharashtra to take [put a] shawl over their bodies. Now that we have become modern we do not take it."</font><br>
 <font size="+0"><b>1984-0126 Śhrī Devī Pūjā (English + Marathi), 35th Republic Day Celebration, Maṅgal Karyalaya, Rāhurī, Maharashtra, India</b></font>
 </p>
 
@@ -115,7 +115,7 @@ As you know, Śhrī Gaṇeśha is the Deity which is for our innocence."</font><
 <p style="text-align:center;">
 <font color="DarkGreen">"<b>Today is new year day and the beginning of the Moon. That is why this day is given so much significance. It is known as Guḍhī Pāḍavā.</b><br>
 A flag is put on a stick and on it is put a small pitcher. This pitcher represents Kuṇḍalinī. It is taken as a symbol. The Śhālivāhanas were the devotees of the Devī [Goddess] and it is told that they used to offer shawl to the Goddess. In the beginning they were called Sāt[a]vāhans because they worshiped Seven Plexuses and this Sāt[a]vāhana was ultimately changed into Śhālivāhana. 
-<b>But the symbol of Śhālivāhana is the same. They put up a `guḍhī' means a flag and a small pitcher is put on it as a symbol. This pitcher has a particular shape which represents Kuṇḍalinī.</b><br>
+<b>But the symbol of Śhālivāhana is the same. They put up a 'guḍhī' means a flag and a small pitcher is put on it as a symbol. This pitcher has a particular shape which represents Kuṇḍalinī.</b><br>
 So they were the worshipers of Kuṇḍalinī and followed it. That is the reason they made this symbol in this way. All those who follow Kuṇḍalinī put up a guḍhī in their houses and also put a flag on it and thus it is indicated that they welcome Kuṇḍalinī and exhibit it in a special way."</font><br>
 <font size="+0"><b>2002-0413 Guḍhī Pāḍavā Pūjā (Hindi), Terrace Garden, Palam Vihar, Gurgaon, Haryana, India</b></font>
 </p>
