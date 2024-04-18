@@ -36,17 +36,12 @@ May God bless you."</font><br>
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0007.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<p style="text-align:center;">
-<font color="DarkGreen"><b>"Kuṇḍalinī is Gaurī, today is Gaurī Pūjan, Gaurī Pūjan in the month of Chaitra is special. Means before installation of Gaṇapati we have installed Gaurī in the month of Chaitra. Gaurī who created Gaṇapati is the Gaurī from Chaitra and we all believe that."</b></font><br>
+<font color="DarkRed"><b>"Kuṇḍalinī is Gaurī, today is Gaurī Pūjan, Gaurī Pūjan in the month of Chaitra is special. Means before installation of Gaṇapati we have installed Gaurī in the month of Chaitra. Gaurī who created Gaṇapati is the Gaurī from Chaitra and we all believe that."</b></font><br>
 <font size="+0"><b>1985-0321 Birthday Pūjā (Marathi + English), Completely Surrender Our Lives to Sahaja Yoga and People Should See through You the Greatness of Sahaja Yoga (We Have Started Vishwa Nirmala Dharma and the Great Religion of Realized Souls), Mumbai, Maharashtra, India</b></font>
 </p>
 
-<p>
-<font color="DarkRed">"<b>Kuṇḍalinī Śhakti is the Power of Desire of Bhagavatī. She is easily awakened just by the Wish (Saṅkalpa) of Bhagavatī. A person of very high order has to put in great efforts for it.</b>"</font><br>
+<p style="text-align:center;">
+<font color="DarkGreen">"<b>Kuṇḍalinī Śhakti is the Power of Desire of Bhagavatī. She is easily awakened just by the Wish (Saṅkalpa) of Bhagavatī. A person of very high order has to put in great efforts for it.</b>"</font><br>
 <font size="+0"><b>1979-0000 Letter to Sahaja Yogis (Marathi) on Human Chitta from Nirmala Yoga, Issue 13 (January-February 1983), Pages 16 and 17</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
@@ -64,7 +59,7 @@ May God bless you."</font><br>
 </p>
 
 <p>
-<font color="DarkRed">"<b>They have one festival called Gangaur: that is a thing where they uh uh worship Gaurī.</b> That's the biggest festival where the Queen ... Mahārāṇī has to worship the Gangaurī: is a statue, which goes round the whole of Jaipur state and everybody celebrates it. Is regarded as the biggest festival. So she, in the morning she came and touched My Feet. And she said, "Mother, can I'p worship You?" I said, "Why?" "Because You are my Gangaur, really. That's just a statue." She made Me stand the same way, she did everything, she made Me eat betel. Uh I don't eat all that, but he, she said, "You have to, You are Gangaur, so You have to eat it." [Smiles, laughter.] And she worshiped Me and all her whole rituals she did for about f... forty-five minutes, and the ... then she said, "Now I'll go and worship that statue." "</font><br>
+<font color="DarkGreen">"<b>They have one festival called Gangaur: that is a thing where they uh uh worship Gaurī.</b> That's the biggest festival where the Queen ... Mahārāṇī has to worship the Gangaurī: is a statue, which goes round the whole of Jaipur state and everybody celebrates it. Is regarded as the biggest festival. So she, in the morning she came and touched My Feet. And she said, "Mother, can I'p worship You?" I said, "Why?" "Because You are my Gangaur, really. That's just a statue." She made Me stand the same way, she did everything, she made Me eat betel. Uh I don't eat all that, but he, she said, "You have to, You are Gangaur, so You have to eat it." [Smiles, laughter.] And she worshiped Me and all her whole rituals she did for about f... forty-five minutes, and the ... then she said, "Now I'll go and worship that statue." "</font><br>
 <font size="+0"><b>1990-0421 Talk to Sahaja Yogis, Vertical Ascent, the day before Easter Pūjā, Before Dinner, The Burlington Hotel, Grand Parade, Eastbourne BN21 3YN, East Sussex, UK</b></font>
 </p>
 
@@ -72,7 +67,7 @@ May God bless you."</font><br>
 <font color="DarkRed">"<b>We are the worshipers of Śhakti.</b> Here we are Śhakti Dharmī [religiously devoted to Śhakti] and many kings have been worshiping Ādi Śhakti.<br>
 Everyone has different Deities and the names of each Deity is different. <b>The name of the Deity of this place is also different, it is Gangaur.</b><br>
 But Ādi Śhakti was once born in Rajasthan state whose name was Satī Devī. It is Her Grace that we find our culture the dharma of wife, dharma of husband, dharma of ruling, etc. which are nourished by Her Śhakti.<br>
-You all know the story of Satī Devī, I don't have to tell you in new way but She was Gangaur. She was married and while She was returning after marriage with Her husband some of the bad elements surrounded them and killed Her husband. She came out of the bride's carriage, took the Rudra Form and destroyed all of them who attacked Her husband and then She finished Herself also. We should see in this that since childhood till marriage She did not disclose that She was Mahāmāyā in any condition. "</font><br>
+You all know the story of Satī Devī, I don't have to tell you in new way but She was Gangaur. She was married and while She was returning after marriage with Her husband some of the bad elements surrounded them and killed Her husband. She came out of the bride's carriage, took the Rudra Form and destroyed all of them who attacked Her husband and then She finished Herself also. We should see in this that since childhood till marriage She did not disclose that She was Mahāmāyā in any condition."</font><br>
 <font size="+0"><b>1994-1211 Śhrī Ādi Śhakti Pūjā (Hindi), Mahāmāyā, Mahākālī, Śhāradā Devī, Mahālakṣhmī, Jaipur, Rajasthan, India</b></font>
 </p>
 
@@ -95,19 +90,14 @@ You all know the story of Satī Devī, I don't have to tell you in new way but S
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
-<p style="text-align:center;">
-<font size="+0">Kuṇḍalinī Kuṇḍalinī</font><br>
+<p>
+<font color="green"><b>Kuṇḍalinī Kuṇḍalinī</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
 <font color="green"><b>He Bhavānī Bhagavatī</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-</p>
-
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
 </p>
 
 <p>
