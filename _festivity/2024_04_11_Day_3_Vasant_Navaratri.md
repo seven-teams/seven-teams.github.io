@@ -74,8 +74,11 @@ You all know the story of Satī Devī, I don't have to tell you in new way but S
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0009.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b></b></font><br>
-<br>
+<font color="DarkGreen"><b>Prabhavatı Prabha-rupa, Prasiddha Parameshvarı,<br> 
+Mula-prakritir-avyakta, Vyakt’avyakta-swarupinı. </b></font><br>
+Full of light, as light is Your form, You are the Established, Supreme Ruler of the Universe;<br>
+You are the Kundalini Shakti, imperceptible,<br>
+both the manifest and the unmanifest are Your forms.<br>
 <font size="+0"><b>(Śhrī Lalitā Sahasrānama, verse 86)</b></font><br>
 <br>
 <font color="DarkGreen"><b>Ādi Śhakti Mātājī tere Charano meaya hu mein</b></font><br>
