@@ -75,7 +75,15 @@ You all know the story of Satī Devī, I don't have to tell you in new way but S
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b></b></font><br>
-<font size="+0"><b></b></font><br>
+<br>
+<font size="+0"><b>(Śhrī Lalitā Sahasrānama, verse 86)</b></font><br>
+<br>
+<font color="DarkGreen"><b>Ādi Śhakti Mātājī tere Charano meaya hu mein</b></font><br>
+<i>Ādi Śhakti Mātājī I have come to Your Lotus Feet</i><br>
+<font color="DarkGreen"><b>Shyam Savere gun. Tere gaon, Tera hijaya hun mein,</b></font><br>
+<i>Morning and evening I sing Your praise</i><br>
+<font color="DarkGreen"><b>Śhrī Mā Tera hi jaya hu mein</b></font><br>
+<i>Śhrī Mātājī I Have received Second Birth from You</i><br>
 <a href="https://youtu.be/L1wSDCxZKS0?list=PLC8554007A2C98EA0">video</a>
 </p>
 
