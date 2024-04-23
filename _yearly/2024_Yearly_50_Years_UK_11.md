@@ -1,5 +1,5 @@
 ---
-title: '2024 Celebrating 50 Years of Sahaja Yoga in UK, Post 22 on the Eve of Saint George&#8217;s Day'
+title: '2024 Celebrating 50 Years of Sahaja Yoga in UK, Post 11 on the Eve of Saint George&#8217;s Day'
 date: 2024-04-22
 permalink: /yearly/2024/0422
 tags:
@@ -14,7 +14,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b></b><br></font>
+<font size="+2"><b>At Sahasrāra The Goddess Incarnates As Mahāmāy</b><br></font>
 </p>
 
 <p>
@@ -27,9 +27,11 @@ tags:
 At the Heart chakra, Anāhata, She has to just defend, just defend, the seekers from the clutches of the evil forces, which are also not so subtle. They are ... uh very gross ... like ... forms, human forms. And it's easy to fight and have a war with them, kill them.<br>
 But at the point of Sahasrāra, the work is very complicated. First of all, the Sahasrāra of the human beings is itself a very complicated thing.<br>
 ......<br>
-<br>
+As it is this Mahāmāyā, no one can understand. Even Brahmā, Viṣhṇu, Maheśha could not understand, is so tremendous. It has played tricks on Them also! <br>
 ......<br>
-"<br>
+Another point about Mahāmāyā is: you being the Mahāmāyā, you are not afraid.<br>
+Supposing, Chaṇḍī has to stand here with Her sword in Her hand, nobody would dare go near Her.<br>
+But despite that you people shake sometimes, I don't know why!"<br>
 <font color="blue"><b>1985-0420 Talk to Sahaja Yogis, Mahāmāyā Śhakti, Seminar, Day 1, Session 1 (morning), Mason Hall, University, Birmingham, West Midlands, UK</b></font><br>
 </p>
 
