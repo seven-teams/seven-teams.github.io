@@ -14,7 +14,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b>At Sahasrāra The Goddess Incarnates As Mahāmāy</b><br></font>
+<font size="+2"><b>At Sahasrāra The Goddess Incarnates As Mahāmāyā</b><br></font>
 </p>
 
 <p>
