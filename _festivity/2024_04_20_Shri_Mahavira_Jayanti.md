@@ -25,7 +25,7 @@ The way Kabīra lashes people, you can see that He is tremendous! <b>He is like 
 
 <p>
 <font color="DarkRed">"The ascetic life of Mahāvīra was of a very, very extreme nature. He was the one who was born in a ... uh ... clan of warriors, Kṣhatriyas. And then He was also married, also He had a daughter. And then He decided, because He knew He had to do the work of the Divine, He decided to take a saṃnyāsa. So He took uh the permission of His brother because His parents were dead. He was a king, so He gave up all His uh material wealth, everything and He beg ... became a complete saṃnyāsī. And the He left His family, His left His ... house, everything behind and went alone with a little bowl for begging alms. And there people who joined Him were very few, and He asked them that, "You have to also become ascetics," Munis.<br>
-He was a Reincarnation of Saint Michael and He resides on the left side, on the Iḍā nāḍī. And He looks after the whole of it, right from Mūlādhāra onwards up to the Sahasrāra. <b>So Saint Michael was born as Mahāvīra, meaning The Greatest Warrior. But when He was born, the whole place got lot of uh prosperity, that's why <b>He was called as Vardhamān, to begin with.</b>"<br>
+He was a Reincarnation of Saint Michael and He resides on the left side, on the Iḍā nāḍī. And He looks after the whole of it, right from Mūlādhāra onwards up to the Sahasrāra. So Saint Michael was born as Mahāvīra, meaning The Greatest Warrior. But when He was born, the whole place got lot of uh prosperity, that's why <b>He was called as Vardhamān, to begin with.</b>"<br>
 <font size="+0"><b>1990-0616 Śhrī Mahāvīra Pūjā, Touch Your Depth and Complete Kevalagyān (There Is Hell and You Must Learn to Have Self-discipline), Ca'n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b></font>
 </p>
 
@@ -34,7 +34,7 @@ He was a Reincarnation of Saint Michael and He resides on the left side, on the 
 But as He belonged to the left side, He has described Hell very clearly. Fundamentally, basically there are Fourteen Hells according to Him. And is horrible to read all that, what He has described about Hell. Because He wanted to tell people that, 'If you do all these wrong things, you'll go to Hell.'<br> 
 And He talked about, not about Form, Formly God, but Formless God, because He didn't want people to again start ritualism but get to right ... right to the position where they could get their Self-realization to cleanse themself.<br>
 So you can imagine: how difficult, in those days at Mahāvīra, was even to be one of the candidates for Self-realization. It's frightening for you! <b>That's why I never had this uh Pūjā. Because to do all these things, first of all, and to become absolutely pure, then only He would give Realization.</b>"</font><br>
-<font size="+0"><b>>1990-0616 Śhrī Mahāvīra Pūjā, Touch Your Depth and Complete Kevalagyān (There Is Hell and You Must Learn to Have Self-discipline), Ca'n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b></font>
+<font size="+0"><b>1990-0616 Śhrī Mahāvīra Pūjā, Touch Your Depth and Complete Kevalagyān (There Is Hell and You Must Learn to Have Self-discipline), Ca'n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b></font>
 </p>
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0015.png" /></div>

@@ -48,8 +48,8 @@ But <b>Hanumāna is a special Deity, a typical Deity full of qualities. There wa
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0018.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>So in the left side we have gaṇas, on the right side we have angels. And translated in Sanskrit language or in any Indian language as Devadūt -- means they are the Ambassadors of Gods.<br> 
-So now you are the same, you are all angels now.</b> Only thing you are not aware that you are angels while they were aware from their childhood. If you know that you are angels, all your qualities will start shining through, and you'll be amazed that the quality of standing by the Truth at any cost is so easily managed for you, because you have been given the right, you have been given the special blessings, the special protection from the Divine that if you stand for the right, and if you stand for the righteous, and if you stand for the Truth, all kinds of help to protect you will be given.</font><br>
+<font color="DarkRed">"<b>So in the left side we have gaṇas, on the right side we have angels. And translated in Sanskrit language or in any Indian language as Devadūt -- means they are the Ambassadors of Gods.<br> 
+So now you are the same, you are all angels now.</b> Only thing you are not aware that you are angels while they were aware from their childhood. If you know that you are angels, all your qualities will start shining through, and you'll be amazed that the quality of standing by the Truth at any cost is so easily managed for you, because you have been given the right, you have been given the special blessings, the special protection from the Divine that if you stand for the right, and if you stand for the righteous, and if you stand for the Truth, all kinds of help to protect you will be given."</font><br>
 <font size="+0"><b>1989-0423 Śhrī Hanumāna Pūjā (St. George's Day), You Are All Angels, Cliftonville, Margate (123 kms ESE of London), UK</b></font><br>
 <br>
 <font color="red"><b>Auṃ Twameva sākṣhāt Śhrī Devadūta sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
@@ -67,8 +67,8 @@ So now you are the same, you are all angels now.</b> Only thing you are not awar
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0019.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">We say that Sahaja Yoga is the work of Divine Love. It's right, whether we know it or not, Its power is innate. It is Divine Power. <b>When a human being bows before someone and regards him higher, it is the expression of that Divine Power.</b> But when a person is respectful to his guru then he gets blessed with the grace and power of the guru.<br> 
-So <b>the devotion and the power (bhakti aur śhakti) are not different things. It is one. We shall say that the right side is the source of power and the left of bhakti. Śhrī Hanumāna had in Him this harmony of bhakti and śhakti</b>.</font><br>
+<font color="DarkRed">"We say that Sahaja Yoga is the work of Divine Love. It's right, whether we know it or not, Its power is innate. It is Divine Power. <b>When a human being bows before someone and regards him higher, it is the expression of that Divine Power.</b> But when a person is respectful to his guru then he gets blessed with the grace and power of the guru.<br> 
+So <b>the devotion and the power (bhakti aur śhakti) are not different things. It is one. We shall say that the right side is the source of power and the left of bhakti. Śhrī Hanumāna had in Him this harmony of bhakti and śhakti</b>."</font><br>
 <font size="+0"><b>1999-0331 Śhrī Hanumāna Pūjā (Hindi), Krishna Sundar Garden, Amit Gaikwad Mala, Erandwane, Mhatre Bridge, Pune, Maharashtra, India</b></font><br>
 <br>
 <font color="blue"><b>Auṃ Ham Hanumate Rudr'atmakaya Hum Phat</b></font><br>
@@ -76,7 +76,7 @@ So <b>the devotion and the power (bhakti aur śhakti) are not different things. 
 </p>
 
 <p>
-<font color="DarkRed">"Śhrī Gaṇeśha and Śhrī Hanumāna are the Incarnations of this Divine Wisdom. Śhrī Hanumāna was very powerful and fast and Śhrī Gaṇeśha is cool-natured. But when required, both are very big hitters. They remain with you every moment. Whenever anyone troubles you, your protectors are there. Often you see that security moves with the ministers and VIPs. The security of Sahaja Yogis also moves with them; that is, the security of gaṇas. Gaṇas have many things to do. Gaṇapati -- <b>Śhrī Gaṇeśha keeps them informed about you as to where is the problem, from where you are getting attacked and troubled. You do not know that if anybody wants to attack you secretly, even then these God's gaṇas stand by you. When Śhrī Gaṇapati informs about it, Śhrī Hanumāna sets them right</b>. So Sahaja Yogis have no need to be frightened. No need at all to be frightened. "</font><br>
+<font color="DarkRed">"<b>Śhrī Gaṇeśha and Śhrī Hanumāna are the Incarnations of this Divine Wisdom.</b> Śhrī Hanumāna was very powerful and fast and Śhrī Gaṇeśha is cool-natured. But when required, both are very big hitters. They remain with you every moment. Whenever anyone troubles you, your protectors are there. Often you see that security moves with the ministers and VIPs. The security of Sahaja Yogis also moves with them; that is, the security of gaṇas. Gaṇas have many things to do. Gaṇapati -- <b>Śhrī Gaṇeśha keeps them informed about you as to where is the problem, from where you are getting attacked and troubled. You do not know that if anybody wants to attack you secretly, even then these God's gaṇas stand by you. When Śhrī Gaṇapati informs about it, Śhrī Hanumāna sets them right</b>. So Sahaja Yogis have no need to be frightened. No need at all to be frightened. "</font><br>
 <font size="+0"><b>1999-0331 Śhrī Hanumāna Pūjā (Hindi), Krishna Sundar Garden, Amit Gaikwad Mala, Erandwane, Mhatre Bridge, Pune, Maharashtra, India</b></font>
 </p>
 
@@ -86,11 +86,10 @@ I hope today both these things will work out within us in such a manner that we 
 <font size="+0"><b>1989-0423 Śhrī Hanumāna Pūjā (St. George's Day), You Are All Angels, Cliftonville, Margate (123 kms ESE of London), Kent, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT020.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0020.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">
-I hope today you have understood the subtle side of your being which is there, which is exhibiting, which I can see clearly and that you will, all of you will, <b>in your meditation become aware of what you have within yourself. That's the greatest thing that will please the Divine, and Divine will look after you fully. With the same confidence as the angels like Hanumāna you have to go further and work it out.<br>
+<font color="DarkRed">"I hope today you have understood the subtle side of your being which is there, which is exhibiting, which I can see clearly and that you will, all of you will, <b>in your meditation become aware of what you have within yourself. That's the greatest thing that will please the Divine, and Divine will look after you fully. With the same confidence as the angels like Hanumāna you have to go further and work it out.<br>
 May God bless you all.</b>"</font><br>
 <font size="+0"><b>1989-0423 Śhrī Hanumāna Pūjā (St. George's Day), You Are All Angels, Cliftonville, Margate (123 kms ESE of London), Kent, UK</b></font><br>
 <br>
@@ -108,12 +107,12 @@ You make all the Sahaja Yogis join Your company to do our Holy Mother's work and
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Śhrī Hanumāna Chalisa</b> (1990-0831 Śhrī Hanumāna Pūjā)</font><br>
+<font color="red"><b>Śhrī Hanumāna Chalisa</b> (1990-0831 Śhrī Hanumāna Pūjā)</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b>Śhrī Hanumāna Chalisa translation in English</b> (1989-0423 Śhrī Hanumāna Pūjā)</font><br>
+<font color="red"><b>Śhrī Hanumāna Chalisa translation in English</b> (1989-0423 Śhrī Hanumāna Pūjā)</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -123,17 +122,17 @@ You make all the Sahaja Yogis join Your company to do our Holy Mother's work and
 </p>
  
 <p>
-<font color="green"><b>Bhar de itni bhakti Ma</b></font><br>
+<font color="red"><b>Bhar de itni bhakti Ma</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b>Nām Gheta mukhi raghavache</b></font><br>
+<font color="red"><b>Nām Gheta mukhi raghavache</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
-<font color="green"><b>He Mā de bhakti ka dān</b></font><br>
+<font color="red"><b>He Mā de bhakti ka dān</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
