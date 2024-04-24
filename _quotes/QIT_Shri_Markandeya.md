@@ -905,6 +905,13 @@ In the South [India], Gyāneśhwarjī has spoken a lot about it.<br>
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"In a way Mārkaṇḍeya also described about Kuṇḍalinī fourteen thousand years back. So much so that even Lord Indra was given Realization."</font><br>
+<font size="+0"><b>1986-1201 Public Program (Hindi), Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "This is not a new science in India. <font color="red">Fourteen thousand years back, somebody called Mārkaṇḍeya wrote about it.</font> But it was-s-s not available to every person. We can say that it was a secret science. And was only bestowed upon very, very few people at that time."<br>
 <font size="+0"><b>1987-1012 Public Program, Day 1, Auditorium Maximum, University, Vienna, Austria</b></font>
 </p>

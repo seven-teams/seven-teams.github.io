@@ -1306,6 +1306,20 @@ That was also important part. But that was forgot[ten]!<br>
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">Like this, secretly, work was done and it was exhibited very well during the time of Nāṇak Sāheb when Kabīr Dāsjī totally described the Kuṇḍalinī.</font> Can we say , `Because it was not described in Veda, in Bhakti Purāṇ, what Kabīr had said is wrong'?"<br>
+<font size="+0"><b>1986-1201 Public Program (Hindi), Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "<font color="red">"Now, the Dharma, all the religion that is established by Great Prophets, starting right from Socrates, then Sei [Sāī] Nāth, Janaka, up to Guru Nāṇaka, you can say that that was just to establish the balance within us. Moses, Abraham, all of Them did that. They all tried to give us the idea of balancing, of temperance within us, for our ultimate purification."</font><br>
 <font size="+0"><b>1988-0609 Public Program, Day 2, Kongresshaus, 5, Margaretengürtel 138-140, Vienna, Austria</b></font>
 </p>
