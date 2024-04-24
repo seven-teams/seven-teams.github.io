@@ -11,7 +11,7 @@ tags:
 <p>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We would like to share with you all the up-dated <font color="blue">Marathi Letters, from Divine Message Version 9.4</font> we have been working on since Divine Message, Version 9.4 was posted on February 26, 2024. The pdf file with 1.84 full new translations into English (7 pages) is available at the link <a href="https://bit.ly/Divine_Message_V_9_5">Version 9.5</a>.<br>
+We would like to share with you all the up-dated <font color="blue">Marathi Letters, from Divine Message Version 9.5</font> we have been working on since Divine Message, Version 9.4 was posted on February 26, 2024. The pdf file with 1.84 full new translations into English (7 pages) is available at the link <a href="https://bit.ly/Divine_Message_V_9_5">Version 9.5</a>.<br>
 Total Marathi Letters: 38.<br>
 Originals: 25.75 letters.<br>
 Retyped or (original) rewritten text: 5.25 letters.<br>
