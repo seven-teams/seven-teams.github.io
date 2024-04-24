@@ -1,7 +1,7 @@
 ---
 title: 'Marathi Letters from Divine Message, Version 9.5'
-date: 2024-02-24
-permalink: /divine/2024/02/24
+date: 2024-04-24
+permalink: /divine/2024/04/24
 tags:
   - Divine Message
 ---
