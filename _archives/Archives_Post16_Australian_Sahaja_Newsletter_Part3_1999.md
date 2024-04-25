@@ -128,6 +128,12 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
+<font color="DarkGreen"><b>1999THEAUSSAHNEW33S.</b></font> <b>1999-0522 or 0529 The Australian Sahaja Newsletter (likely) Supplement (Sue Raggatt Collection)</b> (2 pages, scanned file, uploaded on 2024-0425)
+
+<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/1999-0522_or_0529_Australian_Sahaja_Newsletter_(likely)_Supplement_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
 <font color="DarkGreen"><b>1999THEAUSSAHNEW17.</b></font> <b>1999-0529 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1216 as 2 and 5 pages)
 
 <iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/1999-0529_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
@@ -254,6 +260,11 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/1999-1008_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
+<br>
+
+<font color="DarkGreen"><b>1999THEAUSSAHNEW33S.</b></font> <b>1999-1008 The Australian Sahaja Newsletter (likely) Supplement (Sue Raggatt Collection)</b> (1 page, scanned file, uploaded on 2024-0425)
+
+<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/1999-1008_Australian_Sahaja_Newsletter_(likely)_Supplement_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 <br>
 
 <font color="DarkGreen"><b>1999THEAUSSAHNEW34.</b></font> <b>1999-1015 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1216 as 2 pages)

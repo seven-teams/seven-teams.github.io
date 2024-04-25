@@ -10,10 +10,10 @@ tags:
 <b>POSTS:</b><br>
 <b>1.</b> <a href="https://seven-teams.github.io/archives/2024/0121"><font color="maroon"><b>Ads</b></font></a>: 1 files<br>
 <b>2.</b> <a href="https://seven-teams.github.io/archives/2023/0508"><font color="maroon"><b>Articles</b></font></a>: 26 files<br>
-<b>3.</b> <b>Australian Sahaja Newsletter</b>: Total files 95<br>
+<b>3.</b> <b>Australian Sahaja Newsletter</b>: Total files 99<br>
  &emsp; &emsp; &emsp;<b>3.1.</b> <a href="https://seven-teams.github.io/archives/2023/1214"><font color="maroon"><b>Australian Sahaja Newsletter, Part 1 (1997)</b></font></a>: 8 files<br>
- &emsp; &emsp; &emsp;<b>3.2.</b> <a href="https://seven-teams.github.io/archives/2023/1215"><font color="maroon"><b>Australian Sahaja Newsletter, Part 2 (1998)</b></font></a>: 45 files<br>
- &emsp; &emsp; &emsp;<b>3.3.</b> <a href="https://seven-teams.github.io/archives/2023/1216"><font color="maroon"><b>Australian Sahaja Newsletter, Part 3 (1999)</b></font></a>: 41 files<br>
+ &emsp; &emsp; &emsp;<b>3.2.</b> <a href="https://seven-teams.github.io/archives/2023/1215"><font color="maroon"><b>Australian Sahaja Newsletter, Part 2 (1998)</b></font></a>: 47 files (includes 2 supplements)<br>
+ &emsp; &emsp; &emsp;<b>3.3.</b> <a href="https://seven-teams.github.io/archives/2023/1216"><font color="maroon"><b>Australian Sahaja Newsletter, Part 3 (1999)</b></font></a>: 43 files (includes 2 supplements)<br>
  &emsp; &emsp; &emsp;<b>3.4.</b> <a href="https://seven-teams.github.io/archives/2023/1217"><font color="maroon"><b>Australian Sahaja Newsletter Part 4 (2000)</b></font></a>: 1 file<br>
 <b>4.</b> <a href="https://seven-teams.github.io/archives/2022/0818"><font color="maroon"><b>Divine Cool Breeze (USA)</b></font></a>: 2 files<br>
 <b>5.</b> <a href="https://seven-teams.github.io/archives/2023/0119"><font color="maroon"><b>Letters and Press Releases</b></font></a>: 5 files<br>
