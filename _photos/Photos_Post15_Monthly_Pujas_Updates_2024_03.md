@@ -20,7 +20,7 @@ This month 23 new Photos were uploaded to 9 Pūjas as follows (19 high resolutio
 (vi) 1987-0712 Guru Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/UK/1987"> <font color="DarkGreen"><b>UK 1987</b></font></a>.<br>
 (vii) 1988-0409 Birthday Pūjā: 6 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1988"> <font color="DarkGreen"><b>India 1988</b></font></a>.<br>
 (viii) 1991-1229 Śhrī Lakṣhmī Pūjā: 2 medium resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1991"> <font color="DarkGreen"><b>India 1991</b></font></a>.<br>
-(ix) 1992-0830: 2 medium resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1992"> <font color="DarkGreen"><b>Italy 1992</b></font></a>.<br>
+(ix) 1992-0830 Śhrī Gaṇeśha Pūjā: 2 medium resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1992"> <font color="DarkGreen"><b>Italy 1992</b></font></a>.<br>
 Please kindly share the news and the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

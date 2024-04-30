@@ -5,7 +5,7 @@ permalink: /folder/1984-0501-0500-0600-NY-Page-12-The-Call-Sahaja-Yogis
 tags:
   - black @ Poetry
   - blue @ TBD
-  - brown @ 1982
+  - brown @ 1984
   - cornflowerblue @ TBD
   - deeppink @ 1984-0500 and 0600 Nirmala Yoga
   - green @ Story of Poem The Call Sahaja Yogis
