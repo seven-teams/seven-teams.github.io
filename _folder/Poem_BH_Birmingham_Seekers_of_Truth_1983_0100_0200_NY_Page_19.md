@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8216;Seekers of Truth!&#8217;s Love&#8217; by Bill Hansen, Birmingham from 1983-0100 and 0200 Nirmala Yoga, Page 19'
+title: 'Poem &#8216;Seekers of Truth!&#8217; by Bill Hansen, Birmingham from 1983-0100 and 0200 Nirmala Yoga, Page 19'
 date: 1983-01-01
 permalink: /folder/1983-0101-0100-0200-BH-Birmingham-Seekers-of-Truth-NY
 tags:

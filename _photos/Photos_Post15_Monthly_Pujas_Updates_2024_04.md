@@ -1,6 +1,6 @@
 ---
 title: 'Photos Post 15: Monthly Pūjās Updates, April 2024'
-date: 2024-04-40
+date: 2024-04-30
 permalink: /photos/2024/0430-b
 tags:
   - crimson @ Photographs of Shri Mataji

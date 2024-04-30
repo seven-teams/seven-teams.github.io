@@ -1,7 +1,7 @@
 ---
 title: 'Poem &#8216;Mother&#8217;s Love&#8217; from 1983-0700 and 0800 Nirmala Yoga, Page 28'
 date: 1983-07-01
-permalink: /folder/1983-0701-0700-0800-NY-Page-28Mothers-Love-
+permalink: /folder/1983-0701-0700-0800-NY-Page-28-Mothers-Love
 tags:
   - black @ Poetry
   - blue @ TBD
