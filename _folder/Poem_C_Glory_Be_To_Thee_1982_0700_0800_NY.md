@@ -16,7 +16,7 @@ tags:
 <br>
 
 <p>
-0 Devi! Glory be to Thee!<br>
+O Devi! Glory be to Thee!<br>
 Thou hast empowered Thy children<br>
 to be Thy instruments<br>
 of Salvation.<br>

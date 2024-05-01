@@ -13,7 +13,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 Since the March 2024 newsletter, the following 8 extra Poems have been uploaded.<br>
 1. <a href="https://seven-teams.github.io/folder/1982-0701-0700-0800-SMK-An-Inspiration-NY"> <font color="DeepPink"><b>An Inspiration</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/1982-0701-0700-0800-HG-Divine-Play-NY"> <font color="DeepPink"><b>Divine Play</b></font></a><br>
-3. <a href="https://seven-teams.github.io/folder/1982-0701-0700-0800-C-Glory-Be_To-Thee-NY"> <font color="DeepPink"><b>Glory Be To Thee</b></font></a><br>
+3. <a href="https://seven-teams.github.io/folder/1982-0701-0700-0800-C-Glory-Be-To-Thee-NY"> <font color="DeepPink"><b>Glory Be To Thee</b></font></a><br>
 4. <a href="https://seven-teams.github.io/folder/1987-0701-0700-JMW-My-Mother-SNA"> <font color="DeepPink"><b>My Mother</b></font></a><br>
 5. <a href="https://seven-teams.github.io/folder/1982-0701-0700-JM-Our-Holy-Mother"> <font color="DeepPink"><b>Our Holy Mother</b></font></a><br>
 6. <a href="https://seven-teams.github.io/folder/1983-0101-0100-0200-BH-Birmingham-Seekers-of-Truth-NY"> <font color="DeepPink"><b>Seekers of Truth</b></font></a><br>
