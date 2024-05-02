@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1990-1214 Lunch, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
-The direct link to the 105 Photos of the in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1990-01-to-12-14"><font color="DarkGreen">India 1990-01 to 12-14</font></a>.<br> 
+The direct link to the 105 Photos of the in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1990-12-01-to-14"><font color="DarkGreen">India 1990-12-01 to 14</font></a>.<br> 
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
