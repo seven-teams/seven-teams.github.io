@@ -192,7 +192,7 @@ By coming to Your Lotus Feet we got our realization.<br>
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0025.png" /></div>
 
-<p style="color:green; text-align:center;">
+<p style=" text-align:center;">
 <font size="+0"><b>Sahaja Yogi: "Ātā Viśhwātmakeṃ deveṃ yeṇe vāgyajñeṃ toṣhāveṃ. Toṣho..."</b></font><br>
 <font color="DarkRed"><b>Śhrī Mātājī</b>: Now it says that all of you, who are one in your Spirit -- this all description of Sahaja Yoga today, is the future, the present that you will get it, at this time what is going to happen. It is so beautifully shown, you'll be surprised, that you all will become one in the universe. The Spirit of the Universe will be satisfied with the Yagñyas they are going to do, with the fire ceremonies you are going to do. How it is appropriated! He said it three hundred years back.</font><br>
 <br>
