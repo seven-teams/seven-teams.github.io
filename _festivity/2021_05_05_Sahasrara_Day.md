@@ -4,7 +4,7 @@ date: 2021-05-05
 permalink: /festivity/2021/05/05
 tags:
   - orange @ Sahasrara Puja
-  - maroon @ Sahasrara Say
+  - maroon @ Sahasrara Day
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

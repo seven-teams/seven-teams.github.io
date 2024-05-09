@@ -4,7 +4,7 @@ date: 2019-05-05
 permalink: /festivity/2019/0505
 tags:
   - orange @ Sahasrara Puja
-  - maroon @ Sahasrara Say
+  - maroon @ Sahasrara Day
 ---
 
 ![PICTURE 1](/images/image1.png)
