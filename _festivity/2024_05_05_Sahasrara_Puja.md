@@ -28,7 +28,7 @@ Nirmala Hi Tari <br>
 Dhyan. Te Rangerle Sahasrār. Dwari </b></font><br>
 O Mother we are enjoying our meditation in Sahasrāra<br>
 Whenever we take Your name, You are always there to help us<br>
-<font color="DarkGreen"><b>Charani Tujhya Baisat. Mate, Man. Te Nivale</b>
+<font color="DarkGreen"><b>Charani Tujhya Baisat. Mate, Man. Te Nivale</b><br>
 Sushumnachya Marge,<br>
 Swarupachya Tiri</font><br>
 When we are at Your Lotus Feet our attention is settled,<br>
@@ -51,7 +51,7 @@ As soon as Sahasrāra was opened, the whole atmosphere was filled with tremendou
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>"Of course, Sahasrāra is a day which is very important, which makes a big history in the spirituality, uh and also in the evolutionary process."</b></font><br>
-<font size="+0"><b>1988-0730 Talk to Sahaja Yogis, Divine Laws, after the Evening Program, the day before Guru Pūjā, Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b><br>
+<font size="+0"><b>1988-0730 Talk to Sahaja Yogis, Divine Laws, after the Evening Program, the day before Guru Pūjā, Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b></font><br>
 <br>
 <font color="DarkGreen"><b>Tu Ādi Śhakti, Sahasrar viraji </b><br>
 You are Śhrī Ādi Śhakti seated on the Cosmic Sahasrāra<br>
