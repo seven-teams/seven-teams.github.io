@@ -11,7 +11,7 @@ tags:
 
 <p>
 <font color="DarkRed">"<b>So this Sahasrāra Day or, we can say, on the day the Sahasrāra was opened out, is a very important one, it's very subtle.</b> We just know about the Kuṇḍalinī, that She's coiled up in three and a half, and She's lying in the triangular bone known as sacrum. But we don't know what She works, how She works, what happens to us. She rises in six centers and breaks the seventh ... I should say She breaks the sixth center, because Gaṇeśha's center doesn't play any role. <b>So when She breaks the sixth center, which is the Sahasrāra, then She connects you to the All-pervading Power of Divine Love.</b><br>
-<b>But what is this Divine Love? What does this do? It is the Energy of the Mother. We can say it is the Energy of Ādi Śhakti, which is all over, works through vibrations.</b> But what are these vibrations? It's a very subtle energy that starts flowing through your Sahasrāra. All the thousand petals of the Sahasrāra get slowly enlightened and it starts flowing throughout your body, throughout your hands, feet, throughout your body. And the more you are ... I mean your attention is, on the Sahasrāra, the more it works faster. "</font><br>
+<b>But what is this Divine Love? What does this do? It is the Energy of the Mother. We can say it is the Energy of Ādi Śhakti, which is all over, works through vibrations.</b> But what are these vibrations? It's a very subtle energy that starts flowing through your Sahasrāra. All the thousand petals of the Sahasrāra get slowly enlightened and it starts flowing throughout your body, throughout your hands, feet, throughout your body. And the more you are ... I mean your attention is, on the Sahasrāra, the more it works faster."</font><br>
 <font size="+0"><b>2001-0506 Sahasrāra Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -29,11 +29,11 @@ Dhyan. Te Rangerle Sahasrār. Dwari </b></font><br>
 O Mother we are enjoying our meditation in Sahasrāra<br>
 Whenever we take Your name, You are always there to help us<br>
 <font color="DarkGreen"><b>Charani Tujhya Baisat. Mate, Man. Te Nivale</b>
-Sushumnachya Marge,</b>
-Swarupachya Tiri</b></font><br>
+Sushumnachya Marge,<br>
+Swarupachya Tiri</font><br>
 When we are at Your Lotus Feet our attention is settled,<br>
 we are in the path of Sushumna and very close to Your Divine form.<br>
-<a href="">video</a>
+<a href="https://www.youtube.com/watch?v=U0w8QSa7zNY&ab_channel=SahajBhajans">video</a>
 </p>
 
 <p>
@@ -51,7 +51,7 @@ As soon as Sahasrāra was opened, the whole atmosphere was filled with tremendou
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>"Of course, Sahasrāra is a day which is very important, which makes a big history in the spirituality, uh and also in the evolutionary process."</b></font><br>
-<font size="+0"><b>1988-0730 Talk to Sahaja Yogis, Divine Laws, after the Evening Program, the day before Guru Pūjā, Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b><<br>
+<font size="+0"><b>1988-0730 Talk to Sahaja Yogis, Divine Laws, after the Evening Program, the day before Guru Pūjā, Tent, Grounds around Annapurna Atiram Aparthotel, Pont d'Ansalonga, Ansalonga, Andorra</b><br>
 <br>
 <font color="DarkGreen"><b>Tu Ādi Śhakti, Sahasrar viraji </b><br>
 You are Śhrī Ādi Śhakti seated on the Cosmic Sahasrāra<br>
@@ -61,10 +61,10 @@ Showering Divine Vibrations and heralding the beginning of Satya Yuga<br>
 You are the Mother of the universe and the Great Goddess<br>
 <b>Tere Putra banne ki Patrata de Mā</b><br>
 Mother please grant us all the qualities by which we can be Your children in reality.<br>
-<b>He Nirmalā Mā, He Nirmalā Mā
+<b>He Nirmalā Mā, He Nirmalā Mā<br>
 Tera pyar. moksha ka Anand. hai Mā</b><br>
 O Divine Mother, Your unbounded love is the bliss of liberation</font><br>
-<a href="">video</a>
+<a href="https://youtu.be/v7T1xpKkYFU">video</a>
 </p>
 
 <p>
@@ -173,7 +173,7 @@ By coming to Your Lotus Feet we got our realization.<br>
 <p>
 <font color="green"><b> Anyatha Sharnam Nāsti</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
-</pā
+</p>
 
 <p>
 <font color="green"><b>Mā He Sahasrār Swāminī</b></font><br>
@@ -210,6 +210,7 @@ By coming to Your Lotus Feet we got our realization.<br>
 <br>
 <font size="+0"><b>Sahaja Yogi: "Duritāṃche timira jāvo."</b></font><br>
 <font color="DarkRed"><b>Śhrī Mātājī</b>: Those who are in ignorance will get light.</font><br>
+<br>
 <font size="+0"><b>Sahaja Yogi: "Viśhwa Swadharma Sūryeṃ pāho."</b></font><br>
 <font color="DarkRed"><b>Śhrī Mātājī</b>: The whole universe will see the light, the Sun of One Universal Religion.</font><br>
 <font color="DarkGreen"><b>Pasāyadān</b></font><br>
