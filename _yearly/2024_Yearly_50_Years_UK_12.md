@@ -32,7 +32,7 @@ May God give you wisdom and strength to establish yourself as great Yogis."<br>
 <font color="blue"><b>1985-0510 Public Program, Becoming the Light within, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font><br>
 </p>
 
-Links to suggested talk: <a href="https://www.youtube.com/watch?v=j_RI02ygnYc&pp=ygUJMTk4NS0wNTEw"> NVA</a> and <a href="https://vimeo.com/85894611"> SDL</a><br>
+Links to suggested talk: <a href="https://www.youtube.com/watch?v=j_RI02ygnYc&pp=ygUJMTk4NS0wNTEw"> NVA</a> and <a href="https://vimeo.com/85894611"> SL</a><br>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
