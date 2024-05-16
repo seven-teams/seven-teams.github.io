@@ -10,7 +10,7 @@ tags:
 <br>
 <div style="text-align: left"><img src="/images/50YearsUK.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src=https://pub-b6058b8fc5314638989cdd5e49178be6.r2.dev/1985-0804_Shri_Ganesha_Puja_The_Importance_of_Chastity_Brighton_Friends_Meeting_House_Ship_Street_Brighton_East_Sussex_UK_26_(Photo_credit_Colin_Heinsen).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-b6058b8fc5314638989cdd5e49178be6.r2.dev/1985-0804_Shri_Ganesha_Puja_The_Importance_of_Chastity_Brighton_Friends_Meeting_House_Ship_Street_Brighton_East_Sussex_UK_26_(Photo_credit_Colin_Heinsen).jpg" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
