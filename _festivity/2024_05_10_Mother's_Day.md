@@ -22,13 +22,12 @@ In Divine Love there is no expectations, it just flows, it doesn't think how to 
 
 <p style=" text-align:center;">
 <font color="MediumVioletRed"><b>Thank You</b> for descending from Your heavenly abode, Mātā Dvīpa, to bring light into the darkness of Kali Yuga.<br> 
-<b>Thank You</b>, Śhrī Mātājī, again and again.<br
-<b>Thank You</b> for delivering Sahaja Yoga to a confused and self-destructive humanity.<br
-<b>Thank You</b> for revealing the meaning of creation and evolution to us.<br
-<b>Thank You</b> for revealing the actual existence of God to us.<br
-<b>Thank You</b> for giving divine meaning to human existence.<br
+<b>Thank You</b>, Śhrī Mātājī, again and again.<br>
+<b>Thank You</b> for delivering Sahaja Yoga to a confused and self-destructive humanity.<br>
+<b>Thank You</b> for revealing the meaning of creation and evolution to us.<br>
+<b>Thank You</b> for revealing the actual existence of God to us.<br>
+<b>Thank You</b> for giving divine meaning to human existence.<br>
 <b>Thank You</b> for revealing the reflection of the Viśhwarūpa within the human body to us.</font><br>
-<br>
 <font size="+0"><b> The 108 Thank Yous offered to Śhrī Mātājī on 1996-0505 Sahasrāra Pūjā in Cabella</b></font><br>
 <a href="https://youtu.be/wP_R9tpOVag">video</a>
 </p>
@@ -54,21 +53,18 @@ Mother, be in my heart and in my mind.<br>
 </p>
 
 <p>
-<font color="DarkRed">"Now, [the] Principle of Mother is in every, every Scripture, has to be there. Now the Mother's character is that She is the One Who is the Womb, She is the One Who is the Mother Earth and She is the One Who nourishes you. She's ... She nourishes us, you know that. And this feminine thing in a one ma... in every human being resides as this Kuṇḍalinī, as you have seen. And when She rises, She gives you this new awareness which becomes compassion, which is flowing, which becomes soothing, nourishing Energy of Love. And that's what today people are saying feminist go this thing and all that. That's again a pendulum -- a man becoming a woman, woman becoming man -- all these problem you have had because of this. But when you move spirally upward, then where do you move? You move, become a personality full of compassion, of love, of universal understanding, through Collective Consciousness. And then you rise up to a position where you become universally conscious. So that is what should happen to you. And, if that happens, then we should say that your motherly qualities within you have risen. And that's what we have so far neglected. You do not become a woman but you become motherly. First the Father, then the Son, and now the Mother! All right? "</font><br>
+<font color="DarkRed">"Now, [the] Principle of Mother is in every, every Scripture, has to be there. Now the Mother's character is that She is the One Who is the Womb, She is the One Who is the Mother Earth and She is the One Who nourishes you. She's ... She nourishes us, you know that. And this feminine thing in a one ma... in every human being resides as this Kuṇḍalinī, as you have seen. And when She rises, She gives you this new awareness which becomes compassion, which is flowing, which becomes soothing, nourishing Energy of Love. And that's what today people are saying feminist go this thing and all that. That's again a pendulum -- a man becoming a woman, woman becoming man -- all these problem you have had because of this. But when you move spirally upward, then where do you move? You move, become a personality full of compassion, of love, of universal understanding, through Collective Consciousness. And then you rise up to a position where you become universally conscious. So that is what should happen to you. And, if that happens, then we should say that your motherly qualities within you have risen. And that's what we have so far neglected. You do not become a woman but you become motherly. First the Father, then the Son, and now the Mother! All right?"</font><br>
 <font size="+0"><b>1983-1001 Interview with Barbara Schuler for the Program `Discovery' of Kazu Radio Station in Monterey, Seminar, Day 1, Session 3, Part 1, Kennolyn Campgrounds, 8400 Glen Haven Road, Soquel (10 kms ENE of Santa Cruz), CA, U.S.A.</b></font>
 </p>
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0028.png" /></div>
 
 <p style="text-align:center;">
-<font color="MediumVioletRed">The Mother is everything — She is our consolation in sorrow, our
-hope in misery and our strength in weakness. 
-She is the source of
-love, mercy, sympathy, and forgiveness. And this Earth is the Mother of the trees and flowers. 
-It produces them, nurses them, and weans them.
-The trees and flowers become kind mothers of their great fruits and
-seeds. 
-And the Mother, the prototype of all existence, is the Eternal
+<font color="MediumVioletRed">The Mother is everything — She is our consolation in sorrow, our hope in misery and our strength in weakness.<br>
+She is the source of love, mercy, sympathy, and forgiveness. And this Earth is the Mother of the trees and flowers.<br>
+It produces them, nurses them, and weans them.<br>
+The trees and flowers become kind mothers of their great fruits and seeds.<br>
+And the Mother, the prototype of all existence, is the Eternal<br>
 Spirit, full of beauty and love. </font><br>
 <font size="+0"><b>('Broken Wings' by Kahlil Gibran)</b></font>
 </p>
@@ -85,13 +81,13 @@ Spirit, full of beauty and love. </font><br>
 </p>
 
 <p>
+<font color="green"><b>Mother I Adore You</b></font><br>
+<a href="https://youtu.be/LsWaC7NktHA">video</a> 
+</p>
+
+<p>
 <font color="green"><b>Isi Liye Mātājī Hamako</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
-</p>
- 
-<p>
-<font color="green"><b>Mother I Adore You</b></font><br>
-<a href="https://youtu.be/oFGGshAsz2Q">video</a> 
 </p>
 
 <p>
