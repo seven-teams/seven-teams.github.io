@@ -1,13 +1,13 @@
 ---
-title: 'Poem &#8216;We Sahaja Children&#8217; by Dr. Rustom Burjorjee from 1983-1100 and 1200 Nirmala Yoga, Page 30'
-date: 1983-11-01
-permalink: /folder/1983-1101-DrRB-We-Sahaja-Children
+title: 'Poem &#8216;We Sahaja Children&#8217; by Dr. Rustom Burjorjee from 1983-0900 and 1000 Nirmala Yoga, Page 30'
+date: 1983-09-01
+permalink: /folder/1983-0901-DrRB-We-Sahaja-Children
 tags:
   - black @ Poetry
   - blue @ Dr. Rustom Burjorjee
   - brown @ 1983
   - cornflowerblue @ TBD
-  - deeppink @ 1983-1100 and 1200 Nirmala Yoga
+  - deeppink @ 1983-0900 and 1000 Nirmala Yoga
   - maroon @ Children
   - maroon @ Sahaja
   - maroon @ We
@@ -61,5 +61,5 @@ AMEN<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1983-1100 and 1200 Nirmala Yoga, Page 30.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1983-0900 and 1000 Nirmala Yoga, Page 30.</list-item>
 </wave-list>

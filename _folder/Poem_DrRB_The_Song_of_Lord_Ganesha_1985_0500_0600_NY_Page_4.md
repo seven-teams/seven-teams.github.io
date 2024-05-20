@@ -1,13 +1,13 @@
 ---
 title: 'Poem &#8216;The Song of Lord Ganesha&#8217; by Dr. Rustom Burjorjee from 1985-0500 and 0600 Nirmala Yoga, Page 4'
-date: 1983-11-01
-permalink: /folder/1983-1101-DrRB-We-Sahaja-Children
+date: 1985-05-01
+permalink: /folder/1985-0501-DrRB-The-Song-of-Lord-Ganesha
 tags:
   - black @ Poetry
   - blue @ Dr. Rustom Burjorjee
   - brown @ 1985
   - cornflowerblue @ TBD
-  - deeppink @ 1983-1100 and 1200 Nirmala Yoga
+  - deeppink @ 1985-0500 and 0600 Nirmala Yoga
   - maroon @ Lord Ganesha
   - maroon @ Song
 ---
@@ -46,5 +46,5 @@ For I am Lord of the dance, said he.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1983-1100 and 1200 Nirmala Yoga, Page 30.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1985-0500 and 0600 Nirmala Yoga, Page 4.</list-item>
 </wave-list>
