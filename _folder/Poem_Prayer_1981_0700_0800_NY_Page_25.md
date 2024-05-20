@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8216;Prayeri&#8217; from 1981-0700 and 0800 Nirmala Yoga, Page 25'
+title: 'Poem &#8216;Prayer&#8217; from 1981-0700 and 0800 Nirmala Yoga, Page 25'
 date: 1981-07-01
 permalink: /folder/1981-0701-Prayer-1981-0700-0800-NY-Page 25
 tags:
