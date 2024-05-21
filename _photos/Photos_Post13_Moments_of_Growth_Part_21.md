@@ -11,7 +11,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to bring to your attention one new album (with 1 gallery to begin with):<br>
+We are pleased to bring to your attention one new folder (with 1 album/gallery to begin with):<br>
 <b>1.</b> <a href="https://imageevent.com/sahaja/art/photographicartofjobajescu"><font color="DarkGreen"><b>Photographic Art of an Artist</b></font></a>.<br>
 Please kindly share the news and the link with all our brothers and sisters.<br>
 <br>
