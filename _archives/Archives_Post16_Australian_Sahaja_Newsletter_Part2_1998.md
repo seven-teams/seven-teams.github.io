@@ -255,13 +255,6 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>1998THEAUSSAHNEW28.</b></font> <b>1998-0808 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1215 as 2 and 5 pages)
-
-<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1998-0808_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1998-0808_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<br>
 
 <font color="DarkGreen"><b>1998THEAUSSAHNEW29.</b></font> <b>1998-0814 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1215 as 2 and 5 pages)
 
