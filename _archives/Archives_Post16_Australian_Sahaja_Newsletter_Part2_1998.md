@@ -177,6 +177,12 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
+<font color="DarkGreen"><b>1998THEAUSSAHNEW19S.</b></font> <b>1998-0606 The Australian Sahaja Newsletter (likely) Supplement (Sue Raggatt Collection)</b> (3 pages, scanned file, uploaded on 2024-0521)
+
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1998-0606_Australian_Sahaja_Newsletter_(likely)_Supplement_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
 <font color="DarkGreen"><b>1998THEAUSSAHNEW20.</b></font> <b>1998-0613 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1215 as 2 and 4 pages)
 
 <iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1998-0613_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
@@ -238,6 +244,14 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 <iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1998-0801_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1998-0801_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
+<font color="DarkGreen"><b>1998THEAUSSAHNEW28.</b></font> <b>1998-0808 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (10 pages, scanned file, uploaded on 2023-1215 as 4 and 7 pages)
+
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1998-0808_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1998-0808_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 

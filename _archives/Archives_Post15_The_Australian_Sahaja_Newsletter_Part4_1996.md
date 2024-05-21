@@ -43,6 +43,12 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
+<font color="DarkGreen"><b>1996THEAUSSAHNEW2S.</b></font> <b>1996-0127 The Australian Sahaja Newsletter (likely Supplement) (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2024-0521)
+
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1996-0127_The_Australian_Sahaja_Newsletter_(likely)_Supplement_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
 <font color="DarkGreen"><b>1996THEAUSSAHNEW3.</b></font> <b>1996-0203 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1210 as 2 and 4 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-0203_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
