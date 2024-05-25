@@ -12,7 +12,8 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We would like to share with you all the up-dated <font color="mediumvioletred">Database of Transcripts/Quotes</font> we have been working on since Divine Message, Version 9.5 was posted on February 26, 2024. The pdf file <font color="blue">Divine Message, Version 9.5</font> can be viewed at the link <a href="">Version 9.5</a>.<br>
-<iframe src="/pdf/#https://bit.ly/Divine_Message_Version_9_4" width="1000px" height="1000px"></iframe><br>
+<iframe src="/pdf/?usedownload=true#https://bit.ly/Divine_Message_Version_9_4" width="1000px" height="1000px"></iframe><br>
+<iframe src="/pdf/#https://drive.google.com/file/d/1bAcMmM5--ayg-3OC9Kyb9RoJrrHfjyk_/view?usp=sharing" width="1000px" height="1000px"></iframe><br>
 <br>
 Please kindly share the link with all our brothers and sisters.<br> 
 <br>
