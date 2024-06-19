@@ -10,9 +10,10 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1995-1229 Marriages Ceremony, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 medium resolutions from the Named Collections.<br>
-The direct link to the Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad-Collection/1995"><font color="DarkGreen">Collection 1995</font></a>.<br> 
+We are pleased to let you know that 4 Photos of the special event <font color="Crimson"><b>1995-1229 Marriages Ceremony, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions and 2 medium resolutions from the Named Collections.<br>
+The direct link to the 4 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1995"><font color="DarkGreen">India 1995</font></a>.<br> 
 The event has as well 3 photos Moments of Joy which can be seen in the smallest gallery at the link <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad-Collection/Moments-of-Joy"> Collection Moments of Joy</a>.<br>
+[Note: the 2 high resolutions uploaded on 2024-0619.]
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
