@@ -25,7 +25,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A1.</b></font> <b>1989-1212 Article 'A yogin from the USSR' by a Staff reporter published in daily newspaper 'The Statesman', New Delhi, India (Karan Khurana Collection)</b> (1 page, uploaded on 2024-0229)
 
-<div style="text-align: center"><img src="/images/1989-1212_Article_'A_yogin_from_the_USSR'_by_a_Staff_reporter_published_in_daily_newspaper_'The_Statesman',_New_Delhi,_India_(Karan_Khurana_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="1989-1212_Article_'A_yogin_from_the_USSR'_by_a_Staff_reporter_published_in_daily_newspaper_'The_Statesman'_New_Delhi_India_(Karan_Khurana_Collection).jpg" /></div>
 
 <br>
 
