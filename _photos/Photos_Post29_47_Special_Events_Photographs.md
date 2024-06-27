@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1993-1013 Arrival, VA, U.S.A.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 medium resolutions from the Named Collections.<br>
-The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad-Collection/1993"><font color="DarkGreen">Collection 1993</font></a>.<br> 
+We are pleased to let you know that 3 Photos of the special event <font color="Crimson"><b>1993-1013 Arrival, VA, U.S.A.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 medium resolutions from the Named Collections.<br>
+The direct link to the 3 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad-Collection/1993"><font color="DarkGreen">Collection 1993</font></a>.<br>
+[One Photo uploaded only on 2024-0627.]<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
