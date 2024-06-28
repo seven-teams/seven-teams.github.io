@@ -30,6 +30,6 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>2005SYAUSNEW1.</b></font> <b>2005-0121 Sahaja Yoga Australian Newsletter (David Morgan Collection)</b> (8 pages, original file, uploaded on 2024-0628)
 
-<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/2005-0121_Sahaja_Yoga_Australian_Newsletter_(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2005-0121_Sahaja_Yoga_Australian_Newsletter_(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
-<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/2005-0121_Sahaja_Yoga_Australian_Newsletter_A3_format_(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2005-0121_Sahaja_Yoga_Australian_Newsletter_A3_format_(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>
