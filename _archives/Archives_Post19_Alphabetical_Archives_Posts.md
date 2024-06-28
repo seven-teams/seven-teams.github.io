@@ -26,12 +26,13 @@ tags:
  &emsp; &emsp; &emsp;<b>11.1.</b> <a href="https://seven-teams.github.io/archives/2023/0824-b"><font color="maroon"><b>Sahaja Newsletter (Australia), Part 1 (1991)</b></font></a>: 5 files<br>
  &emsp; &emsp; &emsp;<b>11.2.</b> <a href="https://seven-teams.github.io/archives/2023/0831"><font color="maroon"><b>Sahaja Newsletter (Australia), Part 2 (1992)</b></font></a>: 48 files (includes 8 supplements)<br>
  &emsp; &emsp; &emsp;<b>11.3.</b> <a href="https://seven-teams.github.io/archives/2023/0907"><font color="maroon"><b>Sahaja Newsletter (Australia), Part 3 (1993)</b></font></a>: 34 files (includes 2 supplements)<br>
-<b>12.</b> <b>Sahaja Yoga Australian Newsletter</b>: Total files 147<br>
+<b>12.</b> <b>Sahaja Yoga Australian Newsletter</b>: Total files 148<br>
  &emsp; &emsp; &emsp;<b>12.1.</b> <a href="https://seven-teams.github.io/archives/2023/0821"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 1 (2000)</b></font></a>: 33 files<br>
  &emsp; &emsp; &emsp;<b>12.2.</b> <a href="https://seven-teams.github.io/archives/2023/0820"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 2 (2001)</b></font></a>: 15 files<br>
  &emsp; &emsp; &emsp;<b>12.3.</b> <a href="https://seven-teams.github.io/archives/2023/0817"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 3 (2002)</b></font></a>: 42 files<br>
  &emsp; &emsp; &emsp;<b>12.4.</b> <a href="https://seven-teams.github.io/archives/2023/0727"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 4 (2003)</b></font></a>: 41 files<br>
  &emsp; &emsp; &emsp;<b>12.5.</b> <a href="https://seven-teams.github.io/archives/2023/0706-a"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 5 (2004)</b></font></a>: 16 files<br>
+  &emsp; &emsp; &emsp;<b>12.5.</b> <a href="https://seven-teams.github.io/archives/2024/0628"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 6 (2005)</b></font></a>: 1 file<br>
 <b>13.</b> <b>The Australian Sahaja Newsletter</b>: Total files 153<br>
  &emsp; &emsp; &emsp;<b>13.1.</b> <a href="https://seven-teams.github.io/archives/2023/0914"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 1 (1993)</b></font></a>: 14 files<br>
  &emsp; &emsp; &emsp;<b>13.2.</b> <a href="https://seven-teams.github.io/archives/2023/1007"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 2 (1994)</b></font></a>: 39 files<br>
