@@ -16,7 +16,7 @@ We are pleased to let you know that 2 Photos of the special event <font color="C
 The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad-Collection/1993"><font color="DarkGreen">Collection 1993</font></a>.<br> 
 Please kindly share the links with all our brothers and sisters.<br>
 The event has as well 2 photos Moments of Joy which can be seen in the smallest gallery at the link <a href="https://eternalmoments.smugmug.com/Collections/Edward-Saugstad-Collection/Moments-of-Joy"> Collection Moments of Joy</a>.<br>
-[Note: 1 photo Moments of Joy uploaded only on 2024-0626.]<br>
+[Note: 1 photo Moments of Joy uploaded only on 2024-0627.]<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
