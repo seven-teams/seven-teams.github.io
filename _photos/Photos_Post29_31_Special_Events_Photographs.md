@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 9 Photos of the special event <font color="Crimson"><b>1990-1228, After Marriages Ceremony, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 9 medium resolutions from the Named Collections.<br>
+We are pleased to let you know that 9 Photos of the special event <font color="Crimson"><b>1990-1228 After Marriages Ceremony, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 9 medium resolutions from the Named Collections.<br>
 The direct link to the 9 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1990">Collection 1990</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>

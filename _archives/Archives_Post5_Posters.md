@@ -23,13 +23,13 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>P1.</b></font> <b>1988-0700 Poster for Public Program on 0722, San Diego, CA, U.S.A. (Karan Khurana Collection)</b> (1 page, uploaded on 2023-0502)
 
-<div style="text-align: center"><img src="/images/1988-0700_Poster_for_Public_Program_on_0722,_San_Diego,_CA,_U.S.A._(Karan_Khurana_Collection).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1988-0700_Poster_for_Public_Program_on_0722_San_Diego_CA_U.S.A._(Karan_Khurana_Collection).jpg" /></div>
 
 <br>
 
 <font color="DarkGreen"><b>P2.</b></font> <b>1990-0600 Poster for Public Programs on 0618 and 0619, Vienna, Austria (Edward Saugstad Collection)</b> (1 page, uploaded on 2024-0113), <font color="SeaGreen"><b>Source:</b></font> <a href="https://forallourdearsahajayogisandyoginis.wordpress.com/1991-august-in-vienna-with-the-mother-of-all/"> <b>Austria by Edward Saugstad</b></a>
 
-<div style="text-align: center"><img src="/images/1990-0600_Poster_for_Public_Programs_on_0618_and_0619,_Vienna,_Austria_(Edward_Saugstad_Collection).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1990-0600_Poster_for_Public_Programs_on_0618_and_0619_Vienna_Austria_(Edward_Saugstad_Collection).jpg" /></div>
 
 <br>
 

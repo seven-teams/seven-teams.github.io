@@ -91,7 +91,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A12.</b></font> <b>1993-0724 Article '7. čakra pro každého' (7th chakra for everyone) by Viktor Šlajchrt in section Kultura, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0508), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
-<div style="text-align: center"><img src="/images/1993-0724_Article_7th_chakra_for_everyone_by_Viktor_Slajchrt_in_section_Kultura,_Prague,_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1993-0724_Article_7th_chakra_for_everyone_by_Viktor_Slajchrt_in_section_Kultura_Prague_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
 
 <br>
 
@@ -103,7 +103,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A14.</b></font> <b>1993-0726 Article 'Indka milu české lidi' (Indian lady loves Czech people) by František Lauer published in the daily newspaper Blesk (Year 2, Number 170), Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0508), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
-<div style="text-align: center"><img src="/images/1993-0726_Article_Indian_lady_loves_Czech_people_by_Frantisek_Lauer_published_in_the_daily_newspaper_Blesk,_Prague,_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1993-0726_Article_Indian_lady_loves_Czech_people_by_Frantisek_Lauer_published_in_the_daily_newspaper_Blesk_Prague_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
 
 <br>
 
@@ -129,7 +129,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A18.</b></font> <b>1995-0807 Article about the Arrival on 0806 with Photo, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0601), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
-<div style="text-align: center"><img src="/images/1995-0807_Article_about_the_Arrival_on_0806_with_Photo,_Prague,_Czech_Republic_(David_Bursa_Collection).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1995-0807_Article_about_the_Arrival_on_0806_with_Photo_Prague_Czech_Republic_(David_Bursa_Collection).jpg" /></div>
 
 <br>
 
@@ -137,7 +137,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <div style="text-align: center"><img src="/images/1996-0717_Article_We_came_for_a_piece_of_love_that_was_given_out_by_Shri_Mataji_by_Eva Sykorova_published_in_Vecernik_Praha,_Czech_Republic,_Slide_1_(t)_(David_Bursa_Collection).jpeg" /></div>
 
-<div style="text-align: center"><img src="/images/1996-0717_Article_We_came_for_a_piece_of_love_that_was_given_out_by_Shri_Mataji_by_Eva Sykorova_published_in_Vecernik_Praha,_Czech_Republic,_Slide_2_(b)_(David_Bursa_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1996-0717_Article_We_came_for_a_piece_of_love_that_was_given_out_by_Shri_Mataji_by_Eva_Sykorova_published_in_Vecernik_Praha_Czech_Republic_Slide_2_(b)_(David_Bursa_Collection).jpeg" /></div>
 
 <br>
 

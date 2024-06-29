@@ -25,7 +25,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>AHSIRCP1.</b></font> <b>1971-1114 On the November 12 Event with the Soviet Shipping Delegation Published in The Economic Times, Mumbai, India (Mrs. Kalpana Srivastava Collection)</b> (1 page, uploaded on 2023-0826)
 
-<div style="text-align: center"><img src="/images/1971-1114_On_the_November_12_Event_with_the_Soviet_Shipping_Delegation_Published_in_The_Economic Times,_Mumbai,_India_(Mrs._Kalpana_Srivastava_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fd8a936ad38b4fc7b0bc0dfb70d3fe38.r2.dev/1971-1114_On_the_November_12_Event_with_the_Soviet_Shipping_Delegation_Published_in_The_Economic_Times_Mumbai_India_(Mrs._Kalpana_Srivastava_Collection).jpeg" /></div>
 
 <br>
 
@@ -37,13 +37,13 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>AHSIRCP3.</b></font> <b>1989-1230 Article 'CP Retires' (Mrs. Kalpana Srivastava Collection)</b> (1 page, uploaded on 2023-0826)
 
-<div style="text-align: center"><img src="/images/1989-1230_Article_'CP_Retires'_(Mrs._Kalpana_Srivastava_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fd8a936ad38b4fc7b0bc0dfb70d3fe38.r2.dev/1989-1230_Article_'CP_Retires'_(Mrs._Kalpana_Srivastava_Collection).jpeg" /></div>
 
 <br>
 
 <font color="DarkGreen"><b>AHSIRCP4.</b></font> <b>1990-0713 Article 'A great honour for Dr. Srivastava' (Mrs. Kalpana Srivastava Collection)</b> (1 page, uploaded on 2023-0826)
 
-<div style="text-align: center"><img src="/images/1990-0713_Article_'A_great_honour_for_Dr._Srivastava'_(Mrs._Kalpana_Srivastava_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fd8a936ad38b4fc7b0bc0dfb70d3fe38.r2.dev/1990-0713_Article_'A_great_honour_for_Dr._Srivastava'_(Mrs._Kalpana_Srivastava_Collection).jpeg" /></div>
 
 <br>
 
