@@ -13,11 +13,11 @@ tags:
 <br>
 
 <p>
-To know who you really are would be for us to realize that" We are nothing".<br>
-For you being,all things means that.<br>
-For us to really know that You Are love would mean that, all the love We feel ,whatever that We are capable of feeling.<br>
+To know who you really are would be for us to realize that "We are nothing".<br>
+For you being, all things means that.<br>
+For us to really know that You Are love would mean that, all the love We feel, whatever that We are capable of feeling.<br>
 is merely your love reflecting off of us.<br>
 And yet we are from your being, your children and you shower us and build us up you give us form and words.<br>
 With these words we struggle to describe our mother. The Adi Shakti.<br>
-The cycle turns ,words that were given are returned again, love becomes harmony, identities devolve the struggle to be separated becomes a beautiful event of surrender peace and placity.<br>
+The cycle turns, words that were given are returned again, love becomes harmony, identities devolve the struggle to be separated becomes a beautiful event of surrender peace and placidity.<br>
 </p>
