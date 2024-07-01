@@ -1,10 +1,10 @@
 ---
-title: '2019-0000 Poem &#8216;The Holy Spiriti&#8217; by Rosalyn Tildesley, Congleton'
-date: 2024-02-14
-permalink: /folder/2024-0214-DA-Adi-Shakti
+title: '2019-0000 Poem &#8216;The Holy Spiriti&#8217; by Rosalyn Anne Tildesley, Congleton'
+date: 2019-07-01
+permalink: /folder/2019-0701-0000-RAT-The-Holy-Spirit
 tags:
   - black @ Poetry
-  - blue @ Rosalyn Tildesley
+  - blue @ Rosalyn Anne Tildesley
   - brown @ 2019
   - cornflowerblue @ Congleton
   - green @ Story of Poem The Holy Spirit
