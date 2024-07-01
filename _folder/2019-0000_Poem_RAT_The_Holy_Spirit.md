@@ -38,7 +38,7 @@ When I surrender my last breath unto You - may we play together, in Your World, 
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2024-0702 WhatsApp message to CCT:</b> "The poem was written during Summer 2019.<br>
+  <list-item color="BlanchedAlmond"  width="280"><b>2024-0701 WhatsApp message to CCT:</b> "The poem was written during Summer 2019.<br>
 I wrote it after morning meditation one day at my home in Congleton, Cheshire.<br>
 The Summer Rain was gently falling outside my window and I’d felt close to Shri Mataji during meditation."</list-item>
 </wave-list>
