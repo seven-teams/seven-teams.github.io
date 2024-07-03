@@ -1,7 +1,7 @@
 ---
 title: 'Archive Post 20: Australian Sahaja Newsletter, Part 4 (2000)'
-date: 2023-12-17
-permalink: /archives/2023/1217
+date: 2024-07-03
+permalink: /archives/2024/0703
 tags:
   - darkblue @ Australian Sahaja Newsletter
   - red @ Archive
