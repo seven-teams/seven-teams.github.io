@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 2 Photos of the event <font color="Crimson"><b>1970-0000 Visit of Rommel Varma, Mumbai, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
-Direct link to all 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1970/"> 1970 Collection</a>.<br>
+Direct link to all 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1970/"> Collection 1970</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>

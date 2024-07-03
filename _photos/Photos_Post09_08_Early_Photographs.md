@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 1 new Photo of the event <font color="Crimson"><b>1968-0500 Hosting a Dinner Party, Mumbai, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
-One direct link to the Photo: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1968/"> 1968 Collection</a>.<br>
+One direct link to the Photo: <a href="https://eternalmoments.smugmug.com/Collections/Mrs-Kalpana-Srivastava-Collection/1968/"> Collection 1968</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>
