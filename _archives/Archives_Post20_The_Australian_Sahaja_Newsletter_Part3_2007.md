@@ -94,7 +94,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>2007THEAUSSAHYOGNEW12.</b></font> <b>2007-1026 and 1102 The Sahaja Yoga Australian Newsletter (Gerald Sullivan Collection)</b> (6 pages, original file, uploaded on 2024-0706)
 
-<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2007-1026_and_1102_The_Australian_Sahaja_Yoga_Newsletter_(David_Morgan_Collection).pd" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2007-1026_and_1102_The_Australian_Sahaja_Yoga_Newsletter_(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
