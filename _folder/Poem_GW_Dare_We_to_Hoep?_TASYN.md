@@ -4,7 +4,7 @@ date: 2007-08-01
 permalink: /folder/2007-0801-0000-JMW-Mothers-Arrival
 tags:
   - black @ Poetry
-  - blue @ J. M. Watling
+  - blue @ Gloria Webb
   - brown @ 2007
   - cornflowerblue @ Cairns
   - deeppink @ 2007-0817 The Australian Sahaja Yoga Newsletter 

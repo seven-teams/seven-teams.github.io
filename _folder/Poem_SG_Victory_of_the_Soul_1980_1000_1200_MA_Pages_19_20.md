@@ -1,10 +1,10 @@
 ---
-title: 'Poem &#8216;The Victory of the Soul&#8217; by a Western Sahaja Yogi from 1980-1000 and 1200 Maha Avatar, Pages 19 and 20'
+title: 'Poem &#8216;The Victory of the Soul&#8217; by S. Ganeshan from 1980-1000 and 1200 Maha Avatar, Pages 19 and 20'
 date: 1980-10-01
 permalink: /folder/1980-1001-1000-1200-MA-SG-The-Victory-of-the-Soul
 tags:
   - black @ Poetry
-  - blue @ S. Ganesan
+  - blue @ S. Ganeshan
   - brown @ 1980
   - cornflowerblue @ New Delhi
   - deeppink @ 1980-1000 and 1200 Maha Avatar
