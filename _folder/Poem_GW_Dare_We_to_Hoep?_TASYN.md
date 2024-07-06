@@ -1,7 +1,7 @@
 ---
 title: 'Poem &#8216;Dare We to Hope?&#8217; by Gloria Webb, Cairns from the 2007-0817 The Australian Sahaja Yoga Newsletter, Page 3'
 date: 2007-08-01
-permalink: /folder/2007-0801-0000-JMW-Mothers-Arrival
+permalink: /folder/2007-0801-0000-GB-Dare-We-to-Hope
 tags:
   - black @ Poetry
   - blue @ Gloria Webb
