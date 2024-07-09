@@ -1,5 +1,5 @@
 ---
-title: 'Photos Post 29: Special Events (after 1975), Part 91'
+title: 'Photos Post 29: Special Events (after 1975), Part 92'
 date: 2024-07-07
 permalink: /photos/2024/0707-c
 tags:
