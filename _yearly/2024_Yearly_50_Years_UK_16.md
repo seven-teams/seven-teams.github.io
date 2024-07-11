@@ -21,7 +21,7 @@ tags:
 "Today, it's a great day that you are here to worship your Guru in the realm of-f Hea... the Heart of the Universe. If we can do that in our domain of the heart, we don't have to do anything else.<br>
 ......<br>
 That is how the Sahaja Yoga today is working out in all directions, if you find, to put all upside-down things into right direction, to expose it to reality, to bring all real values, to abolish all n... rotten value systems, all political, economic systems, all s-spiritual theologies, all psychological and all such nonsensical [some laughter] ideas into its proper direction.<br>
-How in one In a ... Incarnation it has worked out. You can imagine: how in one Incarnation all these ideas s... have been put right.<br>
+How in one In-a... Incarnation it has worked out. You can imagine: how in one Incarnation all these ideas s... have been put right.<br>
 ......<br>
 Sahaja Yoga must grow within you. You should not be, anymore, regarded as immature Sahaja Yogis. I would say: a person who is a matured Sahaja Yogi is the one who can combine so many things together, with all beautiful lines, thin lines, thin maryādās maintained.<br>
 But you cannot do the other way round!<br>
