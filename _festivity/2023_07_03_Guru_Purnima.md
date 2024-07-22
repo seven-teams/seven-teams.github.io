@@ -32,7 +32,7 @@ By applying his mind with constant zeal to the Guru's teaching<br>
 </p>
 
 <p>
-<font color="DarkRed">"<b>Today is a day peoples ... this is created by human beings and not by God, as Guru Pūrṇimā. Because as God has created days of Their advent, human beings have created days of their surrendering.</b> So this is the day when you have to give something to the Guru, and Guru does not have to give anything to you. This is the time you have to say: `What you are going to give? What you are going to do for your Guru?' Because so far the Guru has been giving.<br>
+<font color="DarkRed">"<b>Today is a day people's ... this is created by human beings and not by God, as Guru Pūrṇimā. Because as God has created days of Their advent, human beings have created days of their surrendering.</b> So this is the day when you have to give something to the Guru, and Guru does not have to give anything to you. This is the time you have to say: `What you are going to give? What you are going to do for your Guru?' Because so far the Guru has been giving.<br>
 If you are in meditation, supposing you say, `We'll meditate because Guru Pūrṇimā is there,' that's not the way the Guru Pūrṇimā is to be celebrated. Because if you meditate, you are taking from Me. If you try to correct yourself, you are taking from Me. If you are going to get cured, you are taking from Me.<br>
 So now what can you do for Me? Is the point, you have to think about it. `What can you do?'<br>
 Now I have sent the same question to India, to find ... I asked them to find out: `What can you do for Me?'<br>
