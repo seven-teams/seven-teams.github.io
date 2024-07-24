@@ -1,10 +1,10 @@
 ---
-title: 'Poem (Nursery Rhyme) by Edward Saugstad'
+title: 'Poem (Limerick) by Edward Saugstad'
 date: 2024-07-01
-permalink: /folder/2024-0701-ES-Nursery-Rhyme
+permalink: /folder/2024-0701-0700-ES-Limerick-Poem
 tags:
   - black @ Poetry
-  - black @ Nursery Rhymes  
+  - black @ Limerick Poems
   - blue @ Edward Saugstad
   - brown @ 2024
   - cornflowerblue @ TBD
@@ -23,7 +23,7 @@ And found that he'd healed his liver!
 
 <br>
 
-<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_(Nursery_Rhyme)_by_Edward_Saugstad.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/2024-0700_Poem_(Limerick)_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 
