@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 9: Early Photographs (before 1976), Part 24'
 date: 2024-07-25
-permalink: /photos/2024/0725
+permalink: /photos/2024/0725-a
 tags:
   - blue @ Early Photographs
   - crimson @ Photographs of Shri Mataji
