@@ -11,7 +11,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1989-1222 Procession, before Public Program, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 high resolutions from the Named Collections.<br>
-The direct link to the 113 Photos of the in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1989"><font color="DarkGreen">India 1989</font></a>.<br>
+The direct link to the 113 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1989"><font color="DarkGreen">India 1989</font></a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
