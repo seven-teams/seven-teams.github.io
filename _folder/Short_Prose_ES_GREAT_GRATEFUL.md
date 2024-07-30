@@ -13,7 +13,7 @@ tags:
 
 <br>
 
-<p style="text-align:center;">
+<p>
 the only way<br>
 &emsp;&emsp;to become truly great<br>
 <br>
