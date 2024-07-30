@@ -1,5 +1,5 @@
 ---
-title: '2018-0000 Short Prose &#8216;Bowing at Shri Mataji#8217s Lotus Feet&#8217; by Edward Saugstad'
+title: '2018-0000 Short Prose &#8216;Bowing at Shri Mataji#8217;s Lotus Feet&#8217; by Edward Saugstad'
 date: 2018-10-13
 permalink: /folder/2018-1013-ES-Bowing-at_Shri_Matajis-Lotus-Feet
 tags:
