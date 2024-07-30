@@ -1,7 +1,7 @@
 ---
 title: 'Poem &#8216;To My Dearest Family&#8217; by Celeste Jones from the 2006-0414 The Australian Sahaja Yoga Newsletter, Page 4'
 date: 2006-04-01
-permalink: /folder/2006-0401-CJ-To-My-Dear-Family
+permalink: /folder/2006-0401-CJ-To-My-Dearest-Family
 tags:
   - black @ Poetry
   - blue @ Celeste Jones
