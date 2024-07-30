@@ -3,7 +3,7 @@ title: 'Folder Post 2: Short Prose Pieces Monthly Newsletter, July 2024'
 date: 2024-07-30
 permalink: /folder/2024/0730-b
 tags:
-  - crimson @ Poems Monthly Newsletter
+  - crimson @ Short Prose Monthly Newsletter
 ---
 
 <p>
