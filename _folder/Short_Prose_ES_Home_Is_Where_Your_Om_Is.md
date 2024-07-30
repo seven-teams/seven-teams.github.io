@@ -1,5 +1,5 @@
 ---
-title: 'Short Prose &#8216;&#8217; by Edward Saugstad'
+title: 'Short Prose &#8216;Home Is Where Your Om Is&#8217; by Edward Saugstad'
 date: 2024-02-07
 permalink: /folder/2024-02-07-ES-Home_Is-Where-Your-Om-Is
 tags:
@@ -7,21 +7,29 @@ tags:
   - blue @ Edward Saugstad
   - brown @ 2024
   - cornflowerblue @ TBD
-  - maroon @ Blossoms
-  - maroon @ Cherry
-  - maroon @ Fulfilment
-  - maroon @ Shri Mataji  
+  - maroon @ Home
+  - maroon @ Is  
+  - maroon @ Om
+  - maroon @ Where
+  - maroon @ Your 
 ---
 
 <br>
 
-<p style="text-align:center;">
+<p>
+<font color="LimeGreen">H</font><font color="GoldenRod">OM</font><font color="LimeGreen">E IS</font><br>
+&emsp;&emsp;<font color="LimeGreen">WHERE YOUR</font><br>
 <br>
+<br>
+<br>
+<br>
+<br>
+&emsp;&emsp;&emsp;<font color="GoldenRod">OM</font> <font color="LimeGreen">IS</font><br>
 </p>
 
 <br>
 
-<div style="text-align: center"><img src="" /></div>
+<div style="text-align: center"><img src="https://pub-d2961b45870447fba8dbefdcd37b9c76.r2.dev/Short_Prose_'Home_Is_Where_Your_Om_Is'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 

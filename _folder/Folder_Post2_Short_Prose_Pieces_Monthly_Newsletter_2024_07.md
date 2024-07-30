@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-To start Step 8, the following 5 short prose pieces have been uploaded this month.<br>
+To start Step 8, the following 8 short prose pieces have been uploaded this month.<br>
 1. <a href="https://seven-teams.github.io/folder/1994-1208-RAT"> <font color="DeepPink"><b>Short Prose</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/2018-1013-ES-Bowing-at_Shri_Matajis-Lotus-Feet"> <font color="DeepPink"><b>Bowing at Shri Mataji's Lotus Feet</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/2024-02-07-ES-Fulfilment"> <font color="DeepPink"><b>Fulfilment - Shri Mataji in cherry blossoms</b></font></a><br>

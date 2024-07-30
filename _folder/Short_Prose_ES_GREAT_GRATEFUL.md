@@ -1,5 +1,5 @@
 ---
-title: 'Short Prose &#8216;&#8217; by Edward Saugstad'
+title: 'Short Prose &#8216;Great-Grateful&#8217; by Edward Saugstad'
 date: 2024-02-07
 permalink: /folder/2024-02-07-ES-Great-Grateful
 tags:
@@ -7,21 +7,34 @@ tags:
   - blue @ Edward Saugstad
   - brown @ 2024
   - cornflowerblue @ TBD
-  - maroon @ Blossoms
-  - maroon @ Cherry
-  - maroon @ Fulfilment
-  - maroon @ Shri Mataji  
+  - maroon @ Grateful
+  - maroon @ Great
 ---
 
 <br>
 
 <p style="text-align:center;">
+the only way<br>
+&emsp;&emsp;to become truly great<br>
 <br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;is to be<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;truly grateful<br>
 </p>
 
 <br>
 
-<div style="text-align: center"><img src="" /></div>
+<div style="text-align: center"><img src="https://pub-d2961b45870447fba8dbefdcd37b9c76.r2.dev/Short_Prose_'GREAT-GRATEFUL_-_Lincoln_in_his_Himalayan_element'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 
