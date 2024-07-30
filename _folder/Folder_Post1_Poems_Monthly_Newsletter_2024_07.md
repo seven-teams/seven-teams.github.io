@@ -1,7 +1,7 @@
 ---
 title: 'Folder Post 1: Poems Monthly Newsletter, July 2024'
 date: 2024-07-30
-permalink: /folder/2024/0730
+permalink: /folder/2024/0730-a
 tags:
   - crimson @ Poems Monthly Newsletter
 ---

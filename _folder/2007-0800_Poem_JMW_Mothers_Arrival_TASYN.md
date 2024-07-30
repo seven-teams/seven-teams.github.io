@@ -1,5 +1,5 @@
 ---
-title: '2007-0800 Poem &#8216;Mother's Arrival&#8217; by J. M. Watling from the 2007-0824 and 0831 The Australian Sahaja Yoga Newsletter, Page 6'
+title: '2007-0800 Poem &#8216;Mother&#8217s Arrival&#8217; by J. M. Watling from the 2007-0824 and 0831 The Australian Sahaja Yoga Newsletter, Page 6'
 date: 2007-08-01
 permalink: /folder/2007-0801-0000-JMW-Mothers-Arrival
 tags:
