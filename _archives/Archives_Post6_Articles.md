@@ -23,7 +23,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>A1.</b></font> <b>1986-0000 Biography 'Her Holiness Shri Mataji Nirmala Devi Loving Mother of Thousands of Sahaja Yogis' Written Based on Series of Talks with Śhrī Mātājī by Yogi Mahajan, Pune, Maharashtra, India</b> (11 pages, uploaded on 2024-0731)
+<font color="DarkGreen"><b>A1.</b></font> <b>1986-0000 Biography 'Her Holiness Shri Mataji Nirmala Devi Loving Mother of Thousands of Sahaja Yogis' Written Based on Series of Talks with Śhrī Mātājī by Yogi Mahajan, Pune, Maharashtra, India (Yogi Mahajan Collection)</b> (11 pages, uploaded on 2024-0731)
 
 <div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-0000_Biography_'Her_Holiness_Shri_Mataji_Nirmala_Devi_Loving_Mother_of_Thousands_of_Sahaja_Yogis'_Written_Based_on_Series_of_Talks_with_Shri_Mataji_by_Yogi_Mahajan_Pune_Maharashtra_India_(Yogi_Mahajan_Collection).pdf" /></div>
 
