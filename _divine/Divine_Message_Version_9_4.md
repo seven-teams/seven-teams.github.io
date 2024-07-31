@@ -23,3 +23,5 @@ The Comprehensive Compilations Team (the Divine Message Subteam)<br>
 sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
+
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/Divine%20Message%2C%20Version%209.4.pdf" width="1000px" height="1000px"></iframe>

@@ -12,7 +12,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that a new 3 pages letter <font color="Crimson"><b>1985-1112 Letter (Hindi), London, UK</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 medium resolutions from the Named Collections.<br>
-The direct link to the letter in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/Handwritings"> Collection Handwritings</a>.<br>
+The direct link to the letter in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/Handwritings-1975-to-2012"> Collection Handwritings</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
