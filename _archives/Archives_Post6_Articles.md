@@ -25,17 +25,13 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A1.</b></font> <b>1986-0000 Biography 'Her Holiness Shri Mataji Nirmala Devi Loving Mother of Thousands of Sahaja Yogis' Written Based on Series of Talks with Śhrī Mātājī by Yogi Mahajan, Pune, Maharashtra, India (Yogi Mahajan Collection)</b> (11 pages, uploaded on 2024-0731)
 
-<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-0000_Biography_Her_Holiness_Shri_Mataji_Nirmala_Devi_Loving_Mother_of_Thousands_of_Sahaja_Yogis_by_Yogi_Mahajan_Pune_Maharashtra_India_(Yogi_Mahajan_Collection).pdf" /></div>
+<iframe src="/pdf/?usedownload=true#/files/1986-0000_Biography_Her_Holiness_Shri_Mataji_Nirmala_Devi_Loving_Mother_of_Thousands_of_Sahaja_Yogis_by_Yogi_Mahajan_Pune_Maharashtra_India_(Yogi_Mahajan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
 <font color="DarkGreen"><b>A2.</b></font> <b>1989-1212 Article 'A yogin from the USSR' by a Staff reporter published in daily newspaper 'The Statesman', New Delhi, India (Karan Khurana Collection)</b> (1 page, uploaded on 2024-0229)
 
 <div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1989-1212_Article_'A_yogin_from_the_USSR'_by_a_Staff_reporter_published_in_daily_newspaper_'The_Statesman'_New_Delhi_India_(Karan_Khurana_Collection).jpg" /></div>
-
-<br>
-
-<iframe src="/pdf/?usedownload=true#/files/1986-0000_Biography_Her_Holiness_Shri_Mataji_Nirmala_Devi_Loving_Mother_of_Thousands_of_Sahaja_Yogis_by_Yogi_Mahajan_Pune_Maharashtra_India_(Yogi_Mahajan_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
