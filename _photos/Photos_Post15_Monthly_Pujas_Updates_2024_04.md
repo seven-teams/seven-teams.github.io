@@ -12,7 +12,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 This month 26 new Photos were uploaded to 9 Pūjas as follows (19 high resolutions, 6 medium resolutions, and 1 low resolution).<br>
-(i) 1980-011x Pūjā: 1 high resolution and 1 medium resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1980"> <font color="DarkGreen"><b>India 1980</b></font></a>.<br>
+(i) 1980-0118 Pūjā: 1 high resolution and 1 medium resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1980"> <font color="DarkGreen"><b>India 1980</b></font></a>.<br>
 (ii) 1981-0114 Makar Saṅkrānti Pūjā: 8 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1981"> <font color="DarkGreen"><b>India 1982</b></font></a>.<br>
 (iii) 1981-0321 Birthday Pūjā: 1 high resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Australia/1981"> <font color="DarkGreen"><b>Australia 1981</b></font></a>.<br>
 (iv) 1989-0719 Śhrī Paramachaitanya Pūjā: 1 low resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Germany/1989"> <font color="DarkGreen"><b>Germany 1989</b></font></a>.<br>
