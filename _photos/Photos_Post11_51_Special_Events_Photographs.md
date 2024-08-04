@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo from the special event <font color="Crimson"><b>1982-0700 With Family and Workshop, London, UK </b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 low resolution from the Named Collections.<br>
-The direct link to the Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/John-Watkinson-Collection/1982/"> Collection 1982</a>.<br>
+We are pleased to let you know that 2 Photos from the special event <font color="Crimson"><b>1982-0700 With Family and Workshop, London, UK </b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 low resolution from the Named Collections.<br>
+The direct link to the 2 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/UK/1982-01-to-09/"> UK 1982-01 to 09</a>.<br>
+[Note: 1 Photo uploaded only on 2024-0804.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
