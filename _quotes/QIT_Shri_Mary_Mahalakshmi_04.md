@@ -10,7 +10,7 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-<font color="red"> [<b>Page 251 footnote:</b>] "After His assumption, Christ descended on this Earth in a hidden place while the Holy Spirit [Śhrī Mary Mahālakṣhmī] stayed back to inspire the faith of the early Christians. After Her assumption She joined Her Son and They lived together for many years in Kashmir. They are buried there."</font><br>
+[<b>Page 251 footnote:</b>] <font color="red">"After His assumption, Christ descended on this Earth in a hidden place while the Holy Spirit [Śhrī Mary Mahālakṣhmī] stayed back to inspire the faith of the early Christians. After Her assumption She joined Her Son and They lived together for many years in Kashmir. They are buried there."</font><br>
 <font size="+0"><b>1900-0000 Quotes from the book The Advent (2002 edition) by Grégoire de Kalbermatten</b></font>
 </p>
 
