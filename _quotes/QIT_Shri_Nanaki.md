@@ -32,7 +32,7 @@ tags:
 
 <p>
 <font color="red">"So we have to understand that if we are committing this kind of foolish thing, also can be forgiven by God because He is the Ocean of Forgiveness. She is Guru Nāṇakī. She is Dayā Sāgar [Ocean of Compassion]. He has to do it because He has to complete His creation."</font><br>
-<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5--12</b></font>
+<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5&#8211;12</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -87,7 +87,7 @@ Now think of it: that those people who cannot understand the importance of chast
 <div class="para-divider"></div>
 
 <p>
-"So when we read about the Devī, about Her Incarnations -- how She came on this Earth to save Her bhaktas, people who were trying to ascend, to cross this Bhavasāgara, how She worked hard, how She fought the devils, how She cough... She killed the demons, single-handed -- She took upon Herself the responsibility of making the people cross the Bhavasāgara.<br>
+"So when we read about the Devī, about Her Incarnations &#8211; how She came on this Earth to save Her bhaktas, people who were trying to ascend, to cross this Bhavasāgara, how She worked hard, how She fought the devils, how She cough... She killed the demons, single-handed &#8211; She took upon Herself the responsibility of making the people cross the Bhavasāgara.<br>
 Guru gave you the strength to have dharma but She is the One who brought you out. Even those who were dhārmik could not do it because of the demonic pressure. She's the One who fought, single-handed, with Her Powers of destruction. In Her Love for you She fought. She brought you to this level.<br>
 <font color="red">And then She took a milder form of Incarnation. Even during the time of all the Gurus, She took the Form of, as you know: Jānakī was the daughter of Janaka, then Fāṭimah was the daughter of Muhammad Sāhab, and Nāṇakī was the sister of Nāṇaka. In those Forms, these Powers s... sustained and nourished the Guru Tattwa. And later on, or sometimes simultaneously, They incarn-ated in milder forms to help human beings to rise.</font>"<br>
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Switzerland</b></font>
@@ -104,7 +104,7 @@ Guru gave you the strength to have dharma but She is the One who brought you out
 
 <p>
 <font color="red">"Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā)."</font><br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God</b></font>
 </p>
 
 <div class="para-divider"></div>

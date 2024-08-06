@@ -38,11 +38,11 @@ And the uh-uh-uh ... the Buddhist felt that, 'People wouldn't give Her up, becau
 <p>
 <font color="red"><b>Śhrī Mātājī:</b></font> We have Chinese also who are very wise. And the ... they are known to be people of deep understanding. But they are not like Indians.<br>
 So, what is lacking in all these people is: the depth of awareness. <font color="red">Because-ss, though in China also Mother of Mercy came, and She really uh-uh-uh bestowed blessings upon them, and China rose also, afterwards, into her own glory and became quite a good industrial, I mean developed country, we can say, very powerful, but still, that kind of regimentation could not be borne. Because, after all, Mother Mercy was there.</font><br>
-<font color="red">Do you know last -- you have one Mother Mercy to give ... you have given Me ...</font><br>
+<font color="red">Do you know last &#8211; you have one Mother Mercy to give ... you have given Me ...</font><br>
 <b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> Ahh?<br>
 <b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>
-<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Or Kuan Yin [Guānyīn], same thing. Kuan Yin [Guānyīn] -- and She's the same thing, called as Mother of Mercy.</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Or Kuan Yin [Guānyīn], same thing. Kuan Yin [Guānyīn] &#8211; and She's the same thing, called as Mother of Mercy.</font><br>
 And the second one was given by Grégoire recently.<br>
 And you see what's happening in China now.<br>
 So the effects of these Deities which existed in different countries at different times, are felt only in Kali Yuga in the best way.<br>
@@ -109,7 +109,7 @@ I don't know if even Japanese worshiped Her or not. They did?</font><br>
 
 <p>
 <font color="red">"After Her Incarnation as Sītā She was born and lived in China as Kuan Yin [Guānyīn], the Mother of Mercy, as a virgin."</font><br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God</b></font>
 </p>
 
 <div class="para-divider"></div>

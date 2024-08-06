@@ -90,7 +90,7 @@ Till today, these people who were of a higher state, who would take birth in a h
 
 <p>
 "Then comes the most important part of our body, is the stomach. It represents the Bhavasāgara. Is the māyā, in which we are placed.<br>
-We are born in this Bhavasāgara, when Śhrī Vriṣhṇu [Viṣhṇu] Himself incarnates again and again -- you have seen as Matsya Avatāra, Kūrma Avatāra -- and He Himself leads the human beings in their evolutionary path.<br>
+We are born in this Bhavasāgara, when Śhrī Vriṣhṇu [Viṣhṇu] Himself incarnates again and again &#8211; you have seen as Matsya Avatāra, Kūrma Avatāra &#8211; and He Himself leads the human beings in their evolutionary path.<br>
 <font color="red">He is helped by another, another Deity, whom we call as Primordial Guru: the Ādi Guru Dattātreya.</font><br>
 Śhrī Viṣhṇu rises from Bhavasāgara, and gives you the leadership to rise within yourself. He builds up your awareness, step by step, and today you are as ... as a human being.<br>
 ......<br>
@@ -98,7 +98,7 @@ We are born in this Bhavasāgara, when Śhrī Vriṣhṇu [Viṣhṇu] Himself i
 Now He has taken many Incarnations, mainly Ten Incarnations. And these are very important, and we have to understand Them in Their full entirety.<br>
 If you accept Him as Dattātreya, you have to also accept Him as Rāja Janaka.<br>
 It's easy for a Hindu mind to accept Rāja Janaka, but they cannot accept Muhammad Sāhab, who was same as Rāja Janaka. It is a fact which can ... we can prove it on your Kuṇḍalinī.</font><br>
-A person who is suffering from cancer of the stomach -- now this is the thing, when I say that Sahaja Yoga can cure your cancer, you have to give up certain notions that we have in our hear... head.<br>
+A person who is suffering from cancer of the stomach &#8211; now this is the thing, when I say that Sahaja Yoga can cure your cancer, you have to give up certain notions that we have in our hear... head.<br>
 <font color="red">A person, eh supposing he's a Hindu, and he's suffering from the stomach cancer, I have to ask him to take the name of Muhammad Sāhab. If I fail to ask him or if I convince ... do not him ... convince Him, I cannot cure his can't ... cancer. I'm sorry, I tell him, 'I just cannot do it.' But if he is a Muslim, I have to tell him: 'You have to take the name of Dattātreya.'</font><br>
 Human beings, like fools, have taken away the living flowers of one tree, and now are fighting on something that is dead.<br>
 <font color="red">He was Dattātreya. There is no doubt about it.</font><br>
@@ -297,9 +297,9 @@ There is no difference between Muhammad Sāhab and Guru Nāṇak. When Muhammad 
 "About Me also you can ask questions. There are many ways of recognizing because in this life, you have to recognize. You have never recognized an Incarnation so far. You have to recognize.<br>
 That is compulsory and that is done through Sahajs Yoga because unless and until you are realized, how are [you] going to recognize Them also?<br>
 But even if you have not recognized Them, there was no need for you to crucify Them or to torture.<br>
-<font color="red">Then all the Gurus who came on this Earth, the Real Ones -- fakes are never gurus, they are not gurus -- the Real Ones that came on this Earth, say, we can say Moses, Abraham, Nāṇak, Muhammad Sāhib, Kabīr, all these are Incarnations of Primordial Master whom we call as Dattātreya.</font><br>
+<font color="red">Then all the Gurus who came on this Earth, the Real Ones &#8211; fakes are never gurus, they are not gurus &#8211; the Real Ones that came on this Earth, say, we can say Moses, Abraham, Nāṇak, Muhammad Sāhib, Kabīr, all these are Incarnations of Primordial Master whom we call as Dattātreya.</font><br>
 <font color="red">If They are or not, if Muhammad Sāhib and Guru Nāṇak are the same personality, same people who came in different times, then what justice are we doing to Them?</font> How are we to find out? How are you to believe Me about it?"<br>
-<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5--12</b></font>
+<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5&#8211;12</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -397,7 +397,7 @@ But there are Ten, which are here, which are described as [the] Ten Commandments
 
 <p>
 "Today I would like to say about this chakra especially that is the ... what we call the Nābhī chakra, is the central path of our evolution where you start your seeking and youge [you] cross over to [the] other side.<br>
-Now, surrounding this you will find there is the Ocean of Illusion. <font color="red">And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya -- is the Primordial Master. And He incarnated on this Earth many a times. At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze. Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.<br>
+Now, surrounding this you will find there is the Ocean of Illusion. <font color="red">And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya &#8211; is the Primordial Master. And He incarnated on this Earth many a times. At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze. Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.<br>
 So the same Great Principle of this Primordial Master has incarnated because without a master, how will you be taken away from in ... this illusion? How you are going to be exposed to that reality which you do not feel?</font><br>
 What has to happen to you is that you have to become more sensitive, more open, awakened, enlightened to feel that's All-pervading Power around you.<br>
 <font color="red">Now, these [masters] came again and again and told you that you must look after your dharma.<br>
@@ -498,9 +498,9 @@ So there's no question of differentiating each other, nor on countrywise, nothin
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one teacher God, the Primordial Master, Dattātreya. He came onto this Earth to teach people the secrets of the Divine, to reveal God, and to help them cross the Ocean of Illusion themselves within their own identity. Evolution could not go further in the hands of human beings who were in the bondage of ignorance, so they were given guidance through this Incarnation of the Primordial Master (Ādi Guru) again and again in different lives. He was created as the three-headed child, Dattātreya, by Ādi Śhakti who appeared on Earth during the Tretā Yuga as Satī Anasūyā, wife of the Sage Atreya. He was born as Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara] who founded Jainism -- one of the oldest religions. Then he was born as Rāja Janaka, father of Jānakī also called Sītā, Rāma's wife. She was an Incarnation of Ādi Śhakti.<br>
+<font color="red">"Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one teacher God, the Primordial Master, Dattātreya. He came onto this Earth to teach people the secrets of the Divine, to reveal God, and to help them cross the Ocean of Illusion themselves within their own identity. Evolution could not go further in the hands of human beings who were in the bondage of ignorance, so they were given guidance through this Incarnation of the Primordial Master (Ādi Guru) again and again in different lives. He was created as the three-headed child, Dattātreya, by Ādi Śhakti who appeared on Earth during the Tretā Yuga as Satī Anasūyā, wife of the Sage Atreya. He was born as Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara] who founded Jainism &#8211; one of the oldest religions. Then he was born as Rāja Janaka, father of Jānakī also called Sītā, Rāma's wife. She was an Incarnation of Ādi Śhakti.<br>
 The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. In China He was born as Confucius and as Lao Tze, and in Greece as Socrates. He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."</font><br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Pages 32 and 33</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God, Pages 32 and 33</b></font>
 </p>
 
 <div class="para-divider"></div>

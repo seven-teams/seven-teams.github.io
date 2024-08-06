@@ -190,7 +190,7 @@ In the life of Jesus Christ, the highest expression of the essence of spiritual 
 When one takes the name of Śhrī Kṛiṣhṇa one has to take the name of Rādhā first, so a seeker recites the mantra to the Virāṭa as 'Rādhā-Kṛiṣhṇa'. Similarly Sītā's name has to be taken before Rāma's for the mantra 'Sītā-Rāma'. Even the Virgin Mary (<i>Kanyā</i>) who was so quiet and potential at the time of Christ, was recognized later on by His disciples as the Power behind Him. She was worshiped for many years after Her death by early Christians. In modern times human beings who are satanic personalities are challenging the validity of the Primordial Mother's virginity and the Virgin Birth in particular. Mary has clearly shown the power of virginity that can raise a mother to such an exalted powerful position that she can conceive a child by desire alone. She had reached that high stage of evolution when by Her Divine Will, She could immaculately conceive. There are other such instances in Hindu purāṇik literature when Kuntī, by the wish of the Mantra, gave birth to the Pāṇḍavas and to Karṇa immaculately.<br>
 Rādhā had created Her Only Son, Mahāviṣhṇu, in the Vaikuṇṭha Stage but as Rādhā She could not conceive a child because She was unmarried. As Mary, though, She conceived Her child outside marriage in complete virginity. This is an expression of the power of virginity, the sinless Immaculate Conception. In Mary's life the greatest advancement in social consciousness regarding the power of chastity came about, and society went through yet another evolution. Though a virgin She was raised to such an exalted position by the birth of Christ that She was acceptable to public opinion as the Mother of God, not just then but still today.<br>
 Through a deeper understanding of Sahaja Yoga the reader will grasp the simplicity of the Immaculate Conception. Mary proved She was the Primordial Mother by conceiving the child in Her Sacred Heart (Primordial Heart Chakra). The Sacred Heart is the place where the Mother of the Universe (Jagadambā) exists. In the same way that She conceived the universe She also conceived Jesus Christ, and moved it through the Ādi Suṣhumṇā Nāḍī into the Ādi Swādhiṣhṭhān Chakra which controls the Primordial Uterus (<i>Kumbha</i>) to give Him human birth as a baby. In that divine heaven of creativity the Immaculate Conception took the form of a zygote egg (<i>Aṇḍam</i>). It remained in that state for many ages (<i>Kalpas</i>) until Ādi Śhakti took birth as Mary. She then manifested it as Jesus Christ. It was not difficult for Ādi Śhakti to do that. Unfortunately the greatness of Her Powers was only recognized after She departed from the Earth."</font><br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -208,8 +208,8 @@ Through a deeper understanding of Sahaja Yoga the reader will grasp the simplici
 These Deities also manifest Śhrī Kṛiṣhṇa with His Power Rādhā, and the Lord Jesus Christ, whose Power is His Mother Mary (Mahālakṣhmī Herself).<br>
 ......<br>
 The other Deities remain on their different centers:<br>
-&emsp;1. <i>Sahasrāra chakra</i> -- Ādi Śhakti Herself<br>
-&emsp;2. <i>Āgñyā chakra</i> -- Jesus Christ + His Mother Mary<br>
+&emsp;1. <i>Sahasrāra chakra</i> &#8211; Ādi Śhakti Herself<br>
+&emsp;2. <i>Āgñyā chakra</i> &#8211; Jesus Christ + His Mother Mary<br>
 ......"</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 9: The Creation of Kuṇḍalinī in Human Beings</b></font>
 </p>

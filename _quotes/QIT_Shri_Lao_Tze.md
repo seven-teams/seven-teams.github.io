@@ -134,7 +134,7 @@ Transformation doesn't mean that you are sitting like a normal person, you start
 
 <p>
 "Today I would like to say about this chakra especially that is the ... what we call the Nābhī chakra, is the central path of our evolution where you start your seeking and youge [you] cross over to [the] other side.<br>
-Now, surrounding this you will find there is the Ocean of Illusion. And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya -- is the Primordial Master. And He incarnated on this Earth many a times. <font color="red">At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze.</font> Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.<br>
+Now, surrounding this you will find there is the Ocean of Illusion. And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya &#8211; is the Primordial Master. And He incarnated on this Earth many a times. <font color="red">At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze.</font> Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.<br>
 So the same Great Principle of this Primordial Master has incarnated because without a master, how will you be taken away from in ... this illusion? How you are going to be exposed to that reality which you do not feel?<br>
 What has to happen to you is that you have to become more sensitive, more open, awakened, enlightened to feel that's All-pervading Power around you.<br>
 Now, these [masters] came again and again and told you that you must look after your dharma.<br>
@@ -322,7 +322,7 @@ So many religions have started, in the name of God, without going to the Truth, 
 
 <p>
 "And you enjoy your virtues, you enjoy your magnanimity, you enjoy your uh-uh-uh generosity. People will tell you, 'Stupid fool, you go on distributing things, what's are you doing?', ah you laugh at them.<br>
-<font color="red">As Lao Tze had said -- somebody told Me this saying about Lao Tze, another Great Incarnation of the Primordial Master -- that, "When a wise sees the way, he respects it and says, 'This is the way.' That's the s-s... sign of a wise man, and a mediocre, who is halfway this way and that way, when he sees the way he waits [for] others to go into it. And when the stupid sees the way, he laughs. But when the wise sees the stupid, in himself, he laughs."</font> "<br>
+<font color="red">As Lao Tze had said &#8211; somebody told Me this saying about Lao Tze, another Great Incarnation of the Primordial Master &#8211; that, "When a wise sees the way, he respects it and says, 'This is the way.' That's the s-s... sign of a wise man, and a mediocre, who is halfway this way and that way, when he sees the way he waits [for] others to go into it. And when the stupid sees the way, he laughs. But when the wise sees the stupid, in himself, he laughs."</font> "<br>
 <font size="+0"><b>1984-0708 Public Program, The Experience of Truth, Part III, Town Hall, Ilford (16 kms E-NE of London), Greater London, UK (another date 0709)</b></font>
 </p>
 
@@ -525,7 +525,7 @@ This is what it is!"<br>
 
 <p>
 "<font color="red">Now the contradiction, again people use, about Śhrī Kṛiṣhṇa, in so many other ways, that it is surprising: that not only Chris-s-s [Christ], not only Muhammad Sāhab, not only Lao Tze, not only Śhrī Rāma but even Kṛiṣhṇa was misused by His followers.</font><br>
-He's the One who is taṭasth, the One -- taṭastha means who stands on the banks of the attention and sees everything, who watches everything. He is the One who is the witness. It described: "Sākṣhi rūpeṇa saṃsthitā," sā... it becomes a sākṣhi, a witness. That's what He has said, "It's a play! it's a play!"<br>
+He's the One who is taṭasth, the One &#8211; taṭastha means who stands on the banks of the attention and sees everything, who watches everything. He is the One who is the witness. It described: "Sākṣhi rūpeṇa saṃsthitā," sā... it becomes a sākṣhi, a witness. That's what He has said, "It's a play! it's a play!"<br>
 But in the name of Kṛiṣhṇa, you'll find all kinds of absurd things people do. They make dramas, they become Kṛiṣhṇas, they become [<font color="orange">unclear</font>] , they make people ..., befool them, make money out of it, or they sell books on the street.<br>
 Like if you go to Southall you'll find so many Westerners wearing funny dresses going round asking for alms from Indians. And Indians say, 'Oh look at that! These beggars, you see they have come to get some, let us give them some money.'' "<br>
 <font size="+0"><b>1986-0823 Talk to Sahaja Yogis, before Dinner and Śhrī Kṛiṣhṇa Pūjā, Hotel Primerose (now Hostellerie am Schwarzsee), Seestrasse 10, Schwarzsee (2k kms SE of Fribourg), Valais, Switzerland</b></font>
@@ -590,7 +590,7 @@ But first you must realize: that you have to be absolutely cleansed out, and giv
 <div class="para-divider"></div>
 
 <p>
-"And in every religion whatsoever, even in Islam it is said, "You have to become a Walī." In Christianity it is said, "You are to be born-again." In Buddhism it is said, "You have to become Buddha," means you should be knowledgeable. In M... Mahāvīra's things He has said, "You must get your Self-realization." <font color="red">Lao Tze has said it.</font> Shouish, just if you start from Socrates onward -- of course, we should forget about Plato and these people because I don't think they had much sense of spirituality -- but most of these people have talked about Self-realization. And there's no religion in which they have not talked about Self-realization. Even in the Judaism or where the ... they believe in the coming of the Savior for their salvation, even they have talked about it."<br>
+"And in every religion whatsoever, even in Islam it is said, "You have to become a Walī." In Christianity it is said, "You are to be born-again." In Buddhism it is said, "You have to become Buddha," means you should be knowledgeable. In M... Mahāvīra's things He has said, "You must get your Self-realization." <font color="red">Lao Tze has said it.</font> Shouish, just if you start from Socrates onward &#8211; of course, we should forget about Plato and these people because I don't think they had much sense of spirituality &#8211; but most of these people have talked about Self-realization. And there's no religion in which they have not talked about Self-realization. Even in the Judaism or where the ... they believe in the coming of the Savior for their salvation, even they have talked about it."<br>
 <font size="+0"><b>1990-0107 Pūjā (English + Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 
 <div class="para-divider"></div>
@@ -1044,7 +1044,7 @@ But how you become a Saint, nobody said. I think, throughout, there has been no 
 
 <p>
 "The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. <font color="red">In China He was born as Confucius and as Lao Tze, and in Greece as Socrates.</font> He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 33</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God, Page 33</b></font>
 </p>
 
 <div class="para-divider"></div>

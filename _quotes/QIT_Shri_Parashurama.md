@@ -10,7 +10,7 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-"It is very surprising that till today My experience with Haṭha Yogis -- there are many Haṭha Yogis in America also -- has been that all of them have heart troubles. It is very surprising. Haṭha Yogis are especially great worshipers of Śhivjī.<br>
+"It is very surprising that till today My experience with Haṭha Yogis &#8211; there are many Haṭha Yogis in America also &#8211; has been that all of them have heart troubles. It is very surprising. Haṭha Yogis are especially great worshipers of Śhivjī.<br>
 <font color="red">The reason is that Haṭha Yoga is not for people leading a worldly life but for those living in the jungles, like Paraśhurām.</font> It is another thing to do a little within balance, but Haṭha Yoga is not meant for you people. If you do it in extreme, then your heart will suffer from problems."<br>
 <font size="+0"><b>1975-1222 Public Program (Hindi), Day 1, Prabhu ke Prem kā Anubhav (Experiences of Lord's Love), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -76,7 +76,7 @@ There was a trick in that. Paraśhurāma is also an Incarnation of Śhrī Viṣh
 Why these two Incarnations came together? Because when Paraśhurāma came, He was a strong man, very strong, fiery, extremely fiery, and in those days people only cared for very strong people. He had captured the hearts of people through His fierce nature.</font><br>
 In human beings there are of different levels at different times.<br>
 <font color="red">Then when Rāma came and when Paraśhurāma recognized Him, then people had to recognize Rāma."</font><br>
-<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5--12</b></font>
+<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5&#8211;12</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -329,7 +329,7 @@ So, I mean, we are much better off, you see? [As laughter starts:] Aren't we?"<b
 
 <p>
 "<font color="red">His sixth form was as the Strong Man (Paraśhurāma). He brought forth the powers achieved by self-control (<i>tapobala</i>).</font> When they were fully evolved human beings developed their 'I'-ness and felt a need to seek the unknown within themselves. They began to think about God, and became aware of the strengths of spiritual life, and started a new search of the inner life. The search was an individual one, and the seeker absolutely secluded himself from society. Many renounced the world and went into complete retreat in the forests and jungles in search of the Ultimate Reality, often pursuing their quest day and night for years on end, and often for life after life. <font color="red">Paraśhurāma was the founder of Haṭha and Rāja Yoga which were practiced all alone under the guidance of a guru.</font>"<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 32</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God, Page 32</b></font>
 </p>
 
 <div class="para-divider"></div>

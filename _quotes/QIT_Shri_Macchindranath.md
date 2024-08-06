@@ -245,7 +245,7 @@ In the Bible also it is there, that, "I'll appear before you like tongues of fla
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b>1997-0406 Public Talk to Doctors, Conference "The Art of Healing and 'Sahaja Yoga' -- A Special Session on Alternative Medicine", Indian Medical Association, FICCI Auditorium, 1 Tansen Mārg, New Delhi, India</b></font>
+<font size="+0"><b>1997-0406 Public Talk to Doctors, Conference "The Art of Healing and 'Sahaja Yoga' &#8211; A Special Session on Alternative Medicine", Indian Medical Association, FICCI Auditorium, 1 Tansen Mārg, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -319,7 +319,7 @@ Chinese people, they believe that there is a treasure of spirituality in India, 
 
 <p>
 "<font color="red">The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis.</font> Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. In China He was born as Confucius and as Lao Tze, and in Greece as Socrates. He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God</b></font>
 </p>
 
 <div class="para-divider"></div>

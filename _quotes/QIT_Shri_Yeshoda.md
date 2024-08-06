@@ -48,7 +48,7 @@ How He was made? If you read Devī Bhāgavat[am] by Mārkaṇḍeya, you will un
 
 <p>
 <font color="red">"His name was Jesus because you know that in UP [Uttar Pradesh] Yaśhodā is called as Jasodā. It is Jasodā's name Rādhājī wanted to give Him and that's why [She] called Him Jesu or Yeśhu."</font><br>
-<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5--12</b></font>
+<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5&#8211;12</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -121,7 +121,7 @@ The manner in which His name Jesus originated is also very interesting. <font co
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">And She [Śhrī Rādhā] is the one who called Him Jesus. Actually, in the Hebrew it is Yesu. And also in the -- thank God, I read the Bible in Marathi, which was directly translated from Hebrew -- Yesu is the name. Yesu is the name of the Mother of Christ, now, Mo... Mother of Śhrī Kṛiṣhṇa. Yesu, means, as we call Her, Jesu or Yesu from Jesodā or Yeśhodā. From that She called Him.</font> And Christ word comes from Kṛiṣhṇa. <font color="red">So She called Him Krista and Yesu or Jesus.</font><br>
+"<font color="red">And She [Śhrī Rādhā] is the one who called Him Jesus. Actually, in the Hebrew it is Yesu. And also in the &#8211; thank God, I read the Bible in Marathi, which was directly translated from Hebrew &#8211; Yesu is the name. Yesu is the name of the Mother of Christ, now, Mo... Mother of Śhrī Kṛiṣhṇa. Yesu, means, as we call Her, Jesu or Yesu from Jesodā or Yeśhodā. From that She called Him.</font> And Christ word comes from Kṛiṣhṇa. <font color="red">So She called Him Krista and Yesu or Jesus.</font><br>
 <font color="red">We, too, call Yeśhodā sometimes Jesu or Yesu.</font><br>
 <font color="red">So She called Him by that name. And that is how She put the link for us to understand how close He was to Śhrī Kṛiṣhṇa.</font>"<br>
 <font size="+0"><b>1993-1225 Christmas Pūjā, Rationality Can Never Make You Understand Divinity, Gaṇapatīpuḷe, Maharashtra, India</b></font>
@@ -147,7 +147,7 @@ The manner in which His name Jesus originated is also very interesting. <font co
 "Ādi Viṣhṇu's eighth form was as Śhrī Kṛiṣhṇa during the Dwāpara Yuga, and again Ādi Śhakti took three forms. Mahākālī lived for a very short time as Viṣhṇumāyā, the infant sister of Śhrī Kṛiṣhṇa. <font color="red">She was actually born as the daughter of Yeśhodā, Śhrī Kṛiṣhṇa's foster mother, and was killed by the demon Kaṃsa.</font> She later took birth as Draupadī, wife of the Pāṇḍavas. <font color="red">Yeśhodā was Herself an Incarnation of Mahāsaraswatī.</font> As Mahālakṣhmī She took two forms, Rādhā and Rukmiṇī. '<i>Rā</i>' means power or energy and '<i>dhā</i>' means sustenance, so the name 'Rādhā' means the one who sustains the power. As Rukmiṇī She became Queen to Śhrī Kṛiṣhṇa, the King in Dvārakā.<br>
 ......<br>
 Rādhā in Mary's Incarnation wanted to give Her Son the name of Her Lord, Kṛiṣhṇa. Kṛiṣhṇa comes from '<i>kṛiṣhi</i>' + '<i>\it ṇa</i>'. '<i>Kṛiṣhi</i>' means farming, '<i>ṇa</i>' means the one who carries. So the name 'Christ' came from the 'kṛiṣhi' in Kṛiṣhṇa. <font color="red">The name Jesus was derived from Jasodā, a form of Yeśhodā, the foster mother of Śhrī Kṛiṣhṇa. Rādhā also wanted to give Yeśhodā's name to Her Son because of Yeśhodā's devotion and worship of Her in Vṛindāvan and Gokul. The abbreviation of Yeśhodā was 'Jesu' or 'Yesu', so Rādhā/Mary named Her Son Jesus Christ.</font>"<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God</b></font>
 </p>
 
 <div class="para-divider"></div>

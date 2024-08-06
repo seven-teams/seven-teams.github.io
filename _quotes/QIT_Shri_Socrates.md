@@ -148,7 +148,7 @@ If you read Their teachings you will find [that] They are saying the same things
 
 <p>
 "For example, we can say the gree... green thing is the one that represents the water, water element. This center the ... in the stomach is the water element within us. It is called as Nābhī chakra, and around it is called as the Bhavasāgara, you can say the Void, or you can say the Gap, or whatever you may say, the whole world as such, within us. So, the people who were born on this center, around this center, were born out of water element.<br>
-<font color="red">In this Bhavasāgara -- oc... Bhavasāgara means the ocean of this world -- were born, through this ocean of the world, were born all the Primordial Masters, one after another. We can say Abraham, Moses, we had Janaka, were Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], and Socrates, and so many others like that, Nāṇaka, and also very recently, we had about hundred years back, a very great Saint born in India known as Sāī Nāth.<br>
+<font color="red">In this Bhavasāgara &#8211; oc... Bhavasāgara means the ocean of this world &#8211; were born, through this ocean of the world, were born all the Primordial Masters, one after another. We can say Abraham, Moses, we had Janaka, were Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], and Socrates, and so many others like that, Nāṇaka, and also very recently, we had about hundred years back, a very great Saint born in India known as Sāī Nāth.<br>
 They all represent the same element that is the water element. Being responsible or being born out of that, They are anxious to maintain water element as the one which is within us for sustaining ourselves. We su... we are sustained by water, so They help us to sustain ourselves. They are the sustainers: They tell us how to sustain us as a human being.<br>
 And all of Them have tried to establish religion within us.</font><br>
 A religion doesn't mean outside, but the religion as a man: means the capacity of a man, or you can say the quality of a man. What a human being should be like, what is the way to know if he is a human being or not, which is described in al... in the Ten Commandments."<br>
@@ -283,7 +283,7 @@ But there are Ten, which are here, which are described as [the] Ten Commandments
 
 <p>
 "Today I would like to say about this chakra especially that is the ... what we call the Nābhī chakra, is the central path of our evolution where you start your seeking and youge [you] cross over to [the] other side.<br>
-Now, surrounding this you will find there is the Ocean of Illusion. And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya -- is the Primordial Master. And He incarnated on this Earth many a times. <font color="red">At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze.</font> Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.<br>
+Now, surrounding this you will find there is the Ocean of Illusion. And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya &#8211; is the Primordial Master. And He incarnated on this Earth many a times. <font color="red">At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze.</font> Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.<br>
 So the same Great Principle of this Primordial Master has incarnated because without a master, how will you be taken away from in ... this illusion? How you are going to be exposed to that reality which you do not feel?<br>
 What has to happen to you is that you have to become more sensitive, more open, awakened, enlightened to feel that's All-pervading Power around you.<br>
 Now, these [masters] came again and again and told you that you must look after your dharma.<br>
@@ -406,10 +406,10 @@ The ... we call it Ten Incarnations of the Primordial Master. There are many who
 <div class="para-divider"></div>
 
 <p>
-"In this country until and unless rājakaraṇ is not going to be associated with dharma, political people will come, and other people will come to them and spit on them, but their politics will go on. <font color="red">Until the pillar of dharma is not established -- because our country India's foundation is dharma -- until we don't learn to base politics on dharma, until we don't bring Śhrī Rāmachandra's politics, until we don't bring Socrates' politics, this country is not going to progress.</font><br>
+"In this country until and unless rājakaraṇ is not going to be associated with dharma, political people will come, and other people will come to them and spit on them, but their politics will go on. <font color="red">Until the pillar of dharma is not established &#8211; because our country India's foundation is dharma &#8211; until we don't learn to base politics on dharma, until we don't bring Śhrī Rāmachandra's politics, until we don't bring Socrates' politics, this country is not going to progress.</font><br>
 ......<br>
 In the left side is the abode of Śhrī Rām: Śhrī Rām who was a father, who is a benevolent king. <font color="red">He was a king such as explained by Socrates.</font> Who cannot think of anything but benevolence of people: how to benefit people, how to make them all right, how to manifest well-being of people. Whatever He did in the world, He had desired only one thing: how to manifest well-being of people.<br>
-He went barefoot in the forest so that the earth can be vibrated by His Feet. He played the entire drama -- it was a sad drama. His body tolerated everything. He played this entire sad drama to show what is an ideal king, what is an ideal father and what is an ideal son."<br>
+He went barefoot in the forest so that the earth can be vibrated by His Feet. He played the entire drama &#8211; it was a sad drama. His body tolerated everything. He played this entire sad drama to show what is an ideal king, what is an ideal father and what is an ideal son."<br>
 <font size="+0"><b>1984-0316 Public Program (Hindi), Day 4, Heart and Viśhuddhi Chakras, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
@@ -671,7 +671,7 @@ All right. So then, this uh-uh-uh part of the ... history is there [of Prahlād]
 <font color="red">Though, if you see what Christ preached and what's ... I'm sorry ph... what Christ preached and Socrates preached, there is much difference. Because Socrates [Christ] talked in parables, not openly, while Socrates talked in a very open way, in an open discussion, in open understanding.</font><br>
 <font color="red">That shows only that the people could understand what He was saying. But still He was also killed. Socrates also was given poison and He was also killed.</font><br>
 So that shows that, at that time also, the people in charge, or at the helm of affairs, didn't know what was reality.<br>
-<font color="red">So now, from Christ to Socrates and from Socrates to Me, we can say this way: that we are talking about it, though Socrates came uh in the year -- how much B.C. He was? To Socrates ...</font><br>
+<font color="red">So now, from Christ to Socrates and from Socrates to Me, we can say this way: that we are talking about it, though Socrates came uh in the year &#8211; how much B.C. He was? To Socrates ...</font><br>
 <b>Sahaja Yoginī:</b> About five hundred years.<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Huh?</font><br>
 <b>Sahaja Yoginī:</b> About five hundred years before Christ [500 B.C.].<br>
@@ -757,14 +757,14 @@ Because other think that, 'How much money we'll get out of this power that we'll
 <div class="para-divider"></div>
 
 <p>
-"And in every religion whatsoever, even in Islam it is said, "You have to become a Walī." In Christianity it is said, "You are to be born-again." In Buddhism it is said, "You have to become Buddha," means you should be knowledgeable. In M... Mahāvīra's things He has said, "You must get your Self-realization." Lao Tze has said it. <font color="red">Shouish, just if you start from Socrates onward -- of course, we should forget about Plato and these people because I don't think they had much sense of spirituality -- but most of these people have talked about Self-realization.</font> And there's no religion in which they have not talked about Self-realization. Even in the Judaism or where the ... they believe in the coming of the Savior for their salvation, even they have talked about it."<br>
+"And in every religion whatsoever, even in Islam it is said, "You have to become a Walī." In Christianity it is said, "You are to be born-again." In Buddhism it is said, "You have to become Buddha," means you should be knowledgeable. In M... Mahāvīra's things He has said, "You must get your Self-realization." Lao Tze has said it. <font color="red">Shouish, just if you start from Socrates onward &#8211; of course, we should forget about Plato and these people because I don't think they had much sense of spirituality &#8211; but most of these people have talked about Self-realization.</font> And there's no religion in which they have not talked about Self-realization. Even in the Judaism or where the ... they believe in the coming of the Savior for their salvation, even they have talked about it."<br>
 <font size="+0"><b>1990-0107 Pūjā (English + Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Great Sages and Saints were forthright and spoke openly about the untruth -- Socrates was poisoned for speaking the Truth."</font><br>
+<font color="red">"Great Sages and Saints were forthright and spoke openly about the untruth &#8211; Socrates was poisoned for speaking the Truth."</font><br>
 <font size="+0"><b>1990-0223 Śhivarātri Pūjā (Hindi), Ātma-sākṣhātkārī kī Viśheṣhatāeṃ (Attributes of Self-realization), Flora Palace, Pune, Maharashtra, India</b></font>
 </p>
 
@@ -1090,7 +1090,7 @@ In this way, so far, we know in the past, all the people who are pivotal for the
 
 <p>
 "The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. <font color="red">In China He was born as Confucius and as Lao Tze, and in Greece as Socrates.</font> He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 33</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God, Page 33</b></font>
 </p>
 
 <div class="para-divider"></div>

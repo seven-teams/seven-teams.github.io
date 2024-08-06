@@ -164,7 +164,7 @@ So it is being promised.<br>
 Ādi Śhaṅkarāchārya, of course, the greatest son of our country has described it so elaborately, but those who call themselves also Hindus, do they know the word Kuṇḍalinī? <font color="red">While throughout in the Mārkaṇḍeya Purāṇ, such a Great Sage, the one who has not read the Mārkaṇḍeya, I would not call him an Indian at all.<br>
 One of the greatest Sages of this country is Mārkaṇḍeya who has written a complete knowledge about the Devī to such a little extent, to such a small detail that you will be so surprised, 'How He could see all these things? Did He enter into the body of Devī to find out these small small minute things?'</font><br>
 But all this we have done in this country much more than any other country."<br>
-<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5--12</b></font>
+<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5&#8211;12</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -268,7 +268,7 @@ But what you have done of Him, His spirit, His intellect. So give anything to hu
 
 <p>
 "You'll be amazed, none of the books which have been written so far have been able to tell you about the spiritual be-ing that is within you as you have come to know through Sahaj Yog. One has to accept it. It is so. Any one of them, whosoever has written any books, even, I would say, Ādi Śhaṅkarāchārya, He could not explain so many things which you know.<br>
-<font color="red">But the quality of Ādi Śhaṅkarāchārya is very great, or people of His type, Mārkaṇḍeya or Buddha, the quality is very high, because They are extremely pure people -- purity. They have achieved individual salvation of a very high degree while you have achieved your collective salvation better. But individually, they are of a very-very high quality. I mean, They had no doubts about Divine Power, They had no doubts about God. They never had any doubts. And They were very dignified. And They never bothered as to Their petty problems of life. For Them, this was too petty to think about. 
+<font color="red">But the quality of Ādi Śhaṅkarāchārya is very great, or people of His type, Mārkaṇḍeya or Buddha, the quality is very high, because They are extremely pure people &#8211; purity. They have achieved individual salvation of a very high degree while you have achieved your collective salvation better. But individually, they are of a very-very high quality. I mean, They had no doubts about Divine Power, They had no doubts about God. They never had any doubts. And They were very dignified. And They never bothered as to Their petty problems of life. For Them, this was too petty to think about. 
 "</font><br>
 <font size="+0"><b>1980-1201 Public Program, You Are Part of the Divine Being, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
@@ -323,7 +323,7 @@ But to people, Kuṇḍalinī was something unknown, something very much away fr
 <p>
 "Now the trouble is: this knowledge was a very secret knowledge, thousands of years back. And it started descending, this knowledge, to people very slowly.<br>
 Like on a tree there's only one flower or two flowers in the beginning.<br>
-Now, in the sixth century -- actually Christ talked about it quite a lot. And the other people, like Moses, and all these people have talked about it. But the ones who wrote, never got anything there perhaps, so they wrote it in a very mystical way like, "I'll appear before you like tongues of flames," or, "The Fir... uh the Tree of Fire" and all that, indicative of all that.<br>
+Now, in the sixth century &#8211; actually Christ talked about it quite a lot. And the other people, like Moses, and all these people have talked about it. But the ones who wrote, never got anything there perhaps, so they wrote it in a very mystical way like, "I'll appear before you like tongues of flames," or, "The Fir... uh the Tree of Fire" and all that, indicative of all that.<br>
 But ah it so happened that in the sixth century, somebody in India, called as Ādi Śhaṅkarāchārya, He was actually Buddha reborn, He started talking about it. Self-realization, of course Buddha talked about it. Then He started telling about these, all these nāḍīs and everything He described.<br>
 <font color="red">But there is a poet, in India, whose name is Mārkaṇḍeya, who has written about this. They say He was living in India about, say, ten thousand years back, this poet, about that time.</font><br>
 So this knowledge was known to people but was not put down on the paper, was not circulated, was not for en masse."<br>
@@ -348,7 +348,7 @@ So this knowledge was known to people but was not put down on the paper, was not
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">But in the Purāṇas it is described that Kṛiṣhṇa said, "You are higher than Me. I placed You higher than Me." He placed Him, you can imagine, that Christ is at this point, and Kṛiṣhṇa is at this point. He placed higher Him than Him. And He said: "In anywhere people worship Me" -- Śhrī Kṛiṣhṇa said -- "automatically You are worshiped. You will be the Support," Ādhāra, "of the whole world."<br>
+"<font color="red">But in the Purāṇas it is described that Kṛiṣhṇa said, "You are higher than Me. I placed You higher than Me." He placed Him, you can imagine, that Christ is at this point, and Kṛiṣhṇa is at this point. He placed higher Him than Him. And He said: "In anywhere people worship Me" &#8211; Śhrī Kṛiṣhṇa said &#8211; "automatically You are worshiped. You will be the Support," Ādhāra, "of the whole world."<br>
 Is wonderful to say that, about, I think, fourteen thousand years or twelve thousand years back, Mārkaṇḍeya, such a great Saint was born in India. And He has written the complete Gaṇeśha Stotram. Means the complete praise of the Gaṇeśha. You can see the translation is so beautiful. And that he said: "You will be so humble."</font><br>
 <font color="red">He is the One who is the ninth Incarnation, called as Bauddha, among the Ten Incarnations.<br>
 That, 'He will be so humble that He will wash the feet of His disciples.'<br>
@@ -624,7 +624,7 @@ Sixth century is the time when Ādi Śhaṅkarāchārya incarnated on this Earth
 "Even today there are people who do not believe in the Incarnation of Christ. Very 'nice', because that's the ego behind them. And those who pamper their ego like this, they like such people.<br>
 We do not understand what Christ has done for us.<br>
 Let Me tell you about His own subtle methods by which He came on this Earth.<br>
-<font color="red">In the Devī Purāṇ, which you people seldom read -- I think it is translated in English -- which was written fourteen thousand years back ...</font><br>
+<font color="red">In the Devī Purāṇ, which you people seldom read &#8211; I think it is translated in English &#8211; which was written fourteen thousand years back ...</font><br>
 As I told you, only fifty years back all these nonsensical people came and got all the perverted, useless literature printed and everybody is basing their analogies on those fifty years, which are nothing compared to the traditional thousands of years which were spent in India in seeking God.<br>
 <font color="red">Fourteen thousand years back, Mārkaṇḍeya, a great poet, has written about Kuṇḍalinī, has written about the Mother.<br>
 He has written about Christ. He called Him Mahāviṣhṇu, because He is ... He is the Son of Viṣhṇu. And He's described it in such a way that if you read it you will be amazed, you'll think all these-s special points of Christ are described in it. He was called as the Support, Ādhāra, of the Universe.</font>"<br>
@@ -942,7 +942,7 @@ But Nāṇaka has talked about it, Kabīra has talked about it, Ādi Śhaṅkar�
 <p>
 <b>Version 1:</b><br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You know the story of Mārkaṇḍeya, or not?</font><br>
-<b>Sahaja Yogi:</b> I just, we were seeing the Āśhram, Śhrī Mātājī -- I mean on the rocks, where it was once.<br>
+<b>Sahaja Yogi:</b> I just, we were seeing the Āśhram, Śhrī Mātājī &#8211; I mean on the rocks, where it was once.<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Yes, I tell you the story of Mārkaṇḍeya.<br>
 You see that he, this father had no children, and the father and mother were unhappy. So they prayed to Śhiva. And they said that, "We want to have a son." So They said that, "All right," Śhiva said, "I'll give you the son, but I'll have to take Him back after eight years. So He'll only exist till He is about eight years of age." So They gave that boon to him, plus this kind of a curse. So the parents were very upset that, "My child will die after eight years of age." Very upset!<br>
 But they found the child very bright, brilliant, and also shining. And very religious.<br>
@@ -1314,9 +1314,9 @@ In the Bible also it is there, that, "I'll appear before you like tongues of fla
 <div class="para-divider"></div>
 
 <p>
-"Now you can understand that how far it is important to save our country and to stimulate the greatness of this country -- this is our duty. No one from outside will come and do this. We have to do it.<br>
+"Now you can understand that how far it is important to save our country and to stimulate the greatness of this country &#8211; this is our duty. No one from outside will come and do this. We have to do it.<br>
 How can we do it? A very simple and easy method is to awaken the Kuṇḍalinī of people.<br>
-<font color="red">In Maharashtra, in the sixteenth century, so many Saints had talked about Kuṇḍalinī awakening -- just talked. And, Saint Gyānadeva told about this in the twelfth century. But Ādi Śhaṅkarāchārya told in the sixth century and fourteen thousand years back Mārkaṇḍeya told about it. All that these people have said, is it all in vain?</font>"<br>
+<font color="red">In Maharashtra, in the sixteenth century, so many Saints had talked about Kuṇḍalinī awakening &#8211; just talked. And, Saint Gyānadeva told about this in the twelfth century. But Ādi Śhaṅkarāchārya told in the sixth century and fourteen thousand years back Mārkaṇḍeya told about it. All that these people have said, is it all in vain?</font>"<br>
 <font size="+0"><b>1999-0220 Public Program (Hindi+Marathi), Hamārī Sanskṛiti ki Viśheṣhatā (Specialty of Our Culture), Śhivajī Park, Dadar West, Dadar, Mumbai, Maharashtra, India</b></font>
 </p>
 

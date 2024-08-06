@@ -76,7 +76,7 @@ Nobody has ever got Realization without Sahaja Yoga."<br>
 <div class="para-divider"></div>
 
 <p>
-"Shia word has been derived from Siyā. The word which come from Siyā became Shia -- Siyā means Sītājī. If you go to UP [Uttar Pradesh, India] then nobody says Sītājī, they say Siyājī, 'Siyā var Rām[a]chandra ki jay.' Everyone takes the name Siyā. She was Sītājī, Ādi Śhakti Herself.<br>
+"Shia word has been derived from Siyā. The word which come from Siyā became Shia &#8211; Siyā means Sītājī. If you go to UP [Uttar Pradesh, India] then nobody says Sītājī, they say Siyājī, 'Siyā var Rām[a]chandra ki jay.' Everyone takes the name Siyā. She was Sītājī, Ādi Śhakti Herself.<br>
 <font color="red">And Her two sons, who were Hasan and Husayn, destroyed many evils. When They ultimately died after getting tried, then in the next birth they thought of establishment of nonviolence, violence led them nowhere.<br>
 They were [re]born as Mahāvīr and Buddha to make a new experiment. Experiments do happen.</font>"<br>
 <font size="+0"><b>1973-1209 Public Program (Hindi), Day 3, Śhrī Dattātreya Jayanti, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>

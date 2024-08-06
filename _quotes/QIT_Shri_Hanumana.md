@@ -16,7 +16,7 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Monkeys evolved as integrated animals. The monkey raised the head and stood up. That created a new dimension in animal evolution. The missing links half oman [man] and half monkey existed on this earth. They evolved and became angelic identities like Hanumana [Hanumāna] and Bhairava."</font><br>
+<font color="red">"$\bullet$ Monkeys evolved as integrated animals. The monkey raised the head and stood up. That created a new dimension in animal evolution. The missing links half oman [man] and half monkey existed on this earth. They evolved and became angelic identities like Hanumana [Hanumāna] and Bhairava."</font><br>
 <font size="+0"><b>1902-0000 Handwritten Note on the Creation of Matter related to The Book of Ādi Śhakti, Chapter 3</b></font>
 </p>
 
@@ -191,8 +191,8 @@ You have to proceed carefully with Hanumānjī's Power. He does the planning, an
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Before man came into being he existed at the monkey stage. Monkeys had also been struggling in their evolutionary process. To help them, the Primordial Preconscious Mind of the Virāṭa Itself took Incarnation as Hanumāna, the Monkey God, the devotee of Śhrī Viṣhṇu. Hanumāna led the monkeys who were half human -- 'the missing link' as Darwin called it in human evolution. The monkeys were helped to evolve into human beings."</font><br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God</b></font>
+<font color="red">"Before man came into being he existed at the monkey stage. Monkeys had also been struggling in their evolutionary process. To help them, the Primordial Preconscious Mind of the Virāṭa Itself took Incarnation as Hanumāna, the Monkey God, the devotee of Śhrī Viṣhṇu. Hanumāna led the monkeys who were half human &#8211; 'the missing link' as Darwin called it in human evolution. The monkeys were helped to evolve into human beings."</font><br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God</b></font>
 </p>
 
 <div class="para-divider"></div>

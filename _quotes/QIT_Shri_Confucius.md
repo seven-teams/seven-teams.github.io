@@ -90,7 +90,7 @@ The ... we call it Ten Incarnations of the Primordial Master. There are many who
 "Now, since long, from ancient times, we have been hearing about the Spirit: that, 'We are the Spirit,' 'We have to become the Spirit.' <font color="red">Whether you take Confucius, or you have Lao Tze, or you have any Indian philosopher, or you may be having any one of the others in the West where Christ has said many a times that, 'We have to be the Spirit.'</font><br>
 ......<br>
 So, first of all forget about your mental processes.<br>
-<font color="red">For example, a person who is a very highly person uh realizable Soul, whom Confucius calls as a Superior Man -- He call him a Superior Man, imagine! According to Confucius, a man who is rich, who is well-educated is not superior. He is a primitive person. [Laughing:] Compared to a person who is a developed, evolved personality, according to be superior, all others are primitive people, at a lower level. That's how He describes them: Superior Men. You see, to Him: only the Superior Men can understand humanity.<br>
+<font color="red">For example, a person who is a very highly person uh realizable Soul, whom Confucius calls as a Superior Man &#8211; He call him a Superior Man, imagine! According to Confucius, a man who is rich, who is well-educated is not superior. He is a primitive person. [Laughing:] Compared to a person who is a developed, evolved personality, according to be superior, all others are primitive people, at a lower level. That's how He describes them: Superior Men. You see, to Him: only the Superior Men can understand humanity.<br>
 He talks, because He was of that level, so He talked on that level, on the Superior Man.</font><br>
 So the Superior Man, who is within us, who has to manifest itself, is the personality which resides, which has to express itself when we ... our attention reaches that state. Attention has to reach that state and not our mental process and all the yarn that comes out of it.<br>
 So, first of all, the thinking has to be stopped."<br>
@@ -168,7 +168,7 @@ Once in Calcutta [Kolkata], I was staying in a hotel, and we had about three, fo
 
 <p>
 <font color="red">"Even when Confucius talked of humanism, it was needed at that time when people were lethargic."</font><br>
-<font size="+0"><b>1985-0701 Press Conference, Room, Résidence Palace - International Press Center (IPC), Wetstraat 155 -- Blok C, Brussels, Belgium</b></font>
+<font size="+0"><b>1985-0701 Press Conference, Room, Résidence Palace - International Press Center (IPC), Wetstraat 155 &#8211; Blok C, Brussels, Belgium</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -207,7 +207,7 @@ Mostly, people say that, "We are doing meditation." Meditation is a state of min
 "It's so heartening, that I find it difficult to express it in human words the way I envisage the vision that your founder must have thought of. I'm sure, he must have been a realized Soul himself.<br>
 <font color="red">Apart from that, he looks like Confucius to Me. As Confucius has talked of humanism, in the same manner, he has organized this beautiful organization of Lions here.</font><br>
 ......<br>
-In the same way, this-s Lion word makes Me understand, that the gentleman who has-s founded this -- what's the name is, so Mister?
+In the same way, this-s Lion word makes Me understand, that the gentleman who has-s founded this &#8211; what's the name is, so Mister?
 ......<br>
 ... Mister Melvin Jones, must have been a great personality. And in his vision, he perhaps has seen that one day you might come to Sahaja Yoga to understand the working of this organization.<br>
 Just like Confucius. Confucius wanted to establish a quality of people, a category of people, who would have a feeling for others. As we say in sāmājikata [sociality], or the public-minded people. 
@@ -423,7 +423,7 @@ All of Them had said the same thing!<br>
 
 <p>
 "The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. <font color="red">In China He was born as Confucius and as Lao Tze, and in Greece as Socrates.</font> He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 33</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God, Page 33</b></font>
 </p>
 
 <div class="para-divider"></div>

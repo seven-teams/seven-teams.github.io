@@ -105,7 +105,7 @@ Now do you realize that you went to Mahālakṣhmī, that's one of the ... one o
 Looking after your comfort things or looking after your Spirit? What are you doing here?<br>
 Did you go ... did you understand that the temple was for that? Did you follow that point?<br>
 And now, I want you to see another temple. And then another temple I'm going to arrange.<br>
-Is not so easy: no tourist has gone to these temples! Actually no Indians are -- no foreigners are allowed in these temples.<br>
+Is not so easy: no tourist has gone to these temples! Actually no Indians are &#8211; no foreigners are allowed in these temples.<br>
 Because you are Saints they have allowed you, but behave like Saints!<br>
 What's this nonsense going on? Talking about comfort, this nonsense.<br>
 What comfort do you have there? I feel most uncomfortably in the Western countries. There's no comfort of the Spirit! Most uncomfortable I feel. Everybody drinking, everybody nonsensically, so materialistic, so materialistic they are! Horrible!<br>
@@ -193,7 +193,7 @@ The elders there keep thinking day and night that how to commit suicide. They ha
 <div class="para-divider"></div>
 
 <p>
-<font color="red">[Śhrī Mātājī explains about Samartha Rāmdās. Rāmdās was an Incarnation of Śhrī Hanumān and She explains how He looked and what He used to do. She says He was short in height and had a powerful personality. He had a long beard, a very strong appearance and a kamaṇḍalu -- water pot (ewer). He was a strong saintly person.] This is the real Guru [of Śhivajī Mahārāj], not that fake one.<br>
+<font color="red">[Śhrī Mātājī explains about Samartha Rāmdās. Rāmdās was an Incarnation of Śhrī Hanumān and She explains how He looked and what He used to do. She says He was short in height and had a powerful personality. He had a long beard, a very strong appearance and a kamaṇḍalu &#8211; water pot (ewer). He was a strong saintly person.] This is the real Guru [of Śhivajī Mahārāj], not that fake one.<br>
 [Śhrī Mātājī explains that Rāmdās was Hanumān, and Hanumān took his birth at An̄janerī, a place near Trimbakeśhwar in Maharashtra, and She visited that place. Śhrī Mātājī explains that near there is where Śhrī Hanumān fell when he tried to catch the Sun.]</font><br>
 <font size="+0"><b>1985-011x Quote, Talk to New People, House of Saundankars, Nasik, Maharashtra, India (other month 12)</b></font>
 </p>

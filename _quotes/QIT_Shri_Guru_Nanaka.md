@@ -155,7 +155,7 @@ Find out that center which He has said. What are we singing about? Have we done 
 Muslims are very fanatic people.<br>
 I would say Muhammad Sāhib was the least fanatic personality.<br>
 He suffered so much. I think, in that Incarnation, no Guru has suffered as much as He has. He suffered too much beyond description. Ultimately He was given poison. He was killed."<br>
-<font size="+0"><b>1975-0300 Public Program, 10 King George Avenue (now Rajaji Mārg), Meena Bagh, Krishna Manon Lane Area, New Delhi, India (Anant Jeevan, Issue 2, Pages 8--11)</b></font>
+<font size="+0"><b>1975-0300 Public Program, 10 King George Avenue (now Rajaji Mārg), Meena Bagh, Krishna Manon Lane Area, New Delhi, India (Anant Jeevan, Issue 2, Pages 8&#8211;11)</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -192,7 +192,7 @@ But if they can do the same through science then I will accept that science is g
 Now He has taken many Incarnations, mainly Ten Incarnations. And these are very important, and we have to understand Them in Their full entirety.<br>
 If you accept Him as Dattātreya, you have to also accept Him as Rāja Janaka.<br>
 It's easy for a Hindu mind to accept Rāja Janaka, but they cannot accept Muhammad Sāhab, who was same as Rāja Janaka. It is a fact which can ... we can prove it on your Kuṇḍalinī.<br>
-A person who is suffering from cancer of the stomach -- now this is the thing, when I say that Sahaja Yoga can cure your cancer, you have to give up certain notions that we have in our hear... head.<br>
+A person who is suffering from cancer of the stomach &#8211; now this is the thing, when I say that Sahaja Yoga can cure your cancer, you have to give up certain notions that we have in our hear... head.<br>
 A person, eh supposing he's a Hindu, and he's suffering from the stomach cancer, I have to ask him to take the name of Muhammad Sāhab. If I fail to ask him or if I convince ... do not him ... convince Him, I cannot cure his can't ... cancer. I'm sorry, I tell him, 'I just cannot do it.' But if he is a Muslim, I have to tell him: 'You have to take the name of Dattātreya.'<br>
 Human beings, like fools, have taken away the living flowers of one tree, and now are fighting on something that is dead.<br>
 He was Dattātreya. There is no doubt about it.<br>
@@ -267,7 +267,7 @@ They are both the same people, you will be surprised. Same people born at differ
 Nāṇak said the same thing: "No smoking, nothing!"</font><br>
 But today there are no Sikhs, in the morning they were.<br>
 Sikhs are fighting in London, that, "We should not wear the helmets." Imagine.<br>
-<font color="red">Where is it written? In which book Nāṇak Sāhab has written this, I would like to see. That helmets -- on the contrary He said, "Bheṣh kā kyā phāyadā kā?," "What is the use of changing your dress?"</font><br>
+<font color="red">Where is it written? In which book Nāṇak Sāhab has written this, I would like to see. That helmets &#8211; on the contrary He said, "Bheṣh kā kyā phāyadā kā?," "What is the use of changing your dress?"</font><br>
 And they are fighting on this point.<br>
 But the ways a Sikh's drink in London, I mean the Britisher are ashamed. Say, I mean, they ... they think they are no good compared to Sikhs, the way they can consume.<br>
 And they are fighting in the name of religion! Is a fact, I'm telling you.<br>
@@ -328,7 +328,7 @@ So the relationship exists and whenever He is born, She is born, in a way, that,
 
 <p>
 "<font color="red">Nāṇak, Guru Nāṇaka, He has written at least three, four chapters against these tāntrikas and māntrikas and these paiśhāchikas and these chaṇḍas.</font><br>
-IIn India it's an abuse to say -- I mean I have to first time used these words for the ... for My tongue -- is an abuse to call somebody like this. If you say that to someone then the people say, 'Oh, God!' They are kept outside like lepers!<br>
+IIn India it's an abuse to say &#8211; I mean I have to first time used these words for the ... for My tongue &#8211; is an abuse to call somebody like this. If you say that to someone then the people say, 'Oh, God!' They are kept outside like lepers!<br>
 Kabīra has written books after books, these khecharīs and this and that He lashed them left and right! He was a great poet. Everybody fought with Him, tortured Him!<br>
 Christ was the same. He is the one who said, "Not to go towards spirits at all. This is all spirit's job."<br>
 <font size="+0"><b>1977-1121 Public Program, Tantrism, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
@@ -583,7 +583,7 @@ There is no difference between Muhammad Sāhab and Guru Nāṇak. When Muhammad 
 "About Me also you can ask questions. There are many ways of recognizing because in this life, you have to recognize. You have never recognized an Incarnation so far. You have to recognize.<br>
 That is compulsory and that is done through Sahajs Yoga because unless and until you are realized, how are going to recognize Them also?<br>
 But even if you have not recognized Them, there was no need for you to crucify Them or to torture.<br>
-<font color="red">Then all the Gurus who came on this Earth, the Real Ones -- fakes are never gurus, they are not gurus -- the Real Ones that came on this Earth, say, we can say Moses, Abraham, Nāṇak, Muhammad Sāhib, Kabīr, all these are Incarnations of Primordial Master whom we call as Dattātreya.</font><br>
+<font color="red">Then all the Gurus who came on this Earth, the Real Ones &#8211; fakes are never gurus, they are not gurus &#8211; the Real Ones that came on this Earth, say, we can say Moses, Abraham, Nāṇak, Muhammad Sāhib, Kabīr, all these are Incarnations of Primordial Master whom we call as Dattātreya.</font><br>
 <font color="red">If They are or not, if Muhammad Sāhib and Guru Nāṇak are the same personality, same people who came in different times, then what justice are we doing to Them?</font> How are we to find out? How are you to believe Me about it?<br>
 I will give you an example. There was a Muslim gentleman from Iran who came to see Me, who was suffering from cancer. He asked Me: "Mother, I want to get cured." I said, "You['re] a Muslim?", he said, "Yes, I only believe in Muhammad Sāhib and nobody else!" I said, "This would be something like that, 'I only believe in my nose, and not in anything else.' "<br>
 He was such a fanatic and fanaticism brings about the cancer of Nābhī chakra as we call it, the stomach. You will be amazed fanaticism is sin, sinful. It gives you the cancer of stomach.<br>
@@ -605,7 +605,7 @@ How many of you read Kabīr? For fashion sake even if they read they don't know 
 <font color="red">Nāṇak has talked about it, Gyāneśhwara has talked about it.</font><br>
 Christ has talked about it that, "I will appear before you like tongues of flames." What is the meaning? Christians do not know about it.<br>
 So it is being promised."<br>
-<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5--12</b></font>
+<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5&#8211;12</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -650,7 +650,7 @@ And these Ten Gurus could be described as Rāja Janaka, then Moses, Abraham, and
 Now, this is not the time to tell about individual people. But, I think, one day I will talk to you only on this subject of the Gurus.<br>
 So, these Gurus first started under the Primordial Master Himself, He was called as Dattātreya.
 ......<br>
-There's one more point I would like to tell you, that they have not yet gone here, but here [<font color="orange">unclear</font>], there are the two uh more small uh-uh-uh chakras: one that belongs to, uh uh which we call as the Sūrya -- Sūrya is the-uh-uh uh uh, means the Sun, the Sun center -- and the another as the Moon center on the left-hand side. And these two are uh governed or, we can say, is uh bestowed upon by two great uh-uh-uh people, who are the Disciple Elements.<br>
+There's one more point I would like to tell you, that they have not yet gone here, but here [<font color="orange">unclear</font>], there are the two uh more small uh-uh-uh chakras: one that belongs to, uh uh which we call as the Sūrya &#8211; Sūrya is the-uh-uh uh uh, means the Sun, the Sun center &#8211; and the another as the Moon center on the left-hand side. And these two are uh governed or, we can say, is uh bestowed upon by two great uh-uh-uh people, who are the Disciple Elements.<br>
 And They, disciple elements were first, were born to Śhrī Rāma and Śhrī Sītā as the-ee Lav and Kuśh. And then They incarnated many a times on this Earth as disciple. One of Them is, we can say, ah ... was uh Śhaṅkarāchārya, another was Kabīra, uh like that. Then, we can say, later on, uh like, uh before Śhaṅkarāchārya, they came as Buddha and Mahāvīra. Then Śhaṅkarāchārya, and then, uh I told you, which is? Uh after Śhaṅkarāchārya came ... the Advent of Hasan and Husayn, who were the grandsons of Prophet.<br>
 So these have been incarnating, and they have been moving from one uh-uh-uh side to another and telling people that, "This is extreme, leave it." "This is the extreme, leave it. Come in the center, and be in the center." That has been Their job. And they are the ones who are, sort of, imparting you that awareness by you become a perfect disciple.<br>
 And the ... this is a very important point because it comes, quite often, that uh-uh-uh we do not understand.<br>
@@ -711,7 +711,7 @@ That is the divine, spontaneous force of God's Love.<br>
 You can see with your naked eyes. You can also see the rising of that force on your back. In various people, here there are at least seventy percent [70\%] people who have seen. It rises within you, touching all these subtle centers, which are manifesting your plexuses outside, which are gross in nature. And you can see it pulsating here on your head.<br>
 <font color="red">As Nāṇaka has said, or Kabīra has said it: "Śhūnya śhikhara par anāhata baje re."</font><br>
 Anāhata: there is a sound without percussion you can feel it, 'Lub-dub, lub-dub,' here. Here you can feel it, and that is the Baptism.<br>
-Where the Kuṇḍalinī rises -- this force is called as Kuṇḍalinī -- through all these various centers, and opens this out, and you become -- it's an actualization -- you become a person who is a self-realized person."<br>
+Where the Kuṇḍalinī rises &#8211; this force is called as Kuṇḍalinī &#8211; through all these various centers, and opens this out, and you become &#8211; it's an actualization &#8211; you become a person who is a self-realized person."<br>
 <font size="+0"><b>1979-0710 Public Program, We are All Seekers (We Feel there is a Purpose in Life), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
@@ -881,7 +881,7 @@ If you read Their teachings you will find [that] They are saying the same things
 
 <p>
 "For example, we can say the gree... green thing is the one that represents the water, water element. This center the ... in the stomach is the water element within us. It is called as Nābhī chakra, and around it is called as the Bhavasāgara, you can say the Void, or you can say the Gap, or whatever you may say, the whole world as such, within us. So, the people who were born on this center, around this center, were born out of water element.<br>
-<font color="red">In this Bhavasāgara -- oc... Bhavasāgara means the ocean of this world -- were born, through this ocean of the world, were born all the Primordial Masters, one after another. We can say Abraham, Moses, we had Janaka, were Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], and Socrates, and so many others like that, Nāṇaka, and also very recently, we had about hundred years back, a very great Saint born in India known as Sāī Nāth.<br>
+<font color="red">In this Bhavasāgara &#8211; oc... Bhavasāgara means the ocean of this world &#8211; were born, through this ocean of the world, were born all the Primordial Masters, one after another. We can say Abraham, Moses, we had Janaka, were Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], and Socrates, and so many others like that, Nāṇaka, and also very recently, we had about hundred years back, a very great Saint born in India known as Sāī Nāth.<br>
 They all represent the same element that is the water element. Being responsible or being born out of that, They are anxious to maintain water element as the one which is within us for sustaining ourselves. We su... we are sustained by water, so They help us to sustain ourselves. They are the sustainers: They tell us how to sustain us as a human being.<br>
 And all of Them have tried to establish religion within us.</font><br>
 A religion doesn't mean outside, but the religion as a man: means the capacity of a man, or you can say the quality of a man. What a human being should be like, what is the way to know if he is a human being or not, which is described in al... in the Ten Commandments."<br>
@@ -1019,7 +1019,7 @@ But there are Ten, which are here, which are described as [the] Ten Commandments
 
 <p>
 "Today I would like to say about this chakra especially that is the ... what we call the Nābhī chakra, is the central path of our evolution where you start your seeking and youge [you] cross over to [the] other side.<br>
-Now, surrounding this you will find there is the Ocean of Illusion. And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya -- is the Primordial Master. And He incarnated on this Earth many a times. At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze. <font color="red">Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.</font><br>
+Now, surrounding this you will find there is the Ocean of Illusion. And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya &#8211; is the Primordial Master. And He incarnated on this Earth many a times. At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze. <font color="red">Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.</font><br>
 So the same Great Principle of this Primordial Master has incarnated because without a master, how will you be taken away from in ... this illusion? How you are going to be exposed to that reality which you do not feel?<br>
 What has to happen to you is that you have to become more sensitive, more open, awakened, enlightened to feel that's All-pervading Power around you.<br>
 Now, these [masters] came again and again and told you that you must look after your dharma.<br>
@@ -1509,7 +1509,7 @@ And Kabīr, who is also included in the Grantha Sāhab, has said, [laughing:] th
 
 <p>
 "The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. In China He was born as Confucius and as Lao Tze, and in Greece as Socrates. He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). <font color="red">Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā).</font> Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918. Altogether there were ten major Avatāras of Dattātreya."<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 33</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God, Page 33</b></font>
 </p>
 
 <div class="para-divider"></div>

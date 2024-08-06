@@ -295,7 +295,7 @@ Now, sustenance is ... is ... for human beings is different. For animals is diff
 <p>
 "It is that the time has come.<br>
 This used to happen to through one in a million.<br>
-<font color="red">At the time of Rāja Janaka, ah-ah who lived in Bihar as you know -- and there are many people from Bihar -- and there was only one, Nachiketa, who got Realization. Can you imagine that?</font><br>
+<font color="red">At the time of Rāja Janaka, ah-ah who lived in Bihar as you know &#8211; and there are many people from Bihar &#8211; and there was only one, Nachiketa, who got Realization. Can you imagine that?</font><br>
 But today the time has come! The Blossom Time has come."<br>
 <font size="+0"><b>1979-0720 Public Program, Why Are We Here, What Is Our Purpose, Cardiff, Wales, UK</b></font>
 </p>
@@ -355,7 +355,7 @@ If you read Their teachings you will find [that] They are saying the same things
 
 <p>
 "For example, we can say the gree... green thing is the one that represents the water, water element. This center the ... in the stomach is the water element within us. It is called as Nābhī chakra, and around it is called as the Bhavasāgara, you can say the Void, or you can say the Gap, or whatever you may say, the whole world as such, within us. So, the people who were born on this center, around this center, were born out of water element.<br>
-<font color="red">In this Bhavasāgara -- oc... Bhavasāgara means the ocean of this world -- were born, through this ocean of the world, were born all the Primordial Masters, one after another. We can say Abraham, Moses, we had Janaka, were Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], and Socrates, and so many others like that, Nāṇaka, and also very recently, we had about hundred years back, a very great Saint born in India known as Sāī Nāth.<br>
+<font color="red">In this Bhavasāgara &#8211; oc... Bhavasāgara means the ocean of this world &#8211; were born, through this ocean of the world, were born all the Primordial Masters, one after another. We can say Abraham, Moses, we had Janaka, were Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], and Socrates, and so many others like that, Nāṇaka, and also very recently, we had about hundred years back, a very great Saint born in India known as Sāī Nāth.<br>
 They all represent the same element that is the water element. Being responsible or being born out of that, They are anxious to maintain water element as the one which is within us for sustaining ourselves. We su... we are sustained by water, so They help us to sustain ourselves. They are the sustainers: They tell us how to sustain us as a human being.<br>
 And all of Them have tried to establish religion within us.</font><br>
 A religion doesn't mean outside, but the religion as a man: means the capacity of a man, or you can say the quality of a man. What a human being should be like, what is the way to know if he is a human being or not, which is described in al... in the Ten Commandments."<br>
@@ -671,8 +671,8 @@ That was also important part. But that was forgot[ten]!<br>
 <div class="para-divider"></div>
 
 <p>
-"Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one teacher God, the Primordial Master, Dattātreya. He came onto this Earth to teach people the secrets of the Divine, to reveal God, and to help them cross the Ocean of Illusion themselves within their own identity. Evolution could not go further in the hands of human beings who were in the bondage of ignorance, so they were given guidance through this Incarnation of the Primordial Master (Ādi Guru) again and again in different lives. He was created as the three-headed child, Dattātreya, by Ādi Śhakti who appeared on Earth during the Tretā Yuga as Satī Anasūyā, wife of the Sage Atreya. He was born as Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara] who founded Jainism -- one of the oldest religions. <font color="red">Then he was born as Rāja Janaka, father of Jānakī also called Sītā, Rāma's wife. She was an Incarnation of Ādi Śhakti.</font>"<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Pages 32 and 33</b></font>
+"Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one teacher God, the Primordial Master, Dattātreya. He came onto this Earth to teach people the secrets of the Divine, to reveal God, and to help them cross the Ocean of Illusion themselves within their own identity. Evolution could not go further in the hands of human beings who were in the bondage of ignorance, so they were given guidance through this Incarnation of the Primordial Master (Ādi Guru) again and again in different lives. He was created as the three-headed child, Dattātreya, by Ādi Śhakti who appeared on Earth during the Tretā Yuga as Satī Anasūyā, wife of the Sage Atreya. He was born as Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara] who founded Jainism &#8211; one of the oldest religions. <font color="red">Then he was born as Rāja Janaka, father of Jānakī also called Sītā, Rāma's wife. She was an Incarnation of Ādi Śhakti.</font>"<br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God, Pages 32 and 33</b></font>
 </p>
 
 <div class="para-divider"></div>

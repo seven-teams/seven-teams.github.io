@@ -214,7 +214,7 @@ The one thing that all of Them had said was to not consume alcohol.<br>
 ......<br>
 And such false people have always been the ones to trouble the Saints. You know, how badly such people have caused misery to Dñyāneśhwar. <font color="red">Then, Sāī Nāth.</font> They have not spared even a single Saint.<br>
 Not only that, [but] when Śhaṅkarāchārya wanted to perform the rituals after the death of His mother, these people didn't even allow Him to do those. They said He was not allowed to do them as He was a saṃnyāsī.<br>
-So, likewise, such unauthorized people claiming to be higher above others have always insulted the Saints and made their lives miserable. Not only in India, but also elsewhere -- Prophet Muhammad was tortured by such people as well. He and His family were tortured so much more than Dñyāneśhwar, actually."<br> 
+So, likewise, such unauthorized people claiming to be higher above others have always insulted the Saints and made their lives miserable. Not only in India, but also elsewhere &#8211; Prophet Muhammad was tortured by such people as well. He and His family were tortured so much more than Dñyāneśhwar, actually."<br> 
 <b>Version 2:</b><br>
 "The people of Ahmednagar sent us an invitation with lot of affection, we are all very grateful for that.<br>
 And furthermore, I feel Ahmednagar District to be very special. Because the work that began in Rāhūrī and which kept spreading, that made Me realize that there was some special religious work that took place in this District in the past.<br>
@@ -248,7 +248,7 @@ Even during the times of Prophet Muhammad, peace be upon Him, the unauthorized p
 "About Me also you can ask questions. There are many ways of recognizing because in this life, you have to recognize. You have never recognized an Incarnation so far. You have to recognize.<br>
 That is compulsory and that is done through Sahajs Yoga because unless and until you are realized, how are going to recognize Them also?<br>
 But even if you have not recognized Them, there was no need for you to crucify Them or to torture.<br>
-Then all the Gurus who came on this Earth, the Real Ones -- fakes are never gurus, they are not gurus -- the Real Ones that came on this Earth, say, we can say Moses, Abraham, Nāṇak, Muhammad Sāhib, Kabīr, all these are Incarnations of Primordial Master whom we call as Dattātreya.<br>
+Then all the Gurus who came on this Earth, the Real Ones &#8211; fakes are never gurus, they are not gurus &#8211; the Real Ones that came on this Earth, say, we can say Moses, Abraham, Nāṇak, Muhammad Sāhib, Kabīr, all these are Incarnations of Primordial Master whom we call as Dattātreya.<br>
 If They are or not, if Muhammad Sāhib and Guru Nāṇak are the same personality, same people who came in different times, then what justice are we doing to Them? How are we to find out? How are you to believe Me about it?<br>
 I will give you an example. There was a Muslim gentleman from Iran who came to see Me, who was suffering from cancer. He asked Me: "Mother, I want to get cured." I said, "You['re] a Muslim?", he said, "Yes, I only believe in Muhammad Sāhib and nobody else!" I said, "This would be something like that, 'I only believe in my nose, and not in anything else.' "<br>
 He was such a fanatic and fanaticism brings about the cancer of Nābhī chakra as we call it, the stomach. You will be amazed fanaticism is sin, sinful. It gives you the cancer of stomach.<br>
@@ -262,7 +262,7 @@ Nāṇak has described Kuṇḍalinī as Surati.<br>
 His Kuṇḍalinī was pulsating at Nābhī. You could see with your naked eye. His friend or his proprietor was also seeing that. It was pulsating there.<br> 
 I said, "You have a liver. Do you drink?" He said, "I drink quite a lot." Then I said, "How do you expect Me to give you Realization in the name of Nāṇak who has prohibited all this?"<br>
 When I say this people brand Me as anything."<br>
-<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5--12</b></font>
+<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5&#8211;12</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -293,7 +293,7 @@ Actually, we should say the Main Gurus are ten, but there are many other Gurus.<
 Now, this is not the time to tell about individual people. But, I think, one day I will talk to you only on this subject of the Gurus.<br>
 So, these Gurus first started under the Primordial Master Himself, He was called as Dattātreya.
 ......<br>
-There's one more point I would like to tell you, that they have not yet gone here, but here [<font color="orange">unclear</font>], there are the two uh more small uh-uh-uh chakras: one that belongs to, uh uh which we call as the Sūrya -- Sūrya is the-uh-uh uh uh, means the Sun, the Sun center -- and the another as the Moon center on the left-hand side. And these two are uh governed or, we can say, is uh bestowed upon by two great uh-uh-uh people, who are the Disciple Elements.<br>
+There's one more point I would like to tell you, that they have not yet gone here, but here [<font color="orange">unclear</font>], there are the two uh more small uh-uh-uh chakras: one that belongs to, uh uh which we call as the Sūrya &#8211; Sūrya is the-uh-uh uh uh, means the Sun, the Sun center &#8211; and the another as the Moon center on the left-hand side. And these two are uh governed or, we can say, is uh bestowed upon by two great uh-uh-uh people, who are the Disciple Elements.<br>
 And They, disciple elements were first, were born to Śhrī Rāma and Śhrī Sītā as the-ee Lav and Kuśh. And then They incarnated many a times on this Earth as disciple. One of Them is, we can say, ah ... was uh Śhaṅkarāchārya, another was Kabīra, uh like that. Then, we can say, later on, uh like, uh before Śhaṅkarāchārya, they came as Buddha and Mahāvīra. Then Śhaṅkarāchārya, and then, uh I told you, which is? Uh after Śhaṅkarāchārya came ... the Advent of Hasan and Husayn, who were the grandsons of Prophet.<br>
 So these have been incarnating, and they have been moving from one uh-uh-uh side to another and telling people that, "This is extreme, leave it." "This is the extreme, leave it. Come in the center, and be in the center." That has been Their job. And they are the ones who are, sort of, imparting you that awareness by you become a perfect disciple.<br>
 And the ... this is a very important point because it comes, quite often, that uh-uh-uh we do not understand.<br> 
@@ -408,7 +408,7 @@ If you read Their teachings you will find [that] They are saying the same things
 
 <p>
 "For example, we can say the gree... green thing is the one that represents the water, water element. This center the ... in the stomach is the water element within us. It is called as Nābhī chakra, and around it is called as the Bhavasāgara, you can say the Void, or you can say the Gap, or whatever you may say, the whole world as such, within us. So, the people who were born on this center, around this center, were born out of water element.<br>
-<font color="red">In this Bhavasāgara -- oc... Bhavasāgara means the ocean of this world -- were born, through this ocean of the world, were born all the Primordial Masters, one after another. We can say Abraham, Moses, we had Janaka, were Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], and Socrates, and so many others like that, Nāṇaka, and also very recently, we had about hundred years back, a very great Saint born in India known as Sāī Nāth.<br>
+<font color="red">In this Bhavasāgara &#8211; oc... Bhavasāgara means the ocean of this world &#8211; were born, through this ocean of the world, were born all the Primordial Masters, one after another. We can say Abraham, Moses, we had Janaka, were Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], and Socrates, and so many others like that, Nāṇaka, and also very recently, we had about hundred years back, a very great Saint born in India known as Sāī Nāth.<br>
 They all represent the same element that is the water element. Being responsible or being born out of that, They are anxious to maintain water element as the one which is within us for sustaining ourselves. We su... we are sustained by water, so They help us to sustain ourselves. They are the sustainers: They tell us how to sustain us as a human being.<br>
 And all of Them have tried to establish religion within us.</font><br>
 A religion doesn't mean outside, but the religion as a man: means the capacity of a man, or you can say the quality of a man. What a human being should be like, what is the way to know if he is a human being or not, which is described in al... in the Ten Commandments."<br>
@@ -520,7 +520,7 @@ But there are Ten, which are here, which are described as [the] Ten Commandments
 
 <p>
 "Today I would like to say about this chakra especially that is the ... what we call the Nābhī chakra, is the central path of our evolution where you start your seeking and youge [you] cross over to [the] other side.<br>
-Now, surrounding this you will find there is the Ocean of Illusion. And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya -- is the Primordial Master. And He incarnated on this Earth many a times. At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze. <font color="red">Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.</font><br>
+Now, surrounding this you will find there is the Ocean of Illusion. And this Ocean of Illusion was governed by a Deity, by a special powerful personality whom we call as Dattātreya &#8211; is the Primordial Master. And He incarnated on this Earth many a times. At the time of Christ, and even before that, He incarnated as, say, Abraham, Moses, Socrates, Lao Tze. <font color="red">Later on, He incarnated as Muhammad Sāhab, then the same Great Principle incarnated as Nāṇaka, then the same Principle at the last incarnated as Sāī Nāth of Śhirḍī.</font><br>
 So the same Great Principle of this Primordial Master has incarnated because without a master, how will you be taken away from in ... this illusion? How you are going to be exposed to that reality which you do not feel?<br>
 What has to happen to you is that you have to become more sensitive, more open, awakened, enlightened to feel that's All-pervading Power around you.<br>
 Now, these [masters] came again and again and told you that you must look after your dharma.<br>
@@ -618,7 +618,7 @@ The ... we call it Ten Incarnations of the Primordial Master. There are many who
 
 <p>
 "The Primordial Master was also born as Macchindranāth, and again as Zoroaster who was worshiped by the ancient Persians, and still revered by Parsis. Earlier He had taken birth as Abraham and later as Moses, the Fathers of Judaism. In China He was born as Confucius and as Lao Tze, and in Greece as Socrates. He took a very significant Incarnation as Muhammad Sāhib, the Messenger (Paigambar) and founder of Islam, whose daughter Fāṭimah was Sītā reborn, an Incarnation of Ādi Śhakti. She was the origin of the Shiya sect among the Muslims (in Indian dialect Sītā is called Shiya). Yet again He took birth as Guru Nāṇak, founder of the Sikh religion, whose sister was Nāṇakī (Jānakī, i.e., Sītā). <font color="red">Most recently He was born as Śhrī Sāī Bābā of Śhirḍī in the Indian State of Maharashtra where He died in 1918.</font> Altogether there were ten major Avatāras of Dattātreya."<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 33</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God, Page 33</b></font>
 </p>
 
 <div class="para-divider"></div>

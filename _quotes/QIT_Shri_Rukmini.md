@@ -106,7 +106,7 @@ So for that, best is to take some rest, and give some rest to your right Viśhud
 
 <p>
 "Ādi Viṣhṇu's eighth form was as Śhrī Kṛiṣhṇa during the Dwāpara Yuga, and again Ādi Śhakti took three forms. Mahākālī lived for a very short time as Viṣhṇumāyā, the infant sister of Śhrī Kṛiṣhṇa. She was actually born as the daughter of Yeśhodā, Śhrī Kṛiṣhṇa's foster mother, and was killed by the demon Kaṃsa. She later took birth as Draupadī, wife of the Pāṇḍavas. Yeśhodā was Herself an Incarnation of Mahāsaraswatī. <font color="red">As Mahālakṣhmī She took two forms, Rādhā and Rukmiṇī.</font> '<i>Rā</i>' means power or energy and '<i>dhā</i>' means sustenance, so the name 'Rādhā' means the one who sustains the power. <font color="red">As Rukmiṇī She became Queen to Śhrī Kṛiṣhṇa, the King in Dvārakā.</font>"<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 34</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations &#8211; Ambassadors of God, Page 34</b></font>
 </p>
 
 <div class="para-divider"></div>
