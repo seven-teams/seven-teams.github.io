@@ -209,7 +209,7 @@ These Deities also manifest Śhrī Kṛiṣhṇa with His Power Rādhā, and the
 ......<br>
 The other Deities remain on their different centers:<br>
 &emsp;1. <i>Sahasrāra chakra</i> -- Ādi Śhakti Herself<br>
-&emsp;2. <i>Āgñyā chakra</i> Jesus Christ + His Mother Mary<br>
+&emsp;2. <i>Āgñyā chakra</i> -- Jesus Christ + His Mother Mary<br>
 ......"</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 9: The Creation of Kuṇḍalinī in Human Beings</b></font>
 </p>

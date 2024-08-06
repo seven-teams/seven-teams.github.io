@@ -198,7 +198,7 @@ You have to proceed carefully with Hanumānjī's Power. He does the planning, an
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"* Monkeys evolved as integrated animals. The monkey raised the head and stood up. That created a new dimension in animal evolution. The missing links, half man and half monkey, existed on this Earth. They evolved and became angelic identities like Hanumāna and Bhairava. "</font><br>
+<font color="red">"$\bullet$ Monkeys evolved as integrated animals. The monkey raised the head and stood up. That created a new dimension in animal evolution. The missing links, half man and half monkey, existed on this Earth. They evolved and became angelic identities like Hanumāna and Bhairava. "</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 3: Evolution</b></font>
 </p>
 
