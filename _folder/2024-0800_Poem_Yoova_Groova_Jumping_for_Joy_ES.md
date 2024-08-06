@@ -89,7 +89,7 @@ On the cool, auspicious track!</p>
 
 <br>
 
-<div style="text-align: center"><img src="" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/2024-0800_Poem_'Yoova_Groova_Jumping_for_Joy'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
 
