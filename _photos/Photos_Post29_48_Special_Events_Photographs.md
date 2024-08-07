@@ -12,10 +12,10 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 3 Photos of the special event <font color="Crimson"><b>1980-0118 Pūjā, Rāhurī, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution and 2 medium resolutions from the Named Collections.<br>
-The direct link to the 11 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1980"><font color="DarkGreen">India 1980</font></a>.<br> 
+We are pleased to let you know that 4 Photos of the special event <font color="Crimson"><b>1980-0118 Pūjā, Rāhurī, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution and 3 medium resolutions from the Named Collections.<br>
+The direct link to the 12 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1980"><font color="DarkGreen">India 1980</font></a>.<br> 
 Please kindly share the links with all our brothers and sisters.<br>
-[Note: 1 Photo uploaded on 2024-0112.]<br>
+[Note: 1 Photo uploaded on 2024-0112 and another 1 on 2024-0807.]<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
