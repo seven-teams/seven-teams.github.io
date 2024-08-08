@@ -230,6 +230,26 @@ The other Deities remain on their different centers:<br>
 
 <div class="para-divider"></div>
 
+<p>
+<font color="red">"Muhammad Sāhib has talked about Abraham, Moses, Christ in a series as They came one after the other. He has talked about the Mother of Christ especially with great respect. In the Bible She is not given so much respect because of Paul who edited the Bible. She is just called ``the woman". But Prophet Muhammad says that anyone who talks against this Holy Lady will be punished, or something to that effect. So one can see that Muhammad Sāhib never talked of an exclusive religion called ``Islam" (i.e., I surrender to God Almighty). But so many followers of Islam are fighting the followers of other religions and even amongst themselves."</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 8: World Peace</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Śhrī Gaṇeśha establishes within you the higher self. The baser self which enjoys all baser things of lives are If you see Mona Lisa, I don't know, she cannot be an actress, she cannot be in any beauty contest. Her face is very serene, very motherly, very pure, her eyes, and that's why it is that she is eternally so much appreciated? The reason is, there is Gaṇeśha Principle in her. She's a mother. The story about that one is that this lady had lost her child and she would never smile, she would never cry and one little child was brought to her. She saw the child, and then the smile that came on her face of that love for the child is being depicted by this great artist, that's why people are appreciating it. You have seen in the West though the people don't show much interest in the mother-child relationships, anywhere you go, the mother and child theme is the best. They will show you a photograph, this is Mother and Child. This is Christ's Mother and Child. When Christ was brought down, the Mother is there. They have to have Mother and the Child Principle acting otherwise that picture is not regarded as something great. Or you have to have actually Christ who is a Gaṇeśha Principle Himself, to be shown. I haven't seen any picture as such of those days where these principles are not there. Even Picasso has used it. Even people who have been quite modern had to use this principle to popularize. But some people had used to popularize not the Gaṇeśha Principle, just anti-Gaṇeśha principles. "</font><br>
+<font size="+0"><b>Education Enlightened A Guide For Schools, Chapter 1: Establishing the Principle of Śhrī Gaṇeśha</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Then the third one (Incarnation of Mahālakṣhmī) came as the Mother of Christ. She gave Her child to be crucified. Would we just introspect ourselves? How much we are attached like hawks to our children? If anybody says anything to the children, people don't like i. While we are so much attached to our children. What are we teaching them? Are we teaching them any sacrifices? Are we teaching them any sharing? Are we teaching them any tolerance? Are we teaching them forgiveness? Leave alone crucifixion, leave alone even little punishment, the child has now become the biggest ordeal for Sahaja Yogis. Everybody gets children. What's so great about it? The greatness is what kind of children you are. "</font><br>
+<font size="+0"><b>Education Enlightened A Guide For Schools, Chapter 13: Light Burns For Others, Not For Itself</b></font>
+</p>
+
+<div class="para-divider"></div>
 
 <br>
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
