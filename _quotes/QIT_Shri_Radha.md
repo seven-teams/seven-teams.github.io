@@ -225,7 +225,7 @@ Rādhā had created Her Only Son, Mahāviṣhṇu, in the Vaikuṇṭha Stage bu
 The other Deities remain on their different centers:<br>
 &emsp;1. <i>Sahasrāra chakra</i> &#8211; Ādi Śhakti Herself<br>
 &emsp;2. <i>Āgñyā chakra</i> &#8211; Jesus Christ + His Mother Mary<br>
-&emsp;3. <i>Viśhuddhi chakra</i> &#8211; Śhrī Kṛiṣhṇa + Śhrī Rādhā <br>
+&emsp;3. <i>Viśhuddhi chakra</i> &#8211; Śhrī Kṛiṣhṇa + Śhrī Rādhā<br>
 ......<br>
 Lord Viṣhṇu's eighth Incarnation was as Śhrī Kṛiṣhṇa who, with His Power Rādhā, resides on the Viśhuddhi chakra. Śhrī Kṛiṣhṇa was the ultimate expression of the Primordial Being (Virāṭa) in human form, and taught us to regard the Creation as a play (<i>Līlā</i>) of the Divine Power.<br>
 In the brain above the Viśhuddhi, where the optic nerves cross each other, is the Āgñyā chakra, where Lord Jesus Christ resides in every human being. He is the complete manifestation of the Son God Principle. His body was formed from Śhrī Kārttikeya, the only brother of Śhrī Gaṇeśha and a Divine Personality. Although He came as a human being His Resurrection was made possible by the divine substance of His human body. In the Vaikuṇṭha Stage He was created as Mahāviṣhṇu, the only Son of Kṛiṣhṇa and Rādhā. As the ninth Incarnation of Viṣhṇu He was called Buddha or 'the mild Incarnation'. "</font><br>
