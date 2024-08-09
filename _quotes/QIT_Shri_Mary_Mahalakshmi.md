@@ -231,7 +231,7 @@ The other Deities remain on their different centers:<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Muhammad Sāhib has talked about Abraham, Moses, Christ in a series as They came one after the other. He has talked about the Mother of Christ especially with great respect. In the Bible She is not given so much respect because of Paul who edited the Bible. She is just called ``the woman". But Prophet Muhammad says that anyone who talks against this Holy Lady will be punished, or something to that effect. So one can see that Muhammad Sāhib never talked of an exclusive religion called ``Islam" (i.e., I surrender to God Almighty). But so many followers of Islam are fighting the followers of other religions and even amongst themselves."</font><br>
+<font color="red">"Muhammad Sāhib has talked about Abraham, Moses, Christ in a series as They came one after the other. He has talked about the Mother of Christ especially with great respect. In the Bible She is not given so much respect because of Paul who edited the Bible. She is just called "the woman". But Prophet Muhammad says that anyone who talks against this Holy Lady will be punished, or something to that effect. So one can see that Muhammad Sāhib never talked of an exclusive religion called "Islam" (i.e., I surrender to God Almighty). But so many followers of Islam are fighting the followers of other religions and even amongst themselves."</font><br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 8: World Peace</b></font>
 </p>
 
