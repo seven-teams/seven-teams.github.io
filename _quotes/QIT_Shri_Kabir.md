@@ -1,0 +1,226 @@
+---
+title: 'ŚHRĪ KABĪR in the Words of ŚHRĪ MĀTĀJĪ'
+date: 2024-08-09
+permalink: /quotes/2024/0809
+tags:
+  - crimson @ Shri Kabir
+---
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"References to Kuṇḍalinī awakening abound in many of the Indian Scriptures. Some of these are Vāsiṣhṭha Yoga, Ṛigveda, Puruṣha Sūkta, Upaniṣhads of Atharvaveda, Yogopanishad, Yogaśhikhā Upaniṣhad, Kaṭhopaniṣhad and Yoga Kuṇḍalinī Upaniṣhad. In the Purāṇas are Devī Bhāgavat[am] Purāṇa, Mārkaṇḍeya Purāṇa, Śhrī Bhāgavat[a] Purāṇa, etc. In Sanhitas: Haṭh[a] Yoga Sanhita, Laya Yoga Sanhita, Rāj Yoga Sanhita, Śhiv Sanhita. In the Yoga tests: Haṭha Yoga Pradīpikā, Saundaryalaharī, Śhubhodayam, Lalitā Sahasrānam, and by Saints such as Bhakt Kabīr, Nāṇak, Gyāneśhwar, etc."</font><br>
+<font size="+0"><b>1900-0000 Quote from the book Divine Knowledge through Vibrations (1992) by P.T. Rajasekharan and R. Venkatesan, Pages 73 and 74</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+[Do not go to the garden of flowers O friend, go not there In your body is the garden of flowers Take your seat on the thousand petals of lotus, and there gaze upon the infinite beauty.]<br>
+[There is a strange tree, which stands without roots bears fruit without blossoming It has no branches and no leaves, it is lotus all over. Two birds sing there: one is the guru, and the other disciple. The disciple chooses the manifold fruits of life and tastes them, and the guru beholds him in joy.]<br>
+<font color="red">"In the first stanza Bhakt Kabīr has talked about the Sahasrāra [limbic area in brain] and the infinite beauty and joy felt when Kuṇḍalinī reaches there<br>
+In the second stanza 'Tree' symbolizes the Kuṇḍalinī and various chakras. Kabīr referred to Kuṇḍalinī as 'Surati' in many of the verses. His followers call this as 'Surati Yoga'." "</font><br>
+<font size="+0"><b>1900-0000 Quote from the book Divine Knowledge through Vibrations (1992) by P.T. Rajasekharan and R. Venkatesan, Page 76</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Pramila has also sent exceptional letters. They are in Hindi. She is an exceptional writer. She is able to write and express in Hindi. Her knowledge is very high. Sahaja Yoga and Kabīr, if you give these topics to her, she will write excellently and send it."</font><br>
+<font size="+0"><b>1901-0000 Letter (Marathi) to Anant</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Kabeerdas [Kabīr Dās] the great Saint has critisized the fake ones in his poems."</font><br>
+<font size="+0"><b>1902-0000 Handwritten Note on Haṭha Yoga related to The Book of Ādi Śhakti, Chapter 7</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"In olden days, tradition of `one master -- one disciple' was common, when they use[d] to grant Realization to one disciple only. So, there were very few realized people and if someone talked about Kuṇḍalinī, would be perceived as crazy.<br>
+Like Kabīr Dāsjī has mentioned in his poetry, "How do I explain, as this whole world is blind?""</font><br>
+<font size="+0"><b>1907-0000 Interview (Hindi) with a Lady for a TV Program Directed by Ashok Agarwal, Ardhamātrā Volume 2, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"It is true, but you should forget about what you have read and just try to feel it. They spoke about the Kuṇḍalinī in metaphors or poetry but nobody wrote about it clearly. Perhaps they felt the time was not yet ripe. For instance, the Nāth Pānthis diligently guarded their knowledge and only passed it in the lineage of a master to a disciple. Gyānadeva could not give Realization to anybody. Same with other Saints like Kabīra, Tulasīdās, Ramaṇ Mahāṛiṣhi, Sufis and others. They were undoubtedly very great Saints. Whatever poetry they gave, people were singing, but that's all -- they did not know thyself. It was a very difficult situation because in modern times, like you, people only accept what is written in a book."</font><br>
+<font size="+0"><b>1972-0200 Meeting with a Boy or Public Program, Aurangabad, Maharashtra, India (month not sure)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"You can read Nāṇaka, Kabīr Dās, you read Vasiṣhṭha, read about the Guru of Gurus Janak. Not only in our country but also in the foreign countries they have been writing like this for thousands of years. They have all been writing about which I am talking. "What you have to get is unexpectedly within."<br>
+But those poor things just kept saying. Maybe because they could not search it. If they were not able to find out about it, it does not mean that they were any less.<br>
+......<br>
+There maybe many people among you who feel your hands are shaking or getting hot when you put your hands towards Me. You might feel so. So people may say we are getting vibrations. These are not vibrations. That is because you are opposing Me. Something within you is opposing Me. The love that I am giving you your hands are shaking because of your opposition.<br>
+I believe the vibrations come when your Sahasrāra starts moving. Kabīr Dās has said, ``On the Top of the head the Anāhata [the unheard sound] beats." It means that just like the beating of heart the same happens at the top of the head.<br>
+When the noise of this breaks and pierces then you become one with God, then no noise comes nor do you see anything, nor is anything visible."</font><br>
+<font size="+0"><b>1973-0715 Guru Pūjā (Hindi) (Guru Pūrṇimā), Sahaja Yoga is a New Discovery, Mumbai, Maharashtra, India}</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Those people who are very big paṇḍits, if they want they should read Kabīr Dās, Nāṇakjī and if possible also read Śhaṅkarāchārya, He is the best. If you read Ādi Śhaṅkarāchārya then you can understand what is this Chaitanya Laharī [Wave of Vibrations], I am talking about.<br>
+I have not yet met anyone who has systematically said or explained about Kuṇḍalinī."</font><br>
+<font size="+0"><b>1973-1209 Public Program (Hindi), Day 3, Śhrī Dattātreya Jayanti, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1975-0201 Public Program (Hindi + English), Dhyāna Kyoṃ Karanā Chāhiye (Why Should One Meditate), Gurudev Cooperative Housing Society, Prabhadevi Sea Face, Mumbai, Maharashtra, India (other dates 0202 and 0209)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>2002-0724 Guru Pūrṇimā Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"In a way, man becomes very collective, like the drop falling into the ocean. As Kabīra has said that, 'When the drop falls into the ocean, it becomes one with it.' The same oneness takes place.<br>
+This has to happen. We have to get this climax of our evolution."</font><br>
+<font size="+0"><b>2003-0314 Interview (Hindi) for TV Station, Broadcasted as `Towards Liberation', Noida, Uttar Pradesh, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red"><b>Variant 1:</b><br>
+"<i>On being awakened She pierces the Brahamarandhra passing through six chakras. The fontanel area is called the Brahmarandhra. "Śhūnya śhikhar par anāhat bāji</i> [re] [Anāhat is sounding on the hollow top]" [by] <i>Kabīr.</i>"<br>
+</font><br>
+<b>Variant 2:</b><br>
+"<i>This is an awakening [which] crosses six chakras and pierces the Brahmarandhra (it is known as the fontanel bone area). ``Śhūnya śhikhar par anāhat bāje</i>" [re]" <i>"by Kabīr.</i>"<br><font size="+0"><b>1976-0000 Chaitanya Nidhi (Hindi) Written by Mr. S. C. Rai and Mr. Mishra with Handwritten Corrections by Śhrī Mātājī Nirmalā Devī</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"This was how human beings paid homage to their Primordial Parents, God their Father and Ādi Śhakti their Mother, under the influence of these tāntrikas. They actually committed a sin against the virtue of chastity. Chastity is the power of Ādi Śhakti, the Primordial Mother, and everywhere tāntrikas have ruled, women were insulted and treated as a possession and a toy for the cruel enjoyment of men. The erotic images that mar these beautiful temples should not be taken as a sign that public opinion approved. It was the opinion of very few people, who ruled under hypnosis, that counted in those days, who were convinced they had achieved sexual liberation by delving into it. Many saintly people protested against the blackmail and the pornography of those times. There is historical evidence of uprisings against such kings who tried so hard to shame God. In later periods many courageous poets like Kabīr and Nāṇak used Their talents as writers to scourge the tāntrikas. "</font><br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 6: Tantrism</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"There are many examples of cruel and ascetic Haṭha Yogis (<i>saṃnyāsins</i>) in ancient times. One of them was Viśhwāmitra who went after many truthful and saintly householders. Rāja Hariśhchandra, a noble king, was cruelly tortured by him. From Paraśhurāma's son onwards there was a steady stream of very hot tempered ascetics. It is hard to imagine how such people, devoid of any Divine Love, can achieve their salvation.<br>
+They observed very strict abstinence and had nothing to do with sex. They did not believe in any family ties or involvements. If they had a guru who was a realized Soul he gave them the fatherly love they needed, and brought balance into their ascent. Macchindranāth, an Incarnation of Dattātreya, the Primordial Master, started <i>Nāth Pāntha</i>. There were some very feared gurus (<i>Avadhūtas</i>) of this cult even decades later. Its deterioration started, though, when tāntrikas imposed themselves as gurus, and took over the cult in many places. These fake gurus were criticized by the great Saint Kabīr Dās in His poems."</font><br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 7: Haṭha Yoga and Rāja Yoga</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Unfortunately for many, like the friends of the Western gentleman who wanted to shout about truth from the rooftops, in Kali Yuga, seeking has developed its own momentum and people don't want to give up the activity of seeking, even when they come face to face with what they are looking for. In the film ``Modern Times", when Charlie Chaplin has been working on a conveyor belt full of bolts, the activity of fixing the nuts creates such an inertia in his body that even when he has finished fixing the nuts and the conveyer belt had stopped moving, he still performs the same actions of fixing something with his hands. This really is an analogy of those people who are running in the rat race of seeking and just can't get out of the habit. In this way, the seeking of Truth has that inertia, which can no longer be controlled by putting the brake on, or pausing for a moment in order to listen to someone who really can say how one finds the Absolute Truth. But the knowers of Truth are always faced with blank incomprehension. As the poet Kabīr has said: ``How can I explain what I know and see, when the whole world is blind". Of course, since Kabīr's time things have changed and at this present moment I cannot say that all the world is blind because there are thousands and thousands who have come with open minds to know about Absolute Truth through Kuṇḍalinī Awakening. Surprisingly there are quite a number of these realized Souls."</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 1: Modernism and Rationality</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Then I turned to the question of shaving the head to get salvation. The great poet Kabīr has said about this: ``If by shaving your head you get Nirvāṇa then what about the lamb which is shaved twice a year." Hearing my comments, the Hare Kṛiṣhṇa leader got very angry with me. I said: ``Why are you angry with Me. I am your Mother, I am just asking you not to wear this dhotī in such cold weather because you will have problems with your legs." He said: ``I am angry because you are criticizing my guru." I said: ``I am not criticizing him, but I am just asking you a logical question." It is very surprising that these people should advised by their gurus to wear clothes which are suitable for the hot climate of India but totally unsuitable for the cold climate in America. This gentleman was very intelligent. He had read the Gītā very well and he talked about the Gītā. But I told him that in the Gītā it is not written anywhere that you should wear a dhotī or shave your head."</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 4: Racialism</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"The Sufis in the real sense were realized Souls. In Turkey I met many who are seeking the Truth. The poetry of Yunus Einre is absolutely heavenly. How could he speak about the Global Religion and about Divine Love? He described man as the most elevated creature created by God in His image. In India we had Nizamuddin Auliyā, Amīr Khusaro, Moinuddin Chisti, Kabīr Dās, Śhrī Sāī Nāth Śhirḍī, Kāniphanāth, all saying the same Truth about global unity.<br>
+......<br>
+Once I found Myself in a very awkward situation when I went to Hastināpur with My husband, who was a collector of the Meerut district. There was some sort of a dispute between the two wings of the Jain religion. One is called Digambar, where they need not wear any clothes nor believe in saints who wear any clothes, because they are clothed by the directions like north, south, east and west. The second one, Śhvetāṃbar, believe in wearing white clothes, but cover their faces with a piece of cloth to prevent any germs from entering their body so that the germs may not be killed. Unfortunately we first went to the Digambar Temple and sat in the front row with all the paraphernalia of the collectorate, when 40 absolutely nude saints came and sat on the platform. It was a rude shock to me! I just put down my head and my husband went into a rage. These men were plucking their hair from their head and everywhere that was possible. For this the great poet Kabīr has said, ``By plucking your hair if you think you can go to heaven or by shaving your head if you feel are going to heaven, then the sheep which is shaved twice a year will arrive in heaven much before yourself." So what is the use of trying these tricks. It is very interesting that they believe that if you go on plucking your hair then you attain the complete form of Jainism. All this drama really made my husband so furious that he got up from his seat and, holding my hand, walked out of that hall with all the paraphernalia of the collectorate behind us. My husband pushed me into the car and then got into the car. One man came running and asked him: ``What's the matter. Why are you angry?" My husband said: ``I cannot stand this unmannerliness, vulgarity, this insult." The driver had already started the car when he looked down and asked me: ``Why did they do this to us?" I was already speechless with shame. I just said: ``I did not know that the followers of the Great Lord Mahāvīra do this. I must, therefore, leave immediately". He said: ``You know about religions and how do you not know about this kind of horrendous shock they give to others?" I confessed: ``I know about religions but I do not know about their followers, who are just the opposite of their Masters who started those religions.""</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 6: Religions</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Later on, in the sixteenth century many Saints existed who started talking and singing about Kuṇḍalinī, the channels and the subtle centers. All over India all these Saints talked about Self-knowledge, Self-realization (Ātma-sākṣhātkār). Some of the Saints tried to give Self-realization to their disciples but they actually gave it only to very few persons because they thought that the world was not yet ready to receive Self-realization. As Kabīra has written: ``How am I to explain to these people, who are blind, about the light, mostly who are blind?""</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 9: Evolution</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+
+<br>
+<p style="color:red;">Jay Śhrī Mātājī!<br></p>
