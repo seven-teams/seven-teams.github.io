@@ -175,7 +175,7 @@ Today is an auspicious day, because many things took place on this day. Sītāj�
 
 <p>
 <font color="red">"During the Tretā Yuga, at the time of Śhrī Rāma, Ādi Śhakti incarnated in three separate human personalities, expressing Her three aspects:<br>
-&emsp;1. <i>Sītā [Jānakī] (Mahālakṣhmī) as the daughter of Rāja Janaka<br>
+&emsp;1. Sītā [Jānakī] (Mahālakṣhmī) as the daughter of Rāja Janaka<br>
 &emsp;&emsp;This was the first absolute human form (<i>Laukik</i>)"</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play</b></font>
 </p>
