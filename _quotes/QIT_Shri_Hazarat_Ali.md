@@ -179,7 +179,7 @@ He has incarnated only once on this Earth, and you'll be surprised if I tell you
 
 <p>
 <font color="red">"Today the way ... today the way we see Islam, we get frightened. [Gestures to start the translation.]<br>
-Specially, these are the days of your marty[rdo]m. And I know about it, everything, what had happened to Hasan and Husayn. You all have done lot of penance for Them, and are still doing it. But now the time has come for all of you to know that Their sacrifice, Their kurbānī, has been completely fulfilled. After all, what did They want? They wanted whatever Their father, ʿAlī, wanted Them to do, also Their mother Fāṭimah. But we don't know, `Who They were? What Incarnations They were? What was Their job?'<br>
+Specially, these are the days of your marty[rdo]m. And I know about it, everything, what had happened to Hasan and Husayn. You all have done lot of penance for Them, and are still doing it. But now the time has come for all of you to know that Their sacrifice, Their kurbānī, has been completely fulfilled. After all, what did They want? They wanted whatever Their father, ʿAlī, wanted Them to do, also Their mother Fāṭimah. But we don't know, 'Who They were? What Incarnations They were? What was Their job?'<br>
 ......<br>
 None of these people came on this Earth to create different groups, none of Them.<br>
 It was arf ... unfortunate that the Sunnis came up afterwards, and they never understood ʿAlī. According to Sahaja Yoga, ʿAlī was a very Great Incarnation.<br>
