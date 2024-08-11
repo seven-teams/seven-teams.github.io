@@ -11,14 +11,10 @@ tags:
 
 <p>
 <font color="red">"(VIRATA) was actually expressed through Him. His disciple Arjuna saw the vision of VIRATA. ......<br>
+Shri Krishna, who was the greatest expression of Father God, incarnated to open another horizon in human understanding of the power of Divine Love and to watch the play of God's power as a witness. By his incarnation the human imagination was to become aware of the Great Primordial Being and therefore poets and philosophers entered the intuitive realm of metaphysical perceptions. He employed the method of Divine Diplomacy to explain the true nature of reality to people. Shri Krishna's life was spent with the masses and thus his incarnation gave rise to a mass spiritual Movement. (VIRATA) was actually expressed through Him. His disciple Arjuna saw the vision of VIRATA. For the first time human eye saw the vision of the Great Primordial Being."</font> [<b> Older Version of the last 2 sentences:</b> <font color="red">"He appeared before Arjuna as VIRATA and for the first time a human eye had the glimpse of the Primordial being."</font>]<br>
+He played with ordinary family people of Gokul and sowed the seed of spirituality in them. (Krishna means the one who sows)<br>
+How He awakened the Kund[a]lini through Sahaja Yoga in Rasa (dances) will be discussed later.<br>
 In the life of Jesus Christ (incarnation of Maha Vishnu) the highest expression of the essence of spiritual innocence came on this earth. Human beings witnessed the sacrifice of the dearest and only son of the Father (Virata) for the sake of humanity. This allowed a deeper human perception for God's great love for humanity. The crucifixion of Christ happened at a time when people knew about Go almighty the Father but did not know how to crucify their human self to make the spiritual self express itself; tis is the meaning of the Resurrection of Christ by which man could be the physical witness of the immortality of the spirit which does not suffer or perish. The human awareness first time registered the truth of immortality of spirit which Krishna preached in his lifetime."</font><br>
-<font size="+0"><b>1902-0000 Handwritten Note on the Vision of the Virāṭa related to The Book of Ādi Śhakti, Chapter 2</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">"Shri Krishna incarnated to open another horizon in human understanding of the power of Divine Love and to ......"</font><br>
 <font size="+0"><b>1902-0000 Handwritten Note on the Incarnations of Viṣhṇu related to The Book of Ādi Śhakti, Chapter 2</b></font>
 </p>
 
