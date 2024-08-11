@@ -139,7 +139,7 @@ In the life of Jesus Christ (incarnation of Maha Vishnu) the highest expression 
 <p>
 Now we <font color="red"><i>get immersed in melodic joy becoming carrier instruments</i></font> of hollow (Śhūnya Chaitanya) [(empty vibrations)] <font color="red"><i>like the flute of Kṛiṣhṇa. "He plays and we listen. The Learned [Sages/Seers] (kahane vāle) say that You are playing" - Mātājī.</i></font><br>
 ......<br>
-<font color="red"><i>Rādhā Śhrī Kṛiiṣhṇa is in the center</font></i>. His form <font color="red"><i>is</i>,/font> Virāṭ. He is connected to nerves/channels (nāḍiyoṃ/nāḍī) related to arms and throat [neck]. <font color="red"><i>The indication of this chakra is found</i></font> in the first finger, i.e., index finger of the hand. Tongue and <font color="red"><i>teeth, mouth, lips, ears, eyes (not vision), throat, nose, ears, etc.</i></font>, disorder of arms occur due to deformation of this.<br>
+<font color="red"><i>Rādhā Śhrī Kṛiiṣhṇa is in the center.</i></font> His form <font color="red"><i>is</i></font> Virāṭ. He is connected to nerves/channels (nāḍiyoṃ/nāḍī) related to arms and throat [neck]. <font color="red"><i>The indication of this chakra is found</i></font> in the first finger, i.e., index finger of the hand. Tongue and <font color="red"><i>teeth, mouth, lips, ears, eyes (not vision), throat, nose, ears, etc.</i></font>, disorder of arms occur due to deformation of this.<br>
 <font size="+0"><b>1976-0000 Chaitanya Nidhi (Hindi) Written by Mr. S. C. Rai and Mr. Mishra with Handwritten Corrections by Śhrī Mātājī Nirmalā Devī</b></font>
 </p>
 
