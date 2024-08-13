@@ -53,7 +53,7 @@ These Scriptures have been written by people who were born on a very high level.
 <br>
 <b>Version 2:</b><br>
 <font color="red">"One gentleman was telling Me yesterday that, "What stupidity made a saint like Gyāneśhwar write praise [stuti] about Lord Gaṇeśha? You consider Gyāneśhwarjī a Saint, this in itself is a big surprise. Do you consider Him a Saint because of His śhabda chāturya [skill of writing]?"<br>
-In these Scriptures whatever is written, it has been written by those people who were born at a very high state, whose vibratory level was very high, whose chakṣhu [eye, vision] was something different."<br>
+In these Scriptures whatever is written, it has been written by those people who were born at a very high state, whose vibratory level was very high, whose chakṣhu [eye, vision] was something different."</font><br>
 <br>
 <b>Version 3:</b><br>
 <font color="red">"Yesterday, someone was telling Me that, "Sant Gyāneśhwar was such an intelligent man, and what foolishness that He used to praise Lord Gaṇeśha." You think that Gyāneśhwarjī was intelligent, this, itself is surprising. Do you consider Him intelligent because of His knowledge of words?<br>
