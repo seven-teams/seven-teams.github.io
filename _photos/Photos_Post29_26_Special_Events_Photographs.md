@@ -12,9 +12,10 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1909-0000 Lotus Feet N</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
-The direct link to the Photo6 in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Anna-Mancini-Collection/1909/">Collection 1909</a>.<br>
+We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1982-0126 Pūjā, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
+The direct link to the 4 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1982/">India 1982</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
+[Note: titled changed from 1909-0000 on 2024-0814.]<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
