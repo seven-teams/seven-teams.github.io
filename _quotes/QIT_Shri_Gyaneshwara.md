@@ -179,7 +179,7 @@ Now why has it been told to you that, `You should not read the sixth chapter'? B
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Regarding the program, that was presented by the French, it's remarkable I must say. Last year they had one very good drama on Jñānadeva, and this year this other one was really very very remarkable. "</font><br>
+<font color="red">"Regarding the program, that was presented by the French, is remarkable, I must say. Last year they had one very good drama on Gyānadeva. And this year, the another one, was really very-very remarkable."</font><br>
 <font size="+0"><b>1998-1024 Talk to Sahaja Yogis, after the Evening Program (French Play Jeanne d'Arc: Revelation d'une Śhakti'), the day before Diwālī, Pal Sports Complex, Novi Ligure, Alessandria, Italy</b></font>
 </p>
 
