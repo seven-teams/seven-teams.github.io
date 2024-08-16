@@ -35,14 +35,24 @@ It is only possible through Sahaja Yoga to realize that this is the Truth, this 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b>1977-0215 Public Program (Hindi + English), Day 2, Sat-chit-ānanda, New Delhi, India}</b></font>
+<font color="red">"Now, beyond that is God's Realization.<br>
+There are three stages to that also, but just now I have told this: the Sat-chit-ānand State.<br>
+The God's Realization is the state in which Gautam Buddha and Mahāvīra only rose, and They are settled down here in our brains, both of Them are here, Christ is here.<br>
+And these two were not Incarnations: They were born as human beings. They were born to Sītā, as Lav and Kuśh. Then they were born as Buddha and Mahāvīra. Then Ādi Śhakti was Their mother again. Then they were born to Fāṭimah Bi as Hasan and Husayn.<br>
+They are both placed here, in your head.<br>
+And They are the two milestones you have got, by which you can know what a human being can rise up to that now today They are like Incarnations. Incarnations are beyond, but maybe the gap can be bri... bridged."</font><br>
+<font size="+0"><b>1977-0215 Public Program (Hindi + English), Day 2, Sat-chit-ānanda, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Now in this Void we have two great entities as well which we know as Chandra [Moon] and Sūrya [Sun]. Moon and Sun are such chakras which reside on these nāḍīs here and here.<br>
+On these chakras there are two very great personalities who have been appointed. They are complete embodiment of human beings. They are like humans, in fact are humans. Out of these one is Buddha and one is Mahāvīra.<br>
+But if you listen to the whole history of Their lives, then these are two sons which Śhrī Sītā had as Lav and Kuśha who is completely in human form. And after They evolved to the level that They are here as Buddha and Mahāvīra. There also they thought They have reached an extreme of nonviolence because the supports of nonviolence came in and started protecting even mosquitoes and bugs.<br>
+Then They again took birth and came at the time of Muhammad. Muhammad was an Incarnation of Śhrī Janaka and His daughter Fāṭimah Bi was also Incarnation of Śhrī Sītā.<br>
+Then, as Their sons as Hasan and Husayn, They gave Their life in Karbalāʾ to prove that no kind of extreme is good.<br>
+And this thing is Truth or not you can see on your vibrations. If [one thinks that] I am lying, then through your vibrations you would know that not even one single word is a lie here that I am telling you. "</font><br>
 <font size="+0"><b>1978-0131 Public Program (Hindi), Day 2, Void, Heart, Viśhuddhi, Channels, New Delhi, India</b></font>
 </p>
 
