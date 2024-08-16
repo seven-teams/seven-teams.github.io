@@ -28,5 +28,5 @@ such direct tenderness.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="285"><b> S1. 2024-0815 Email to CCT.</b></list-item>
+  <list-item color="BlanchedAlmond"  width="285"><b> S1. 2024-0815 Author's email to CCT.</b></list-item>
 </wave-list>
