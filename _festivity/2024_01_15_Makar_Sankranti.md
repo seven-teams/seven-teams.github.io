@@ -27,7 +27,7 @@ Eternal blessings to all of you.</b></font><br>
 <font color="DarkRed">"<b>Today is the day where we celebrate the change of the axis of the Sun and that He moves towards the Tropic of Cancer.<br>
 Tropic of Cancer is the one which represents the motherhood, the motherhood of the Earth.</b> This Tropic of Cancer has passed through quite a big area of land while the Tropic of Capricorn has not. And the area through which it has passed it has created different beautiful manifestation of the motherhood qualities on this Earth.<br>
 We celebrate this change because the Sun has now moved into the new dimension so that all over the world there will be the warmth of the Sun. "</font><br>
-<font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English + Marathi), Carry the Sun with You, House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
+<font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English + Marathi), Carry the Sun with You, House of Madhukar Bhikobā Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1317.png" /></div>
@@ -35,7 +35,7 @@ We celebrate this change because the Sun has now moved into the new dimension so
 <p style="text-align:center;">
 <font color="DarkRed">"To speak in a very sweet manner is a sign of good breeding, good culture and fear of God. <b>Those who fear God will never speak rudely to another person, because in another person also the same Spirit is shining</b> and why should we be sharp or angry with another person who is created by God Almighty as we are created.<br>
 So this loving, beautiful relationship that we have with each other, after Sahaja Yoga especially, let us express in talking to each other sweetly. There are so many ways by which we could be sweet. There are little, little things if you do, you can create lot of sweetness, but you need not a sharp tongue, but a sharp memory."</font><br>
-<font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English + Marathi), Carry the Sun with You, House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
+<font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English + Marathi), Carry the Sun with You, House of Madhukar Bhikobā Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
 
 <p>

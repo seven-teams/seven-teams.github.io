@@ -46,7 +46,7 @@ May God bless you."</b></font><br>
 <font color="DarkRed">"So the second thing is, [which] today we do, is a very great <b>Pūjā of Aṣhṭamī [eighth day]: is the day when the Goddess killed nine rākṣhasas together with Her eight hands. So today is a very special day for which a very special attention is needed</b>.<br>
 It’s only at the behest of the bhaktas that the Goddess took Her form and killed all these rākṣhasas.<br>
 Also with Her eight hands, She killed Mahiṣhāsura. That’s why She’s called as Mahiṣhāsura Mardini. She’s called as Nava Chaṇḍī, one who has killed nine Chandas, means nine rākṣhasas She has killed. So is a very important day and very vital and very deep."</font><br>
-<font size="+0"><b>1982-0201 Śhrī Durgā Pūjā (English+Marathi+English), House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
+<font size="+0"><b>1982-0201 Śhrī Durgā Pūjā (English+Marathi+English), House of Madhukar Bhikobā Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1046.png" /></div>

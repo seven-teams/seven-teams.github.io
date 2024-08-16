@@ -33,7 +33,7 @@ What should you do to make Her happy? You distributed sesame seeds and jaggery. 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>"Saṅkrānt, krānt means revolution, saṅ means the holy. The holy revolution.<br>
 May God bless you."</b></font><br>
-<font size="+0"><b>1986-0114 Makar Saṅkrānti Pūjā (English+Marathi), Advice about the Growth within, House of Madhukar Dhumāḷ, Rāhurī, Maharashtra, India</b></font>
+<font size="+0"><b>1986-0114 Makar Saṅkrānti Pūjā (English+Marathi), Advice about the Growth within, House of Madhukar Bhikobā Dhumāḷ, Rāhurī, Maharashtra, India</b></font>
 </p>
 
 <p>
@@ -47,7 +47,7 @@ Just now I told them about the Eastern style and then I'll tell you later on abo
 <p style="text-align:center;">
 <font color="FireBrick"><b>"Today is the day to make joy and to enjoy everything and to feel the blessings of God all around us. 
 The Sun has come back in His own glory and we have to wish Him all success in the coming year, ......"</b></font><br>
-<font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English+Marathi), Carry the Sun with You, House of Madhukar Dhumāḷ, Rāhurī, Maharashtra, India</b></font>
+<font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English+Marathi), Carry the Sun with You, House of Madhukar Bhikobā Dhumāḷ, Rāhurī, Maharashtra, India</b></font>
 </p>
 
 <p>
@@ -82,7 +82,7 @@ O Divine Mother, You are verily the one who does the Divine work. Salutations to
 <p>
 <font color="DarkRed">"<b>I am giving you the powers, you can assimilate them.</b> If you just meditate every day it is not sufficient. You have to see what well-being you are giving to the others. But instead of that, you always think about your own well-being and come and ask Me to treat your son, your father, your mother, or ask that you should get a good job. And you want that I should also come to your house to eat, do this, do that. This way, you try to impose your will upon Me but about you, what can you do? You should always remember that you have to do something. <b>'I will show Śhrī Mātājī what I’m capable of, to do something special.'</b> We should decide this once and for all. I have an image in front of My eyes as Śhrī Gyāneśhwara has said “Bolte Piyushanche Sagar” [Words or sayings are like the oceans of Nectar]. Where is it? I want to see it.<br>
 <b>Thus on this auspicious day I give you all My sweet blessings that you will help everyone and look after their well-being and you will treat everyone with love and you will talk sweetly, full of love.</b>"</font><br>
-<font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English+Marathi), Carry the Sun with You, House of Madhukar Dhumāḷ, Rāhurī, Maharashtra, India</b></font>
+<font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English+Marathi), Carry the Sun with You, House of Madhukar Bhikobā Dhumāḷ, Rāhurī, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image122.png" /></div>
@@ -97,7 +97,7 @@ Keep the hands one minute and give the promise to Śhrī Mātājī.</b><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0">1987-0114 Makar Saṅkrānti Pūjā (English+Marathi), Carry the Sun with You, House of Madhukar Dhumāḷ, Rāhurī, Maharashtra, India</font>
+<font size="+0">1987-0114 Makar Saṅkrānti Pūjā (English+Marathi), Carry the Sun with You, House of Madhukar Bhikobā Dhumāḷ, Rāhurī, Maharashtra, India</font>
 <a href="https://www.youtube.com/watch?v=-93Ma5gJOeY"> video </a><br>
 
 <font size="+2"><b>Bhajans:</b></font>

@@ -49,7 +49,7 @@ It's only at the behest of the bhaktas that the Goddess took Her form and killed
 Also with Her eight hands, She killed Mahiṣhāsura.</b> That's why She's called as Mahiṣhāsuramardinī.<br> 
 She's called as Nava Chaṇḍī, one who has killed nine chaṇḍas, means nine rākṣhasas She has killed.<br> 
 So is a very important day and very vital and very deep."</font><br>
-<font size="+0"><b>1982-0201 Śhrī Durgā Pūjā (English + Marathi + English), House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
+<font size="+0"><b>1982-0201 Śhrī Durgā Pūjā (English + Marathi + English), House of Madhukar Bhikobā Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1262.png" /></div>

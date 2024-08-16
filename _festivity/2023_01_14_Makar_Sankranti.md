@@ -79,7 +79,7 @@ And this is one of the religions we have to accept: that we will not use harsh w
 <p style="text-align:center;">
 <font color="DarkRed"><b>"Today is the day to make joy and to enjoy everything and to feel the blessings of God all around us. 
 The Sun has come back in His own glory and we have to wish Him all success in the coming year, ......</b></font><br>
-<font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English+Marathi), Carry the Sun with You, House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
+<font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English+Marathi), Carry the Sun with You, House of Madhukar Bhikobā Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
