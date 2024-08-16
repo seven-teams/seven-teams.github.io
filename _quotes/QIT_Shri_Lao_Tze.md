@@ -584,7 +584,7 @@ We have to be honest to know the Truth. And that honesty is as simple as this: t
 They were only one or two, I was not present at that time, still they survived and created great works.<br>
 In the same way out of you, we have to create these great people.<br>
 But first you must realize: that you have to be absolutely cleansed out, and give up all the false, funny ideas that you have."<br>
-<font size="+0"><b>1987-1221 Pūjā (Marathi + English + Marathi + English), Become Beautiful Vessels of Vibrations and Attention on Quality, House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
+<font size="+0"><b>1987-1221 Pūjā (Marathi + English + Marathi + English), Become Beautiful Vessels of Vibrations and Attention on Quality, House of Madhukar Bhikobā Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>

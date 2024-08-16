@@ -277,7 +277,7 @@ But what you have done of Him, His spirit, His intellect. So give anything to hu
 
 <p>
 <font color="red"><b>Śhrī Mātājī:</b></font> [Mentions that Her forefathers ruled in Rāhurī and that the Nāth Pānthis worked there.]<br>
-<b>Madhukar Bhikājī Dhumāḷ:</b> [Asks who were the Nāth Pānthis.]<br>
+<b>Madhukar Bhikobā Dhumāḷ:</b> [Asks who were the Nāth Pānthis.]<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> I have so far told you how the evolution was led by Viṣhṇu and His Incarnations on the Earth.<br>
 Apart from this there was a unique Incarnation of the Primordial Master, Ādi Guru, in the Void or Bhavasāgara. He incarnated many a times to guide humanity to cross the Void.<br>
 These Masters evolved new personalities endowed with the Principles of Disciples or Śhiṣhya Tattwa, who manifested as Great Disciples of this Ādi Guru. The disciples created by Ādi Guru were human beings but they achieved salvation with the help of their Gurus or their own efforts. They were not Divine Incarnations and are known as Avadhūts.<br>
@@ -285,11 +285,11 @@ These Masters evolved new personalities endowed with the Principles of Disciples
 The Nav Nāths knew that Kuṇḍalinī awakening is the only way you can get your Self-realization. Their attention was enlightened, and they could just put it on matter or anything and it would work.<br>
 For instance, Chāṅgadev would put his attention on heat and cook on it!<br>
 They had the True Knowledge of the Kuṇḍalinī and went as far as Bolivia and Ukraine to bestow Kuṇḍalinī awakening.<br>
-<b>Madhukar Bhikājī Dhumāḷ:</b> Are they to be worshiped?<br>
+<b>Madhukar Bhikobā Dhumāḷ:</b> Are they to be worshiped?<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> Only Deities are to be worshiped.<br>
-<b>Madhukar Bhikājī Dhumāḷ:</b> Are there any Avadhūts born in India?<br>
+<b>Madhukar Bhikobā Dhumāḷ:</b> Are there any Avadhūts born in India?<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> Now Sahaja Yoga has created the environment for many great Souls to take their birth.<br>
-<font size="+0"><b>1980-1229 Talk to Sahaja Yogis, House of Madhukar Bhikājī Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
+<font size="+0"><b>1980-1229 Talk to Sahaja Yogis, House of Madhukar Bhikobā Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
