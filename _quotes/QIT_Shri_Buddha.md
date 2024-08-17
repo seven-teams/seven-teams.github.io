@@ -128,11 +128,12 @@ I would say perhaps Buddha and Mahāvīra are the only two human beings who have
 <div class="para-divider"></div>
 
 <p>
-"Now beyond that is God's Realization.<br>
+<font color="red">"Now, beyond that is God's Realization.<br>
 There are three stages to that also, but just now I have told this: the Sat-chit-ānand State.<br>
-<font color="red">The God's Realization is the state in which Gautama Buddha and Mahāvīra only rose, and They are settled down here in our brains, both of Them are here, Christ is here.<br>
-And these two were not Incarnations. They were born as human beings. They were born to Sītā, as Lav and Kuśh. Then they were born as Buddha and Mahāvīra and Ādi Śhakti was their mother again. Then they were born to Fāṭimah Bi as Hasan and Husayn. They are both placed here in your head and They are the two milestones you have got by which you can know what a human being can rise up to.<br>
-Now today they are like Incarnations. Incarnations are beyond but maybe the gap can be bridged.</font>"<br>
+The God's Realization is the state in which Gautam Buddha and Mahāvīra only rose, and They are settled down here in our brains, both of Them are here, Christ is here.<br>
+And these two were not Incarnations: They were born as human beings. They were born to Sītā, as Lav and Kuśh. Then they were born as Buddha and Mahāvīra. Then Ādi Śhakti was Their mother again. Then they were born to Fāṭimah Bi as Hasan and Husayn.<br>
+They are both placed here, in your head.<br>
+And They are the two milestones you have got, by which you can know what a human being can rise up to that now today They are like Incarnations. Incarnations are beyond, but maybe the gap can be bri... bridged."</font><br>
 <font size="+0"><b>1977-0215 Public Program (Hindi + English), Day 2, Sat-chit-ānanda, New Delhi, India</b></font>
 </p>
 

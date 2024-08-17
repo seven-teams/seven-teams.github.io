@@ -26,6 +26,16 @@ And Her two children were, Hasan and Husayn, back then, when They saw even after
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"After the birth of the daughter of Muhammad Sāhab, as I talked yesterday also, there was beginning of the caste Shia in Islam.<br>
+Shia word has been derived from Siyā. The word which come from Siyā became Shia -- Siyā means Sītājī. If you go to UP [Uttar Pradesh, India] then nobody says Sītājī, they say Siyājī, 'Siyā var Rām[a]chandra ki jay.' Everyone takes the name Siyā. She was Sītājī, Ādi Śhakti Herself.<br>
+And Her two sons, who were Hasan and Husayn, destroyed many evils. When They ultimately died after getting tried, then in the next birth they thought of establishment of nonviolence, violence led them nowhere.<br>
+They were [re]born as Mahāvīr and Buddha to make a new experiment. Experiments do happen. "</font><br>
+<font size="+0"><b>1973-1209 Public Program (Hindi), Day 3, Śhrī Dattātreya Jayanti, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"And His daughter Fāṭimah was nobody else but Sītā Jānakī Herself.<br>
 And Her two sons, Hasan and Husayn, were nobody else but Lava and Kuśha. They were born again and again: They were born as Mahāvīra and Buddha, and then They were born as Hasan and Husayn.<br>
 It is only possible through Sahaja Yoga to realize that this is the Truth, this is the fact. "</font><br>
@@ -186,7 +196,7 @@ When you believe in Muhammad Sāhab also, also in Nāṇak Sāhab, and in Hazara
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Specially, these are the days of your marty[rdo]m. And I know about it, everything, what had happened to Hasan and Husayn. You all have done lot of penance for Them, and are still doing it. But now the time has come for all of you to know that Their sacrifice, Their kurbānī, has been completely fulfilled. After all, what did They want? They wanted whatever Their father, ʿAlī, wanted Them to do, also Their mother Fāṭimah. But we don't know, 'Who They were? What Incarnations They were? What was Their job?'"</font><br>
+<font color="red">"Specially, these are the days of your marty[rdo]m. And I know about it, everything, what had happened to Hasan and Husayn. You all have done lot of penance for Them, and are still doing it. But now the time has come for all of you to know that Their sacrifice, Their kurbānī, has been completely fulfilled. After all, what did They want? They wanted whatever Their father, ʿAlī, wanted Them to do, also Their mother Fāṭimah. But we don't know, 'Who They were? What Incarnations They were? What was Their job?' "</font><br>
 <font size="+0"><b>2000-0528 Persian Public Program, Iman Cultural Center, Los Angeles, CA, U.S.A.</b></font>
 </p>
 
