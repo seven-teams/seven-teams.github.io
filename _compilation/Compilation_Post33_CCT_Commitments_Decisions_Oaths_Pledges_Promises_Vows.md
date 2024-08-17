@@ -275,6 +275,30 @@ Then this correction portion starts. You start thinking about yourself more than
 
 <p>
 <font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"And I would say that on this day, let us take one vow: ...<br>
+...... ... to decide that we will be worshiping Yogeśhwara.<br>
+We have to worship Him. Means: our relationships about these things has [have] to be cleaned.<br>
+We should not get involved into, it's nothing important."<br>
+<font color="blue"><b>1982-0815 Śhrī Yogeśhwara (God of Yoga) Pūjā, To do Duty to Him First and Foremost Thing Is You Have to Develop that Purity of a Yogeśhwara (Complete Purity) and A Real Yogi Is a Person who Gets this Yogeśhwara Awakened within Him (Unless and Until You Follow the Path of Yogeśhwara, You Cannot Establish Yourself Fully), Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font><br>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
 <font size="+0"><b>1983-0321 Conversations with Sahaja Yogis, Songs and Felicitations after Birthday Pūjā, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
 </p>
 

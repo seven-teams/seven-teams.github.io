@@ -154,7 +154,7 @@ During the Dwāpara Yuga at the time of Lord Kṛiṣhṇa, Ādi Śhakti again i
 ......<br>
 The ellipse now opens at its base [see {\it Figure 2}]. Viṣhṇu leaves His imprint on the parallel line as a point indicating a seat for His future highest-evolved human form as Śhrī Kṛiṣhṇa; Gaṇeśha, likewise, leaves the imprint of a point to demark the position reserved for His highest-evolved human form as Jesus Christ. A gap is therefore created between the Divine Form of Viṣhṇu and His human form as Śhrī Kṛiṣhṇa, into which He has later to flower, manifesting the complete form of the Virāṭa. In precisely the same way there is a gap between the Divine Form of Śhrī Gaṇeśha and His fully evolved human form as Jesus Christ. Christ is also Mahāviṣhṇu, Son of the Virāṭa. They face each other on the two sides of the parabola.<br>
 This is how Ādi Śhakti arranges the Deities in the Primordial Brain. The whole process is not a simultaneous happening, but grows gradually over countless ages as the Primordial Brain of the Virāṭa grows as a living organism. These seats are fully anointed by their respective Incarnations in the Vaikuṇṭha Stage of existence. That means that the creation of Śhrī Kṛiṣhṇa and Jesus Christ was conceived millions of years before they actually incarnated in human form."</font><br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play}</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play</b></font>
 </p>
 
 <div class="para-divider"></div>
