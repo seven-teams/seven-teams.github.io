@@ -174,7 +174,7 @@ As He gave one siddhi to Rāvaṇ that when he used to speak and give lectures t
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"<font color="red">"His channel is the evolutionary path, and His Ten Incarnations of the Virāṭa have helped mankind to evolve:<br>
+<font color="red">"His channel is the evolutionary path, and His Ten Incarnations of the Virāṭa have helped mankind to evolve:<br>
 ......<br>
 &emsp;<i>vii. Benevolent \& Perfect King</i> Rāma Avatāra<br>"</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play</b></font>
