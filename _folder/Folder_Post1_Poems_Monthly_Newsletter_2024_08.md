@@ -17,7 +17,7 @@ Since the July 2024 newsletter, the following 8 extra Poems have been uploaded.<
 4. <a href="https://seven-teams.github.io/folder/2010-0000-LV"> <font color="DeepPink"><b>2010-0000 Poem</b></font></a><br>
 5. <a href="https://seven-teams.github.io/folder/2014-0800-LV"> <font color="DeepPink"><b>2014-0400 Poem</b></font></a><br>
 6. <a href="https://seven-teams.github.io/folder/2020-0000-LV-01"> <font color="DeepPink"><b>2020-0000 Poem (a)</b></font></a><br>
-7. <a href="https://seven-teams.github.io/folder/2020-0000-LV-01"> <font color="DeepPink"><b>2020-0000 Poem (b)</b></font></a><br>
+7. <a href="https://seven-teams.github.io/folder/2020-0000-LV-02"> <font color="DeepPink"><b>2020-0000 Poem (b)</b></font></a><br>
 8. <a href="https://seven-teams.github.io/folder/2020-0400-LV"> <font color="DeepPink"><b>2020-0400 Poem</b></font></a><br>
 <br>
 Jay Śhrī Mātājī!<br>
