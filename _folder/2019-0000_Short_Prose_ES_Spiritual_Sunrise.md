@@ -8,7 +8,7 @@ tags:
   - brown @ 2019
   - cornflowerblue @ TBD
   - maroon @ Spiritual
-  - maroon @ Surise
+  - maroon @ Sunrise
 ---
 
 <br>

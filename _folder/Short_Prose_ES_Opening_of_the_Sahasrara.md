@@ -17,7 +17,7 @@ tags:
 (We all know that the Sahasrara of the Virat was opened on 5th of May<br>
 1970 at a place called Nargol, in India. We all understand what<br>
 a significant event it was. But, what actually happened? Let us re-live<br>
-the experience as described by our Holy Mother in Her own words.<br>
+the experience as described by our Holy Mother in Her own words.)<br>
 <br>
 </p>
 

@@ -11,8 +11,8 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to bring to your attention one new art album:<br>
-<b>1.</b> <a href="https://imageevent.com/sahaja/shrimatajisplaces/chhindwara"><font color="DarkGreen"><b>Drawings</b></font></a>.<br>
+We are pleased to bring to your attention one new album of Śhrī Mātājī's places:<br>
+<b>1.</b> <a href="https://imageevent.com/sahaja/shrimatajisplaces/chhindwara"><font color="DarkGreen"><b>Chhindwara</b></font></a>.<br>
 Please kindly share the news and the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
