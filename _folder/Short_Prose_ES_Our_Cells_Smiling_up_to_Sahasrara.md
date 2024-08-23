@@ -1,7 +1,7 @@
 ---
 title: 'Short Prose &#8216;Our Cells Smiling up to Sahasrara&#8217; by Edward Saugstad'
 date: 2024-08-23
-permalink: /folder/2024-08-23-ES-Our-Cells-Smilling-up-to-Sahasrara
+permalink: /folder/2024-08-23-ES-Our-Cells-Smiling-up-to-Sahasrara
 tags:
   - black @ Short Prose
   - blue @ Edward Saugstad
@@ -10,7 +10,7 @@ tags:
   - maroon @ Cells  
   - maroon @ Our
   - maroon @ Sahasrara
-  - maroon @ Smilling  
+  - maroon @ Smiling  
 ---
 
 <br>

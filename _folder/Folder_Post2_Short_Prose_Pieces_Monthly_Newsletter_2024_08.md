@@ -15,7 +15,7 @@ Since the July 2024 newsletter, the following 8 short prose pieces have been upl
 2. <a href="https://seven-teams.github.io/folder/2024-0806-ES-My-Existence-Silent-Song-Dawn-of-Music"> <font color="DeepPink"><b>My Existence Silent Song - Dawn of Music</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/2019-01-02-ES-Narnia-Sahasrara"> <font color="DeepPink"><b>Narnia Sahasrara Paradise on Earth</b></font></a><br>
 4. <a href="https://seven-teams.github.io/folder/2024-08-22-ES-Opening-of-the-Sahasrara"> <font color="DeepPink"><b>Opening of the Sahasrara</b></font></a><br>
-5. <a href="https://seven-teams.github.io/folder/2024-08-23-ES-Our-Cells-Smilling-up-to-Sahasrara"> <font color="DeepPink"><b>Our Cells Smiling up to Sahasrara</b></font></a><br>
+5. <a href="https://seven-teams.github.io/folder/2024-08-23-ES-Our-Cells-Smiling-up-to-Sahasrara"> <font color="DeepPink"><b>Our Cells Smiling up to Sahasrara</b></font></a><br>
 6. <a href="https://seven-teams.github.io/folder/2024-08-23-ES-River-of-Divine-Love"> <font color="DeepPink"><b>River of Divine Love</b></font></a><br>
 7. <a href="https://seven-teams.github.io/folder/2024-08-23-ES-Shri-Mataji-and-All-Planets"> <font color="DeepPink"><b>Shri Mataji and All Planets</b></font></a><br>
 8. <a href="https://seven-teams.github.io/folder/2019-01-01-ES-Spiritual-Sunrise"> <font color="DeepPink"><b>Spiritual Sunrise</b></font></a><br>
