@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>1993-0804 Public Program, Togliatti, Russia</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
-The direct link to the 4 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Russia/1993">Russia 1993</a>.<br>
+We are pleased to let you know that 3 Photos of the special event <font color="Crimson"><b>1993-0804 Public Program, Togliatti, Russia</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 high resolutions from the Named Collections.<br>
+The direct link to the 6 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Russia/1993">Russia 1993</a>.<br>
+[Note: 2 Photos uploaded only on 2024-0822.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
