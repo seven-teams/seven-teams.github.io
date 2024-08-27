@@ -19,7 +19,7 @@ This month 56 new Photos were uploaded to 14 Pūjas as follows (16 high resoluti
 (v) 1979-1202 Guru Pūjā: 2 high resolutions, 24 medium resolutions and 4 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/UK/1979"> <font color="DarkGreen"><b>UK 1979</b></font></a>.<br>
 (vi) 1980-1231 Śhrī Gaṇeśha Pūjā: 1 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1980"> <font color="DarkGreen"><b>India 1980</b></font></a>.<br>
 (vii) 1982-0704 Guru Pūjā: 1 high resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/UK/1982"> <font color="DarkGreen"><b>UK 1982</b></font></a>.<br>
-(viii) 1982-0801 Śhrī Ādi Śhakti Pūjā: 1 medium uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/UK/1982"> <font color="DarkGreen"><b>UK 1982</b></font></a>.<br>
+(viii) 1982-0801 Śhrī Ādi Śhakti Pūjā: 1 medium resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/UK/1982"> <font color="DarkGreen"><b>UK 1982</b></font></a>.<br>
 (ix) 1986-0518 Śhrī Devī Pūjā: 2 medium resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/France/1986"> <font color="DarkGreen"><b>France 1986</b></font></a>.<br>
 (x) 1987-0816 Śhrī Kṛiṣhṇa Pūjā: 3 medium resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/France/1987"> <font color="DarkGreen"><b>France 1987</b></font></a>.<br>
 (xi) 1989-1219 Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1989"> <font color="DarkGreen"><b>India 1989</b></font></a>.<br>
