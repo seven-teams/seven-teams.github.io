@@ -20,7 +20,8 @@ tags:
 <p>
 Like, if Śhrī Kṛiṣhṇa had not come we would not have known really the significance of spiritual life. He was the first who talked of spiritual life."<br>
 ......<br>
-Saṃsthāpanārthāya. He ... He comes on this Earth again to establish the Religion. But not only religion but Vishwa Nirmal Dharm, which is a much higher religion than the ordinary religion of human beings. Within themselves is the Vishwa Nirmal Dharma we'll establish in a very short time, I'm sure, on this Earth."<br>
+So, as far as I am [with the right hand raised and fingers stretched towards the Sahaja Yogis:] concerned, I only think that: as long as I live -- I don't know, I may live forever, I am living forever, maybe, you might say that -- but whatever it is, as long as I'm on this Earth, I ... I will see that Sahaja Yoga is fully established. This is My promise to you.<br>
+[After 11 seconds with the right palm lowered and not any more stretched:] Saṃsthāpanārthāya. He ... He comes on this Earth again to establish the Religion. But not only religion but Vishwa Nirmal Dharm, which is a much higher religion than the ordinary religion of human beings. Within themselves is the Vishwa Nirmal Dharma we'll establish in a very short time, I'm sure, on this Earth."<br>
 <font color="blue"><b>1990-0819 Śhrī Kṛiṣhṇa Pūjā, Hallowtree Scout Campsite, Nacton, Ipswich IP10 0JP, Essex, UK</b></font><br>
 </p>
 
