@@ -11,7 +11,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-This month 25 new Photos were uploaded to 11 Pūjas as follows (12 high resolutions, medium resolutions, and 13 low resolutions).<br>
+This month 25 new Photos were uploaded to 11 Pūjas as follows (12 high resolutions and 13 low resolutions).<br>
 (i) 1979-0100 Pūjā A: 3 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1979"> <font color="DarkGreen"><b>India 1979</b></font></a>.<br>
 (ii) 1979-0100 Pūjā B: 4 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1979"> <font color="DarkGreen"><b>India 1979</b></font></a>.<br>
 (iii) 1979-0100 Pūjā C: 2 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1979"> <font color="DarkGreen"><b>India 1979</b></font></a>.<br>
