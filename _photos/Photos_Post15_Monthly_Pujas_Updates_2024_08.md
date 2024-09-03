@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 15: Monthly Pūjās Updates, August 2024'
 date: 2024-08-28
-permalink: /photos/2024/0828
+permalink: /photos/2024/0828-b
 tags:
   - crimson @ Photographs of Shri Mataji
   - green @ Monthly Pujas Updates
