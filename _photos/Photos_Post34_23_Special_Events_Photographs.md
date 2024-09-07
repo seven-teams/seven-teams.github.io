@@ -10,8 +10,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 3 Photos of the special event <font color="Crimson"><b>1979-0100 Pūjā A, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 low resolutions from the Named Collections.<br>
+We are pleased to let you know that 3 Photos of the special event <font color="Crimson"><b>1979-0123 Pūjā, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 low resolutions from the Named Collections.<br>
 The direct link to the Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Patricia-Proenza-Collection/1979"><font color="DarkGreen">Collection 1979</font></a>.<br>
+[Note: date changed from 0100 to 0123 on 2024-0907.]<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
