@@ -44,7 +44,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>2007THEAUSSAHYOGNEW4.</b></font> <b>2007-0330 and 0406 The Australian Sahaja Yoga Newsletter (David Collection)</b> (6 pages, original file, version a, uploaded on 2024-0901)
+<font color="DarkGreen"><b>2007THEAUSSAHYOGNEW4.</b></font> <b>2007-0330 and 0406 The Australian Sahaja Yoga Newsletter (David Collection)</b> (6 pages, original file, uploaded on 2024-0901)
 
 <iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2007-0330_and_0406_The_Australian_Sahaja_Yoga_Newsletter_(David_Morgan_Collection).pd" width="1000px" height="1000px"></iframe>
 
