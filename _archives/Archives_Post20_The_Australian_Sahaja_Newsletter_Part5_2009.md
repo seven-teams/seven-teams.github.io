@@ -61,3 +61,37 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 <font color="DarkGreen"><b>2009THEAUSSAHYOGNEW6.</b></font> <b>2009-0531 The Australian Sahaja Yoga Newsletter (David Morgan Collection)</b> (7 pages, original file, uploaded on 2024-0909)
 
 <iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2009-0531_The_Australian_Sahaja_Yoga_Newsletter_Issue_6_Version_2_(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
+<font color="DarkGreen"><b>2009THEAUSSAHYOGNEW7.</b></font> <b>2009-0623 The Australian Sahaja Yoga Newsletter (David Morgan Collection)</b> (7 pages, original file, uploaded on 2024-0911)
+
+<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2009-0623_The_Australian_Sahaja_Yoga_Newsletter_Issue_8_(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
+<font color="DarkGreen"><b>2009THEAUSSAHYOGNEW8.</b></font> <b>2009-0723 The Australian Sahaja Yoga Newsletter (David Morgan Collection)</b> (9 pages, original file, uploaded on 2024-0911)
+
+<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2009-0723_The_Australian_Sahaja_Yoga_Newsletter_Issue_9_(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
+<font color="DarkGreen"><b>2009THEAUSSAHYOGNEW9.</b></font> <b>2009-0919 The Australian Sahaja Yoga Newsletter (David Morgan Collection)</b> (11 pages, original file, uploaded on 2024-0911)
+
+<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2009-0919_The_Australian_Sahaja_Yoga_Newsletter_Issue_10_(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2009-0919_The_Australian_Sahaja_Yoga_Newsletter_Issue_10_200dpi_grey_(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2009-0919_The_Australian_Sahaja_Yoga_Newsletter_Issue_10_bitmap _(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
+<font color="DarkGreen"><b>2009THEAUSSAHYOGNEW10.</b></font> <b>2009-1116 The Australian Sahaja Yoga Newsletter (David Morgan Collection)</b> (6 pages, original file, uploaded on 2024-0911)
+
+<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2009-1116_The_Australian_Sahaja_Yoga_Newsletter_Issue_6_Version_2_(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
+<font color="DarkGreen"><b>2009THEAUSSAHYOGNEW11.</b></font> <b>2009-1200 The Australian Sahaja Yoga Newsletter (David Morgan Collection)</b> (8 pages, original file, uploaded on 2024-0911)
+
+<iframe src="/pdf/?usedownload=true#https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2009-1200_The_Australian_Sahaja_Yoga_Newsletter_Issue_12_(David_Morgan_Collection).pdf" width="1000px" height="1000px"></iframe>

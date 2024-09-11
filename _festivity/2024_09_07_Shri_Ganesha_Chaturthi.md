@@ -73,7 +73,9 @@ Let us manifest these qualities. This is what is to be asked."</b></font><br>
 <p>
 <font color="DarkRed">"In the Sahaja Yoga system, if we say that Gaṇeśha is the One who gives us, He's the Adhyakṣha, means He is the, I call Him as the Chancellor of the University. He is the one who goes on degree to us, 'Now, you have crossed this chakra, that chakra, that chakra.' And He helps us to know that what state we are in. So, the Gaṇeśha gives us say, Nirvichāra Samādhi, which we can call it as the thoughtless awareness, and Nirvikalpa Samādhi. He gives all that and also He gives us joy."</font><br>
 <font size="+0"><b>1990-0831 Śhrī Hanumāna Pūjā, Electromagnetic Force, Schloss Schwetzingen, Schloß Mittelbau, Schwetzingen, Baden-Württemberg, Germany</b></font><br>
-<br>
+</p>
+
+<p style=" text-align:center;">
 <font color="DarkGreen"><b>Oṃkār Pradhana Rūp Gaṇeśhache by Saint Tukārām</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
@@ -82,13 +84,14 @@ Let us manifest these qualities. This is what is to be asked."</b></font><br>
 
 <p style=" text-align:center;">
 <b>Sahaja Yogis [recite]</b>: "Jay Gaṇeśha, Jay Gaṇeśha, Jay Gaṇeśha Pāhimām, Śhrī Gaṇeśha, Jay Gaṇeśha, Jaya Gaṇeśha Rakṣhamām."
-<font color="DarkRed"><b>Śhrī Mātājī</b>: Now, what you are doing by saying these mantras, you are awakening the innocence within you. <b>Innocence is represented by Śhrī Gaṇeśh.</b> As you know, later on He incarnated as Lord Jesus Christ, but the innocence within us must be first of all invoked, because, before creating the universe, first of all innocence was created, because innocence has the greatest protective power, the greatest destructive power and it is the most powerful. So, first we are trying to invoke the innocence.<br>
+<font color="DarkRed"><b><br>
+Śhrī Mātājī</b>: Now, what you are doing by saying these mantras, you are awakening the innocence within you. <b>Innocence is represented by Śhrī Gaṇeśh.</b> As you know, later on He incarnated as Lord Jesus Christ, but the innocence within us must be first of all invoked, because, before creating the universe, first of all innocence was created, because innocence has the greatest protective power, the greatest destructive power and it is the most powerful. So, first we are trying to invoke the innocence.<br>
 <b>Now, My Feet here represent Gaṇeśha, and they are innocent, and so, we are trying to worship those so that, within you, Gaṇeśha should be invoked. Your innocence should be enlightened, all right?</b>"</font><br>
 <font size="+0"><b>1980-1012 Śhrī Gaṇeśha Pūjā (4th Day of Navarātri), Winterthurerstraße, Zürich, Switzerland</b></font><br>
 <br>
 <font color="green">"<b>Śhrī Gaṇeśha</b>, I am going to be worthy of Your attention.<br>
 Please make me innocent, so that I am in Your attention.<br>
-<b>Śhrī Mother</b>, You are Śhrī Gaṇeśha, please give me wisdom and discrimination. </b></font><br>
+<b>Śhrī Mother</b>, You are Śhrī Gaṇeśha, please give me wisdom and discrimination."</font><br>
 <font size="+0"><b>1900-0000 Prayer to Śhrī Gaṇeśha, Āśhram, Rome, Italy from the 2012 edition of Sahaja Yoga Mantra Book, Page 29</b></font><br>
 <br>
 <font color="DarkGreen"><b>Sukha Karta Dukha Harta Varta Vighnachi</b><br>
@@ -111,7 +114,7 @@ and wear a pearl necklace</font><br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="blue"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
+<font color="green"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -123,7 +126,7 @@ and wear a pearl necklace</font><br>
 <p>
 <font color="green"><b>Jay Jay Bolo Nirmal Gaṇeśha Kī</b></font><br>
 (Victory to Śhrī Gaṇeśha, Australian song book, Hindi supplement page 66)<br>
-<a href="https://youtu.be/9r2eVWLg4mo">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -153,7 +156,7 @@ and wear a pearl necklace</font><br>
 </p>
 
 <p>
-<font color="green"><b>Āratī and the Three Great Mantras</b></font><br>
+<font color="green"><b>Zulzul Vahe</b></font><br>
 <a href="https://youtu.be/TbbNsFKL07c">video</a>
 </p>
 
