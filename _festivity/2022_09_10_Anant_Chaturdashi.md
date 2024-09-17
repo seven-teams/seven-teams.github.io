@@ -78,7 +78,7 @@ Please make me innocent, so that I am in Your attention.<br>
 <font color="green"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <br>
-<font color="green"><b>Lavkar Yayi Śhrī Gaṇarāyā, Sakalanshi Bheti Dyaya</b> ((Bhajan in praise of Śhrī Mātājī before Śhrī Gaṇeśha Pūjā)</font><br>
+<font color="green"><b>Lavkar Yayi Śhrī Gaṇarāyā, Sakalanshi Bheti Dyaya</b> (Bhajan in praise of Śhrī Mātājī before Śhrī Gaṇeśha Pūjā)</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <br>
 <font color="green"><b>Namami Śhrī Gaṇarāj Dayal</b></font><br>
