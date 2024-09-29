@@ -18,8 +18,7 @@ tags:
 </p>
 
 <p>
-"<br>
-The subject is very interesting, that, 'How Sahaja Yoga can help beauty?'<br>
+"The subject is very interesting, that, 'How Sahaja Yoga can help beauty?'<br>
 ......<br>
 So, the first thing, I would say that when it happens, you don't react. You just watch, you become a witness: you become the witness of the whole thing.<br>
 And when these things happen, then the creativity starts coming from somewhere unknown, and you are amazed how you can create things without reading any book, without taking any help. And suddenly you become very, very creative.<br>
