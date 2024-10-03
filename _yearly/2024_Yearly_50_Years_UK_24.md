@@ -25,15 +25,15 @@ tags:
 <p>
 "I think we went to see Gāndhījī's āśhram, didn't we? You saw: it was a simple place, but very well done, everything. <br>
 ......<br>
-Now what has happened: by doing this kind of a top-heavy work, some muck has come up [through, ``Scheduled Caste must have equal seats"]. And they're some absolutely useless people, they cannot do administration.<br>
+Now what has happened: by doing this kind of a top-heavy work, some muck has come up [through,  "Scheduled Caste must have equal seats"]. And they're some absolutely useless people, they cannot do administration.<br>
 Instead of that, what Gāndhījī had said: that, "Train them up. Educate them. Bring them up." Suddenly the educated people are there, and some people suddenly, uneducated, nothing, brought to that, they cannot bear it!<br>
 ......<br>
-Gāndhījī suggested these things. He said that, ``You must enlighten the rich people and you must also try to emancipate these people by education, by making them understanding," and all that."<br>
+Gāndhījī suggested these things. He said that, "You must enlighten the rich people and you must also try to emancipate these people by education, by making them understanding," and all that."<br>
 <font color="blue"><b>1980-0927 Talk to Sahaja Yogis, Lethargy Most anti-God Activity, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font><br>
 </p>
 
 <p>
-"Of course, the people, in India, say for example, of President of India, he knows I am a Saint. So he treats Me like a Saint, it's a very big thing you know. He'll come to receive Me and ... this thing.<br>
+"Of course, the people, in India, say for example of President of India, he knows I am a Saint. So he treats Me like a Saint, it's a very big thing you know. He'll come to receive Me and ... this thing.<br>
 Even the Prime Minister of India, is Lal Bahadur Shastri, My husband was his secretary, but he used to come and see Me off a ... in the car, you see."<br>
 <font color="blue"><b>1982-1008 Interview with David Cook for 'Wellingborough and Rushden Herald and Post', Radio Studio, Victoria Center, 46-50 Palk Road, Wellingborough, Northamptonshire, UK</b></font><br>
 </p>
