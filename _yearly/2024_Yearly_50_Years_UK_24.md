@@ -10,11 +10,11 @@ tags:
 <br>
 <div style="text-align: left"><img src="/images/50YearsUK.png" width="350" /></div><br>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT00.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-b6058b8fc5314638989cdd5e49178be6.r2.dev/1982-1009_Bestowing_of_Boons_Puja_House_of_Maria_Laventzi_Irchester_(near_Wellingborough)_UK_27_(Pavan_Burd_Collection).png" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b></b><br></font>
+<font size="+2"><b>He Used To Come And See Me Off</b><br></font>
 </p>
 
 <p>
@@ -38,7 +38,7 @@ Even the Prime Minister of India, is Lal Bahadur Shastri, My husband was his sec
 <font color="blue"><b>1982-1008 Interview with David Cook for 'Wellingborough and Rushden Herald and Post', Radio Studio, Victoria Center, 46-50 Palk Road, Wellingborough, Northamptonshire, UK</b></font><br>
 </p>
 
-Links to suggested talk: <a href=""> NVA</a> and <a href=""> SDL</a><br>
+Links to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/19800927-lethargy-most-anti-1"> NITL</a><br>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
