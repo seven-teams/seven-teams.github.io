@@ -78,8 +78,8 @@ In this Kali Yug of today, when so much devotion and homage for the Mother, and 
 This is a most fortunate and divine coincidence for Me also, that on a Ṣhaṣhṭhī Day I came to Kolkata [arrival on 196-1009]. Because, in the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day. <b>Ṣhaṣhṭhī Day is of Śhākambharī Devī</b>, and on that day the whole nature should be green and lush. "</font><br>
 <font size="+0"><b>1986-1010 Navarātri Pūjā (Hindi) (7th Day), Lions Club Safari Park, Southern Avenue, Kolkata, West Bengal, India</b></font><br>
 <br>
-<font color="DarkGreen"><b>AMBE TU PĀRVATĪ PARAMEŚHWARĪ<br>
-MAHALAKSHMI TU SAPTAŚHṚIṄGĪ TU JAY JAY ŚHĀKAMBHARĪ</b><br>
+<font color="DarkGreen"><b>AMBE TU PĀRVATĪ PARAMEŚHWARĪ</b><br>
+<b>MAHALAKSHMI TU SAPTAŚHṚIṄGĪ TU JAY JAY ŚHĀKAMBHARĪ</b><br>
 You are Mahālakṣhmī, You are Saptaśhṛiṅgī, Victory to Śhākambharī (The Bearer of the Greens)<br>
 <b>JAY JOGEŚHWARĪ JAY MAHEHŚWARĪ JAY JAY PRAṆEŚHWARĪ</b><br>
 Victory to Jogeśhwarī (Goddess of Yoga), Victory to Maheśhwarī (Goddess of Shri Shiva), Victory to Praṇeśhwarī (Goddess of vital breath)</font><br>

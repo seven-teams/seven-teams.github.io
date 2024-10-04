@@ -56,7 +56,7 @@ Now the Mahālakṣhmī Principle within us starts manifesting when our Lakṣhm
 <p style="text-align:center;">
 <font color="DarkRed">"So today the <b>first and the foremost vow is</b>, as I told you, that we have to get cleansed up in such a way that we become free of ego and superego. We should get rid of our ignorance and darkness. <b>And the second vow as I have said</b> that you have to become the light to remove the darkness and ignorance of others. By sharing My problems, by sharing My anxieties about them -- those who are lost -- and not to be involved into your own personal anxieties and petty things. My problems should be your problems now because you all belong to Me, to My body, to My being.<br>
 And I request you to join hands with Me, with full determination and complete attention and the heart of a lion."</font><br>
-<font size="+0"><b>>1985-1116 Talk to Sahaja Yogis, Racism, during the Evening Program, after dinner the day before Diwālī Pūjā, Tivoli, Lazio, Italy</b></font>
+<font size="+0"><b>1985-1116 Talk to Sahaja Yogis, Racism, during the Evening Program, after dinner the day before Diwālī Pūjā, Tivoli, Lazio, Italy</b></font>
 </p>
 
 <p>

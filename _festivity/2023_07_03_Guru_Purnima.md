@@ -112,9 +112,9 @@ Whatever you have got now don't waste it, don't throw away but use it for the be
 <font size="+0"><b>2008-0720 Guru Pūjā, You All Have to Become a Guru, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font><br>
 <font color="DarkRed"><b>GURU SAMAN. KUNI NAHI SOYARA</b></font><br>
 You won't find a relative like your Guru<br>
-<font color="DarkRed"><b></b></font><br>
+<font color="DarkRed"><b>GURU VIN. NAHI THARA</b></font><br>
 There is no other refuge  than your Guru<br>
-<font color="DarkRed"><b></b></font><br>
+<font color="DarkRed"><b>GURU NIDHAN. GURU MOKSH. ASARA</b></font><br>
 He is the solution, the Giver of Liberation and Shelter<br>
 <font color="DarkRed"><b>DEV. DAIV. LABHE SADAIV.<br>
 GURU CHARAN. LABH. HOTA</b></font><br>

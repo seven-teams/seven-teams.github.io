@@ -33,7 +33,7 @@ So, Mahāvīra had to go through lots of search. Of course He was a[n] angel, bu
 <font color="DarkRed">"<b>Śhrī Mahāvīr resides on our Iḍā nāḍī and rules it. All the saṃskāras that we have in us are corrected by Him.</b><br>
 He has defined and explained what is Hell. What happens when human go to Hell and what and how they suffer in Hell, He has explained this in very detail.<br>
 Buddha and Mahāvīr were samakālīn [contemporary] and both of Them had a life of penance. Both of Them were prince. But still both of Them dedicated themselves in tapasyā. And They found out that, 'When human make mistakes and go to the left side then how he goes in Hell and how he suffers.' "</font><br>
-<font size="+0"><b>1993-0404 Śhrī Mahāvīra Jayanti Pūjā (Hindi), New Delhi, India<</b></font>
+<font size="+0"><b>1993-0404 Śhrī Mahāvīra Jayanti Pūjā (Hindi), New Delhi, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image1157.png" /></div>
@@ -43,7 +43,7 @@ Buddha and Mahāvīr were samakālīn [contemporary] and both of Them had a life
 But as He belonged to the left side, He has described Hell very clearly. Fundamentally, basically there are Fourteen Hells according to Him. And is horrible to read all that, what He has described about Hell. Because He wanted to tell people that, 'If you do all these wrong things, you'll go to Hell.'<br> 
 And He talked about, not about Form, Formly God, but Formless God, because He didn't want people to again start ritualism but get to right ... right to the position where they could get their Self-realization to cleanse themself.<br>
 So you can imagine: how difficult, in those days at Mahāvīra, was even to be one of the candidates for Self-realization. It's frightening for you! <b>That's why I never had this uh Pūjā. Because to do all these things, first of all, and to become absolutely pure, then only He would give Realization.</b>"</font><br>
-<font size="+0"><b>>1990-0616 Śhrī Mahāvīra Pūjā, Touch Your Depth and Complete Kevalagyān (There Is Hell and You Must Learn to Have Self-discipline), Ca'n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b></font>
+<font size="+0"><b>1990-0616 Śhrī Mahāvīra Pūjā, Touch Your Depth and Complete Kevalagyān (There Is Hell and You Must Learn to Have Self-discipline), Ca'n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b></font>
 </p>
 
 <p>

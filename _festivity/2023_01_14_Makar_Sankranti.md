@@ -99,7 +99,7 @@ The Sun has come back in His own glory and we have to wish Him all success in th
 </p>
  
 <p>
-<font color="green"><b>Brahma Shodile</b> (1988-0110 Music after Śhrī Sūrya Pūjā)</font><br>
+<font color="green"><b>Brahma Shodile</b> (1988-0110 Music after Śhrī Sūrya Pūjā)</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
