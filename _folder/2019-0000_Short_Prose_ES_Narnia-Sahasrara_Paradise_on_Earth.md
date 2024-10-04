@@ -25,7 +25,7 @@ Like Lewis's fictional Pevensie children, we<br>
 often ask ourselves if we're likely to ever get<br>
 back there again! Even the door of Sahasrara<br>
 within us, which is in fact absolute, usually<br>
-seems frustratingly illusive in the ongoing>br>
+seems frustratingly illusive in the ongoing<br>
 Mahamaya,
 our matrix of mundane daily life.<br>
 </p>

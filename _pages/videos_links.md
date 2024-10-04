@@ -3305,7 +3305,7 @@ You pulsate in every particle and are the living force of awareness.<br>
 It is You who are expressing Yourself in the mobile and immobile forms.<br>
 <b>TU ANADI TU APAAR AKSHAY. TU TU ANANT</b><br>
 You are without beginning, You are infinite, You are without Ending, Eternal.<br>
-<font color="DarkGreen"><b>LABHO TAV. SAGUN. RUP. SATAT. MANAVALA</b></font><br>
+<b>LABHO TAV. SAGUN. RUP. SATAT. MANAVALA</b></font><br>
 Let mankind be blessed by the presence of your Saguna Form forever<br>
 <a href="https://youtu.be/yJZnVXo3kf0">video</a>
 </p>
@@ -4898,7 +4898,7 @@ That Guru is the root of meditation,<br>
 That source of worship is the Lotus Feet.<br>
 That Guru's speech is the source of Mantras.<br>
 Truly the very form of that Guru is the source of Moksha.<br>
-<font size="-1"><font color="DarkGreen"><b><Guru Vanadan</b></font></font><br>
+<font size="-1"><font color="DarkGreen"><b>Guru Vanadan</b></font></font><br>
 <a href="https://youtu.be/xw-C4g4swo4">video</a>
 </p>
 
