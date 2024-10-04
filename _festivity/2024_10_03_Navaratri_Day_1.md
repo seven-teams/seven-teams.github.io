@@ -20,7 +20,7 @@ tags:
 <font color="Indigo"><b>Stuta Suuraih Purvam bhishts Samshrayattatha<br>
 Surendrena Dineshu Sevita<br>
 Kaotu Sa Nah Shubha Hetur Ishwari<br>
-Shubhani Bhadranya Bhihantu Cha Padah</b><br>
+Shubhani Bhadranya Bhihantu Cha Padah</b></font><br>
 <b>Invoked of yore by the Devas for the sake of their desired object,<br>
 and adored by the lord of the Devas every day,<br>
 may She, the Ishwari, the source of all good, accomplish for us all auspicious things and put an end to our calamities!</b><br>
@@ -30,15 +30,15 @@ may She, the Ishwari, the source of all good, accomplish for us all auspicious t
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0047.png" /></div>
 
 <p style="text-align:center;">
-<font color="Indigo"><b>Namo Devyai Mahadevyai</b><br>
+<font color="Indigo"><b>Namo Devyai Mahadevyai</b></font><br>
 The Gods said: Salutations to the Devi, to the Great Goddess.<br>
-<font color="Indigo"><b>Shivayai satatam namah</b><br>
+<font color="Indigo"><b>Shivayai satatam namah</b></font><br>
 Salutations always to Her who is ever auspicious<br>
-<font color="Indigo"><b>Namah Prakrutyai Bhadrayi</b><br>
+<font color="Indigo"><b>Namah Prakrutyai Bhadrayi</b></font><br>
 Salutations to Her who is primordial cause and the sustaining power.<br>
 <font color="Indigo"><b>Niyataha pranataha-smatam</b><br>
-With complete reverence and full attention, we make obeisance to Her.<br>
-<font color="DarkGreen"><b>Nav Durga ki</b><br>
+With complete reverence and full attention, we make obeisance to Her.</font><br>
+<font color="DarkGreen"><b>Nav Durga ki</b></font><br>
 (Devī Suktam)<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
