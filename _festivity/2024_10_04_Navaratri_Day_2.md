@@ -82,7 +82,7 @@ My God himself is Truth and Love<br>
 <p>
 <font color="DarkRed">"<b>The first destroying factor that is within us is the Śhrī Gaṇeśha's Power and this Śhrī Gaṇeśha is the Power of Mahākālī.</b><br>
 She first planted Śhrī Gaṇeśha to emit holiness on this Earth, so the whole thing could be vibrated and as you know one aspect of Śhrī Gaṇeśha is also Oṃkāra, means this vibratory awareness which flows everywhere.<br>
-So these vibrations have four sites in it: one is that <b>these vibrations establish holiness, auspiciousness through Mahākālī; then these same vibrations also comfort us through Mahākālī Power<b>. Vibrations do not give you desires as such, if you see, they do not give you desires, but they give you proof of your desires in fulfillment."</font><br>
+So these vibrations have four sites in it: one is that <b>these vibrations establish holiness, auspiciousness through Mahākālī; then these same vibrations also comfort us through Mahākālī Power</b>. Vibrations do not give you desires as such, if you see, they do not give you desires, but they give you proof of your desires in fulfillment."</font><br>
 <font size="+0"><b>1989-0619 Śhrī Mahākālī Pūjā, Desire and Our Goal Is to Ascend, San Diego, CA, U.S.A.</b></font>
 </p>
 
