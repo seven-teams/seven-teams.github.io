@@ -4255,7 +4255,7 @@ Victory to Yogeśhwarī (Goddess of Yoga), Victory to Maheśhwarī (Goddess of �
 
 <p>
 <font color="DarkGreen"><font size="+0"><b>Namostute (Mantra of Śhrī Kātyāyanī is taken)</b></font></font><br>
-<a href="">video</a>
+<a href="https://www.youtube.com/embed/xlhoVI-SylQ?hl=en&fs=1">video</a>
 </p>
 
 <br>
@@ -4380,7 +4380,7 @@ Like a swarm of bees to fragrant flowers, the stars adorn Your forehead.<br>
 Victory to You!</b><br>
 <br>
 <font color="DarkGreen"><b>Ayi Giri Nandini</b></font><br>
-<a href="">video</a>
+<a href="https://youtu.be/dSIEMZflZa0">video</a>
 <font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Chandraghaṇṭā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 <b>O Divine Mother, You are verily Śhrī Chandraghaṇṭā, the one Who use the Moon as Her bell!<br>
 Salutations to You!</b>
