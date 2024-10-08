@@ -36,11 +36,11 @@ Salutations to you O Kãlarãtri (final destruction of the universe)</font><br>
 </p>
 
 <p>
-<font color="DarkRed">"The Devī has many forms, but is the Embodiment of the Śhakti. Ādi Śhakti gives Śhakti to all these Embodiments.><br>
-And so, there are many Goddesses we have. At different times, They came on this Earth, and did all that was necessary for the ascent of people who were seekers.><br>
-Specially, the One we know of Jagadambā, the Durgā, She was trying to protect all the Seekers of Truth and to destroy all evil forces.><br>
-Because without the ascent of human beings, they do not know the Truth. And that's why, whatever they try to do is a mental projection.><br>
-And this mental projection, if it is not sumsti ... substantiated by Truth, by dharma, it declines. In Sanskrit they call it glāni.><br>
+<font color="DarkRed">"The Devī has many forms, but is the Embodiment of the Śhakti. Ādi Śhakti gives Śhakti to all these Embodiments.<br>
+And so, there are many Goddesses we have. At different times, They came on this Earth, and did all that was necessary for the ascent of people who were seekers.<br>
+Specially, the One we know of Jagadambā, the Durgā, She was trying to protect all the Seekers of Truth and to destroy all evil forces<br>
+Because without the ascent of human beings, they do not know the Truth. And that's why, whatever they try to do is a mental projection.<br>
+And this mental projection, if it is not sumsti ... substantiated by Truth, by dharma, it declines. In Sanskrit they call it glāni.<br>
 When this glāni takes place, then Incarnations are born to solve the problem."</font><br>
 <font size="+0"><b>1993-1024 Navarātri Pūjā (Dussehra Day), Reintrospect Yourself, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>

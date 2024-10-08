@@ -38,7 +38,7 @@ Besides the thirty-three crores of Devas, there are many Śhaktis. But we can sa
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image521.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">""So as it is we are today praying to the Goddess that, <b>'Help us to fight our negativity within us. 
+<font color="DarkRed">"So as it is we are today praying to the Goddess that, <b>'Help us to fight our negativity within us. 
 Give us Your tiger so that we fight, give us Your lion so we fight.'</b><br> 
 Let us fight all these horrible animals that are within us, these horrible haunting things that are within us, these horrible conditionings we have. 
 You have to get rid of it."</font><br>
@@ -65,7 +65,7 @@ Today we complete the recitation of the Devī Kavach.</font>
 <p>
 <font color="DarkRed">"So we have made it short now, just take a bandhan, it is he same thing as kavacha you see. Realized Souls, if they take bandhan is the same thing. Whatever you have said here is done, yesterdays and todays, everything that has been said, all these rakṣhākari [act of protection] is done in one stroke.<br>
 But now we should know how many of us take bandhan before going from the house, before sleeping or before doing something important. How many people take bandhan. Very seldom you forget it. Very important, going on a journey, going on a road, better take a bandhan, not that we are all right, Mother is looking after us, is not the point. You must take bandhan before doing all these things.<br>
-If you get an accident, then know that you have done some mistakes, or something otherwise, normally there should be not an accident, means there is something still lacking in you. "</font><br>
+If you get an accident, then know that you have done some mistakes, or something otherwise, normally there should be not an accident, means there is something still lacking in you."</font><br>
 <font size="+0"><b>1988-1014 Talk to Sahaja Yogis, Navarātri Celebrations (4th Day), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Śhrī Mātājī explaining bandhan</b></font></font><br>
 <a href="https://www.youtube.com/watch?v=DkW7L9veu6M&ab_channel=alibaba"> video</a><br>

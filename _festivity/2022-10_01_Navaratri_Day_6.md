@@ -62,7 +62,7 @@ When you get Realization you will be surprised fire gets enlightened and you put
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>[Śhrī Mātājī explains that Kattyayeni (Kātyāyanī) killed the demon Kolhāsur and this is why Kolhapur is called as such].</b></font><br>
-<font size="+0"><b>1995-03xx Conversation with K.T. Tan with a Handwritten Line, during a Meal, Kuala Lumpur, Malaysia</b></font><br>
+<font size="+0"><b>1995-0300 Conversation with K.T. Tan with a Handwritten Line, during a Meal, Kuala Lumpur, Malaysia</b></font><br>
 <br>
 <font color="indigo"><b>She is the destroyer of sins,<br>
 giver of both enjoyment and Moksha, without end,<br>
