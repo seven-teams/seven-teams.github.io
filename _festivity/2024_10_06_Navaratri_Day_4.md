@@ -34,7 +34,7 @@ But if you go to the whole historical events of evolution you'll find [that] Nav
 <font color="Indigo"><b>Bhakto kī Kalnyani</b></font><br>
 <font size="+0"><b>You are taking care of the benevolence of Your devotees</b></font><br>
 <font color="Indigo"><b>Mā Nirmalā kī Jay Bolo, Jay Bolo!</b></font><br>
-<font size="+0"><b>Let us say Nirmalā Mā kī Jay!<</b>/font><br>
+<font size="+0"><b>Let us say Nirmalā Mā kī Jay!</b></font><br>
 <font color="DarkGreen"><b>Mātā O Mātā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>

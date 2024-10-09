@@ -23,7 +23,7 @@ So every time you find Her confronting people who are extremely arrogant, self-o
 She has Three Powers. She is one is at Mahākālī, with which She is the one who exists, and when She gets angry, She can kill also. That's the point. That's Mahākālī. And from Her two other powers came out. Was Mahāsaraswatī, who is the creative power. And the third one is the evolutionary power, is Mahālakṣhmī."</font><br>
 <font size="+0"><b>1981-0929 Navarātri Pūjā (1st Day), Room, Home of a Sahaja Yogi, Staten Island, New York City, NY, U.S.A.</b></font><br>
 <br>
-<font color="DarkGreen"><b>Mahāmāyā Mahākālī, Jay Śherawālī<</b></font><br>
+<font color="DarkGreen"><b>Mahāmāyā Mahākālī, Jay Śherawālī</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
