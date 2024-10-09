@@ -27,7 +27,7 @@ And She's the Mother of this world, Jagadambā."</b></font><br>
 <br>
 
 <p>
-<font color="DarkRed">"<b>Now, when we are celebrating the greatest of greatest this Navarātri, there must be something special about it, that we have to cleanse this heart completely,</b> fully and make it so pure that it purifies all the blood that passes through the whole of the body. So the cells of this heart, which has made this great organ, has to be the best, because the cells of the heart within a human body are the best cells, the highest quality, the most sensitive. And it's the heart that expresses the Anāhata, the sound that is without percussion. While we find that there are some people of caliber, there are, but others talk more, show off more, and do not have the caliber. "</font><br>
+<font color="DarkRed">"<b>Now, when we are celebrating the greatest of greatest this Navarātri, there must be something special about it, that we have to cleanse this heart completely,</b> fully and make it so pure that it purifies all the blood that passes through the whole of the body. So the cells of this heart, which has made this great organ, has to be the best, because the cells of the heart within a human body are the best cells, the highest quality, the most sensitive. And it's the heart that expresses the Anāhata, the sound that is without percussion. While we find that there are some people of caliber, there are, but others talk more, show off more, and do not have the caliber."</font><br>
 <font size="+0"><b>1984-0923 Navarātri Pūjā (1st Day), The Discipline, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font><br>
 <font color="green"><b>Kindle My Heart</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
@@ -37,9 +37,9 @@ And She's the Mother of this world, Jagadambā."</b></font><br>
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0063.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">If there is the Father and the Son there has to be a Mother. Because of that, the whole time the motherhood has not been respected. <b>But Mother is the power behind every creation.</b><br>
+<font color="DarkRed">"If there is the Father and the Son there has to be a Mother. Because of that, the whole time the motherhood has not been respected. <b>But Mother is the power behind every creation.</b><br>
 Now, this Kuṇḍalinī is the reflection of Athena, of Ādi Śhakti, of the Holy Ghost. She is your individual, your own mother and She is the one who is anxious to give you your Second Birth. She has been with you for so many years, for so many past years and She knows everything about you and also She loves you, loves very much and She cares for your benevolence.<br>
-So like this instrument has to be connected to the mains, you are also to be connected to the mains. As ... as this instrument has no meaning without this connection, we have no meaning without our connection to the Divine Power. <b>So it is a myth if you go on taking the name of God and calling Him and nothing works out because you are not connected.</b></font><br>
+So like this instrument has to be connected to the mains, you are also to be connected to the mains. As ... as this instrument has no meaning without this connection, we have no meaning without our connection to the Divine Power. <b>So it is a myth if you go on taking the name of God and calling Him and nothing works out because you are not connected.</b>"</font><br>
 <font size="+0"><b>1993-0428 Public Program advertised as 'The Goddess Athena Proved to Be Reality', Theatro Akropol, Ippokratous 9, Athens, Greece</b></font>
 </p>
 
@@ -104,7 +104,7 @@ Devotees all come to receive Your Darshan</font><br>
 <font color="DarkRed">"You are Sahaja Yogis.<br>
 What is your destiny? Your destiny is to achieve the spiritual success [spiritual ascent].<br>
 The Devī destroyed Chaṇḍā and Muṇḍa, that is why She is called Chāmuṇḍā. They are all back in this Kali Yuga, all of them.</font><br>
-[Prayer to the Devī: 'O Devī, please give us the spiritual personality, the victory, the spiritual ascent and destroy our enemies'.]<br>
+<font color="DarkRed"><b>[Prayer to the Devī: 'O Devī, please give us the spiritual personality, the victory, the spiritual ascent and destroy our enemies'.]</b></font><br>
 <font size="+0"><b>1988-1015 Talk to Sahaja Yogis, Your Destiny Is to Achieve the Spiritual Success and Have I Fulfilled My Destiny, Navarātri Celebrations (5th Day), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
@@ -122,7 +122,6 @@ And for sake of Her devotees, and to give salvation to this world, She has incar
 <font color="DarkGreen"><font size="+0"><b>Jogawa</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1994-1009 Navarātri Pūjā (5th Day), Innocence (Fearlessness) and Enlightened Faith, Tent, Cabella Ligure, Alessandria, Italy</b></font>

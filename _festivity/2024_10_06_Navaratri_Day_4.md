@@ -12,7 +12,7 @@ tags:
 <p>
 <font color="DarkRed">"<b>Today, we have gathered here to do the Navarātri Pūjā.</b><br>
 There were nine times when the Major Incarnations of the Mother of this Universe were manisfested [manifested]. They were manifested with a purpose. That purpose is to protect Her bhaktas, Her disciples, Her children.<br>
-This was a binding love. She could not escape it. Mother's Love is binding. She cannot escape it. And She has to manifest it, work it out, and give that protection to all Her children. "</font><br>
+This was a binding love. She could not escape it. Mother's Love is binding. She cannot escape it. And She has to manifest it, work it out, and give that protection to all Her children."</font><br>
 <font size="+0"><b>1991-1013 Navarātri Pūjā (6th Day), False Religion and Recognize Me, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -24,18 +24,18 @@ But if you go to the whole historical events of evolution you'll find [that] Nav
 <font size="+0"><b></b></font>
 <br>
 <font color="Indigo"><b>Tu Hi Durgā, Tu Hi Kālī</b></font><br>
-<font size="+0">You are Durga, You are Kālī</font><br>            
+<font size="+0"><b>You are Durga, You are Kālī</b></font><br>            
 <font color="Indigo"><b>Tu Hi Chaṇḍī Bhavānī</b></font><br>
-<font size="+0">You are Chaṇḍī Bhavānī</font><br>             
+<font size="+0"><b>You are Chaṇḍī Bhavānī</b></font><br>             
 <font color="Indigo"><b>Mā Nirmalā kī Jay Bolo, Jay Bolo!</b></font><br> 
-<font size="+0">Let us say Nirmalā Mā kī Jay!</font><br>
+<font size="+0"><b>Let us say Nirmalā Mā kī Jay!</b></font><br>
 <font color="Indigo"><b>Dush.Man. Chal.Ko Chal.Ne Wali</b></font><br>
-<font size="+0">You are destroying the plans of our foes</font><br>
+<font size="+0"><b>You are destroying the plans of our foes</b></font><br>
 <font color="Indigo"><b>Bhakto kī Kalnyani</b></font><br>
-<font size="+0">You are taking care of the benevolence of Your devotees</font><br>
+<font size="+0"><b>You are taking care of the benevolence of Your devotees</b></font><br>
 <font color="Indigo"><b>Mā Nirmalā kī Jay Bolo, Jay Bolo!</b></font><br>
-<font size="+0">Let us say Nirmalā Mā kī Jay!</font><br>
-<font color="Indigo"><b>Mātā O Mātā</b></font><br>
+<font size="+0"><b>Let us say Nirmalā Mā kī Jay!<</b>/font><br>
+<font color="DarkGreen"><b>Mātā O Mātā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
@@ -99,7 +99,7 @@ Enjoyment is only possible when you are beyond your mind. With your mind you can
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0061.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"<b>So to recognize Me, what should we do? If we recognize, then you are protected.</b>
+<font color="DarkRed">"<b>So to recognize Me, what should we do? If we recognize, then you are protected.</b><br>
 ...... if you could recognize Me, to understand Me, that I am Divine Personality. It's an Incarnation. That's all the Deities want. Then they'll look after you in every way. They'll give you all the powers. They'll give you all the satisfaction, all the protection that you want."</font><br>
 <font size="+0"><b>1991-1013 Navarātri Pūjā (6th Day), False Religion and Recognize Me, Tent, Cabella Ligure, Alessandria, Italy</b></font><br>
 <font color="DarkSlateBlue"><b>Auṃ Twameva sākṣhāt<br>
@@ -120,7 +120,7 @@ Salutations to You!</font><br>
 </p>
 
 <p>
-<font color="MediumVioletRed"><b>Ankhe band karu</b></font><br>
+<font color="green"><b>Ankhe band karu</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 

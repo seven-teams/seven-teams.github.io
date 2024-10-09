@@ -46,8 +46,8 @@ You have received your Self-realization in Sahaj way. Now there are two meanings
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0067.png" /></div>
 
 <p style="text-align:center;">
-<font color="Indigo"><b>May this benevolent face of Yours, adorned with three eyes, protect us from all terror.</font><br>
-<font color="DarkGreen">O Kātyāyanī, we bow to You.</b></font><br>
+<font color="Indigo"><b>May this benevolent face of Yours, adorned with three eyes, protect us from all terror.</b></font><br>
+<font color="DarkGreen"><b>O Kātyāyanī, we bow to You.</b></font><br>
 <font size="+0"><b>Devī Mahātmyam</b></font><br>
 <br>
 <font color="Indigo"><b>Etathe vadanam saumyam</b><br>
