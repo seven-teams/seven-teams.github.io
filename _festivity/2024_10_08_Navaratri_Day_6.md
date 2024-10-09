@@ -16,7 +16,7 @@ In the same way, Sahaja Yogis who are bestowed with this Power of Love have to h
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Lucerne, Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT066.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0066.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"<b>Navarātri is the day to give you the balance.</b> Those whose right hand is tired will get the power in the left hand. Those who have the left hand tired will get the power on the right hand to share the load.</font><br>
