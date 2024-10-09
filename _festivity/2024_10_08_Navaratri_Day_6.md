@@ -16,13 +16,13 @@ In the same way, Sahaja Yogis who are bestowed with this Power of Love have to h
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Lucerne, Switzerland</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT006.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT066.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"<b>Navarātri is the day to give you the balance.</b> Those whose right hand is tired will get the power in the left hand. Those who have the left hand tired will get the power on the right hand to share the load.</font><br>
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Lucerne, Switzerland</b></font><br>
-<font color="DarkGreen"><font size="+0">b></b></font></font><br>
-<a href="">video</a>
+<font color="DarkGreen"><font size="+0"><b>Namostute Bhagavatī Śhrī Mātājī</b></font></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -39,18 +39,18 @@ Vedas, in the beginning of the Vedas, it's said that: 'If by reading these four 
 <p>
 <font color="DarkRed">"<b>This is a worship of the Śhakti. Until now many Saints, Sages have known and revealed about this Śhakti. Whatever they could not describe in prose, they tried to convey by poetry. Whatever description was not possible to put in words -- they composed different names of the Devī and described.</b> We know all this and many people also know the meaning of this. But one thing they perhaps do not know is that every human being has all these śhaktis, powers dormant in them and they can awaken them. These dormant powers are eternal and limitless.<br>
 Besides the thirty-three crores of Devas, there are many Śhaktis. But we can say that this Self-realization that we have achieved today, has been achieved through working of some Śhakti or the other. Without this you could not have achieved the Self-realization.<br>
-You have received your Self-realization in Sahaj way. Now there are two meanings of Sahaj. One meaning is you have got it easily. The other meaning is, -- like any living process this has happened on its own. You have received it on your own. "</font><br>
+You have received your Self-realization in Sahaj way. Now there are two meanings of Sahaj. One meaning is you have got it easily. The other meaning is, -- like any living process this has happened on its own. You have received it on your own."</font><br>
 <font size="+0"><b>1988-1016 Navarātri Pūjā (Hindi) (6th Day), Hamāre Jīvana kā Lakṣhya (The Aim of Our Lives), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0067.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen"><b>May this benevolent face of Yours, adorned with three eyes, protect us from all terror.<br>
-O Kātyāyanī, we bow to You.</b></font><br>
+<font color="Indigo"><b>May this benevolent face of Yours, adorned with three eyes, protect us from all terror.</font><br>
+<font color="DarkGreen">O Kātyāyanī, we bow to You.</b></font><br>
 <font size="+0"><b>Devī Mahātmyam</b></font><br>
 <br>
-<font color="MediumVioletRed"><b>Etathe vadanam saumyam</b><br>
+<font color="Indigo"><b>Etathe vadanam saumyam</b><br>
 May this benign countenance of yours,<br>
 <b>Lochana-traya bhushitam</b><br>
 Adorned with three eyes,<br><br>
@@ -83,7 +83,7 @@ The only desire then left is that, 'I am enjoying Myself, let others also enjoy.
 <p style="text-align:center;">
 <font color="DarkRed">"<b>To all devotees and followers of truth, who have assembled here for the Pūjā, I offer My protection.</b><br>
 In this Kali Yug of today, when so much devotion and homage for the Mother, and so much love comes into the hearts of human beings, then we can know that Satya Yuga has begun.<br>
-This is a most fortunate and divine coincidence for Me also, that on a Ṣhaṣhṭhī Day I came to Kolkata [arrival on 196-1009]. Because, in the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day. <b>Ṣhaṣhṭhī Day is of Śhākambharī Devī</b>, and on that day the whole nature should be green and lush. "</font><br>
+This is a most fortunate and divine coincidence for Me also, that on a Ṣhaṣhṭhī Day I came to Kolkata [arrival on 196-1009]. Because, in the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day. <b>Ṣhaṣhṭhī Day is of Śhākambharī Devī</b>, and on that day the whole nature should be green and lush."</font><br>
 <font size="+0"><b>1986-1010 Navarātri Pūjā (Hindi) (7th Day), Lions Club Safari Park, Southern Avenue, Kolkata, West Bengal, India</b></font><br>
 <br>
 <font color="DarkGreen"><b>AMBE TU PĀRVATĪ PARAMEŚHWARĪ</b><br>
@@ -105,8 +105,8 @@ Victory to Jogeśhwarī (Goddess of Yoga), Victory to Maheśhwarī (Goddess of S
 <font color="DarkRed"><b>[Śhrī Mātājī explains that Kattyayeni (Kātyāyanī) killed the demon Kolhāsur and this is why Kolhapur is called as such].</b></font><br>
 <font size="+0"><b>1995-0300 Conversation with K.T. Tan with a Handwritten Line, during a Meal, Kuala Lumpur, Malaysia</b></font><br>
 <br>
-<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Kātyāyanī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
-O Divine Mother, You are verily Śhrī Kātyāyanī, the one who is the foster daughter of Sage Katyayana!<br>
+<font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Kātyāyanī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
+<b>O Divine Mother, You are verily Śhrī Kātyāyanī, the one who is the foster daughter of Sage Katyayana!</b><br>
 Salutations to You!<br>
 <font size="+0"><b>Namostute (Mantra of Śhrī Kātyāyanī is taken): </b></font><br>
 <a href="">video</a>
@@ -120,12 +120,12 @@ Salutations to You!<br>
 
 <p>
 <font color="green"><b>Durgā Ādi Śhakti Śhrī Mātājī</b></font><br>
-<a href="https://youtu.be/VDG_hBVrztQ">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
 <font color="green"><b>He Bhavānī Bhagavatī</b></font><br>
-<a href="https://youtu.be/lA1ePxfg-Sc">video</a> 
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
 <p>
