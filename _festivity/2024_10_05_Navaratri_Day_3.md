@@ -11,7 +11,7 @@ tags:
 
 <p>
 <font color="DarkRed">"<b>Now you are worshiping today the Durgā, or all the Nine Forms of the Goddess.</b> She came nine times on this Earth, according to this, that She fought all the people who were destroying the seekers, who were trying to make a mess of their lives. And these tortured Saints, when they prayed to the Goddess -- because none of the Gods could do anything, and Sadāśhiva is never interfering with what the Goddess is doing -- so they worshiped the Bhagavatī, and then the Incarnation of Hers came nine times, according to the need of the time.<br>
-So every time you find Her confronting people who are extremely arrogant, self-opinionated, thinking no end of themselves. And the bhaktas are tortured by these self-opinionated horrible rākṣhasas. "</font><br>
+So every time you find Her confronting people who are extremely arrogant, self-opinionated, thinking no end of themselves. And the bhaktas are tortured by these self-opinionated horrible rākṣhasas."</font><br>
 <font size="+0"><b>1992-0927 Navarātri Pūjā (1st Day), 10th Position or Divine Knowledge is the Reality, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -23,8 +23,8 @@ So every time you find Her confronting people who are extremely arrogant, self-o
 She has Three Powers. She is one is at Mahākālī, with which She is the one who exists, and when She gets angry, She can kill also. That's the point. That's Mahākālī. And from Her two other powers came out. Was Mahāsaraswatī, who is the creative power. And the third one is the evolutionary power, is Mahālakṣhmī."</font><br>
 <font size="+0"><b>1981-0929 Navarātri Pūjā (1st Day), Room, Home of a Sahaja Yogi, Staten Island, New York City, NY, U.S.A.</b></font><br>
 <br>
-<font color="DarkGreen"><b></b></font><br>
-<a href="">video</a>
+<font color="DarkGreen"><b>Mahāmāyā Mahākālī, Jay Śherawālī<</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -97,6 +97,7 @@ Mauli milad bakulāli kule, Jaya, jaya, he</b></font><br>
 Your movements are like a graceful and playful group of Swans;<br> 
 Like a swarm of bees to fragrant flowers, the stars adorn Your forehead.<br>
 Victory to You!</b></font><br>
+<br>
 <font size="+0"><font color="DarkGreen"><b>Ayi Giri Nandini:</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 <font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Chandraghaṇṭā sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ</b></font><br>
