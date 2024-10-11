@@ -16,7 +16,7 @@ In those days, it was very simple because devils came as devils and you could se
 <font size="+0"><b>2001-1021 Navarātri Pūjā (5th Day), You Should Become Really Soldiers of Love and Peace (Overcome Hatred with Love or To Hate is a Very Bad Quality), Sportcamp, Avras, Loutraki, Greece</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0046.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0074.png" /></div>
 
 <p style="text-align:center;">
 <font color="Indigo"><b>Raudrāyai namo nityāyai</b></font><br>
@@ -38,7 +38,7 @@ It's so Sahaja that today should be Aṣhṭamī, because that is the day the Go
 <font size="+0"><b>1984-0930 Aṣhṭamī Pūjā (8th Day of Navarātri), Discipline Has to Be Sahaja (What We Have to Do within Ourselves), Complexe Sportif René Leduc, 12 Rue du Père Brottier, Meudon (12 kms SW of Paris), Île-de-France, France</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0047.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0075.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"And on an Aṣhṭamī, that is today, is the eighth day of the Moon, of the Moon which is increasing, Śhuklapakṣhi, that first time all the weapons of the Goddess are to be worshiped. This was a great idea because these weapons who work all the time, not only to kill the evil but to protect the good, were never worshiped before.</b>"</font><br>
@@ -71,7 +71,7 @@ May God bless you."</font><br>
 <font size="+0"><b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0048.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0076.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"You have to see that all the negativity goes away, around us, around the universe.<br>
@@ -105,7 +105,7 @@ So to help Me out, you should not take any sides with negativity. That's how you
 <font size="+0"><b>1985-1009 Talk to Sahaja Yogis, Like a Drama, On Arrival before the Public Program, Flat of Ruth and Kingsley Flint, Strasbourg, Grand Est, France</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0049.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0077.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"So, today's victory of the Power of the Divine Mother, is doing one very great work: is to expose. And this exposure will be condemning publicly those people who are doing wrong. If you see from that point of view, you will understand how we are victorious now. "</b></font><br>
