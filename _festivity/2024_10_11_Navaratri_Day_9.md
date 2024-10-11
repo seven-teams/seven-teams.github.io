@@ -92,28 +92,33 @@ Salutations to You!</font><br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b></b></font><br>
+<font color="green"><b>Śhrī Devī Sūktam</b></font><br>
+<a href="https://youtu.be/K7he8axOgfw">video</a>
+</p>
+
+<p>
+<font color="green"><b>He Ādi Śhakti Mā</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a>
-</p>
- 
-<p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b> Anyatha Sharnam Nāsti</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Jay Jagadambe</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
+<font color="green"><b>Durgā Ādi Śhakti Śhrī Mātājī</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+</p>
+
+<p>
+<font color="green"><b>Śhrī Mātājī playing harmonium as Sahaja Yogis sing Devī Bhajans</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
