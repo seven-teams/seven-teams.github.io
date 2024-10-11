@@ -1,7 +1,7 @@
 ---
 title: '2024 Navarātri Celebrations, Day 8: "If you want to really worship Me, that&#8217;s what you have to think, what are the devils within you, that&#8217;s all. So you don&#8217;t have to worry otherwise for outside devils, they cannot do anything to you." '
-date: 2024-10-11
-permalink: /festivity/2024/10/11
+date: 2024-10-10
+permalink: /festivity/2024/10/10
 tags:
   - deeppink @ Shri Mahagauri
   - green @ Navaratri

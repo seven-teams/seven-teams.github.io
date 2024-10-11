@@ -45,7 +45,7 @@ Devī par.marth. ko ayi re, Meri Nirmalā Mā<br>
 Now, there is the existence, there is the creation, creative force, and there is the evolutionary force, all inside the Virāṭa State.<br>
 Now, this is at the Vaikuṇṭha State, we say, because this state is on this first reflection. It is not in us, or we cannot feel it, the Vaikuṇṭha State, because it is in the first thing.<br>
 Then another state was created, then third was created, but the fourth one is the Bhavasāgara: is the state at which all of us were born. First, in the fourth state. Now, can you think of a four strata personality which is facing a mirror? Now, which is the first one [that] shows? Is the topmost. And that's why the topmost shows is the Bhavasāgara. But if you can go deep down into your state, you can feel all the other three. But first of all, the one which you can see and feel it, is the Bhavasāgara. So, you are born in the Bhavasāgara. At this state you are at the Bhavasāgara State. At this Bhavasāgara State, now, you are created and you have to evolve. <b>At this time the Mahālakṣhmī Power acts to evolve you.</b>"</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1977-0220 Public Program, Creation and Evolution, New Delhi, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0079.png" /></div>
@@ -81,8 +81,6 @@ And ṛiddhi is by which contentment, peace, joy. Means that you grow into that,
 <font color="Navy"><font size="+0"><b>Auṃ Twameva sākṣhāt Śhrī Siddhidatrī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ</b></font></font><br>
 <font size="+0">O Divine Mother, You are verily Siddhidatrī, the One who is the bestower of siddhis (Divine Powers)!
 Salutations to You!</font><br>
-</p>
-
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 

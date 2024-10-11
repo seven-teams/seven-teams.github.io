@@ -1,7 +1,7 @@
 ---
 title: '2024 Navarātri Celebrations, Day 7: "I would request you the Sahaja Yogis, not to worry as to what is happening around, but to worry what is happening inside and build up your Mahālakṣhmī Principle." '
-date: 2024-10-10
-permalink: /festivity/2024/10/10
+date: 2024-10-09
+permalink: /festivity/2024/10/09
 tags:
   - deeppink @ Shri Kalaratri
   - green @ Navaratri
