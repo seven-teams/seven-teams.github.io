@@ -108,7 +108,7 @@ So to help Me out, you should not take any sides with negativity. That's how you
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0077.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"So, today's victory of the Power of the Divine Mother, is doing one very great work: is to expose. And this exposure will be condemning publicly those people who are doing wrong. If you see from that point of view, you will understand how we are victorious now. "</b></font><br>
+<font color="DarkRed"><b>"So, today's victory of the Power of the Divine Mother, is doing one very great work: is to expose. And this exposure will be condemning publicly those people who are doing wrong. If you see from that point of view, you will understand how we are victorious now."</b></font><br>
 <font size="+0"><b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
 <br>
 <font color="MidNightBlue"><b>Maiya Tere Charano ki</b></font><br>

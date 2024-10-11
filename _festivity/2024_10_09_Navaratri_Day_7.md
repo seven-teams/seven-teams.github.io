@@ -42,11 +42,11 @@ But Mahālakṣhmī Ati Raudra Rudra Swarūpi[n] and Rudra is very necessary. Ot
 This will only go away with the Rudra Form."</b></font><br>
 <font size="+0"><b>1994-1211 Śhrī Ādi Śhakti Pūjā (Hindi), Mahāmāyā, Mahākālī, Śhāradā Devī, Mahālakṣhmī, Jaipur, Rajasthan, India</b></font><br>
 <font color="Indigo"><b>Jaya Twam Devī Chāmuṇḍe jaya bhū-tāpa-hāriṇi,<br>
-Jaya Sarva-gate Devī Kāḷarātri namostute</b><br>  
+Jaya Sarva-gate Devī Kāḷarātri namostute</b></font><br>  
 Victory be to You, O Devī Chāmuṇḍā<br>
 Victory be to You Who destroys the suffering of all living beings.<br>
 Victory be to You, O Devī Who is present everywhere.<br>
-Salutations to You, O Kāḷarātri (the longest night)</font><br>
+Salutations to You, O Kāḷarātri (the longest night)<br>
 <font size="+0">(from Argala Strotram)</font><br>
 </p>
 
@@ -70,7 +70,7 @@ Sahaja Yoga, as you know, has a double action, as the Mahākālī has a double a
 May God bless you all!</font><br>
 <font size="+0"><b>1986-0921 Śhrī Mahālakṣhmī Pūjā, Śhrī Jaldevatā, Oude Stadsfeestzaal, Mechelen (27 kms S of Antwerp), Belgium</b></font><br>
 <font color="DarkGreen"><font size="+0"><b></b></font></font><br>
-<a href="">video</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
@@ -85,7 +85,8 @@ It is not within you to understand Durgā. That all the rākṣhasas are also He
 <font color="DarkRed">"<b>Her security is so great, She is so secure Herself, that She gives you all the security that you need. You can hold on to Her Feet. You can hold on to Her image or to anything.</b> You can even pray to Her. Many people are being cured only by praying to Her.<br>
 ......<br>
 She is worshiped in the night, because then we can put on the light. She likes enlightened persons. Also She likes the light. She likes the Sun. She likes something that will be completely enlightened and brightened."</font><br>
-<font size="+0"><b>1999-1017 Navarātri Pūjā (8th Day), The Powers of Śhrī Mahākālī, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font><br>  
+<font size="+0"><b>1999-1017 Navarātri Pūjā (8th Day), The Powers of Śhrī Mahākālī, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font><br>
+<br>
 Durgāyai Durga-parāyai<br>
 Salutations always to Śhrī Durgā who takes one across in difficulties,<br>
 Sārāyai Sarvakārinyai<br>
