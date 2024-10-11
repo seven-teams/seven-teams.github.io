@@ -27,7 +27,7 @@ To Śhrī Gaurī, Supporter of the Universe,<br>
 To Her who is the Moon and Moonlight,<br>
 <font color="Indigo"><b>Sukhāyai satatam namaḥ</b></font><br>
 And Happiness itself, we bow constantly.<br>
-<b><font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Aneka-śhastra hasta sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
+<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Aneka-śhastra hasta sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 <font size="+0">(You are the One who wields many weapons in Her hands)</font>
 </p>
 
