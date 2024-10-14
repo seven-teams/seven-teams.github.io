@@ -10,8 +10,8 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>1978-0000 Conversation with Workshop, UK </b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 medium/high resolution from the Named Collections.<br>
-The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/UK/1978"><font color="DarkGreen">UK 1978</font></a>.<br>
+We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1978-0000 Conversation with Workshop, UK </b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution and 1 medium/high resolution from the Named Collections.<br>
+The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/UK/1978"><font color="DarkGreen">UK 1978</font></a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
