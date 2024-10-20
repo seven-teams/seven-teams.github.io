@@ -95,7 +95,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>A13.</b></font> <b>1990-1220 Article 'Messiahs of Peace' by Vinita Deshmukh, Special Supplement 'Citizen' of 'Indian Express, India, Pages 24 and 26 (Balwant Kumbhojkar Collection)</b> (2 page, uploaded on 2024-1018), <font color="SeaGreen"><b>Source:</b></font> <a href="https://seven-teams.github.io/events/1990-1202-1200"> <b>1990-1200 Interview with Vinita Deshmukh for the Special Supplement 'Citizen' of 'Indian Express' (published on 1990-1220), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></a>
+<font color="DarkGreen"><b>A13.</b></font> <b>1990-1220 Article 'Messiahs of Peace' by Vinita Deshmukh, Special Supplement 'Citizen' of 'Indian Express, India, Pages 24 and 26 (Balwant Kumbhojkar Collection)</b> (2 page, uploaded on 2024-1018), <font color="SeaGreen"><b>Source:</b></font> <a href="https://seven-teams.github.io/events/1990-1214-a"> <b>1990-1214 Interview with Vinita Deshmukh for the Special Supplement 'Citizen' of 'Indian Express' (published on 1990-1220), (likely) before Breakfast, Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></a>
 
 <iframe src="/pdf/?usedownload=true#/files/1990-1220_Article_'Messiahs_of_Peace'_by_Vinita_Deshmukh_Special_Supplement_'Citizen'_of_'Indian_Express'_India_Pages_24_and_26_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
