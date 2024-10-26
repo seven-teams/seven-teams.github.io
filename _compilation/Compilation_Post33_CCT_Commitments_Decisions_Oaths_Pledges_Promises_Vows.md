@@ -557,6 +557,15 @@ The light which we have in our hearts, if we don't spread it then we will be in 
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"Now you have to promise Me one thing: for this, to promise Me that you will grow in Sahaj Yog. You'll become a very big tree, not a small little plant, and you will help the world to come to this Paradise of heavenly blessings. This is ... should be your promise to Me.<br>
+You can do it, I know you can do it. If I could do, I would not request you.<br>
+But I am requesting you: that you have to go deep down into yourself and see that you have got this great treasure, and you must develop it."</font><br>
+<font size="+0"><b>2000-0926 Public Program, Day 1, Royal Albert Hall, Kensington Gore, South Kensington, London SW7 2AP, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <b>Version 1:</b><br>
 "<font color="DarkRed">So today, we have to pledge that, 'We forgive everyone towards whoever we have grudge or anger.'</font><br>
 I agree that there are many such crimes that harms us deeply and we are unable to save ourselves from it. But if you are devotee of Śhivjī, then you will be surprised that you will not find any crime so big that your heart is bigger that Śhivjī. That's why He will realize it [<font color="orange">unclear</font>] and so don't insult anyone.<br>
