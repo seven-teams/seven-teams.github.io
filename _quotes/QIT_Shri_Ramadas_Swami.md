@@ -349,7 +349,30 @@ Dyaneśhwa Himself has clearly written in His book Amṛutānubhav that after re
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Śhivajī had a Guru called Rām[a]dāsa.<br>
+In those days, gurus u-sed to take lot of test of their disciples.<br>
+I never took your test or anything. But you are ... you are testing yourself, that's all.<br>
+And his Guru one day said that: "Ah-ah ... I think I need the milk of a tigress-s-s. I have to drink the milk of a tigress." [Some laughter.] Half of them died. [Laughter, smiles.] And most of them didn't hear it. Śhivajī said, "All right. I'll get you."<br>
+He went in the jungles. He saw a tigress, and the ... there were little-little ... small little ch... children she had, and those cubs were lying on the side. He went and he just said: "Namaskār" to her. He said: "My Guru wants your milk." [One Sahaja Yogi laughs.]<br>
+That's all. Because Gurus are Parabrahma. Their orders are listened to by the Parabrahma.<br>
+"My Guru, Śhrī Rām[a]dāsa, wants your milk. So, please, will you give me your milk?" So, nicely she got up, stood up before him. He ... milked her, and took that milk for his Guru.<br>
+This is what it is.<br>
+Have you understood the meaning of Guru Pada?<br>
+When you become absolutely one with the desires of your Guru, you achieve the position of a guru.<br>
+But if you still have certain ideas about it, then Śhrī Rāmadāsa has said: that then God, "Alpa dhāriṣhṭa paye," sees your little courage, 'All right, go ahead. Break your heads and then come back. I'll fix them up.'<br>
+So it is important that we should ... do one thing seriously: is to take your Mother very seriously when it comes to some request.<br>
+......<br>
+Is better to listen to what the Guru is telling you, and better to do it. Whatever the Guru says is all right.<br>
+Gurus can ask you anything!<br>
+I mean, I am quite a nice Guru. [Laughter, smiles.]<br>
+Like, this Rāmadāsa Himself asked His disciples: that, "I have got a very bad, septic, uh-uh-uh big boil. And uh please uh try to suck it out because is full of pus."<br>
+Imagine!<br>
+So they didn't know what to do. You know, how to suck the pus of the Guru is too much.<br>
+But Śhivajī came forward. He took down his hat, sat down next to him, started sucking. People said, "How is it?" "It's very sweet, she [it's] very nice."<br>
+Actually He had tied a mango there. [Laughter, smiles, applause.]<br>
+That is how the gurus took lot of tests-s-s.<br>
+I have never taken your test, and you do not take the tests of others. Leave them to Me, I'll manage, all of them, one by one.<br>
+Whatever has to happen, happens."</font><br>
 <font size="+0"><b>1987-0712 Guru Pūjā, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
 </p>
 
