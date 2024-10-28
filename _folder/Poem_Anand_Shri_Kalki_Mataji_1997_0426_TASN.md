@@ -8,7 +8,7 @@ tags:
   - brown @ 1997
   - cornflowerblue @ Fiji
   - deeppink @ 1997-0426 The Australian Sahaja Newsletter
-  - green @ Story of 1997-1200 Poem Shri Kalki Mataji
+  - green @ Story of Poem Shri Kalki Mataji
   - maroon @ Shri Mataji
   - maroon @ Shri Kalki
 ---

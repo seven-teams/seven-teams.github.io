@@ -1,7 +1,7 @@
 ---
-title: 'Photos Post 35: Special Events (after 1975), Part 06'
-date: 2024-10-27
-permalink: /photos/2024/1027-a
+title: 'Photos Post 35: Special Events (after 1975), Part 07'
+date: 2024-10-28
+permalink: /photos/2024/1028-a
 tags:
   - green @ Updates
 ---
@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1912-0000 Series D, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 medium resolutions from the Named Collections.<br>
+We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1912-0000 Series E, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 medium resolutions from the Named Collections.<br>
 The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mahipalsingh-Jaisingh-Raul-Collection/1912"><font color="DarkGreen">Collection 1912</font></a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>

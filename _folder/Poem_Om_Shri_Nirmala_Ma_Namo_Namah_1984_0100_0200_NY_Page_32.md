@@ -8,7 +8,7 @@ tags:
   - brown @ 1984
   - cornflowerblue @ TBD
   - deeppink @ 1984-0100 and 0200 Nirmala Yoga
-  - green @ Story of Poem As Well You Know
+  - green @ Story of Poem Om Shri Nirmala Ma Namo Namah
   - maroon @ Ma
   - maroon @ Namo
   - maroon @ Namah
