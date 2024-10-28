@@ -14,7 +14,7 @@ tags:
 <br>
 
 <p>
-er greatness I cannot fathom<br>
+Her greatness I cannot fathom<br>
 Her sweetness too sweet for taste<br>
 Her caring like a million mothers<br>
 He power immeasurable...<br>
