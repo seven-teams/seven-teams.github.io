@@ -603,7 +603,7 @@ After reading that letter, Guru Rāmdās laughed and said, "Son, I am an ascetic
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"There are, of course, other gurus also who take a terrible test of their disciples. Like, as you s-Śhrī ... Śhrī Rāmadāsa. This was nothing compared to what Rāja Janaka did. They will test the person, and then only give Realization, and out of thousands, to one only. That is how we have got so many false gurus also because they were all discarded by these realized Souls so. "</font><br>
 <font size="+0"><b>1994-0724 Guru Pūjā, Mature through Your Meditation in Nirvichāritā and Absolute Truth Is Absolute Love (What You Should Do or In Short You Must Worship Your Self), Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -653,7 +653,12 @@ Rāmadās Swāmī."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Today, many Maharashtrians have come here, and I wanted to say that a great number of people have come from Delhi. So many people would never come from Maharashtra.<br>
+In Marathi they are called Gharakombaḍe [homeschool]. It seems they can be found in their own country only. You will never find the people of Bombay [Mumbai] in Poona [Pune] doing any work, and the people of Poona [Pune] are in a way glued like a rākṣhasa.<br>
+I am saying so, because sometimes, by saying all this openly, the problem gets solved. I have to say openly that [followers of Pāṇḍuraṅgaśhāstrī] Āṭhavale are better than Sahaja Yogis in Maharashtra.<br>
+They talk uselessly, but they have accumulated lākhs of people -- not to mention Gujarat. They are under the influence of gurus. But what happened to Maharashtrians?<br>
+Here, Rāmdās Swāmī has talked about all the gurus and -- I shall tell everyone to pay attention -- so many years ago [He] explained Sahaja Yoga.<br>
+They sing every day. Nāmadev has written the song, `Jogawa', that you sing every day: ``Mother, please give us Yoga." But for that Yoga you have to do something."</font><br>
 <font size="+0"><b>1995-1030 Diwālī Pūjā (Hindi + English) (6th day after Diwālī Day), Sahajyog Ke Suruvat (How Sahaja Yoga Started), Nargol, Maharashtra, India</b></font>
 </p>
 
@@ -686,7 +691,12 @@ All this showed his brightness, that when a person becomes bright, he does not k
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"And it was absolutely f... the freedom of the guru, whom to accept whom not to accept. And everybody was tested thoroughly by the guru if-ph-phph they are capable of achieving Self-realization or not. And this test was so d... so hard, so difficult, and also to a point of cruelty, that very few could pass through that test.<br>
+Is not like Sahaja Yoga, everybody is a Sahaja Yogi, it's not like that.<br>
+That of course, made it a very narrow margin for people to achieve their Realization.<br>
+And these guru[s] never used to leave their own seats, they call it takiya [pillow]. They would be there in their own place, all those who would like to go to him could come. If he allowed, then only they can meet him. You may go on for miles together, nothing: no obligations of the guru that he should meet you.<br>
+Perhaps, they didn't feel that love and compassion for the seekers. They-ee didn't understand that the seekers are ardently seeking the Truth and they should not suffer. That may be the reason th-ss.. they were not so much concerned. All the time they [gurus] were testing their disciple.<br>
+Even Rāmadās, who was the Guru of Śhivajī, was testing even Śhivajī ph... for so many times, though he was a born realized."</font><br>
 <font size="+0"><b>1996-0728 Guru Pūjā, You Should Live like a Saint or Criteria to Introspect Yourself, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -700,7 +710,22 @@ All this showed his brightness, that when a person becomes bright, he does not k
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">
+<b>Version 1:</b>
+"Some people claim to be eradicating superstition. The incident which I told yesterday is one type. If somebody speaks something, they are set to harass him. They are not concerned even if thousands of people go to a dirty place.<br>
+Someone from them tells Me, "Śhrī Mātājī, he [false guru] has made lots of money. His wife eloped with Rajneesh. Probably she was not given money. We accepted him." OK do it.<br>
+But, you say, "I accept," who is this 'I'? Humility should start from here: 'Who am I? I am a Sahaja Yogi. I am a Sahaja Yogi who has become [the] Spirit. Then how should I have behaved?'<br>
+You have before you the examples of Gyāneśhwara, Tukārām, Rāmadās, Eknāth. Have you not heard or read about them?<br>
+Nāmadeva whom Guru Nāṇaka held to His heart was the one who was from Maharashtra and [a] tailor by caste, wasn't he? Here in his temple they sing bhajans to the beats of cymbals and not even ten persons from the tailor caste go there -- if ten of them are there, we can say Nāmadeva's efforts have shown results.<br>
+Today I request to all Saints and Sādhus to take birth in this country and improve all the people."<br>
+<nr>
+<b>Version 2:</b>
+Yesterday there was somebody who came saying that, "I am working to demolish the blind faith in people." So there is that thing, whatever anybody comes up with, people will start following him, they will follow in their thousands, to such filth.<br>
+"They have made so much money," Śhrī Mātājī. "And his wife has run off with Rajneesh." "Is that so?", I said, "Maybe he did not give her any money." "We used to worship him." "Really?" Then you carry on doing so.<br>
+What do you mean by saying that, "We used to worship him?" Who are you? You should ask yourself, 'Who are you?' Humility should start right from here, 'Who am I? I am a Sahaja Yogi. Who has become the Ātmā, I am a Sahaja Yogi, and how should a Sahaja Yogi behave?'<br>
+You have an example of Gyāneśhwar in front of you, you have an example of Tukārām in front of you, Rāmadās and Ekanātha's example is in front of you, did you not hear what They had to say? Have you not witnessed that?<br>
+Nāmadeva, who Śhrī Guru Nāṇaka embraced, wasn't that Nāmadeva also a tailor from this Maharashtra? But what I see here, that they are busy singing in his temple! Even if there will be just ten tailors come to Sahaja Yoga, then we should think that Nāmadevas existence has been worth it.<br>
+Today I just want to pray to all those Saints that, 'Please take Your birth here again in Maharashtra and put these people right.' "</font><br>
 <font size="+0"><b>1996-1221 Śhrī Kārttikeya Pūjā (Marathi + English), Śhrī Gyāneśhwara, Park (200 m from ISYRH Center), C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font>
 </p>
 
