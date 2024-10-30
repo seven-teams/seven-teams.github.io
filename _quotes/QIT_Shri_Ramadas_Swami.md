@@ -472,7 +472,13 @@ There is no need to show off your intelligence. God's blessings are in plenty bu
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"But in the twelfth century, Gyānadeva, Gyāneśhwara, who was another Nāth Pānthi, His Guru was His own brother, He ... asked the permission, from His brother, that, "Please allow Me to say all these things openly. At least to say in Marathi language, because the common people don't know anything about this knowledge." So He allowed Him, and He wrote the sixth chapter of Gyāneśhwarī in which He described Kuṇḍalinī.<br>
+But it was in the twelfth century.<br>
+After that, many Saints described, talked about him [It].<br>
+Where we went yesterday, to Sātārā, you know that's the place where Śhrī Rāmadāsa lived.<br>
+He said that, "Kuṇḍalinī"" -- they asked, somebody asked:  "How much time does it take to raise the Kuṇḍalinī?" He said, "That Tatk-ṣhaṇa." Means, "That moment." "But the person who wants to take it should be deserving, and the one who wants to give should be capable."<br>
+[As a Sahaja Yogi starts laughing:] It's a big condition. This is such a big if, capital If I tell you. [Laughs.]<br>
+As a result, very, very few people got their Realization. And those who were born as realized Souls, found ... found it impossible to talk to people."</font><br>
 <font size="+0"><b>1990-1217 Śhrī Chakra and Śhrī Lalitā Chakra Pūjā (English + Marathi), Brahmapuri (near Sātārā), Maharashtra, India</b></font>
 </p>
 
@@ -487,7 +493,9 @@ They have also produced writers and poets like [Gopal Ganesh] Agarkar Sāhib and
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Oh, ... it takes [laughing:] no time at all [to get Self-realization]. [Taps on the mike.] It takes no time.
+There was a very great Saint called Rāmsdās, and somebody asked Him: "How much time does it take for a Kuṇḍalinī awakening?" He said, "Tatkṣhaṇa": "That moment!" "But there should be a person deserving to get it and the one who can give it."
+But today, I must tell you, I've reached a stage, I cannot explain how, thousands of them are getting Realization."</font><br>
 <font size="+0"><b>1991-0327 Public Program, Reach the Point We Can Know the Absolute, Perth, WA, Australia</b></font>
 </p>
 
@@ -501,7 +509,7 @@ They have also produced writers and poets like [Gopal Ganesh] Agarkar Sāhib and
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"After that we had Kabīra, we had Nāṇaka, we had Rāmadāsa, uh we had Tukārāma: we had so many of Saints who have talked about it."</font><br>
 <font size="+0"><b>1991-0413 Public Program, Auditorium, National Press Club, 16 National Circuit, Barton, ACT, Australia</b></font>
 </p>
 
@@ -530,7 +538,7 @@ Before, there might have been many people to give but very few people to receive
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"It's a story about Śhivajī, very interesting story. He was once building a very huge big uh-uh-uh fo... fort. And people were working. And he was just looking at them, and he thought: 'See now, what a nice thing I am doing: I have given so much work to so many poor people.' Thus feeling quite happy about it. And [he] was looking at them. Suddenly, his Guru Rāmdās Swāmī came there. And they were breaking one boulder. They said, "Slowly, slowly break it. Do not hit it hard." They were breaking slowly, ultimately they came to a stone which was just like one coconut. So Rāmdās Swāmī took that coconut in his hound ... hand and broke it. And there was water in it, and there was a frog sitting inside. Then, Śhivajī Mahārāj realized: that, 'When God creates you, He also provides you with thing. You need not be proud that you are doing so much for others.' "</font><br>
 <font size="+0"><b>1991-1221 Śhrī Mahālakṣhmī Pūjā (English + Hindi + Marathi), Jayasiṅgapura (37 kms E of Kolhapur), Maharashtra, India</b></font>
 </p>
 
@@ -658,7 +666,7 @@ In Marathi they are called Gharakombaḍe [homeschool]. It seems they can be fou
 I am saying so, because sometimes, by saying all this openly, the problem gets solved. I have to say openly that [followers of Pāṇḍuraṅgaśhāstrī] Āṭhavale are better than Sahaja Yogis in Maharashtra.<br>
 They talk uselessly, but they have accumulated lākhs of people -- not to mention Gujarat. They are under the influence of gurus. But what happened to Maharashtrians?<br>
 Here, Rāmdās Swāmī has talked about all the gurus and -- I shall tell everyone to pay attention -- so many years ago [He] explained Sahaja Yoga.<br>
-They sing every day. Nāmadev has written the song, `Jogawa', that you sing every day: ``Mother, please give us Yoga." But for that Yoga you have to do something."</font><br>
+They sing every day. Nāmadev has written the song, 'Jogawa', that you sing every day: "Mother, please give us Yoga." But for that Yoga you have to do something."</font><br>
 <font size="+0"><b>1995-1030 Diwālī Pūjā (Hindi + English) (6th day after Diwālī Day), Sahajyog Ke Suruvat (How Sahaja Yoga Started), Nargol, Maharashtra, India</b></font>
 </p>
 

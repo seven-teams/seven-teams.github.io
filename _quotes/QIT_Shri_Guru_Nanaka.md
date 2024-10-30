@@ -1377,8 +1377,14 @@ If you see in the Chinese, right from Confucius, Lao Tze, all of them have talke
 <font size="+0"><b></b></font>
 </p>
 
-<div class="para-divider"></div>
+<div class="para-divider"></div
 
+<p>
+<font color="red">"After that we had Kabīra, we had Nāṇaka, we had Rāmadāsa, uh we had Tukārāma: we had so many of Saints who have talked about it."</font><br>
+<font size="+0"><b>1991-0413 Public Program, Auditorium, National Press Club, 16 National Circuit, Barton, ACT, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
 
 <p>
 "I never read Scriptures, [laughs] I don't think I have to read them because I know them, but I was reading uh the Qur'ān and also the Bible uh from this science, Christian science thing. All other scriptures also. I mean, what they are saying is absolutely true, that you have to be righteous, you have to be above vi[o]lence, you have to be detached. 

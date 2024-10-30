@@ -135,6 +135,13 @@ I have not yet met anyone who has systematically said or explained about Kuṇ�
 <font size="+0"><b></b></font>
 </p>
 
+<div class="para-divider"></div
+
+<p>
+<font color="red">"After that we had Kabīra, we had Nāṇaka, we had Rāmadāsa, uh we had Tukārāma: we had so many of Saints who have talked about it."</font><br>
+<font size="+0"><b>1991-0413 Public Program, Auditorium, National Press Club, 16 National Circuit, Barton, ACT, Australia</b></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p>

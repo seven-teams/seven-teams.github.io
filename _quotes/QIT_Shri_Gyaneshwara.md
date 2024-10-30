@@ -144,6 +144,20 @@ Now why has it been told to you that, `You should not read the sixth chapter'? B
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"But in the twelfth century, Gyānadeva, Gyāneśhwara, who was another Nāth Pānthi, His Guru was His own brother, He ... asked the permission, from His brother, that, "Please allow Me to say all these things openly. At least to say in Marathi language, because the common people don't know anything about this knowledge." So He allowed Him, and He wrote the sixth chapter of Gyāneśhwarī in which He described Kuṇḍalinī.<br>
+But it was in the twelfth century.<br>
+After that, many Saints described, talked about him [It].<br>
+Where we went yesterday, to Sātārā, you know that's the place where Śhrī Rāmadāsa lived.<br>
+He said that, "Kuṇḍalinī"" -- they asked, somebody asked:  "How much time does it take to raise the Kuṇḍalinī?" He said, "That Tatk-ṣhaṇa." Means, "That moment." "But the person who wants to take it should be deserving, and the one who wants to give should be capable."<br>
+[As a Sahaja Yogi starts laughing:] It's a big condition. This is such a big if, capital If I tell you. [Laughs.]<br>
+As a result, very, very few people got their Realization. And those who were born as realized Souls, found ... found it impossible to talk to people.<br>
+......"</font><br>
+<font size="+0"><b>1990-1217 Śhrī Chakra and Śhrī Lalitā Chakra Pūjā (English + Marathi), Brahmapuri (near Sātārā), Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
