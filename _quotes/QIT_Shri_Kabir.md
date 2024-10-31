@@ -151,12 +151,29 @@ I have not yet met anyone who has systematically said or explained about Kuṇ�
 
 <div class="para-divider"></div>
 
+<div class="para-divider"></div>
+
 <p>
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<font color="red">"After that, then later on, so many great Saints, like Guru Nāṇaka, Kabīra, Tukārām, Rāmdās, Narsi Bhagat [Narsinh Mehta, the Ādi Kavi of the Gujarat' poetry], so many people have written about Kuṇḍalinī."</font><br>
+<font size="+0"><b>1991-0427 Public Program, Queens Theatre in the Park (now Queens Theatre), Flushing Meadows Corona Park, 14 United Nations Ave S, Queens, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
 
 <p>
 <font color="red">""</font><br>

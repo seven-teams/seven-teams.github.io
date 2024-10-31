@@ -47,7 +47,7 @@ Thus, all this knowledge, of the inner be-ing, was kept in the darkness. And thi
 <div class="para-divider"></div>
 
 <p>
-<font color="red">But in the twelfth century, Gyāneśhwara asked His Guru, who was His brother, Nivṛittināth. He asked Him: that, "You just allow Me to write about this Kuṇḍalinī." Because He wrote Gyāneśhwarī. And in Gyāneśhwarī, He wanted to write about this Kuṇḍalinī, just to little talk about this secret power within us. His Guru allowed Him, and then He wrote it."</font>
+<font color="red">But in the twelfth century, Gyāneśhwara asked His Guru, who was His brother, Nivṛuttināth. He asked Him: that, "You just allow Me to write about this Kuṇḍalinī." Because He wrote Gyāneśhwarī. And in Gyāneśhwarī, He wanted to write about this Kuṇḍalinī, just to little talk about this secret Power within us. His Guru allowed Him, and then He wrote it."</font>
 <font size="+0"><b>1993-1016 Public Program (2nd Day of Navarātri), Auditorium, New York Society for Ethical Culture, 2 West 64 Street, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 

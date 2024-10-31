@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 35: Special Events (after 1975), Part 10'
-date: 2024-10-28
-permalink: /photos/2024/1028-a
+date: 2024-10-29
+permalink: /photos/2024/1029-b
 tags:
   - green @ Updates
 ---

@@ -502,7 +502,7 @@ But today, I must tell you, I've reached a stage, I cannot explain how, thousand
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"There are so many Saints that I, really in this thing I cannot tell you, but there was Rāmadāsa, there is Nāṇaka, there is Kabīra, so many of them. Ādi Śhaṅkarāchārya, in India, as you ask. But outside also: William Blake was another Saint. "</font><br>
 <font size="+0"><b>1991-0411 Public Program, Day 1, Function Room, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
@@ -516,14 +516,14 @@ But today, I must tell you, I've reached a stage, I cannot explain how, thousand
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"It happens in a very short time. A great Saint called Rāmdāsa, who was the Master of one great King Śhivajī, was asked: "How much time does it take for a Kuṇḍalinī to rise?" So He said: "Tatkṣhaṇa," means, "That moment," "but there should be a giver and there should be a receiver." "</font><br>
 <font size="+0"><b>1991-0416 Public Program, Day 1, State Theatre, 47-51 Market Street, Sydney, New South Wales, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"After that, then later on, so many great Saints, like Guru Nāṇaka, Kabīra, Tukārām, Rāmdās, Narsi Bhagat [Narsinh Mehta, the Ādi Kavi of the Gujarat' poetry], so many people have written about Kuṇḍalinī."</font><br>
 <font size="+0"><b>1991-0427 Public Program, Queens Theatre in the Park (now Queens Theatre), Flushing Meadows Corona Park, 14 United Nations Ave S, Queens, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -573,14 +573,16 @@ Before, there might have been many people to give but very few people to receive
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Then in the sixteenth century we had many poets in India who have written about it: Guru Nāṇaka, Kabīra, Rāmadāsa, so many of them, have written about this Kuṇḍalinī awakening."</font><br>
 <font size="+0"><b>1993-1015 Public Program (1st Day of Navarātri and the birthday of William Penn, City's Founding Father), Harrison Auditorium, University Museum, University of Pennsylvania, 33rd and Spruce Streets, Philadelphia, PA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"But in the twelfth century, Gyāneśhwara asked His Guru, who was His brother, Nivṛuttināth. He asked Him: that, "You just allow Me to write about this Kuṇḍalinī." Because He wrote Gyāneśhwarī. And in Gyāneśhwarī, He wanted to write about this Kuṇḍalinī, just to little talk about this secret Power within us. His Guru allowed Him, and then He wrote it.<br>
+But in the sixteenth century, sixteenth century, we got lots of gurus, we can say poets they were, who ha... have been doing this kind of work.<br>
+The Guru of Śhivajī was Rāmadāsa. They asked Rāmadāsa: "How much time it will take for the Kuṇḍalinī to rise?" So He said, Tatkṣhaṇa," "That moment." "But the person who has to have it has to have that earnest desire and the one who has to do it has to have the authority." "</font><br>
 <font size="+0"><b>1993-1016 Public Program (2nd Day of Navarātri), Auditorium, New York Society for Ethical Culture, 2 West 64 Street, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
