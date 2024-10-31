@@ -1,7 +1,7 @@
 ---
 title: '1999-0000 Short Prose on the Topic &#8216;The Mountains Speak&#8217; by Madhuri, Class X, ISPS Dharamshala'
 date: 1998-05-01
-permalink: /folder/1998-1201-M-1999-1200-SA
+permalink: /folder/1999-1201-M-1999-1200-SA
 tags:
   - black @ Short Prose
   - blue @ Madhuri
