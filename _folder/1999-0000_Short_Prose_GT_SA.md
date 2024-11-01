@@ -1,5 +1,5 @@
 ---
-title: '1999-0000 Short Prose &#8216;Excess of Everything Is Bad&#8217; by Golden Thakur, ISPS Dharamshala'
+title: '1999-0000 Short Prose &#8216;Excess of Everything Is Bad&#8217; by Golden Thakur, ISPS Dharamshala from 1999-1200 the Sahaj Amrit (Volume 3, Issue 3), Page 23'
 date: 1999-12-01
 permalink: /folder/1999-1201-GT-1999-1200-SA
 tags:
@@ -7,6 +7,7 @@ tags:
   - blue @ Golden Thakur
   - brown @ 1999
   - cornflowerblue @ ISPS Dharamshala
+  - deeppink @ 1999-1200 Sahaj Amrit
 ---
 
 <br>

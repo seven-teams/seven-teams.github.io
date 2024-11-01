@@ -199,6 +199,15 @@ And that Jerusalem is going to be in England, not in India. And you are the peop
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"And these great people have talked, Nāṇaka has talked very clearly, very recently they have talked about these things. Hundred years back only, William Blake has talked about Sahaja Yoga. He has said, "The men of God" -- Men of God, that's you -- "will become Prophets and they will have powers to make others Prophet."<br>
+He had such hopes of making England into Jerusalem.<br>
+But where are those English? I have still to meet many."</font><br>
+<font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>

@@ -179,9 +179,12 @@ Actually, we have to become, we have to just become."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font color="red">"Is said, even I would say at the time of Śhivajī, who was there about four hundred years back. Śh... Rāmdāsa, Śhrī Rāmdās Swāmī, who was a Great Incarnation, I should say, somebody asked Him: "How much time does it take for Kuṇḍalinī to rise?" He said, "Tat-kṣhaṇ," "That moment."<br>
+But people don't read this, this is not translated. No one knows their names, nobody knows about them.<br>
+Even Śhaṅkarāchārya, I don't know, if people have translated Him it was so late. And no one wants to understand Śhaṅkarāchārya."</font><br>
+<font size="+0"><b>1985-0603 Public Program, Day 1, The Bayard Rustin High School for the Humanities, 351 W 18th Street, New York City, NY, U.S.A.</b></font>
 </p>
+
 
 <div class="para-divider"></div>
 

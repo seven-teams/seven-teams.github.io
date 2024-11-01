@@ -1,5 +1,5 @@
 ---
-title: '1998-0000 Poem &#8216;Mother&#8217;s Love&#8217; by Anna Purcell, Class X, ISPS Dharamshala'
+title: '1998-0000 Poem &#8216;Mother&#8217;s Love&#8217; by Anna Purcell, Class X, ISPS Dharamshala from 1998-0600 Sahaj Amrit (Volume 2, Issue 1), Page 8'
 date: 1998-05-01
 permalink: /folder/1998-0501-AP-Mothers-Love
 tags:
@@ -7,6 +7,7 @@ tags:
   - blue @ Anna Purcell
   - brown @ 1998
   - cornflowerblue @ ISPS Dharamshala, Class VIII
+  - deeppink @ 1998-0600 Sahaj Amrit  
   - maroon @ Love
   - maroon @ Mother
 ---
@@ -39,5 +40,5 @@ To return to after a long day's hunt.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1998-0600 the Sahaj Amrit (Volume 2, Issue 1), Page 8.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1998-0600 Sahaj Amrit (Volume 2, Issue 1), Page 8.</list-item>
 </wave-list>

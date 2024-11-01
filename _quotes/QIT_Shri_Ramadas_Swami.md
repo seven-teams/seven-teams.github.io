@@ -147,7 +147,9 @@ To say you are a Saint, you cannot get angry. [<font color="orange">unclear</fon
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"And Nāṇak Sāhab Himself always talked about Sadguru. You see, because He found out, that people used to talk about Guru like Swāmī Rāmdās and all those talk of Guru, but then He thought: that, 'Is better to call Sadguru and guru [laughing:] as two things.'<br>
+Sadguru is the one who has got Realization. And the one who calls himself as a guru without Realization, talks big, 'I, you, I'll give you this,' and, 'I'll give you that,' and just makes a big organization out of that, is not a guru.<br>
+So, that is what it is: a person has to be a realized Soul, and he must know all the details about how to do it. "</font><br>
 <font size="+0"><b>1983-1101 Public Program, What Is the Purpose of Our Life, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font>
 </p>
 
@@ -231,7 +233,8 @@ The elders there keep thinking day and night that how to commit suicide. They ha
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Is said, even I would say at the time of Śhivajī, who was there about four hundred years back. Śh... Rāmdāsa, Śhrī Rāmdās Swāmī, who was a Great Incarnation, I should say, somebody asked Him: "How much time does it take for Kuṇḍalinī to rise?" He said, "Tat-kṣhaṇ," "That moment."<br>
+But people don't read this, this is not translated. No one knows their names, nobody knows about them."</font><br>
 <font size="+0"><b>1985-0603 Public Program, Day 1, The Bayard Rustin High School for the Humanities, 351 W 18th Street, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -240,13 +243,6 @@ The elders there keep thinking day and night that how to commit suicide. They ha
 <p>
 <font color="red">""</font><br>
 <font size="+0"><b>1985-0704 Interview with Theologian Dr. Reender Kranenborg for 'Trouw' ('Fidelity') Newspaper, Conferentieoord Overvoorde, van Vredenburchweg 170, Rijswijk (6 kms SSE of The Hague), Netherlands</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -275,7 +271,11 @@ There we call this a saintly place where great saints were born. Great people ha
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"You avoid that nonsense, because your parents were stupid to go to these gurus.<br>
+These have started only hundred years back! We have never known such people! Before, these bhoṃdūs we never knew! Hundred years back nobody talks, except for Nāṇaka, who has said it that, "These bhoṃdūs must be avoided."<br>
+"Sadguru che lakṣhaṇ he," and all these things, have been written by Rāmdāsa. But who reads Rāmdās? Because He was a Brahmin, non-Brahmins won't read.<br>
+Who will read Tukārāma? Because he was a non-Brahmin, Brahmins won't read him.<br>
+If their r... if their caste is such a big thing, that by reading something it falls off, better to ... give it up."</font><br>
 <font size="+0"><b>1986-0120 Public Program, Day 1, Attention Should Be on God, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -313,7 +313,7 @@ There we call this a saintly place where great saints were born. Great people ha
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Once, people asked Rāmadāsa: ``How much time does it take for Kuṇḍalinī to rise?" He said, ``Tat-kṣhaṇa!" ``That moment!" "</font><br>
 <font size="+0"><b>1986-1104 Public Program (English+Hindi), Balance is for Ascent and Everything Emerges into the Ocean of Love of God (Dharma Is only of One Viśhwa Dharm Paramātma and that Dharma Is to Achieve God), Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
@@ -443,7 +443,7 @@ But you have so many śhaktis in you, so many, that you should awaken them, know
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b>990-0314 Public Program, Day 2, Auckland, New Zealand</b></font>
+<font size="+0"><b>1990-0314 Public Program, Day 2, Auckland, New Zealand</b></font>
 </p>
 
 <div class="para-divider"></div>

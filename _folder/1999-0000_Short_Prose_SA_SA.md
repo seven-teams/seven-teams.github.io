@@ -1,5 +1,5 @@
 ---
-title: '1999-0000 Short Prose on the Topic &#8216;The Mountains Speak&#8217; by Shradha Aggarawal, Class XI, ISPS Dharamshala'
+title: '1999-0000 Short Prose on the Topic &#8216;The Mountains Speak&#8217; by Shradha Aggarawal, Class XI, ISPS Dharamshala from 1999-1200 the Sahaj Amrit (Volume 3, Issue 3), Page 13'
 date: 1999-12-01
 permalink: /folder/1999-1201-SA-1999-1200-SA
 tags:
@@ -7,6 +7,7 @@ tags:
   - blue @ Shradha Aggarawal
   - brown @ 1999
   - cornflowerblue @ ISPS Dharamshala, Class XI
+  - deeppink @ 1999-1200 Sahaj Amrit
 ---
 
 <br>

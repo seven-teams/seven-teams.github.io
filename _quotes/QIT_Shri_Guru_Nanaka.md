@@ -1180,6 +1180,22 @@ The ... we call it Ten Incarnations of the Primordial Master. There are many who
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"And Nāṇak Sāhab Himself always talked about Sadguru. You see, because He found out, that people used to talk about Guru like Swāmī Rāmdās and all those talk of Guru, but then He thought: that, 'Is better to call Sadguru and guru [laughing:] as two things.'<br>
+Sadguru is the one who has got Realization. And the one who calls himself as a guru without Realization, talks big, 'I, you, I'll give you this,' and, 'I'll give you that,' and just makes a big organization out of that, is not a guru.<br>
+So, that is what it is: a person has to be a realized Soul, and he must know all the details about how to do it. "</font><br>
+<font size="+0"><b>1983-1101 Public Program, What Is the Purpose of Our Life, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "So this kind of a challenge, only a person who is a realized Soul can put it. And all realized Souls will stand by with that person: they'll have the same voice about it. Whether you go to the antiquities or you go in the future, any time a realized Soul will come he said the same thing.<br>
 <font color="red">That's why there is so much similarity, s-s... I should say the unity: in all these people whether it is Lao Tze, or whether it is Muhammad Sāhab or whether it is Rāja Janaka or Nāṇaka, They say the same thing.</font>"<br>
 <font size="+0"><b>1984-0710 Public Program, The Experience of Truth, Part IV, Town Hall, Chiswick, London W4, UK</b></font>
@@ -1287,6 +1303,23 @@ This is the only problem we have. That: we have all the ideals, we have all the 
 <font size="+0"><b></b></font>
 </p>
 
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"And these great people have talked, Nāṇaka has talked very clearly, very recently they have talked about these things. Hundred years back only, William Blake has talked about Sahaja Yoga. He has said, "The men of God" -- Men of God, that's you -- "will become Prophets and they will have powers to make others Prophet."<br>
+He had such hopes of making England into Jerusalem.<br>
+But where are those English? I have still to meet many."</font><br>
+<font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p>
@@ -1306,7 +1339,21 @@ That was also important part. But that was forgot[ten]!<br>
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">Like this, secretly, work was done and it was exhibited very well during the time of Nāṇak Sāheb when Kabīr Dāsjī totally described the Kuṇḍalinī.</font> Can we say , `Because it was not described in Veda, in Bhakti Purāṇ, what Kabīr had said is wrong'?"<br>
+<font color="red">"Guru Nāṇaka has said: "Sahaja Samādhi lago." "Sahaja Samādhi lago." He has described Sahaja Samādhi lago, clearly. What more He should say?"</font><br>
+<font size="+0"><b>1986-1104 Public Program (English+Hindi), Balance is for Ascent and Everything Emerges into the Ocean of Love of God (Dharma Is only of One Viśhwa Dharm Paramātma and that Dharma Is to Achieve God), Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">Like this, secretly, work was done and it was exhibited very well during the time of Nāṇak Sāheb when Kabīr Dāsjī totally described the Kuṇḍalinī.</font> Can we say , 'Because it was not described in Veda, in Bhakti Purāṇ, what Kabīr had said is wrong'?"<br>
 <font size="+0"><b>1986-1201 Public Program (Hindi), Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -1444,7 +1491,7 @@ He attended the wedding! That means, did He want to encourage the original sin�
 <div class="para-divider"></div>
 
 <p>
-"William Blake, a great poet from England, has said that, ``This idea of original sin has been invented by some devil."<br>
+"William Blake, a great poet from England, has said that, "This idea of original sin has been invented by some devil."<br>
 <font color="red">According to this [idea], everybody and every Incarnation, like Śhrī Kṛiṣhṇa, Śhrī Rāma, Muhammad Sāhab, Nāṇak Sāhab, Lao Tze, everybody is a sinner!</font><br>
 Such an absurd thing that was put forward, and because it was a very dominating religion, was the official religion behaving like a tyrannical king, people had to accept! Those people who did not believe in it were boiled, were roasted in the huts."<br>
 <font size="+0"><b>1992-0724 Public Program, Salle Gaveau, 45-47 Rue La Boétie, Paris, France</b></font>

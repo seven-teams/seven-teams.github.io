@@ -8,7 +8,7 @@ tags:
   - brown @ 1983
   - cornflowerblue @ TBD
   - deeppink @ 1983-0300 and 0400 Nirmala Yoga
-   - green @ Story of Poem Alpha and Omega
+  - green @ Story of Poem Alpha and Omega
   - maroon @ Alpha
   - maroon @ Omega
 ---

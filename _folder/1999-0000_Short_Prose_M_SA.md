@@ -1,12 +1,13 @@
 ---
-title: '1999-0000 Short Prose on the Topic &#8216;The Mountains Speak&#8217; by Madhuri, Class X, ISPS Dharamshala'
-date: 1998-05-01
+title: '1999-0000 Short Prose on the Topic &#8216;The Mountains Speak&#8217; by Madhuri, Class X, ISPS Dharamshala from 1999-1200 the Sahaj Amrit (Volume 3, Issue 3), Page 13'
+date: 1999-12-01
 permalink: /folder/1999-1201-M-1999-1200-SA
 tags:
   - black @ Short Prose
   - blue @ Madhuri
   - brown @ 1999
   - cornflowerblue @ ISPS Dharamshala, Class X
+  - deeppink @ 1999-1200 Sahaj Amrit  
 ---
 
 <br>

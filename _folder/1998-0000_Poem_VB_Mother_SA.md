@@ -1,5 +1,5 @@
 ---
-title: '1998-0000 Poem &#8216;Mother&#8217; by Vimal Balkrishnan, Class VIII, ISPS Dharamshala'
+title: '1998-0000 Poem &#8216;Mother&#8217; by Vimal Balkrishnan, Class VIII, ISPS Dharamshala from 1998-0600 Sahaj Amrit (Volume 2, Issue 1), Page 8'
 date: 1998-05-01
 permalink: /folder/1998-0501-VB-Mother
 tags:
@@ -7,6 +7,7 @@ tags:
   - blue @ Vimal Balkrishnan
   - brown @ 1998
   - cornflowerblue @ ISPS Dharamshala, Class VIII
+  - deeppink @ 1998-0600 Sahaj Amrit    
   - maroon @ Mother
 ---
 

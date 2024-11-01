@@ -96,8 +96,8 @@ I have not yet met anyone who has systematically said or explained about Kuṇ�
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font color="red">"Then you have got Kabīr Dās, who was treated like a Scheduled Caste! Like a Scheduled Caste He was treated. Nobody respected him."</font><br>
+<font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -110,8 +110,8 @@ I have not yet met anyone who has systematically said or explained about Kuṇ�
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font color="red">"Kabīra has said: "Iḍā Piṅgalā Sukha Mana [Suṣhumṇā] nāḍī re." "</font><br>
+<font size="+0"><b>1986-1104 Public Program (English+Hindi), Balance is for Ascent and Everything Emerges into the Ocean of Love of God (Dharma Is only of One Viśhwa Dharm Paramātma and that Dharma Is to Achieve God), Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
