@@ -42,7 +42,7 @@ So let's hoard in our fragile hearts<br>
 WISDOM, KNOWLEDGE & LOVW<br>
 Because these are all above.<br>
 <br>
-JAI SHRI MATAJI<br><br>
+JAI SHRI MATAJI
 </p>
 
 <br>
