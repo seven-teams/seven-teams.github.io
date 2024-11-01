@@ -12,9 +12,9 @@ tags:
 <br>
 
 <p>
-## JAI SHRI MATAJI<br>
+# JAI SHRI MATAJI<br>
 <br>
-# EXCESS OF EVERYTHING IS BAD<br>
+## EXCESS OF EVERYTHING IS BAD<br>
 <br>
 Excess of MONEY comes fear<br>
 With it we feel sad<br>
@@ -42,7 +42,7 @@ So let's hoard in our fragile hearts<br>
 WISDOM, KNOWLEDGE & LOVW<br>
 Because these are all above.<br>
 <br>
-JAI SHRI MATAJI<br><br>
+### JAI SHRI MATAJI<br><br>
 </p>
 
 <br>
