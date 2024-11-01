@@ -12,9 +12,9 @@ tags:
 <br>
 
 <p>
-\LARGE{JAI SHRI MATAJI}<br>
+## JAI SHRI MATAJI<br>
 <br>
-\Large{EXCESS OF EVERYTHING IS BAD}<br>
+# EXCESS OF EVERYTHING IS BAD<br>
 <br>
 Excess of MONEY comes fear<br>
 With it we feel sad<br>
