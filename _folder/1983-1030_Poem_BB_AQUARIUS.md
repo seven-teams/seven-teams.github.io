@@ -59,13 +59,6 @@ The paths of man shall end where they began.<br>
 <br>
 
 <wave-list>
-<list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1983 UK Newsletter.</list-item>
-</wave-list>
-
-<br>
-
-<wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>2024-0204 Author's date:</b> "Sunday 30.10.1983"</list-item>
 </wave-list>
