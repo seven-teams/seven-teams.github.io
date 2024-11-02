@@ -46,7 +46,7 @@ And bow before the Babe<br>
 And comfort him who comforts you<br>
 Who came mankind to save<br>
 Seek not the comfort of this Earth<br>
-‘Twill one day pass away<br>
+'Twill one day pass away<br>
 That you who are the spirit may rest upon the hay.<br>
 </p>
 
