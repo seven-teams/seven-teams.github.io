@@ -6,7 +6,7 @@ tags:
   - black @ Poetry
   - blue @ Alla Kulkarni
   - brown @ 2000
-  - cornflowerblue @ TBD
+  - cornflowerblue @ CA
   - deeppink @ 2000-0804 Sahaja Yoga Australian Newsletter
   - maroon @ America
   - maroon @ Come
