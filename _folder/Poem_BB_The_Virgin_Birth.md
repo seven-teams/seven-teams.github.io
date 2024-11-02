@@ -1,6 +1,6 @@
 ---
 title: 'Poem &#8216;The Virgin Birth&#8217; by Brian Burns' 
-date: 1990-0101
+date: 1990-01-01
 permalink: /folder/BB-The-Virgin-Birth
 tags:
   - black @ Poetry

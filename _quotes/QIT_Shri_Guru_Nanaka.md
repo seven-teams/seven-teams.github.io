@@ -1438,7 +1438,7 @@ If you see in the Chinese, right from Confucius, Lao Tze, all of them have talke
 <font size="+0"><b></b></font>
 </p>
 
-<div class="para-divider"></div
+<div class="para-divider"></div>
 
 <p>
 <font color="red">"After that we had Kabīra, we had Nāṇaka, we had Rāmadāsa, uh we had Tukārāma: we had so many of Saints who have talked about it."</font><br>
