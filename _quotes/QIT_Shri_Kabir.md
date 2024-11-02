@@ -124,6 +124,16 @@ I have not yet met anyone who has systematically said or explained about Kuṇ�
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"I am not a politician, I am not a business lady, neither am I a very learned lady [some laughter] of some university. I am a simple Saint of this country. And that I should be respected by you all, shows thus the recognition of the Divine, today.<br>
+This is e ... is the basis of Sahaja Yoga.<br>
+The basis of Sahaja Yoga is: that whatever these Great Saints, like Śhrī Gnyāneśhwara, Nāmadeva, Sant Tukārām, Rāmadās Swāmī, Ekanāth, and so many others, like Nāṇak Sāheb, Kabīr Das, and so many Muslims also, like Nizamuddin, Khwaja Nizamuddin, and Chisti, all these great people have been bien in this country, have been talking about the Divine, they have been saying, "There is the Divine surrounding us," but nobody could recognize them. Because they were not realized Souls.<br>
+And this is the reason why Sahaja Yoga had to come to make people self-realized, and they can feel the divine all around you [them]."</font><br>
+<font size="+0"><b>1987-1223 Public Program (English + Marathi), Ātmyāche Darśhana (Vision of the Spirit), School, Akole (24 kms WSW of Sangamner), Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
@@ -174,6 +184,26 @@ I have not yet met anyone who has systematically said or explained about Kuṇ�
 
 <div class="para-divider"></div>
 
+<p>
+<font color="red">"This knowledge was known not only in India but in various places. But in India, they had mastered this knowledge.<br>
+Uh-uh but only thing was that in tradition: one guru used to give Realization to one disciple in his lifetime.<br>
+This uh-huhh ... lasted for out tuh [the] twelfth century, when One of them published in His book, Gyāneśhwara, He published in His book, in the sixth chapter, about Kuṇḍalinī.<br>
+It's a-uh-uh ... we can say, an a... exposition of the Gītā. But this ... uh, you see, this Gītā which was written, not by Śhrī Kṛiṣhṇa, Vyāsa, He wrote what you have to become. Just like what Christ said. Just uh-uh-uh just like what Qur'ān says.<br>
+So, when everybody said the same thing, it was never told how to achieve it. That is how this knowledge was not given.<br>
+Till the sixteenth century, [when] in India we had lots of great Saints. Like Guru Nāṇaka, Kabīra, Nāmadeva, so many of them. In Maharashtra like Rāmadāsa, Tukārām. They, also, said: that, 'Is the Kuṇḍalinī which gives you Realization' -- clearly.<br>
+But people didn't give any attention to it.<br>
+Like Kabīra has said that: "How am I to make them understand when the whole world is blind?" "</font><br>
+<font size="+0"><b>1994-0730 Public Program, Anantara Grand Hotel Krasnopolsky Amsterdam, Dam 9, 1012 JS Amsterdam, Netherlands</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>

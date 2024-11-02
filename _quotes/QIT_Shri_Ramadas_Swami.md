@@ -313,7 +313,7 @@ If their r... if their caste is such a big thing, that by reading something it f
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Once, people asked Rāmadāsa: ``How much time does it take for Kuṇḍalinī to rise?" He said, ``Tat-kṣhaṇa!" ``That moment!" "</font><br>
+<font color="red">"Once, people asked Rāmadāsa: "How much time does it take for Kuṇḍalinī to rise?" He said, "Tat-kṣhaṇa!" "That moment!" "</font><br>
 <font size="+0"><b>1986-1104 Public Program (English+Hindi), Balance is for Ascent and Everything Emerges into the Ocean of Love of God (Dharma Is only of One Viśhwa Dharm Paramātma and that Dharma Is to Achieve God), Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
@@ -386,7 +386,10 @@ Whatever has to happen, happens."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"I am not a politician, I am not a business lady, neither am I a very learned lady [some laughter] of some university. I am a simple Saint of this country. And that I should be respected by you all, shows thus the recognition of the Divine, today.<br>
+This is e ... is the basis of Sahaja Yoga.<br>
+The basis of Sahaja Yoga is: that whatever these Great Saints, like Śhrī Gnyāneśhwara, Nāmadeva, Sant Tukārām, Rāmadās Swāmī, Ekanāth, and so many others, like Nāṇak Sāheb, Kabīr Das, and so many Muslims also, like Nizamuddin, Khwaja Nizamuddin, and Chisti, all these great people have been bien in this country, have been talking about the Divine, they have been saying, "There is the Divine surrounding us," but nobody could recognize them. Because they were not realized Souls.<br>
+And this is the reason why Sahaja Yoga had to come to make people self-realized, and they can feel the divine all around you [them]."</font><br>
 <font size="+0"><b>1987-1223 Public Program (English + Marathi), Ātmyāche Darśhana (Vision of the Spirit), School, Akole (24 kms WSW of Sangamner), Maharashtra, India</b></font>
 </p>
 
@@ -442,21 +445,27 @@ But you have so many śhaktis in you, so many, that you should awaken them, know
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"But the people who have written that is all modern style.<br>
+On the contrary, there was a great Saint called Rāmdāsa, at the time of Śhivajī. He was the Guru of Śhivajī. Was a very well-known King of Maharashtra. And somebody asked Him, that: "How much time takes does it take for a Kuṇḍalinī to rise?" So He used a Sanskrit word meaning: "Tatkṣhaṇa." Means, "That moment." "But the person who has to do it has to be authorized, and the person who has to take it, must desire it!" That is the word used.<br>
+This is all modern nonsense that has come up to sell books, that's all I think. Or some of the people who had no authority, those who led a very funny life.<br>
+I know of someone who has written a funny book about Kuṇḍalinī, who has a very bad life of his own, and he says that, "I got such a shock, I got this, that." Naturally! You had no business to enter into an area, where you are not authorized. And if so, also you should have gone to somebody who is authorized.<br>
+The authority has to come from the Divine, that's important. "</font><br>
 <font size="+0"><b>1990-0314 Public Program, Day 2, Auckland, New Zealand</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"One great Saint called Rāmadāsa, who was the Guru of a great king called Śhivajī, and [He] was asked: "How much time does it take for a Kuṇḍalinī to rise?" So He used the Sanskrit word: "Tatkṣhaṇ!" "That moment!" "But there should be a person who is authorized, to do it from the Divine, and there should be a Seeker of Truth," otherwise it won't work out, for years."</font><br>
 <font size="+0"><b>1990-0315 Public Program, Department of Religious Studies, University, Sydney, New South Wales, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"It takes instantly, My child. It should. Most of the cases it has to. [Realization] is so spontaneous.<br>
+There was a Saint called Rāmadāsa who was the Guru of Śhivajī, a great king in India, realized Soul again, and somebody asked that Saint, "How much time does it take for the Kuṇḍalinī to rise?" And in Sanskrit he said, "Tatkṣhaṇ," mean[s], "That moment." That moment. But there has to be the person who gives you Realization authorized by the Divine, and the one who is a Seeker of Truth.<br>
+I mean, I'm Myself surprised the way it's happening today, everywhere. These days is really very surprising that the Divine is so anxious to give you Realization. "</font><br>
 <font size="+0"><b>1990-0316 Public Program, Day 1, Swādhiṣhṭhān, Thinking, Illness, Hilton Hotel, Sydney, New South Wales, Australia</b></font>
 </p>
 
@@ -620,7 +629,14 @@ After reading that letter, Guru Rāmdās laughed and said, "Son, I am an ascetic
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"This knowledge was known not only in India but in various places. But in India, they had mastered this knowledge.<br>
+Uh-uh but only thing was that in tradition: one guru used to give Realization to one disciple in his lifetime.<br>
+This uh-huhh ... lasted for out tuh [the] twelfth century, when One of them published in His book, Gyāneśhwara, He published in His book, in the sixth chapter, about Kuṇḍalinī.<br>
+It's a-uh-uh ... we can say, an a... exposition of the Gītā. But this ... uh, you see, this Gītā which was written, not by Śhrī Kṛiṣhṇa, Vyāsa, He wrote what you have to become. Just like what Christ said. Just uh-uh-uh just like what Qur'ān says.<br>
+So, when everybody said the same thing, it was never told how to achieve it. That is how this knowledge was not given.<br>
+Till the sixteenth century, [when] in India we had lots of great Saints. Like Guru Nāṇaka, Kabīra, Nāmadeva, so many of them. In Maharashtra like Rāmadāsa, Tukārām. They, also, said: that, 'Is the Kuṇḍalinī which gives you Realization' -- clearly.<br>
+But people didn't give any attention to it.<br>
+Like Kabīra has said that: "How am I to make them understand when the whole world is blind?" "</font><br>
 <font size="+0"><b>1994-0730 Public Program, Anantara Grand Hotel Krasnopolsky Amsterdam, Dam 9, 1012 JS Amsterdam, Netherlands</b></font>
 </p>
 
