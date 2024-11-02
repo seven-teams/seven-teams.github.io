@@ -1,10 +1,10 @@
 ---
-title: 'Poem &#8216;When Your Vishuddhi is Established&#8217; by Millefort Lando Cotonou (Benin) from 2001-0907 Sahaja Yoga Australian Newsletter, Page 6'
+title: 'Poem &#8216;When Your Vishuddhi is Established&#8217; by Millefort Lando, Cotonou (Benin) from 2001-0907 Sahaja Yoga Australian Newsletter, Page 6'
 date: 2001-09-07
 permalink: /folder/2001-0907-ML-When-Your-Vishuddhi-is-Established
 tags:
   - black @ Poetry
-  - blue @ Millefort Lando
+  - blue @ Millefort Lando 
   - brown @ 2001
   - cornflowerblue @ Cotonou (Benin)
   - deeppink @ 2001-0907 Sahaja Yoga Australian Newsletter

@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8216;When Your Vishuddhi is Established&#8217; by Millefort Lando Cotonou (Benin) from 2000-0804 Sahaja Yoga Australian Newsletter, Page 1'
+title: 'Poem &#8216;Mother of India has come to America&#8217; by Alla Kulkarni, CA from 2000-0804 Sahaja Yoga Australian Newsletter, Page 1'
 date: 2000-08-04
 permalink: /folder/2000-0804-AK-SYAN-Page-1
 tags:
@@ -8,6 +8,11 @@ tags:
   - brown @ 2000
   - cornflowerblue @ TBD
   - deeppink @ 2000-0804 Sahaja Yoga Australian Newsletter
+  - maroon @ America
+  - maroon @ Come
+  - maroon @ Has
+  - maroon @ India
+  - maroon @ Mother
 ---
 
 <br>
