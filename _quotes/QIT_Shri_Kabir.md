@@ -185,6 +185,29 @@ And this is the reason why Sahaja Yoga had to come to make people self-realized,
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"So, but I would say, after that, many Great Saints like Guru Nāṇak, Kabīr, Tukārāma, Rā... uh Rāmdās, in the sixteenth century, did a great work of Kuṇḍalinī.<br>
+Even in the Bible it is: "I will appear before you like tongues of flames [fire]" [related to `The Acts of the Apostles', Acts, 2.3, New International Version], "Tree of Life," so many things are described!<br>
+But in the little time that they had, they could not explain so much."</font><br>
+<font size="+0"><b>1993-1011 Interview with Audrey Hope for the TV Talk Show 'Real Women', What Is the Hope for a Stable Society, Part 1, Century Cable Studios, 513 Wilshire Blvd, Suite 336, Santa Monica, CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"This knowledge was known not only in India but in various places. But in India, they had mastered this knowledge.<br>
 Uh-uh but only thing was that in tradition: one guru used to give Realization to one disciple in his lifetime.<br>
 This uh-huhh ... lasted for out tuh [the] twelfth century, when One of them published in His book, Gyāneśhwara, He published in His book, in the sixth chapter, about Kuṇḍalinī.<br>

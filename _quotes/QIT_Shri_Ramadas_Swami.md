@@ -129,7 +129,11 @@ You have to do tremendous jobs!"<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"What about Śhivajī? He was a realized Soul. Can't you see from his life?<br>
+Or Rāmadāsa, what was He? He was Hanumāna Himself, you can see it so clearly. We have discussed Rāmadāsa in ... in this Bhakti Saṅghạ.<br>
+Tukārām, [was] another one.<br>
+Who were they? What they were? What was their i... incarnation for? How they came to Maharashtra to work it out?<br>
+The whole thing, works out for today, for the Sahaja Yoga."</font><br>
 <font size="+0"><b>1983-0331 Talk to Sahaja Yogis, Birthday Felicitations Program, Birla Matushri Sabhagar, New Marine Lines, Churchgate, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -156,7 +160,14 @@ So, that is what it is: a person has to be a realized Soul, and he must know all
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Didn't Modi tell you the saying of Rāmadāsa? That ...<br>
+[Aside to Modi Rājabhāī:] Did you saṅgīt la tūmhī [tell them]?<br>
+......<br>
+[Laughing:] So-ho, Modi said this, there which is Rāmdās Swāmī has said it.<br>
+Piśhācha means a bhūt of a style, you see which sticks on to people, is piśhāch.<br>
+So he says, "Piśhācha mage piśhācha gelā āhe": after [behind] one bhūt, another bhūt has gone.<br>
+So who can go after that? Who can save that? I mean if they are going after the bhūt.<br>
+And what sārthak means: what will they achieve out of it?"</font><br>
 <font size="+0"><b>1983-1105 Talk to Sahaja Yogis (Diwālī Pāḍavā), Money, Sleep, Bhūts, Lethargy, Bonfire Night and Sitar Recital by Debu Chaudhuri, Āśhram, 102 Ditton Road, Surbiton, London, UK</b></font>
 </p>
 
@@ -203,7 +214,12 @@ The elders there keep thinking day and night that how to commit suicide. They ha
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"These people have now arrived at this place. You have welcomed them and made proper arrangements for them. You have found such beautiful place for them. So on their behalf I thank you.<br>
+At this place they have had joyful time.<br>
+By God's Grace they have everything in their countries. If you visit their countries you will be surprised that they have grown up in great affluence. All kinds of comforts and luxuries are available to them.<br>
+However since I have told them that the idols of Śhrī Rāma and Śhrī Sītā were found here, they have come here tramping over our roads, etc. This is such [a] holy place that Śhrī Rāmdās Swāmī received those idols and installed them at Chaphal. On My words these people are insisting on coming here.<br>
+So, I told the people of this place to make arrangements for their stay here.<br>
+Thus leaving aside all luxuries and pleasures they are enjoying the Divine Bliss at this place."</font><br>
 <font size="+0"><b>1985-0129 Pūjā (English+Marathi), Brahmapuri, Maharashtra, India</b></font>
 </p>
 
@@ -568,14 +584,18 @@ Before, there might have been many people to give but very few people to receive
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Sahaja Yoga is a very wide subject and I don't know how many lectures I must have given it, thousands and thousands, in Marathi, Hindi, English, every sort of languages.<br>
+But, still, it is so simple, it is so simple that uh Rāmadās was asked -- who was the Guru of Śh-śh... Śh-śh... Śhivajī: "How much time will it take for Kuṇḍalinī to rise?" He said, "Tatkṣhaṇa," "That moment."" But the person who wants to take and the one ... person who wants to give should be perfect."<br>
+Now the perfection in the person who wants to take is very simple: is that he should have pure desire. He should have pure desire, that's all. "</font><br>
 <font size="+0"><b>1993-0319 Press Conference (Medical and Scientific), Le Méridien, Windsor Pl, Connaught Place, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So, but I would say, after that, many Great Saints like Guru Nāṇak, Kabīr, Tukārāma, Rā... uh Rāmdās, in the sixteenth century, did a great work of Kuṇḍalinī.<br>
+Even in the Bible it is: "I will appear before you like tongues of flames [fire]" [related to 'The Acts of the Apostles', Acts, 2.3, New International Version], "Tree of Life," so many things are described!<br>
+But in the little time that they had, they could not explain so much."</font><br>
 <font size="+0"><b>1993-1011 Interview with Audrey Hope for the TV Talk Show 'Real Women', What Is the Hope for a Stable Society, Part 1, Century Cable Studios, 513 Wilshire Blvd, Suite 336, Santa Monica, CA, U.S.A.</b></font>
 </p>
 

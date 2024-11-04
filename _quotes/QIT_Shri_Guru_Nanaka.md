@@ -1582,6 +1582,22 @@ Like Kabīra has said that: "How am I to make them understand when the whole wor
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"So, but I would say, after that, many Great Saints like Guru Nāṇak, Kabīr, Tukārāma, Rā... uh Rāmdās, in the sixteenth century, did a great work of Kuṇḍalinī.<br>
+Even in the Bible it is: "I will appear before you like tongues of flames [fire]" [related to `The Acts of the Apostles', Acts, 2.3, New International Version], "Tree of Life," so many things are described!<br>
+But in the little time that they had, they could not explain so much."</font><br>
+<font size="+0"><b>1993-1011 Interview with Audrey Hope for the TV Talk Show 'Real Women', What Is the Hope for a Stable Society, Part 1, Century Cable Studios, 513 Wilshire Blvd, Suite 336, Santa Monica, CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "So the approach is different.<br>
 In one way, if you start going through science, through this, through that, you cannot reach anywhere. And moreover, your growth is stunted.<br>
 So, what you have to do is to go to this knowledge through believing in what They have said. <font color="red">Whatever Christ has said you have to believe, whatever Muhammad has said you have to believe, whatever Guru Nāṇak has said you have to believe, whatever Gyānadeva has said you have to believe, Lao Tze you have to believe.</font> Like that: because you are not of that spiritual level. So accept it."</font><br>
