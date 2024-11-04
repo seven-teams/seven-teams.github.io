@@ -576,6 +576,25 @@ To show someone down is wrong. Who are we to insult others?"<br>
 <font size="+0"><b>2003-0228 Śhivarātri Pūjā (Hindi), the day before Śhivarātri, Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"It will all work out very well, you will see, if you just leave it to your destiny, which is very high, very great. With this your own destiny you will go very far.<br>
+This is the promise of Diwālī to you all, that you will reach highest and the noblest way of life.<br>
+Every word I say will be there to prove what I say is there.<br>
+Whatever petty problems you have, they'll all be washed off.<br>
+All these are the messages from the Divine.<br>
+You don't have to worry about petty things: about money, about jobs, that's not your job.<br>
+Your destiny will work it out. You have a promise that you'll be looked after.<br>
+I hope you believe in that promise and are joyous in the p... highest way."</font><br>
+<font size="+0"><b></b></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p>
