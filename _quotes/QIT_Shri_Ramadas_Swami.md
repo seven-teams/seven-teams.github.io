@@ -233,7 +233,11 @@ Thus leaving aside all luxuries and pleasures they are enjoying the Divine Bliss
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"All this is a ... from My childhood.<br>
+You see, Rāmdāsa's ... uh  Rāmdāsa's uh ... talk, report with Himself, you see. He's telling His mind, that: "Oh, My mind, please do not talk big. You must talk something that is sensible or that is good for us. Talk something sweet to others. And try to keep the company of such people who talk good things."<br>
+And all these things, I tell you, is such a good conditioning on the mind, that, 'You should not do wrong things.' And it's so straightforward saying. I mean there's no option as if, from childhood if you read, listen to these things and .... ah-aha-ah understand them.<br>
+Then He says that: "Let your body be used like the sandalwood, be ... uh which is decreasing every time, still it is giving fragrance. Let your body be used like a sandalwood which is all the time rubbed and rubbed and rubbed and gives fragrance and it's decreasing."<br>
+That's how you should work in this world. I hope I am doing something like that."</font><br>
 <font size="+0"><b>1985-0208 Talk to Sahaja Yogis, during the Evening Program after Marriages, Bordi, Maharashtra, India</b></font>
 </p>
 
@@ -264,14 +268,19 @@ But people don't read this, this is not translated. No one knows their names, no
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So, it is necessary for us to bring goodness.<br>
+To bring benevolence in this world we must write benevolent things. Write something idealistic, something higher, something hopeful, something which gives them a new dimension of understanding. All the Sahaja Yogis must start writing.<br>
+Rāmdās Swāmī has said: that, "Every day you must write something."<br>
+Write diaries, write novels, write articles, do what you like! Poems, poetry.<br>
+All kinds of things you can do, if you just know that you have to be Yogi scholars."</font><br>
 <font size="+0"><b>1985-0921 Talk to Sahaja Yogis, The English are Scholars, Seminar, Totley Hall Training College, Sheffield, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"We should realize, that, now that we have become Saints we should find out as to how many qualities of Saints that Samarth Rāmdās Swāmī and others have told are in us. Our attention should be on evolving them in us and we should find out as to, 'Why those qualities do not manifest in us, why the people cannot find them in us, what can be the reason for that?'<br>
+First of all we should think, 'God has sprouted us. It is good, but what next? What have we done for God?' "</font><br>
 <font size="+0"><b>1985-1217 Pūjā (English+Marathi+English), Right Type of Conduct and The Establishment of Our Dharma Is Very Important, House of Dr. Ramesh Adinath Saṃghavī, B.N-1, Sapt Shrung, Krishnanagar Housing Society, Saharanpur Road, Nasik, Maharashtra, India</b></font>
 </p>
 
@@ -336,7 +345,10 @@ If their r... if their caste is such a big thing, that by reading something it f
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Today Brahmapuri is looking special and in that so many people have come from other countries, the name has spread across the world. So the thing that we felt was so small, one that Śhrī Rāmadās Swāmī was spoken about (gājalele hote) only in Maharashtra, now is spoken about in the whole world, Sant Tukārām's abhaṃga[s] are now being sung everywhere, they take the name (nāmasmaraṇ) of Sant Nāmadeo, means from where we have reached where. Means the stature (putala māhitī) of Maharashtra has reached there, its mahimā [greatness, glory] has reached all is worth noting and how appreciative (kautuk) they are about it is worth noting.<br>
+Otherwise who recognizes someone else in this country? No one recognizes the other.<br>
+If you ask someone from North of India, who Sant Rāmadās was, then they don't know anything, who was Śhivajī Mahārāj they don't know, that is the state.<br>
+In such a scenario, the name of Maharashtra has been nonda [noted, registered] and from there people have come to see you (darśhanālā ālī), you need to think that they have come to see the Sādhus and Sants."</font><br>
 <font size="+0"><b>1986-1227 Pūjā (English+Marathi), by the Kṛiṣhṇa's River, Pandal, Brahmapuri, Maharashtra, India</b></font>
 </p>
 
@@ -433,7 +445,18 @@ But you have so many śhaktis in you, so many, that you should awaken them, know
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"We have come to a place which we call as Brahmapuri here, called, perhaps, maybe because here Śhrī Rāmadāsa, the Guru of Śhivajī Mahārās [Mahārāj], in these deep waters found the statue of Śhrī Rāma, Sītā, Lakṣhmaṇa and Hanumāna together.<br>
+Then they were carried from here and put in a temple called Chāphaḷ, the place where I saw that, also.<br>
+......<br>
+Also we have some miraculous things about Christ and His Mother, that we ... they found a statue of Mother Mary and Christ in one of the shores of Bombay [Mumbai] City, ca...  and  ... called as Worli [locality in central Mumbai and one of the 4 peninsulas], the fisherman found it in their net.<br>
+Like Rāmadāsa when He jumped inside this he found it in the river, in the same way.<br>
+......<br>
+Now today, I am telling you this because Rāmadāsa was the Guru of Śhivajī. And He was the man who was very detached, He was Hanumāna Himself. And once He came to Śhivajī's place and Śhivajī was so fed up with this people and with the whole administration, and the way the things were. He had made a chit, saying that: ``Mh... O, my Guru, I give You all my property, all my lands, all my kingdom, everything at Your Feet and You better look after it." And he [laughing:] put that chit in the ... uh-uh-uh we have the choḷī, you see, in the cloth sort of a thing.<br>
+So He stood in the door and read it and he said, ``What? [Laghing:] You've given Me everything?" He said, ``I am a saṃnyāsī, and I don't know administration. But you can do everything ... uh-uh-uh the same way as you have been doing, but be detached about it. And to show that you are detached you must use a ... a ... waist under's ... under dhotī stuff we call it, in a triangular manner, it is made. You see, that thing, with the ... uh saffron color showing that you are detached and you are a saṃnyāsī."<br>
+That's how this flag came into being.<br>
+So the entry of the politics has been in this country ... uh entry into politics by uh-uh-uh sākṣhātkāri people or by Incarnation has been there.<br>
+Most of the Incarnations have been kings. Like uh we have got Buddha, he was a king, Mahāvīra was a prince. Both were prince. Then we have got Rāma who was a king. Then we have got Śhrī Kṛiṣhṇa who became a king.<br>
+So the aiśhwarya, the king-ness, has to be there. Has to be a royal family. Has to be, Incarnation should be from a royal family. In India it is, that is the concept."</font><br>
 <font size="+0"><b>1988-1220 Pūjā (English + Marathi), Garden, little House, Brahmapuri, Maharashtra, India</b></font>
 </p>
 
