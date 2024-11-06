@@ -185,8 +185,45 @@ And this is the reason why Sahaja Yoga had to come to make people self-realized,
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"Of course, this is written in ... about, I think, fourteen thousand years back by Mārkaṇḍeya in Sanskrit, but a very difficult Sanskrit language.<br>
+Then also Śhaṅkarāchārya at ... when ... at the sixth century.<br>
+But this was brought to the public by Gyāneśhwara. But that also was denied.<br>
+In the villages of Maharashtra, they all sing Nāmadeva's poem say-ing that, "O Mother, give me the Yoga. Give me the connection with the Divine Power." They are all singing. From ages they have been singing, not knowing what they are singing about.<br>
+Then the development came through Guru Nāṇak Sāhab, Kabīr Dās, Rāmdās Swāmī, Tukārām. All these great Saints in ... in this country talked, specially Kabīr Dās and also Nāṇak Sāhib, very clearly they talked about Kuṇḍalinī: very, very clearly.<br>
+But still people misunderstood because: there there was no way to know it."</font><br>
+<font size="+0"><b>1992-0322 Talk to Sahaja Yogis, Birthday Felicitations Program, the day after Birthday Pūjā, Siri Fort Auditorium, H637+854, August Kranti Marg, Siri Institutional Area, Siri Fort Institutional Area, Siri Fort, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Then came, after that sixteenth century, was full of Saints in this country. Not only in Maharashtra, everywhere. Even in Punjab, you know that, Guru Nāṇaka was there. Kabīra, Rāmānand, Śhyāmanand, so many there, all over. At the time of Śhivajī there was, his Guru was Śhrī Rāmadāsa. You see, all, full of it. And they all talked about Kuṇḍalinī.<br>
+They asked uh, uh-uh-uh ... Rāmadāsa [smiles]: "How much time will it take for Kuṇḍalinī to rise?" So, He said, "Tatkṣhaṇ," "That moment." "But the .. there should be a person who is a giver and the one who wants to take it."<br>
+......<br>
+"Tatkṣhaṇ!" That moment it will work out.<br>
+So, in that all authorities, eh we should not go to these modern writers about Kuṇḍalinī. What is this? These are our authorities to talk about it."</font><br>
+<font size="+0"><b>1993-0310 Press Conference (English and Hindi mixed), Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"So, but I would say, after that, many Great Saints like Guru Nāṇak, Kabīr, Tukārāma, Rā... uh Rāmdās, in the sixteenth century, did a great work of Kuṇḍalinī.<br>
-Even in the Bible it is: "I will appear before you like tongues of flames [fire]" [related to `The Acts of the Apostles', Acts, 2.3, New International Version], "Tree of Life," so many things are described!<br>
+Even in the Bible it is: "I will appear before you like tongues of flames [fire]" [related to 'The Acts of the Apostles', Acts, 2.3, New International Version], "Tree of Life," so many things are described!<br>
 But in the little time that they had, they could not explain so much."</font><br>
 <font size="+0"><b>1993-1011 Interview with Audrey Hope for the TV Talk Show 'Real Women', What Is the Hope for a Stable Society, Part 1, Century Cable Studios, 513 Wilshire Blvd, Suite 336, Santa Monica, CA, U.S.A.</b></font>
 </p>

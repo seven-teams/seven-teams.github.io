@@ -261,7 +261,19 @@ But people don't read this, this is not translated. No one knows their names, no
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"But up to ... I would say that uh Kabīr Dās was only about three hundred, fourhundred years back. Rāmdāsa was ... at the time of English He was, Rāmdās Swāmī in Maharashtra was just when th... English were there. I mean, He wrote all these things.<br>
+[After Dr. Reender Kranenborg says, "Rāmdās Swāmī, yeah, yeah.":] Rāmdās Swāmī.<br>
+In a ..., He was ... He was the Guru of Śhivajī.<br>
+[After a short dutch intervention:] Śhivajī's.<br>
+......<br>
+It has no traditional relevance.<br>
+Kabīra never said it [Kuṇḍalinī giving troubles as in a book of Gopi Krishna]!<br>
+Kabīr, Kabīr was ...<br>
+[After Dr. Reender Kranenborg says, "Kabīr, yeah!":] ... about only three hundred years back.<br>
+Rāmdās Swāmī was three hundred years back.<br>
+Tukārām was about two hundred and fifty years back.<br>
+All at the ... they never said it.<br>
+How ... how is it? "</font><br>
 <font size="+0"><b>1985-0704 Interview with Theologian Dr. Reender Kranenborg for 'Trouw' ('Fidelity') Newspaper, Conferentieoord Overvoorde, van Vredenburchweg 170, Rijswijk (6 kms SSE of The Hague), Netherlands</b></font>
 </p>
 
@@ -451,8 +463,8 @@ Then they were carried from here and put in a temple called Chāphaḷ, the plac
 Also we have some miraculous things about Christ and His Mother, that we ... they found a statue of Mother Mary and Christ in one of the shores of Bombay [Mumbai] City, ca...  and  ... called as Worli [locality in central Mumbai and one of the 4 peninsulas], the fisherman found it in their net.<br>
 Like Rāmadāsa when He jumped inside this he found it in the river, in the same way.<br>
 ......<br>
-Now today, I am telling you this because Rāmadāsa was the Guru of Śhivajī. And He was the man who was very detached, He was Hanumāna Himself. And once He came to Śhivajī's place and Śhivajī was so fed up with this people and with the whole administration, and the way the things were. He had made a chit, saying that: ``Mh... O, my Guru, I give You all my property, all my lands, all my kingdom, everything at Your Feet and You better look after it." And he [laughing:] put that chit in the ... uh-uh-uh we have the choḷī, you see, in the cloth sort of a thing.<br>
-So He stood in the door and read it and he said, ``What? [Laghing:] You've given Me everything?" He said, ``I am a saṃnyāsī, and I don't know administration. But you can do everything ... uh-uh-uh the same way as you have been doing, but be detached about it. And to show that you are detached you must use a ... a ... waist under's ... under dhotī stuff we call it, in a triangular manner, it is made. You see, that thing, with the ... uh saffron color showing that you are detached and you are a saṃnyāsī."<br>
+Now today, I am telling you this because Rāmadāsa was the Guru of Śhivajī. And He was the man who was very detached, He was Hanumāna Himself. And once He came to Śhivajī's place and Śhivajī was so fed up with this people and with the whole administration, and the way the things were. He had made a chit, saying that: "Mh... O, my Guru, I give You all my property, all my lands, all my kingdom, everything at Your Feet and You better look after it." And he [laughing:] put that chit in the ... uh-uh-uh we have the choḷī, you see, in the cloth sort of a thing.<br>
+So He stood in the door and read it and he said, "What? [Laughing:] You've given Me everything?" He said, "I am a saṃnyāsī, and I don't know administration. But you can do everything ... uh-uh-uh the same way as you have been doing, but be detached about it. And to show that you are detached you must use a ... a ... waist under's ... under dhotī stuff we call it, in a triangular manner, it is made. You see, that thing, with the ... uh saffron color showing that you are detached and you are a saṃnyāsī."<br>
 That's how this flag came into being.<br>
 So the entry of the politics has been in this country ... uh entry into politics by uh-uh-uh sākṣhātkāri people or by Incarnation has been there.<br>
 Most of the Incarnations have been kings. Like uh we have got Buddha, he was a king, Mahāvīra was a prince. Both were prince. Then we have got Rāma who was a king. Then we have got Śhrī Kṛiṣhṇa who became a king.<br>
@@ -470,14 +482,26 @@ So the aiśhwarya, the king-ness, has to be there. Has to be a royal family. Has
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"He says, "How I'm a Brahmin when I do ... have not felt the Vibrations of the Brahma?"<br>
+And then we have so many others.<br>
+Even Rām[a]dās Swāmī, who was a great ... uh-uh-uh Saint of this country, who ... who was the Guru of Śhrī Chatrapatī Śhivajī Mahārāj, He too. He too, has really abused all of them.<br>
+I mean, pleh ... I mean I am very much worse than Him because I do not know much of abuses, but He too didn't know much abuses.<br>
+So He has used His own style into abuse [abusing] them. That all this kind of-f falsehood that is spreading in the name of God and religion has to be curbed."</font><br>
 <font size="+0"><b>1990-0106 Talk to Sahaja Yogis (Hindi + English), during the Evening Program, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So how this is been created? There have been quite [a] lot of miracles in this country of these Incarnations.<br>
+Like Rāmadāsa, who was the Ma... Guru of Śhivajī Mahārāj. It is said that He, in His uh-uh-uh own time, the Mother Earth emitted out manifesting, they say, five hundred Hanumāna.<br>
+I don't know [if] the number is correct or not, whatever it is.<br>
+But the one, they found a statue in the waters of Aṃgāpūr. It was Rāmadāsa who found it.<br>
+And was kept there, and there was a statue of another Goddess, Āṅgalai Devī.<br>
+Must be meaning England, I think [laughs]. [Laughing:] Goddess coming from England must be Āṅgalai Devī. Whatever it is.<br>
+So, they wanted to remove those statues-s-s from there. And they said that the stentch ... statues would not move. So they had to ask for forgiveness, and with great difficulty they could remove those statues to one place called Chāphaḷ, where they are kept.<br>
+Now why to? They took it to Chāphaḷ because there was one Hanumāna created. And this Hanumāna, they wanted to change the face, the architects. So they went on deep down trying to find out what is the, how far does this stone go. So it went on and on and on and on for, I don't know, thousands of feet they went down. And they saw it was still standing on one rock, straightforward. So they gave up, and they kept as it is.<br>
+All such miracles have been here to show that these are swayambhus."</font><br>
 <font size="+0"><b>1990-0107 Pūjā (English + Hindi), We Must Know Who Is the God and Who Is the Goddess and If You Have to Gain Anything in This Pūjā, You Have to Give it the Highest Priority (Science of Spirituality), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
@@ -593,14 +617,23 @@ Before, there might have been many people to give but very few people to receive
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Of course, this is written in ... about, I think, fourteen thousand years back by Mārkaṇḍeya in Sanskrit, but a very difficult Sanskrit language.<br>
+Then also Śhaṅkarāchārya at ... when ... at the sixth century.<br>
+But this was brought to the public by Gyāneśhwara. But that also was denied.<br>
+In the villages of Maharashtra, they all sing Nāmadeva's poem say-ing that, "O Mother, give me the Yoga. Give me the connection with the Divine Power." They are all singing. From ages they have been singing, not knowing what they are singing about.<br>
+Then the development came through Guru Nāṇak Sāhab, Kabīr Dās, Rāmdās Swāmī, Tukārām. All these great Saints in ... in this country talked, specially Kabīr Dās and also Nāṇak Sāhib, very clearly they talked about Kuṇḍalinī: very, very clearly.<br>
+But still people misunderstood because: there there was no way to know it."</font><br>
 <font size="+0"><b>1992-0322 Talk to Sahaja Yogis, Birthday Felicitations Program, the day after Birthday Pūjā, Siri Fort Auditorium, H637+854, August Kranti Marg, Siri Institutional Area, Siri Fort Institutional Area, Siri Fort, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Then came, after that sixteenth century, was full of Saints in this country. Not only in Maharashtra, everywhere. Even in Punjab, you know that, Guru Nāṇaka was there. Kabīra, Rāmānand, Śhyāmanand, so many there, all over. At the time of Śhivajī there was, his Guru was Śhrī Rāmadāsa. You see, all, full of it. And they all talked about Kuṇḍalinī.<br>
+They asked uh, uh-uh-uh ... Rāmadāsa [smiles]: "How much time will it take for Kuṇḍalinī to rise?" So, He said, "Tatkṣhaṇ," "That moment." "But the .. there should be a person who is a giver and the one who wants to take it."<br>
+......<br>
+"Tatkṣhaṇ!" That moment it will work out.<br>
+So, in that all authorities, eh we should not go to these modern writers about Kuṇḍalinī. What is this? These are our authorities to talk about it."</font><br>
 <font size="+0"><b>1993-0310 Press Conference (English and Hindi mixed), Pune, Maharashtra, India</b></font>
 </p>
 
@@ -743,7 +776,7 @@ And once, someone asked Śhrī Rāmadās Swāmī, who was Śhivajī's Guru, "Tha
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"[Rāmadās Swāmī has said: "Speak of that by which your arguments and debates will finish off." "</font><br>
 <font size="+0"><b>1995-1205 Śhrī Ādi Śhakti Pūjā (Hindi), The Śhakti of Satya Yuga, New Delhi, India</b></font>
 </p>
 

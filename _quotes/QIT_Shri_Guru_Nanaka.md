@@ -1498,6 +1498,25 @@ But nobody could put it through to people because, I think, people did not want 
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"Of course, this is written in ... about, I think, fourteen thousand years back by Mārkaṇḍeya in Sanskrit, but a very difficult Sanskrit language.<br>
+Then also Śhaṅkarāchārya at ... when ... at the sixth century.<br>
+But this was brought to the public by Gyāneśhwara. But that also was denied.<br>
+In the villages of Maharashtra, they all sing Nāmadeva's poem say-ing that, "O Mother, give me the Yoga. Give me the connection with the Divine Power." They are all singing. From ages they have been singing, not knowing what they are singing about.<br>
+Then the development came through Guru Nāṇak Sāhab, Kabīr Dās, Rāmdās Swāmī, Tukārām. All these great Saints in ... in this country talked, specially Kabīr Dās and also Nāṇak Sāhib, very clearly they talked about Kuṇḍalinī: very, very clearly.<br>
+But still people misunderstood because: there there was no way to know it."</font><br>
+<font size="+0"><b>1992-0322 Talk to Sahaja Yogis, Birthday Felicitations Program, the day after Birthday Pūjā, Siri Fort Auditorium, H637+854, August Kranti Marg, Siri Institutional Area, Siri Fort Institutional Area, Siri Fort, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "The first wrong idea he [Paul] started was that ... of original sin.<br>
 How can it be original sin, when He attended the wedding?<br>
 [Repeats for th translator:] How can marriage be an original sin [<font color="orange">unclear</font>]?<br>
@@ -1583,7 +1602,7 @@ Like Kabīra has said that: "How am I to make them understand when the whole wor
 
 <p>
 <font color="red">"So, but I would say, after that, many Great Saints like Guru Nāṇak, Kabīr, Tukārāma, Rā... uh Rāmdās, in the sixteenth century, did a great work of Kuṇḍalinī.<br>
-Even in the Bible it is: "I will appear before you like tongues of flames [fire]" [related to `The Acts of the Apostles', Acts, 2.3, New International Version], "Tree of Life," so many things are described!<br>
+Even in the Bible it is: "I will appear before you like tongues of flames [fire]" [related to 'The Acts of the Apostles', Acts, 2.3, New International Version], "Tree of Life," so many things are described!<br>
 But in the little time that they had, they could not explain so much."</font><br>
 <font size="+0"><b>1993-1011 Interview with Audrey Hope for the TV Talk Show 'Real Women', What Is the Hope for a Stable Society, Part 1, Century Cable Studios, 513 Wilshire Blvd, Suite 336, Santa Monica, CA, U.S.A.</b></font>
 </p>

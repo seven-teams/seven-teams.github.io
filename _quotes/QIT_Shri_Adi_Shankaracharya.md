@@ -196,6 +196,18 @@ Even Śhaṅkarāchārya, I don't know, if people have translated Him it was so 
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"Of course, this is written in ... about, I think, fourteen thousand years back by Mārkaṇḍeya in Sanskrit, but a very difficult Sanskrit language.<br>
+Then also Śhaṅkarāchārya at ... when ... at the sixth century.<br>
+But this was brought to the public by Gyāneśhwara. But that also was denied.<br>
+In the villages of Maharashtra, they all sing Nāmadeva's poem say-ing that, "O Mother, give me the Yoga. Give me the connection with the Divine Power." They are all singing. From ages they have been singing, not knowing what they are singing about.<br>
+Then the development came through Guru Nāṇak Sāhab, Kabīr Dās, Rāmdās Swāmī, Tukārām. All these great Saints in ... in this country talked, specially Kabīr Dās and also Nāṇak Sāhib, very clearly they talked about Kuṇḍalinī: very, very clearly.<br>
+But still people misunderstood because: there there was no way to know it."</font><br>
+<font size="+0"><b>1992-0322 Talk to Sahaja Yogis, Birthday Felicitations Program, the day after Birthday Pūjā, Siri Fort Auditorium, H637+854, August Kranti Marg, Siri Institutional Area, Siri Fort Institutional Area, Siri Fort, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>

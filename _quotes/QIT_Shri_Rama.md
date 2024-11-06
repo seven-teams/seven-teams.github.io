@@ -86,7 +86,7 @@ After that Śhrī Rāma incarnated in this world but He forgot that He was an In
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Sītājī was Śhrī Rāma's wife. Was married. The injustice that was done to Her by the society, made Her leave the house, by accusing Her falsely, disgraced Her. Why back then these great people had a blindfold on? Why didn't they said, that, `She is our Mother? You are asking Her to leave the house?' She already had passed the test, bypassing the fire, why were they dumbfounded then? What happened to their vigor [light] back then? All were so-called very great then. Nobody raised any point on that.<br>
+<font color="red">"Sītājī was Śhrī Rāma's wife. Was married. The injustice that was done to Her by the society, made Her leave the house, by accusing Her falsely, disgraced Her. Why back then these great people had a blindfold on? Why didn't they said, that, 'She is our Mother? You are asking Her to leave the house?' She already had passed the test, bypassing the fire, why were they dumbfounded then? What happened to their vigor [light] back then? All were so-called very great then. Nobody raised any point on that.<br>
 To teach them a lesson Rādhājī did not marry Kṛiṣhṇa under the societal norms. But still, the whole world knows Śhrī Kṛiṣhṇa as Rādhā-Kṛiṣhṇa. But for Him, the formal marriage is important, that's why there was no child."</font><br>
 <font size="+0"><b>1973-1208 Public Program (Hindi), Day 2, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -94,7 +94,7 @@ To teach them a lesson Rādhājī did not marry Kṛiṣhṇa under the societal
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Shia word has been derived from Siyā. The word which come from Siyā became Shia -- Siyā means Sītājī. If you go to UP [Uttar Pradesh, India] then nobody says Sītājī, they say Siyājī, `Siyā var Rām[a]chandra ki jay.' Everyone takes the name Siyā. She was Sītājī, Ādi Śhakti Herself.<br>
+<font color="red">"Shia word has been derived from Siyā. The word which come from Siyā became Shia -- Siyā means Sītājī. If you go to UP [Uttar Pradesh, India] then nobody says Sītājī, they say Siyājī, 'Siyā var Rām[a]chandra ki jay.' Everyone takes the name Siyā. She was Sītājī, Ādi Śhakti Herself.<br>
 ......<br>
 And these people have achieved many siddhis [achievements]. This is work of our Bhole Śhaṅkarjī, what to do? They [demons] have achieved many siddhis.<br>
 As He gave one siddhi to Rāvaṇ that when he used to speak and give lectures then something used to happen on Nābhī chakra [of a listener] that a bhūt would sit there. Thousands of people were overwhelmed listening to his speeches. Even to this extent that nobody was ready to fight against Rāma [as] he convinced all of them."</font><br>
@@ -167,7 +167,7 @@ Also we have some miraculous things about Christ and His Mother, that we ... the
 Like Rāmadāsa when He jumped inside this he found it in the river, in the same way.<br>
 ......<br>
 Now today, I am telling you this because Rāmadāsa was the Guru of Śhivajī. And He was the man who was very detached, He was Hanumāna Himself. And once He came to Śhivajī's place and Śhivajī was so fed up with this people and with the whole administration, and the way the things were. He had made a chit, saying that: ``Mh... O, my Guru, I give You all my property, all my lands, all my kingdom, everything at Your Feet and You better look after it." And he [laughing:] put that chit in the ... uh-uh-uh we have the choḷī, you see, in the cloth sort of a thing.<br>
-So He stood in the door and read it and he said, ``What? [Laghing:] You've given Me everything?" He said, ``I am a saṃnyāsī, and I don't know administration. But you can do everything ... uh-uh-uh the same way as you have been doing, but be detached about it. And to show that you are detached you must use a ... a ... waist under's ... under dhotī stuff we call it, in a triangular manner, it is made. You see, that thing, with the ... uh saffron color showing that you are detached and you are a saṃnyāsī."<br>
+So He stood in the door and read it and he said, ``What? [Laughing:] You've given Me everything?" He said, ``I am a saṃnyāsī, and I don't know administration. But you can do everything ... uh-uh-uh the same way as you have been doing, but be detached about it. And to show that you are detached you must use a ... a ... waist under's ... under dhotī stuff we call it, in a triangular manner, it is made. You see, that thing, with the ... uh saffron color showing that you are detached and you are a saṃnyāsī."<br>
 That's how this flag came into being.<br>
 So the entry of the politics has been in this country ... uh entry into politics by uh-uh-uh sākṣhātkāri people or by Incarnation has been there.<br>
 Most of the Incarnations have been kings. Like uh we have got Buddha, he was a king, Mahāvīra was a prince. Both were prince. Then we have got Rāma who was a king. Then we have got Śhrī Kṛiṣhṇa who became a king.<br>
