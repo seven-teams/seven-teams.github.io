@@ -99,9 +99,15 @@ Gyāneśhwarjī and all have spoken about it a lot. But nobody understood it."</
 
 <div class="para-divider"></div>
 
+<div class="para-divider"></div>
+
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font color="red">"All this when we say that you are 'this', there's no need to be puffed up. You see, if I tell a little tree, that, 'You are going to be a big tree,' doesn't mean that it has become a big tree. One has to become the big tree by pushing forward.<br>
+And that quality like Gyāneśhwara, like Tukārāma, like Rāmadāsa, you all have to become that quality.<br>
+They never saw Me. I just nourished them, without they seeing Me.<br>
+But they nourished themselves on their own virtues, on their own qualities, on their own greatness.<br>
+You have to be great like that!"</font><br>
+<font size="+0"><b>1984-0213 Śhrī Devī Pūjā, What Is Expected of Sahaja Yogis and Where Are We, Bordi, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
