@@ -313,16 +313,16 @@ But people don't read this, this is not translated. No one knows their names, no
 <div class="para-divider"></div>
 
 <p>
-"But up to ... I would say that uh Kabīr Dās was only about three hundred, four hundred years back. <font color="red">Rāmdāsa was ... at the time of English He was, Rāmdās Swāmī in Maharashtra was just when th... English were there. I mean, He wrote all these things.</font?<br>
+"But up to ... I would say that uh Kabīr Dās was only about three hundred, four hundred years back. <font color="red">Rāmdāsa was ... at the time of English He was, Rāmdās Swāmī in Maharashtra was just when th... English were there. I mean, He wrote all these things.</font><br>
 [After Dr. Reender Kranenborg says, "Rāmdās Swāmī, yeah, yeah.":] <font color="red">Rāmdās Swāmī.</font><br>
-<font color="red">In a ..., He was ... He was the Guru of Śhivajī.</font?<br>
+<font color="red">In a ..., He was ... He was the Guru of Śhivajī.</font><br>
 [After a short dutch intervention:] <font color="red">Śhivajī's.</font><br>
 ......<br>
 It has no traditional relevance.<br>
 Kabīra never said it [Kuṇḍalinī giving troubles as in a book of Gopi Krishna]!<br>
 Kabīr, Kabīr was ...<br>
 [After Dr. Reender Kranenborg says, "Kabīr, yeah!":] ... about only three hundred years back.<br>
-<font color="red">Rāmdās Swāmī was three hundred years back.</font?<br>
+<font color="red">Rāmdās Swāmī was three hundred years back.</font><br>
 Tukārām was about two hundred and fifty years back.<br>
 <font color="red">All at the ... they never said it.<br>
 How ... how is it?</font>"<br>
@@ -488,7 +488,7 @@ And this is the reason why Sahaja Yoga had to come to make people self-realized,
 <div class="para-divider"></div>
 
 <p>
-"Chokhāmeḷā was also a Saint. <font color="red">And likewise Rāmadās Swāmī was also a Saint. But followers of Rāmāyaṇa, Rāmadās Swāmī and followers of Chokhāmeḷā are fighting with each other.</font?<br> 
+"Chokhāmeḷā was also a Saint. <font color="red">And likewise Rāmadās Swāmī was also a Saint. But followers of Rāmāyaṇa, Rāmadās Swāmī and followers of Chokhāmeḷā are fighting with each other.</font><br> 
 It is a[n] amazing [thing]. If both are Saints, why should there be any fight between them?<br>
 But it will be. Because there is no vision so these things happen.<br>
 Therefore I want to tell you that we have to come out of this caste system and stupidity."<br>
@@ -550,7 +550,7 @@ So He has used His own style into abuse [abusing] them. That all this kind of-f 
 <font color="red">Like Rāmadāsa, who was the Ma... Guru of Śhivajī Mahārāj. It is said that He, in His uh-uh-uh own time, the Mother Earth emitted out manifesting, they say, five hundred Hanumāna.</font><br>
 I don't know [if] the number is correct or not, whatever it is.<br>
 <font color="red">But the one, they found a statue in the waters of Aṃgāpūr. It was Rāmadāsa who found it.<br>
-And was kept there, and there was a statue of another Goddess, Āṅgalai Devī.</font?<br>
+And was kept there, and there was a statue of another Goddess, Āṅgalai Devī.</font><br>
 Must be meaning England, I think [laughs]. [Laughing:] Goddess coming from England must be Āṅgalai Devī. Whatever it is.<br>
 So, they wanted to remove those statues-s-s from there. And they said that the stentch ... statues would not move. So they had to ask for forgiveness, and with great difficulty they could remove those statues to one place called Chāphaḷ, where they are kept.<br>
 Now why to? They took it to Chāphaḷ because there was one Hanumāna created. And this Hanumāna, they wanted to change the face, the architects. So they went on deep down trying to find out what is the, how far does this stone go. So it went on and on and on and on for, I don't know, thousands of feet they went down. And they saw it was still standing on one rock, straightforward. So they gave up, and they kept as it is.<br>
@@ -562,7 +562,7 @@ All such miracles have been here to show that these are swayambhus."<br>
 
 <p>
 "But the people who have written that is all modern style.<br>
-<font color="red"><font color="red">On the contrary, there was a great Saint called Rāmdāsa, at the time of Śhivajī. He was the Guru of Śhivajī. Was a very well-known King of Maharashtra. And somebody asked Him, that: "How much time takes does it take for a Kuṇḍalinī to rise?" So He used a Sanskrit word meaning: "Tatkṣhaṇa." Means, "That moment." "But the person who has to do it has to be authorized, and the person who has to take it, must desire it!" That is the word used.</font?<br>
+<font color="red"><font color="red">On the contrary, there was a great Saint called Rāmdāsa, at the time of Śhivajī. He was the Guru of Śhivajī. Was a very well-known King of Maharashtra. And somebody asked Him, that: "How much time takes does it take for a Kuṇḍalinī to rise?" So He used a Sanskrit word meaning: "Tatkṣhaṇa." Means, "That moment." "But the person who has to do it has to be authorized, and the person who has to take it, must desire it!" That is the word used.</font><br>
 This is all modern nonsense that has come up to sell books, that's all I think. Or some of the people who had no authority, those who led a very funny life.<br>
 I know of someone who has written a funny book about Kuṇḍalinī, who has a very bad life of his own, and he says that, "I got such a shock, I got this, that." Naturally! You had no business to enter into an area, where you are not authorized. And if so, also you should have gone to somebody who is authorized.<br>
 The authority has to come from the Divine, that's important."<br>
@@ -619,7 +619,7 @@ They have also produced writers and poets like [Gopal Ganesh] Agarkar Sāhib and
 
 <p>
 "Oh, ... it takes [laughing:] no time at all [to get Self-realization]. [Taps on the mike.] It takes no time.
-<font color="red">There was a very great Saint called Rāmsdās, and somebody asked Him: "How much time does it take for a Kuṇḍalinī awakening?" He said, "Tatkṣhaṇa": "That moment!" "But there should be a person deserving to get it and the one who can give it."</font?
+<font color="red">There was a very great Saint called Rāmsdās, and somebody asked Him: "How much time does it take for a Kuṇḍalinī awakening?" He said, "Tatkṣhaṇa": "That moment!" "But there should be a person deserving to get it and the one who can give it."</font>
 But today, I must tell you, I've reached a stage, I cannot explain how, thousands of them are getting Realization."<br>
 <font size="+0"><b>1991-0327 Public Program, Reach the Point We Can Know the Absolute, Perth, WA, Australia</b></font>
 </p>
@@ -782,7 +782,7 @@ Like Kabīra has said that: "How am I to make them understand when the whole wor
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">Kabīr Sāhab and Nāṇak Sāhab, Rāmdās Swāmī have all written on Kuṇḍalinī. Śhrī Rāmdās Swāmī and even Mārkaṇḍeya Swāmī have also written on Kuṇḍalinī.</font? [<b>Variant:</b> <font color="red">Kabīr Sāhab, Nāṇak Sāhab, Rāmdās Swāmī and many others have all written on Kuṇḍalinī.</font>]<br>
+"<font color="red">Kabīr Sāhab and Nāṇak Sāhab, Rāmdās Swāmī have all written on Kuṇḍalinī. Śhrī Rāmdās Swāmī and even Mārkaṇḍeya Swāmī have also written on Kuṇḍalinī.</font> [<b>Variant:</b> <font color="red">Kabīr Sāhab, Nāṇak Sāhab, Rāmdās Swāmī and many others have all written on Kuṇḍalinī.</font>]<br>
 ......<br>
 I have already told you about chakras. People should have no doubt about chakras. It is a hypothesis and if you are honest, you will agree to this truth about chakras. With this, you, your family, your surroundings, your country, all are safe and accordingly, the whole world becomes safe and secure.<br>
 <font color="red">In order to understand this, as Śhrī Rāmdās Swāmī said, "You should have proper people to spread awareness, and the recipient should have proper awareness to learn all this, in his own interest."</font> "<br>
@@ -841,7 +841,7 @@ They sing every day. Nāmadev has written the song, 'Jogawa', that you sing ever
 <p>
 "But, as long as you start thinking that, 'I am doing this work,' 'I am doing that work,' till then Paramachaitanya says, 'OK, do it.'<br>
 Like it has been said in Marathi by Rāmadās Swāmī, in Marathi, "Alpa dhāriṣhṭa [paye]," meaning, "Come on, You do it."<br>
-Śhivājī Mahārāja, understand, was fighting with Muslims in those days. He confronted the enemies during that period. In the same manner, though he was self-respecting, he was very soft and polite. Along with politeness, he used to have high regard for his mother. He was full of bhakti and had belief in Devī. <font color="red">And he believed in his Guru Śhri Rāmadās Swāmī and he used to believe at least other twenty-one such people, who were great Saints and Sādhus.</font?<br>
+Śhivājī Mahārāja, understand, was fighting with Muslims in those days. He confronted the enemies during that period. In the same manner, though he was self-respecting, he was very soft and polite. Along with politeness, he used to have high regard for his mother. He was full of bhakti and had belief in Devī. <font color="red">And he believed in his Guru Śhri Rāmadās Swāmī and he used to believe at least other twenty-one such people, who were great Saints and Sādhus.</font><br>
 All this showed his brightness, that when a person becomes bright, he does not kill anyone, does not lose his temper on anybody. A lot of balance comes in him, and with this balance he does such things, that when he talks with anybody, he will talk in such a manner, which will make people understand that, 'Yes,' it was their mistake, 'I should have not done this.' "<br>
 <font size="+0"><b>1996-0114 Makar Saṅkrānti Pūjā (Hindi + English + Marathi), Importance of Saṅkrānti and Śhrī Sūrya Devatā, Pune, Maharashtra, India</b></font>
 </p>
