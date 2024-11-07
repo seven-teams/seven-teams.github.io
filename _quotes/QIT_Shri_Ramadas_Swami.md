@@ -264,7 +264,7 @@ The elders there keep thinking day and night that how to commit suicide. They ha
 "These people have now arrived at this place. You have welcomed them and made proper arrangements for them. You have found such beautiful place for them. So on their behalf I thank you.<br>
 At this place they have had joyful time.<br>
 By God's Grace they have everything in their countries. If you visit their countries you will be surprised that they have grown up in great affluence. All kinds of comforts and luxuries are available to them.<br>
-<font color="red">However since I have told them that the idols of Śhrī Rāma and Śhrī Sītā were found here, they have come here tramping over our roads, etc. This is such [a] holy place that Śhrī Rāmdās Swāmī received those idols and installed them at Chaphal. On My words these people are insisting on coming here.</font><br>
+<font color="red">However since I have told them that the idols of Śhrī Rāma and Śhrī Sītā were found here, they have come here tramping over our roads, etc. This is such [a] holy place that Śhrī Rāmdās Swāmī received those idols and installed them at Chāphaḷ. On My words these people are insisting on coming here.</font><br>
 So, I told the people of this place to make arrangements for their stay here.<br>
 Thus leaving aside all luxuries and pleasures they are enjoying the Divine Bliss at this place."<br>
 <font size="+0"><b>1985-0129 Pūjā (English+Marathi), Brahmapuri, Maharashtra, India</b></font>
