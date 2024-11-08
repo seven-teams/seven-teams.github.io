@@ -875,7 +875,7 @@ But, you say, "I accept," who is this 'I'? Humility should start from here: 'Who
 <font color="red">You have before you the examples of Gyāneśhwara, Tukārām, Rāmadās, Eknāth. Have you not heard or read about them?</font><br>
 Nāmadeva whom Guru Nāṇaka held to His heart was the one who was from Maharashtra and [a] tailor by caste, wasn't he? Here in his temple they sing bhajans to the beats of cymbals and not even ten persons from the tailor caste go there -- if ten of them are there, we can say Nāmadeva's efforts have shown results.<br>
 Today I request to all Saints and Sādhus to take birth in this country and improve all the people."<br>
-<nr>
+<br>
 <b>Version 2:</b>
 Yesterday there was somebody who came saying that, "I am working to demolish the blind faith in people." So there is that thing, whatever anybody comes up with, people will start following him, they will follow in their thousands, to such filth.<br>
 "They have made so much money," Śhrī Mātājī. "And his wife has run off with Rajneesh." "Is that so?", I said, "Maybe he did not give her any money." "We used to worship him." "Really?" Then you carry on doing so.<br>
