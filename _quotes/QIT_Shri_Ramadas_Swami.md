@@ -619,7 +619,7 @@ They have also produced writers and poets like [Gopal Ganesh] Agarkar Sāhib and
 
 <p>
 "Oh, ... it takes [laughing:] no time at all [to get Self-realization]. [Taps on the mike.] It takes no time.
-<font color="red">There was a very great Saint called Rāmsdās, and somebody asked Him: "How much time does it take for a Kuṇḍalinī awakening?" He said, "Tatkṣhaṇa": "That moment!" "But there should be a person deserving to get it and the one who can give it."</font>
+<font color="red">There was a very great Saint called Rāmadās, and somebody asked Him: "How much time does it take for a Kuṇḍalinī awakening?" He said, "Tatkṣhaṇa": "That moment!" "But there should be a person deserving to get it and the one who can give it."</font>
 But today, I must tell you, I've reached a stage, I cannot explain how, thousands of them are getting Realization."<br>
 <font size="+0"><b>1991-0327 Public Program, Reach the Point We Can Know the Absolute, Perth, WA, Australia</b></font>
 </p>
@@ -739,7 +739,7 @@ Even in Gītā, they told that you first obtain the knowledge."<br>
 
 <p>
 <font color="red">"Śhrī Rāmdās Swāmī who was [the] Guru of Śhivajī, was asked by someone that, "How much time does it take to awaken the Kuṇḍalinī?" He answered, "Within a second. Only eligible receiver and giver are required." "</font><br>
-<font size="+0"><b>1993-1208 Public Program (Hindi), Paramātma ki Science, near Brahmasagara, Kurukṣhetra, Haryana, India</b></font>
+<font size="+0"><b>1993-1208 Public Program (Hindi), Paramātma kī Science, near Brahmasagara, Kurukṣhetra, Haryana, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -853,7 +853,7 @@ All this showed his brightness, that when a person becomes bright, he does not k
 Is not like Sahaja Yoga, everybody is a Sahaja Yogi, it's not like that.<br>
 That of course, made it a very narrow margin for people to achieve their Realization.<br>
 And these guru[s] never used to leave their own seats, they call it takiya [pillow]. They would be there in their own place, all those who would like to go to him could come. If he allowed, then only they can meet him. You may go on for miles together, nothing: no obligations of the guru that he should meet you.<br>
-Perhaps, they didn't feel that love and compassion for the seekers. They-ee didn't understand that the seekers are ardently seeking the Truth and they should not suffer. That may be the reason th-ss.. they were not so much concerned. All the time they [gurus] were testing their disciple.<br>
+Perhaps, they didn't feel that love and compassion for the seekers. They-ee didn't understand that the seekers are ardently seeking the Truth and they should not suffer. That may be the reason th-ss... they were not so much concerned. All the time they [gurus] were testing their disciple.<br>
 <font color="red">Even Rāmadās, who was the Guru of Śhivajī, was testing even Śhivajī ph... for so many times, though he was a born realized.</font>"<br>
 <font size="+0"><b>1996-0728 Guru Pūjā, You Should Live like a Saint or Criteria to Introspect Yourself, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
