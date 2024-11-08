@@ -464,7 +464,7 @@ But Śhivajī came forward. He took down his hat, sat down next to him, started 
 Actually He had tied a mango there. [Laughter, smiles, applause.]</font><br>
 That is how the gurus took lot of tests-s-s.<br>
 I have never taken your test, and you do not take the tests of others. Leave them to Me, I'll manage, all of them, one by one.<br>
-Whatever has to happen, happens."</font><br>
+Whatever has to happen, happens."<br>
 <font size="+0"><b>1987-0712 Guru Pūjā, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
 </p>
 
@@ -480,8 +480,8 @@ Whatever has to happen, happens."</font><br>
 <p>
 "I am not a politician, I am not a business lady, neither am I a very learned lady [some laughter] of some university. I am a simple Saint of this country. And that I should be respected by you all, shows thus the recognition of the Divine, today.<br>
 This is e ... is the basis of Sahaja Yoga.<br>
-<font color="red">The basis of Sahaja Yoga is: that whatever these Great Saints, like Śhrī Gnyāneśhwara, Nāmadeva, Sant Tukārām, Rāmadās Swāmī, Ekanāth, and so many others, like Nāṇak Sāheb, Kabīr Das, and so many Muslims also, like Nizamuddin, Khwaja Nizamuddin, and Chisti, all these great people have been bien in this country, have been talking about the Divine, they have been saying, "There is the Divine surrounding us," but nobody could recognize them. Because they were not realized Souls.</font<br>
-And this is the reason why Sahaja Yoga had to come to make people self-realized, and they can feel the divine all around you [them]."><br>
+<font color="red">The basis of Sahaja Yoga is: that whatever these Great Saints, like Śhrī Gnyāneśhwara, Nāmadeva, Sant Tukārām, Rāmadās Swāmī, Ekanāth, and so many others, like Nāṇak Sāheb, Kabīr Das, and so many Muslims also, like Nizamuddin, Khwaja Nizamuddin, and Chisti, all these great people have been bien in this country, have been talking about the Divine, they have been saying, "There is the Divine surrounding us," but nobody could recognize them. Because they were not realized Souls.</font><br>
+And this is the reason why Sahaja Yoga had to come to make people self-realized, and they can feel the divine all around you [them]."<br>
 <font size="+0"><b>1987-1223 Public Program (English + Marathi), Ātmyāche Darśhana (Vision of the Spirit), School, Akole (24 kms WSW of Sangamner), Maharashtra, India</b></font>
 </p>
 
@@ -562,7 +562,7 @@ All such miracles have been here to show that these are swayambhus."<br>
 
 <p>
 "But the people who have written that is all modern style.<br>
-<font color="red"><font color="red">On the contrary, there was a great Saint called Rāmdāsa, at the time of Śhivajī. He was the Guru of Śhivajī. Was a very well-known King of Maharashtra. And somebody asked Him, that: "How much time takes does it take for a Kuṇḍalinī to rise?" So He used a Sanskrit word meaning: "Tatkṣhaṇa." Means, "That moment." "But the person who has to do it has to be authorized, and the person who has to take it, must desire it!" That is the word used.</font><br>
+<font color="red">On the contrary, there was a great Saint called Rāmdāsa, at the time of Śhivajī. He was the Guru of Śhivajī. Was a very well-known King of Maharashtra. And somebody asked Him, that: "How much time takes does it take for a Kuṇḍalinī to rise?" So He used a Sanskrit word meaning: "Tatkṣhaṇa." Means, "That moment." "But the person who has to do it has to be authorized, and the person who has to take it, must desire it!" That is the word used.</font><br>
 This is all modern nonsense that has come up to sell books, that's all I think. Or some of the people who had no authority, those who led a very funny life.<br>
 I know of someone who has written a funny book about Kuṇḍalinī, who has a very bad life of his own, and he says that, "I got such a shock, I got this, that." Naturally! You had no business to enter into an area, where you are not authorized. And if so, also you should have gone to somebody who is authorized.<br>
 The authority has to come from the Divine, that's important."<br>
