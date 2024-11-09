@@ -99,8 +99,6 @@ Gyāneśhwarjī and all have spoken about it a lot. But nobody understood it."</
 
 <div class="para-divider"></div>
 
-<div class="para-divider"></div>
-
 <p>
 <font color="red">"All this when we say that you are 'this', there's no need to be puffed up. You see, if I tell a little tree, that, 'You are going to be a big tree,' doesn't mean that it has become a big tree. One has to become the big tree by pushing forward.<br>
 And that quality like Gyāneśhwara, like Tukārāma, like Rāmadāsa, you all have to become that quality.<br>
