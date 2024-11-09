@@ -12,11 +12,9 @@ tags:
 <b>Variant 1:</b><br>
 "<font color="red">But some people are also strange, such as one lady has come and said, "I believe in [worship] Reṇukā Devī." Now, particularly, we should not believe in [worship] Reṇukā Devī's Incarnation.</font><br>
 And people believe in these kind of insane things. Some people simply believe in who we believe as Incarnations."<br>
-<br>
 <b>Variant 2:</b><br>
-"Now, there was one lady who said, "Mother, I worship Reṇukā Devī," so, you should not consider Reṇukā Devī as an Incarnation specifically.<br>
+"<font color="red">Now, there was one lady who said, "Mother, I worship Reṇukā Devī," so, you should not consider Reṇukā Devī as an Incarnation specifically.</font><br>
 People do many such things but normally if you ask about the very well-known Incarnations, this will happen immediately."<br>
-</font><br>
 <font size="+0"><b>1979-0325 Pūjā (Hindi + English), Chit ke Gaharai (Depth of Your Attention), Seminar, Day 2, Camp, Bordi, Maharashtra, India}\label{1979-0325 Pūjā (Hindi + English), Chit ke Gaharai (Depth of Your Attention), Seminar, Day 2, Camp, Bordi, Maharashtra, India</b></font>
 </p>
 

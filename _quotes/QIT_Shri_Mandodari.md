@@ -23,7 +23,7 @@ So She threw Her kaṅkaṇ</font> [bracelet of thread used in Pūjās] -- this 
 [After a Sahaja Yogi says something:] Very interesting, very interesting.<br>
 [After a Sahaja Yogi says, "Mh-hm,":] Kaṅkaṇ.<br>
 [After a Sahaja Yogi says, "Mh,":] You see, not easy to make.<br>
-[After a Sahaja Yogi says, ``Yeah.":] [<font color="orange">unclear</font>].<br>
+[After a Sahaja Yogi says, "Yeah.":] [<font color="orange">unclear</font>].<br>
 [After two Sahaja Yogis say something:] You see.<br>
 Be careful, [<font color="orange">unclear</font>].<br>
 [<font color="orange">unclear</font>].<br>
@@ -31,8 +31,8 @@ Be careful, [<font color="orange">unclear</font>].<br>
 <font color="red">So, all these ... uh ... this kaṅkaṇ, you know, She threw it in the air. And Rāma's ... ah-ah-uh arrows were coming, and they would return back to Rāma.</font><br> 
 Because Rāma cannot cross beyond the Powers of a Satī also. He has to respect her [a Satī in general].<br>
 <font color="red">Because She was the devotee of Rāma, first of all, and of which, you know, that Kālī is the sister of a ... Umā is the sister of ...</font><br>
-[After a Sahaja Yogi says, "Viṣhṇu,":]... Viṣhṇu. So, you see, how can He kill the whuh ... husband of ...</font><br>
-[After a Sahaja Yogi interrupts, "Sister":] ... the sister? </br>
+[After a Sahaja Yogi says, "Viṣhṇu,":] <font color="red">... Viṣhṇu. So, you see, how can He kill the whuh ... husband of ...</font><br>
+[After a Sahaja Yogi interrupts, "Sister":] <font color="red">... the sister?</font><br>
 You see, all of these points are there.<br>
 <font color="red">And the kaṅkaṇa was in the air, is projective. Everything failed. You see, nothing would go, even Sudarśhan Chakra wouldn't go that side.</font><br>
 [After a Sahaja Yogi says, "Mh,":] So, Lakṣhmaṇa said, "What are you doing‽ What is it? You are getting back your, all your arrows! Why don't you control your arrows? You see what to do. See there, what is there." <font color="red">He saw this kaṅkaṇa was moving there.</font> He said, "Oh, God! Now, you have it. If this is the thing to work out, then am I useless?" Poor Lakṣhmaṇa was sitting very much in frustration.<br>
@@ -76,7 +76,7 @@ Yes!<br>
 <p>
 "There are many stories like this.<br>
 <font color="red">Even the wife of Rāvaṇa [Mandodarī], who was killed by Rāma, was like that, which I will tell you later on sometimes.</font><br>
-There are stories and stories may interest you."</font><br>
+There are stories and stories may interest you."<br>
 <font size="+0"><b>1981-0330 Public Program, Cycle 1, Day 4, Anāhata, Śhrī Lalitā, Śhrī Chakra, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
 </p>
 
@@ -142,7 +142,7 @@ Now the great story goes on like that.<br>
 <font color="red">But this Mandodarī was the great worshiper of Viṣhṇu. And at the time when Rāma came, you see, to kill him, all this was organized by Mandodarī Herself. Because She know ... knew that, if Śhrī Rāma kills Rāvaṇa, he will get his uh liberation from these ideas about women. The way he was running after uh-uh-uh Sītā and doing all these things, She actually wanted that something should happen that he should take another birth, and he should get rid of these uh-uh-uh notions of uh-uh-uh looking after beautiful women, and the way he brought Sītājī there. She was against it completely, but he would not listen.</font><br>
 So the war took place. And in the war, he was killed by Śhrī Rāma.<br>
 All this episode came because of the unlimited compassion of Śhrī Śhiva.<br>
-His Compassion is, to look at, looks very illogical sometimes. But there's a big logic behind it. The logic is that: whatever He does, brings forth a uh-uh-uh kind of a solution of the problem."</font><br>
+His Compassion is, to look at, looks very illogical sometimes. But there's a big logic behind it. The logic is that: whatever He does, brings forth a uh-uh-uh kind of a solution of the problem."<br>
 <font size="+0"><b>1995-0226 Śhivarātri Pūjā, How to Get Detached and Ascend, Castle Mountain Camp, 256 Webbs Creek Road, Wisemans Ferry (78 kms NNW of Sydney), New South Wales, Australia</b></font>
 </p>
 
@@ -155,9 +155,9 @@ His Compassion is, to look at, looks very illogical sometimes. But there's a big
 But people say that, 'Śhrī Rāma was all right, yet widows cannot marry.'<br>
 Just imagine your own mother, sister or daughter in such a miserable condition! May God save from such a society! It is better not to have such a society and if at all some society is made everyone should have the right to live peacefully in it."<br>
 <b>Version 2:</b><br>
-To add to this there is a belief that, `Even seeing a widow would bring bad luck. Must not eat food cooked by a widow.' This society of ours does not know that this has not been written in any of the Scriptures.<br>
+To add to this there is a belief that, 'Even seeing a widow would bring bad luck. Must not eat food cooked by a widow.' This society of ours does not know that this has not been written in any of the Scriptures.<br>
 Śhrī Rāma got Mandodarī married to Vibhīṣhaṇa. There are innumerable examples. Śhrī Rāma did this. After the death of Rāvaṇa, Śhrī Rāma got Mandodarī married to Vibhīṣhaṇa.<br>
-But people say that, `Up to that it was all right. But other widows cannot marry again.'<br>
+But people say that, 'Up to that it was all right. But other widows cannot marry again.'<br>
 Now just think, that if your mother, sister or daughter is pushed into such a circumstance, then God save us from such a samāj [society]. Better there is not any samāj at all. And if there is, then everyone has the right to live a happy and peaceful life.<br>
 <font size="+0"><b>2000-0407 Śhrī Bhūmī Devī Pūjā (Hindi), Inauguration of the H.H. Śhrī Mātājī Nirmalā Devī Foundation, Nirmal Dham, Behind BSF Camp Chhawala, New Delhi, India</b></font>
 </p>
