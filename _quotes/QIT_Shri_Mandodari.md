@@ -9,13 +9,13 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"On the right-hand side also, was another one, where the wives, you see, the dedicated wives, devotees, uh devoted wives, you see, as called as Satī.<br>
+"On the right-hand side also, was another one, where the wives, you see, the dedicated wives, devotees, uh devoted wives, you see, as called as Satī.<br>
 Now, one are known as Yatis, another are Satīs. So, the ones who tried to find out about uh-uh-uh element-ts, and overpower the elements and all those things, they ... they were Yatis, and the ones who tried to find out about uh ... sorts of mast... have a mastery with their willpower, you see, were the devoted women. They too master the elements very much.<br>
 Though the devoted women are regarded even higher than uh Yatis. You know, Satīs are higher than Satīs [Yatis] ... uh-uhh uh Satīs are called as the-ee ... uh the ... Sanskrit it's a ucchatar [higher]: they are much higher than the Yatis. So their achievements were uh-uh-uh much more in dimension. Because what they had ... had used their bhakti also, because they were dedicated to their husbands.<br>
 <font color="red">One of them you can say was Rāvaṇa's wife, to take it foy ... for example, was Rāvaṇa's wife. She was so powerful! Such a powerful woman She was. Of course, She was Mahākālī Herself. So, that you give ... you can imagine: She was the Mahākālī Force Herself. But She was a Satī as She came. So She had a Sahaja Samādhi. She had the Sahaja uh Power.</font><br>
 But there are many Satīs who achieves [achieve] Satī Power.<br>
 <font color="red">But I'll describe this Lady, you see, this Satī, Mandodarī She was, Rāvaṇa's wife.</font><br>
-Now, when She married him -- She had to marry though She was Mahākālī, there's also a big story. Uh-uh-uh, if I go through that story also is very interesting. Can tell you later on about it.<br>
+<font color="red">Now, when She married him -- She had to marry though She was Mahākālī, there's also a big story. Uh-uh-uh, if I go through that story also is very interesting. Can tell you later on about it.<br>
 So She was married to him.<br>
 And when Rāvaṇa, you see, uh-uh-uh s... was fighting Rāma, She was the Satī and She ... She was a de... devotee of Śhrī Viṣhṇu. And She always used to worship Śhrī Viṣhṇu.<br>
 So She threw Her kaṅkaṇ</font> [bracelet of thread used in Pūjās] -- this is the kaṅkaṇ. It's call as kaṅkaṇ, you see. See this one?<br>
@@ -179,20 +179,6 @@ Now just think, that if your mother, sister or daughter is pushed into such a ci
 "<font color="red">At the time of Rāma's Incarnation Ādi Śhakti existed in three persons: Mahālakṣhmī, as Sītā, His wife; Mahāsaraswatī, as Satī Anasūyā who gave birth to Dattātreya, the Primordial Master; and Mahākālī as Mandodarī, the wife of the demon Rāvaṇa.</font><br>
 Ādi Viṣhṇu's eighth form was as Śhrī Kṛiṣhṇa during the Dwāpara Yuga, and again Ādi Śhakti took three forms. Mahākālī lived for a very short time as Viṣhṇumāyā, the infant sister of Śhrī Kṛiṣhṇa. She was actually born as the daughter of Yeśhodā, Śhrī Kṛiṣhṇa's foster mother, and was killed by the demon Kaṃsa. She later took birth as Draupadī, wife of the Pāṇḍavas."<br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
