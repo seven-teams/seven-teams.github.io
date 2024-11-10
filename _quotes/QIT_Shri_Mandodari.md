@@ -38,7 +38,7 @@ You see, all of these points are there.<br>
 [After a Sahaja Yogi says, "Mh,":] So, Lakṣhmaṇa said, "What are you doing‽ What is it? You are getting back your, all your arrows! Why don't you control your arrows? You see what to do. See there, what is there." <font color="red">He saw this kaṅkaṇa was moving there.</font> He said, "Oh, God! Now, you have it. If this is the thing to work out, then am I useless?" Poor Lakṣhmaṇa was sitting very much in frustration.<br>
 Then Yama, the God of Death, he thought: "The time is coming and what is this kaṅkaṇ doing here? You see, so must try to solve this problem." [Sahaja Yogi laughs.]<br>
 So, He is the clever one.<br>
-He ... he went into the heart of ... uh-uh-uh or He went into the mind of Rāvaṇa, and told him: "Oh, you are not uh the one who is winning the war, it is your wife's anger." And, oh, his ego was challenged. [During laughter:] [<font color="orange">unclear</font>], "Kaṅkaṇ [<font color="orange">unclear</font>] you see in the air, you see that [<font color="orange">unclear</font>] is there. That is the one that is protecting you." Very angry: "What does She mean by challenging my manliness?"<br>
+<font color="red">He ... he went into the heart of ... uh-uh-uh or He went into the mind of Rāvaṇa, and told him: "Oh, you are not uh the one who is winning the war, it is your wife's anger."</font> And, oh, his ego was challenged. [During laughter:] [<font color="orange">unclear</font>], <font color="red">"Kaṅkaṇ</font> [<font color="orange">unclear</font>] <font color="red">you see in the air, you see that</font> [<font color="orange">unclear</font>] <font color="red">is there. That is the one that is protecting you." Very angry: "What does She mean by challenging my manliness?"</font><br>
 See, so he went down to his palace.<br>
 <font color="red">And he saw She ... She was sitting there smiling. She said: "I know you will come back." He said: "What do You mean? I cannot fight the war? You think I live by Your powers? Will You please get ... get back your kaṅkaṇa? It's my order!"</font><br>
 So, as a Satī you have to obey the orders of your husband, you see.<br>
@@ -46,7 +46,7 @@ So, as a Satī you have to obey the orders of your husband, you see.<br>
 So, [as the Sahaja Yogi laughs:] but you can find out loopholes, you see. That is, that's the [<font color="orange">unclear</font>]. [Everyone laughs.]<br> 
 <font color="red">So, She said, "Now, I've taken back My kaṅkaṇ." All right. Then She sat before Viṣhṇu. She said, "How dare You kill My husband? I will not eat food till he comes back here alive, I will not eat."</font><br>
 Now, Viṣhṇu had a problem. Now what to do? He cannot kill, Rāma being Viṣhṇu, you see. [Another Sahaja Yogi laughs.] He cannot kill Rāvaṇa. Now He said, "What to do?" So He told Lakṣhmaṇa: "It's a big problem!"<br>
-So Lakṣhmaṇa informed Yama: "Again the problem has come [same Sahaja Yogi laughs]: <font color="red">She won't eat food till [he laughs again] ... Rā-ah ... Her husband goes back, you know."</font> So Yama said, "I know it's very dangerous, but I have to try this trick otherwise I'm in for trouble. This man has to die, for the time has come." So, Yama said, "It's a very big risk of ... to say this to Satī."<br>
+<font color="red">So Lakṣhmaṇa informed Yama: "Again the problem has come</font> [same Sahaja Yogi laughs]<font color="red">: She won't eat food till [he laughs again] ... Rā-ah ... Her husband goes back, you know."</font> <font color="red">So Yama said, "I know it's very dangerous, but I have to try this trick otherwise I'm in for trouble. This man has to die, for the time has come." So, Yama said, "It's a very big risk of ... to say this to Satī."</font><br>
 <font color="red">You see: one woman fighting all this [he laughs again], with Her will Power.</font><br>
 "It's all right." He says, "All right. I will manage it."<br>
 He took the form of a ... of Rāvaṇa himself. He became, took, started looking like Rāvaṇa.<br>
@@ -83,15 +83,15 @@ There are stories and stories may interest you."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"And if you get the Powers like Me, then what to say? Then you all will sit and obtain everything [<b>Variant:</b> And if you get the Powers like Me, then what is there to say? Just sitting you will do everything.]<br>
+"And if you get the Powers like Me, then what to say? Then you all will sit and obtain everything [<b>Variant:</b> And if you get the Powers like Me, then what is there to say? Just sitting you will do everything.]<br>
 Meaning, if I don't like something, I will not fight for it but make arrangements that such a thing does not occur only [laughter], by itself.<br>
 So either you all should obtain such Śhaktis, but stay in pure Śhakti, not that for some time you become a man or for some time become a woman, it cannot happen then. [Laughter.]<br>
 Women should live with their feminine power, like here we believe in Satī's power. Then you can see that just sitting in one place you can make people run around. You have to be in its glory.<br>
 We used to consider Satī's power greater than Yati's. Even Śhrī Kṛiṣhṇa's Mūrti was considered less than of a Satī.<br>
 She [Gāṃdhārī, the mother of the 100 Kauravas killed during the Mahābhārata War] told [after the War] when He was cursed, "You will die, the entire Yaduvaṃśh will die," He completely honored the curse because it was from a Satī.<br>
-In front of a [pointing with Her left index finger to the right bracelet:] kaṅkaṇ from Mandodarī, even the arrow of Śhrī Rāma would return.<br>
-That is the power of the woman!<br>
-Like Dharā, Earth, She is a woman. She has the power to take away all the sins of the world in Her and from Her you get all fruits, flowers. This Ṛitaṃbharā Prāgñyā comes from Earth."</font><br>
+<font color="red">In front of a</font> [pointing with Her left index finger to the right bracelet:] <font color="red">kaṅkaṇ from Mandodarī, even the arrow of Śhrī Rāma would return.<br>
+That is the power of the woman!</font><br>
+Like Dharā, Earth, She is a woman. She has the power to take away all the sins of the world in Her and from Her you get all fruits, flowers. This Ṛitaṃbharā Prāgñyā comes from Earth."<br>
 <font size="+0"><b>1986-0216 Talk to Sahaja Yogis (Hindi), Learn to Love Yourself, Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b></font>
 </p>
 
@@ -151,12 +151,14 @@ His Compassion is, to look at, looks very illogical sometimes. But there's a big
 <p>
 <b>Version 1:</b><br>
 "Seeing a widow was considered to be ominous. Ritualistic people do not eat food cooked by a widow.<br>
-<font color="red">Our society is unaware of the fact that our Scriptures do not allow such things. After the death of Rāvaṇa, Śhrī Rāma married Mandodarī, the wife of Rāvaṇa, to Vibhīṣhaṇa.</font><br>
+Our society is unaware of the fact that our Scriptures do not allow such things.<br>
+<font color="red">After the death of Rāvaṇa, Śhrī Rāma married Mandodarī, the wife of Rāvaṇa, to Vibhīṣhaṇa.</font><br>
 But people say that, 'Śhrī Rāma was all right, yet widows cannot marry.'<br>
 Just imagine your own mother, sister or daughter in such a miserable condition! May God save from such a society! It is better not to have such a society and if at all some society is made everyone should have the right to live peacefully in it."<br>
 <b>Version 2:</b><br>
-To add to this there is a belief that, 'Even seeing a widow would bring bad luck. Must not eat food cooked by a widow.' This society of ours does not know that this has not been written in any of the Scriptures.<br>
-Śhrī Rāma got Mandodarī married to Vibhīṣhaṇa. There are innumerable examples. Śhrī Rāma did this. After the death of Rāvaṇa, Śhrī Rāma got Mandodarī married to Vibhīṣhaṇa.<br>
+To add to this there is a belief that, 'Even seeing a widow would bring bad luck. Must not eat food cooked by a widow.'<br>
+This society of ours does not know that this has not been written in any of the Scriptures.<br>
+<font color="red">Śhrī Rāma got Mandodarī married to Vibhīṣhaṇa. There are innumerable examples. Śhrī Rāma did this. After the death of Rāvaṇa, Śhrī Rāma got Mandodarī married to Vibhīṣhaṇa.</font><br>
 But people say that, 'Up to that it was all right. But other widows cannot marry again.'<br>
 Now just think, that if your mother, sister or daughter is pushed into such a circumstance, then God save us from such a samāj [society]. Better there is not any samāj at all. And if there is, then everyone has the right to live a happy and peaceful life.<br>
 <font size="+0"><b>2000-0407 Śhrī Bhūmī Devī Pūjā (Hindi), Inauguration of the H.H. Śhrī Mātājī Nirmalā Devī Foundation, Nirmal Dham, Behind BSF Camp Chhawala, New Delhi, India</b></font>
@@ -165,11 +167,11 @@ Now just think, that if your mother, sister or daughter is pushed into such a ci
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"During the Tretā Yuga, at the time of Śhrī Rāma, Ādi Śhakti incarnated in three separate human personalities, expressing Her three aspects:<br>
-&emsp;1. Sītā [Jānakī] (Mahālakṣhmī) as the daughter of Rāja Janaka<br>
-&emsp;&emsp;This was the first absolute human form (<i>Laukik</i>)"</font><br>
+"<font color="red">During the Tretā Yuga, at the time of Śhrī Rāma, Ādi Śhakti incarnated in three separate human personalities, expressing Her three aspects:<br>
+&emsp;1. Sītā [Jānakī] (Mahālakṣhmī) as the daughter of Rāja Janaka</font><br>
+&emsp;&emsp;This was the first absolute human form (<i>Laukik</i>)"<br>
 &emsp;2. Satī Anasūyā (Mahāsaraswatī) as the wife of a Great Saint<br>
-&emsp;3. Mandodarī (Mahākālī) as the wife of the demon Rāvaṇa<br>
+&emsp;<font color="red">3. Mandodarī (Mahākālī) as the wife of the demon Rāvaṇa</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play</b></font>
 </p>
 
