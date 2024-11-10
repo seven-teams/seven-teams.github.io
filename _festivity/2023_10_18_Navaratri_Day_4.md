@@ -36,7 +36,7 @@ The form of the Goddess in those days was not Māyā Swarūpi[n]. She was in Her
 
 <p>
 <font color="Red"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"><b> I say that before going out please take a bandhan.</b> It's a kavach, we call it a kavach. Means, kavach, in English there's a word for that?</font><br>
-<b>Sahaaj Yogis [suggest]:</b> Protection.<br>
+<b>Sahaja Yogis [suggest]:</b> Protection.<br>
 <font color="Red"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">That's rather, protection is abstract, but this is a protection of the Mother is a concrete stuff, you see, kavach. So you take the kavach. Kavach is something you can say that people wear those armor, inside, you see that sort of a thing, is kavach. So you must take that before going out or talking to somebody. That you don't do.<br>
 ......<br>
 It's just a simple thing, take your kavach when you are going out. It's so simple, I mean, in Sahaja Yoga we don't have to do horrible rituals that people do, nothing of the kind. Just take your bandhan in the morning when you are going out and if somebody is argumentative just give a bandhan. Anything, <b>little bandhan can work out so many things but we forget that we have entered into the Kingdom of God and all the Saints and all the angels and gaṇas are at your disposal</b>.</font><br>
