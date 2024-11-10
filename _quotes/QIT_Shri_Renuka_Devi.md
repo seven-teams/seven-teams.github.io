@@ -44,9 +44,9 @@ People do many such things but normally if you ask about the very well-known Inc
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"In Maharashtra there are Aṣhṭavināyak, then we have Three Goddesses, that is, Śhrī Mahālakṣhmī, Śhrī Mahāsaraswatī and Śhrī Mahākālī, I don't have to tell you, though all of this is there. Still we remember Jejurīchā Khaṇḍobā [Khaṇḍobā of Jejurī or Mārtāṇḍa Bhairava, most popular family Deity in Maharashtra], then we remember Reṇukā Devī.<br>
+"In Maharashtra there are Aṣhṭavināyak, then we have Three Goddesses, that is, Śhrī Mahālakṣhmī, Śhrī Mahāsaraswatī and Śhrī Mahākālī, I don't have to tell you, though all of this is there. <font color="red">Still we remember Jejurīchā Khaṇḍobā [Khaṇḍobā of Jejurī or Mārtāṇḍa Bhairava, most popular family Deity in Maharashtra], then we remember Reṇukā Devī.</font><br>
 Everybody knows everything in Maharashtra, which place is holy and which is not. We are aware of everything because Maharashtra State is like a temple.<br>
-You go anywhere in Maharashtra, there will be a jāgṛut sthāna."</font><br>
+You go anywhere in Maharashtra, there will be a jāgṛut sthāna."<br>
 <font size="+0"><b>1991-1221 Śhrī Mahālakṣhmī Pūjā (English + Hindi + Marathi), Jayasiṅgapura (37 kms E of Kolhapur), Maharashtra, India</b></font>
 </p>
 
