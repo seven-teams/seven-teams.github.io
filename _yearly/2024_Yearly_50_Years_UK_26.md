@@ -18,10 +18,10 @@ tags:
 </p>
 
 <p>
-"In the darkness of Kali Yuga, when you find from ever ... every place .... uh-uh-uh ... confusion of the worst type creating the darkness which cannot be penetrate[d] into, so of which looks like a solid mountain around us, and which can never be covered, as we feel, by the Grace of God, and even with the Grace of God, it would never melt, in that darkness, in that hopeless state, when the creation is on the verge of its destruction, the light of Sahaja Yoga has arrived.
+"In the darkness of Kali Yuga, when you find from ever ... every place .... uh-uh-uh ... confusion of the worst type creating the darkness which cannot be penetrate[d] into, so of which looks like a solid mountain around us, and which can never be covered, as we feel, by the Grace of God, and even with the Grace of God, it would never melt, in that darkness, in that hopeless state, when the creation is on the verge of its destruction, the light of Sahaja Yoga has arrived.<br>
 ......<br>
 This darkness of Kali Yuga is not one-sided. If you see it clearly, it is not only materialism, adherence to money, adherence to money-power, is not only that. That's, of course, is very important [laughing:] these days, we cannot neglect it, because that's something is really weighing this whole balance-ss-ss of the Western world. But this money is for power.<br>
-Why money? Because it has a power, according to many people who are blind. They think, 'Money has the power: to win over people, to exist in higher powers of,' say, execution of their administration and all that you need money,' 'to win our votes, to get elected.' That's the myth people are carrying all the time: that, 'Money is very important, and without money you can't manage things.'
+Why money? Because it has a power, according to many people who are blind. They think, 'Money has the power: to win over people, to exist in higher powers of,' say, execution of their administration and all that you need money,' 'to win our votes, to get elected.' That's the myth people are carrying all the time: that, 'Money is very important, and without money you can't manage things.'<br>
 ......<br>
 Please try to improve your eye, in the sense that: "Thou shalt not have adulterous eyes." Have no greed in your eye, for anything! Try to remove the greed from your eye, and it will definitely start working out.<br>
 So this is the message for our eyes-ss, because through the eyes you are the light.<br>
