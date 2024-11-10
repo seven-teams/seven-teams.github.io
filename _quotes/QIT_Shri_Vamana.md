@@ -56,7 +56,9 @@ This Incarnation in the beginning was a fish, when we were fishes. When we were 
 <div class="para-divider"></div>
 
 <p>
-"Like, I can say, carbon was at Mūlādhāra chakra. And this carbon of [<font color="orange">unclear</font>] matter got Prāṇa into it by which it started moving as a living thing. This living thing then grew into higher and higher awareness, till it reached a ... reached a stage where you were an animal and then you had to become a human being. <font color="red">The first human beings were short people. That Incarnation of ... Incarnation of the short people is called as Vāmana.</font>"<br>
+"And Śhrī Kṛiṣhṇa incarnated as one of the Incarnations of Śhrī Viṣhṇu, who is responsible for our evolutionary process.<br>
+It is only through Śhrī Viṣhṇu that we evolve. He is the aspect which gives us dharma: dharma is our sustainance [sustenance]. Through changing our sustainances [sustenances] or our capacities we have evolved.<br>
+<font color="red">Like, I can say, carbon was at Mūlādhāra chakra. And this carbon achieved matter got Prāṇa into it, by which it started moving as a living thing. This living thing then grew into higher and higher awareness, till it reached a ... reached a stage where you were an animal and then you had to become a human being. The first human beings were short people. That Incarnation of ... Incarnation of the short people is called as Vāmana.</font>"<br>
 <font size="+0"><b>1981-0401 Public Program, Cycle 1, Day 5, Viśhuddhi and Āgñyā Chakras, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
 </p>
 
