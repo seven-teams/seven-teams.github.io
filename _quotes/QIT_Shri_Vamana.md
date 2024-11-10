@@ -163,11 +163,4 @@ It was Śhrī Kṛiṣhṇa only who first started talking about spiritual life,
 
 <div class="para-divider"></div>
 
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
