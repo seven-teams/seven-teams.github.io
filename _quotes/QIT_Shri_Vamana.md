@@ -148,9 +148,9 @@ It was Śhrī Kṛiṣhṇa only who first started talking about spiritual life,
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"His channel is the evolutionary path, and His Ten Incarnations of the Virāṭa have helped mankind to evolve:<br>
+<font color="red">"His channel is the evolutionary path, and His Ten Incarnations of the Virāṭa have helped mankind to evolve:</font><br>
 ......<br>
-&emsp;<i>v. Short Man ...... Vāmana Avatāra"</font><br>
+&emsp;<font color="red"><i>v. Short Man ...... Vāmana Avatāra</i>"</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play</b></font>
 </p>
 
