@@ -9,7 +9,7 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">As you must have heard of Rāja Balī [Mahābalī or Māveli] when Vāmana Avatār occurred. Rāja Balī was said to be religious person.</font> [<b>Variant:</b> <font color="red">You must have heard about king Bali when Vāmana Incarnation took place. Rāja Balī was a religious person.<\font>] But he did Yagñya.<br>
+"<font color="red">As you must have heard of Rāja Balī [Mahābalī or Māveli] when Vāmana Avatār occurred. Rāja Balī was said to be religious person.</font> [<b>Variant:</b> <font color="red">You must have heard about king Bali when Vāmana Incarnation took place. Rāja Balī was a religious person.</font>] But he did Yagñya.<br>
 For getting creative powers people do Yagñya.<br>
 ......<br>
 If we acquire it without the shadow of dharma, then it can also have a negative impact as in Rāja Balī.<br>
@@ -133,7 +133,7 @@ And also there is a case of uh this coming to a king uh Śhrī Viṣhṇu as Vā
 "Like, if Śhrī Kṛiṣhṇa had not come we would not have known really the significance of spiritual life. He was the first who talked of spiritual life.<br>
 Rāma did not talk of spiritual life, though there was an undercurrent in India. People knew there is spiritual life because there were Saints, there were uh-uh lots of uh-uh-uh, what you call the, uh-uh-uh Seers, all of them were talking about it. But no Incarnation talked about spiritual life.<br>
 <font color="red">We had Vāmana Avatāra, then we had Paraśhurāma, we had so many of these people, never, never They talked of spiritual life, never.</font><br>
-It was Śhrī Kṛiṣhṇa only who first started talking about spiritual life, and only to Arjuna He talked. Because, you see, what was the condition: people were not prepared."</font><br>
+It was Śhrī Kṛiṣhṇa only who first started talking about spiritual life, and only to Arjuna He talked. Because, you see, what was the condition: people were not prepared."<br>
 <font size="+0"><b>1990-0819 Śhrī Kṛiṣhṇa Pūjā, Hallowtree Scout Campsite, Nacton, Ipswich IP10 0JP, Essex, UK</b></font>
 </p>
 
