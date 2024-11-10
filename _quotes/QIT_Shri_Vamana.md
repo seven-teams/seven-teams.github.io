@@ -1,9 +1,9 @@
 ---
-title: 'ŚHRĪ MANDODARĪ in the Words of ŚHRĪ MĀTĀJĪ'
-date: 2024-11-09
-permalink: /quotes/2024/1109
+title: 'ŚHRĪ VĀMANA in the Words of ŚHRĪ MĀTĀJĪ'
+date: 2024-11-10
+permalink: /quotes/2024/1110
 tags:
-  - crimson @ Shri Mandodari
+  - crimson @ Shri Vamana
 ---
 
 <div class="para-divider"></div>
