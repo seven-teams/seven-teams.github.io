@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 8 Photos of the special event <font color="Crimson"><b> 198x-0000 Pūjā, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 8 high resolution from the Named Collections.<br>
-The direct link to the 8 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mahipalsingh-Jaisingh-Raul-Collection/198x"><font color="DarkGreen">Collection 198x</font></a>.<br> 
+The direct link to the 8 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Raj-Kunwar-Raul-Collection/198x"><font color="DarkGreen">Collection 198x</font></a>.<br> 
 [Note: title changed on 2024-0901; prior date 1981-0114 was marked as "(event not sure)."]<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>

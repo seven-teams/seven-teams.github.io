@@ -11,7 +11,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1909-0000 Lotus Feet T</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 medium resolutions from the Named Collections.<br>
-The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mahipalsingh-Jaisingh-Raul-Collection/1909"><font color="DarkGreen">Collection 1909</font></a>.<br>
+The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Raj-Kunwar-Raul-Collection/1909"><font color="DarkGreen">Collection 1909</font></a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

@@ -11,7 +11,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 3 Photos of the special event <font color="Crimson"><b>1979-0227 Public Program, Dhule, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions and 1 medium resolution from the Named Collections.<br>
-The direct link to the 3 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mahipalsingh-Jaisingh-Raul-Collection/1979"><font color="DarkGreen">Collection 1979</font></a>.<br>
+The direct link to the 3 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Raj-Kunwar-Raul-Collection/1979"><font color="DarkGreen">Collection 1979</font></a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 [Note: one Photo uploaded only on 2024-1011.]<br>
 <br>

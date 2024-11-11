@@ -11,7 +11,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>1920-0000 Event B, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 medium resolution from the Named Collections.<br>
-The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mahipalsingh-Jaisingh-Raul-Collection/1920"><font color="DarkGreen">Collection 1920</font></a>.<br>
+The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Raj-Kunwar-Raul-Collection/1920"><font color="DarkGreen">Collection 1920</font></a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

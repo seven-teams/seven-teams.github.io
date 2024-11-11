@@ -24,7 +24,7 @@ The Comprehensive Compilations Team<br>
 
 <div class="para-divider"></div>
 
-<font color="DarkGreen"><b>L1.</b></font> <b>1903-0000 Horoscope Letter (Marathi), Page 2 (Mahipalsingh Jaisingh Raul Collection, scanned by Ankit Khare)</b> (2 pages as jpgs, uploaded on 2023-0531)
+<font color="DarkGreen"><b>L1.</b></font> <b>1903-0000 Horoscope Letter (Marathi), Page 2 (Raj Kunwar Raul Collection, scanned by Ankit Khare)</b> (2 pages as jpgs, uploaded on 2023-0531)
 
 <div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1903_0000_Horospope_Letter_(Marathi)_Page_1_(Mahipalsingh_Jaisingh_Raul_Collection_scanned_by_Ankit_Khare).jpg" /></div>
 
@@ -32,7 +32,7 @@ The Comprehensive Compilations Team<br>
 
 <br>
 
-<font color="DarkGreen"><b>L2.</b></font> <b>1981-1222 Letter (Marathi) of Ramesh Modi to Raul Bāī (Mahipalsingh Jaisingh Raul Collection, scanned by Ankit Khare)</b> (1 page from jpg, uploaded on 2023-0329)
+<font color="DarkGreen"><b>L2.</b></font> <b>1981-1222 Letter (Marathi) of Ramesh Modi to Raul Bāī (Raj Kunwar Raul Collection, scanned by Ankit Khare)</b> (1 page from jpg, uploaded on 2023-0329)
 
 <div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1981-1222_Letter_(Marathi)_of_Ramesh_Modi_to_Raul_Bai_(Mahipalsingh_Jaisingh_Raul_Collection_scanned_by_Ankit_Khare).jpg" /></div>
 
