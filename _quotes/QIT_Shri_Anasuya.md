@@ -91,10 +91,10 @@ You see, a guest who comes to your house can demand anything, according to India
 <font color="red">So They came in and They'll said that, "We want You to serve our food naked. Take out all Your clothes and You must[<font color="orange">unclear</font>]."</font><br>
 Now, you can't say no to your guests. Because that is your dharma.<br>
 "It's all right, I will do it."<br>
-<font color="red">And She said ... as soon as She started, both of Them -- undressing -- both of Them became small, little children. Three of Them. [As a Sahaja Yogi laughs:] Little, little babies, you see, She undressed Herself. And the little baby doesn't understand anything, and She nursed Them together. And She ... then She said, "Now!" She combined Them together, and that's how Dattātreya [has] three faces. Innocence of these people, She brought Them to Their innocences -- was created. This is the innocence of all these Three Deities was[<font color="orange">unclear</font>].</font><br>
+<font color="red">And She said ... as soon as She started, both of Them -- undressing -- both of Them became small, little children. Three of Them. [As a Sahaja Yogi laughs:] Little, little babies, you see, She undressed Herself. And the little baby doesn't understand anything, and She nursed Them together. And She ... then She said, "Now!" She combined Them together, and that's how Dattātreya [has] three faces. Innocence of these people, She brought Them to Their innocences -- was created. This is the innocence of all these Three Deities was [<font color="orange">unclear</font>].</font><br>
 Because Christ is the innocence[<font color="orange">unclear</font>].<br>
 These three form this innocence part to balance you.<br>
-And [moving twice the right index finger along the top part of the forehead, from left to right:] at this stage They come, here, as[<font color="orange">unclear</font>]."<br>
+And [moving twice the right index finger along the top part of the forehead, from left to right:] at this stage They come, here, as [<font color="orange">unclear</font>]."<br>
 <font size="+0"><b>1981-092x Conversation with Sahaja Yogis, Three Hours Sightseeing Tour on a Boat of 'Circle Line', Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
