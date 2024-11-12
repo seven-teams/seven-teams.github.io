@@ -112,7 +112,7 @@ And is supposed to be a great privilege in India to give alms to others, to -- I
 "Last time you had asked Me for Guru Pada. And you should know that the essence of Guru is Śhrī Gaṇeśha, the innocence.<br>
 <font color="red">You must be knowing the story of a very devoted wife, faithful wife, of a Satī, Her name was Anasūyā, and She was so religious and so dedicated that they say that the wives of all the Gods, Brahmā, Viṣhṇu, Maheśha, got very jealous of Her. So, They told Their husbands that, "You must go and test Her, if She is really a woman with chastity or not."<br>
 So all of Them came down as Sādhus, dressed up like saṃnyāsīs. And She said it, She wanted to serve Them, give Them something. They said, "No, We want to have food." She said, "All right, come and sit down." She cooked food for them. So They said, "No, We will not have the food unless and until You take out all Your clothes. We will only ha... have the food unless and until You take out all Your clothes. We'll only have the food if You take out all your clothes." She said, "Is it so?" She [They] said, "Yes." So She made Them into little, little children, three little children. [Laughing:] And then She became nude, because innocent doesn't understand anything about [it]. And then is She joined Them together, Their three innocence was joined together, and They got Their Guru Pada.</font><br>
-That's how the Ādi Guru was created."</font><br>
+That's how the Ādi Guru was created."<br>
 <font size="+0"><b>1992-0830 Śhrī Gaṇeśha Pūjā, Understand the Essential Fundamental Principles of Śhrī Gaṇeśha and If You Want Your Guru Pad You Have to Be Innocent (First is Wisdom or Genetic of Wisdom), Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
