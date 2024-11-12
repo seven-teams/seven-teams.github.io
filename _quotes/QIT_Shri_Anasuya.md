@@ -119,13 +119,6 @@ That's how the Ādi Guru was created."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
 "<font color="red">During the Tretā Yuga, at the time of Śhrī Rāma, Ādi Śhakti incarnated in three separate human personalities, expressing Her three aspects:<br>
 &emsp;1. Sītā [Jānakī] (Mahālakṣhmī) as the daughter of Rāja Janaka</font><br>
 &emsp;&emsp;This was the first absolute human form (<i>Laukik</i>)"<br>
