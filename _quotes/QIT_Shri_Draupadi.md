@@ -189,11 +189,11 @@ Kanyā is the pure power, absolute power, who, after reaching the Viśhuddhi cha
 
 <p>
 "So one must understand how to handle a sister.<br>
-<font color="red">In this case, we have to know that the same [Viṣhṇumāyā] was born, again, at the time of Śhrī Kṛiṣhṇa as Draupadī. She took Her birth as Draupadī. And when Draupadī was attacked by the Kauravas, they wanted to remove Her sāṛī. So remove the sāṛī itself is a symbol that they challenged Her chastity.<br>
+<font color="red">In this case, we have to know that the same [Viṣhṇumāyā] was born, again, at the time of Śhrī Kṛiṣhṇa as Draupadī. She took Her birth as Draupadī. And when Draupadī was attacked by the Kauravas, they wanted to remove Her sāṛī. So remove the sāṛī itself is a symbol that they challenged Her chastity.</font><br>
 Now if you see in the Māyā Nagarī, women have no sense at all that they should cover this part of their body. In this Māyā Nagarī, the other way round. When I heard a very responsible person saying, that, "In our culture, women must expose their body." What is this culture? Is antic ... anti-Kṛiṣhṇa, completely anti-Viṣhṇumāyā.<br>
 ......<br>
 So how the brother's love can compel even Ādi Śhakti to do things that She would not normally do.<br>
-<font color="red">In the same way, when Draupadī was challenged, Śhrī Kṛiṣhṇa was not in Hastināpur where it had happened. He was thousand, at least, more than thousand miles, away from that place. But is said that, "Śhaṅkha, Chakra, Gadā, Padma, Garuḍa layi sidhari." He came on His condor with all His weapons: Śhaṅkha, Chakra, Gadā, Padma. All these He brought to save the chastity of His sister.</font>:<br>
+<font color="red">In the same way, when Draupadī was challenged, Śhrī Kṛiṣhṇa was not in Hastināpur where it had happened. He was thousand, at least, more than thousand miles, away from that place. But is said that, "Śhaṅkha, Chakra, Gadā, Padma, Garuḍa layi sidhari." He came on His condor with all His weapons: Śhaṅkha, Chakra, Gadā, Padma. All these He brought to save the chastity of His sister.</font><br>
 <font size="+0"><b>1987-0809 Śhrī Viṣhṇumāyā Pūjā, Y.M.C.A. Holiday Hills Conference Center, 2 Lakeside Drive, Pawling, NY, U.S.A</b></font>
 </p>
 
@@ -202,7 +202,7 @@ So how the brother's love can compel even Ādi Śhakti to do things that She wou
 <p>
 "Uh as I told you that, I have already talked to you how the-ee war between Alexander and Puru's was finished because of a sister's intervention.<br>
 <font color="red">And, also, how Śhrī Kṛiṣhṇa, whose sister was Draupadī, Viṣhṇumāyā was born as Draupadī, and how He came to save Her chastity, by rushing all the way from Dvārika.</font><br>
-So, we can see that when we ascend in the Collective Consciousness and we have collective living, collective meeting, at the Viśhuddhi chakra, Śhrī Kṛiṣhṇa establish[ed] this, or He manifested uh this pure relationship of a sister."</font><br>
+So, we can see that when we ascend in the Collective Consciousness and we have collective living, collective meeting, at the Viśhuddhi chakra, Śhrī Kṛiṣhṇa establish[ed] this, or He manifested uh this pure relationship of a sister."<br>
 <font size="+0"><b>1990-0807 Rakṣhābandhan Pūjā, Room, House of Dr. Vinod Worlikar, 17301 Maria Avenue, Cerritos (32 kms SE of Los Angeles), CA, U.S.A.</b></font>
 </p>
 
