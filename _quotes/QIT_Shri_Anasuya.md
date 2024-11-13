@@ -124,7 +124,7 @@ That's how the Ādi Guru was created."<br>
 &emsp;&emsp;This was the first absolute human form (<i>Laukik</i>)"<br>
 &emsp;<font color="red">2. Satī Anasūyā (Mahāsaraswatī) as the wife of a Great Saint</font><br>
 &emsp;3. Mandodarī (Mahākālī) as the wife of the demon Rāvaṇa<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play, Page 20</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -133,7 +133,7 @@ That's how the Ādi Guru was created."<br>
 "Maheśha (Śhiva), Viṣhṇu and Brahmadeva form the Trinity which incarnated as one teacher God, the Primordial Master, Dattātreya. He came onto this Earth to teach people the secrets of the Divine, to reveal God, and to help them cross the Ocean of Illusion themselves within their own identity. Evolution could not go further in the hands of human beings who were in the bondage of ignorance, so they were given guidance through this Incarnation of the Primordial Master (Ādi Guru) again and again in different lives. <font color="red">He was created as the three-headed child, Dattātreya, by Ādi Śhakti who appeared on Earth during the Tretā Yuga as Satī Anasūyā, wife of the Sage Atreya.</font><br>
 ......<br>
 At the time of Rāma's Incarnation Ādi Śhakti existed in three persons: Mahālakṣhmī, as Sītā, His wife; <font color="red">Mahāsaraswatī, as Satī Anasūyā who gave birth to Dattātreya, the Primordial Master</font>; and Mahākālī as Mandodarī, the wife of the demon Rāvaṇa."<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 32 to 34</b></font>
 </p>
 
 <div class="para-divider"></div>

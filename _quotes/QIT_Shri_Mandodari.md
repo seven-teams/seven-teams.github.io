@@ -172,7 +172,7 @@ Now just think, that if your mother, sister or daughter is pushed into such a ci
 &emsp;&emsp;This was the first absolute human form (<i>Laukik</i>)"<br>
 &emsp;2. Satī Anasūyā (Mahāsaraswatī) as the wife of a Great Saint<br>
 &emsp;<font color="red">3. Mandodarī (Mahākālī) as the wife of the demon Rāvaṇa</font><br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play, Page 20</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -180,7 +180,7 @@ Now just think, that if your mother, sister or daughter is pushed into such a ci
 <p>
 "<font color="red">At the time of Rāma's Incarnation Ādi Śhakti existed in three persons: Mahālakṣhmī, as Sītā, His wife; Mahāsaraswatī, as Satī Anasūyā who gave birth to Dattātreya, the Primordial Master; and Mahākālī as Mandodarī, the wife of the demon Rāvaṇa.</font><br>
 Ādi Viṣhṇu's eighth form was as Śhrī Kṛiṣhṇa during the Dwāpara Yuga, and again Ādi Śhakti took three forms. Mahākālī lived for a very short time as Viṣhṇumāyā, the infant sister of Śhrī Kṛiṣhṇa. She was actually born as the daughter of Yeśhodā, Śhrī Kṛiṣhṇa's foster mother, and was killed by the demon Kaṃsa. She later took birth as Draupadī, wife of the Pāṇḍavas."<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 34</b></font>
 </p>
 
 <div class="para-divider"></div>

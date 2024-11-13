@@ -151,14 +151,14 @@ It was Śhrī Kṛiṣhṇa only who first started talking about spiritual life,
 <font color="red">"His channel is the evolutionary path, and His Ten Incarnations of the Virāṭa have helped mankind to evolve:</font><br>
 ......<br>
 &emsp;<font color="red"><i>v. Short Man ...... Vāmana Avatāra</i>"</font><br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play, Page 14</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 "<font color="red">In His fifth Incarnation Śhrī Viṣhṇu appeared for the first time as a human being. He took the form of the Short Man (Vāmana Avatāra) who came on this Earth to give leadership to people seeking God. Vāmana was enlightened with the idea that He could capture the three worlds (<i>Triloka</i>): Earth (<i>Pṛithvī</i>), Heaven (<i>Ākāśha</i>) and Hell (<i>Pātāla</i>, the subconscious). So in corollary, this Incarnation brought forth the idea in the human mind that man can overpower all three worlds.</font> It should be understood that Ādi Viṣhṇu's Incarnations, the line of evolution, lead the way towards higher, deeper and wider spiritual awareness which is the true index by which the development of the Creation can be measured. First the individual evolution is achieved and then the collective assimilation by the masses was experienced."<br>
-<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God, Page 32</b></font>
 </p>
 
 <div class="para-divider"></div>
