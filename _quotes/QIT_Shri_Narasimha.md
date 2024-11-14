@@ -16,6 +16,13 @@ tags:
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">At the time of Narashima [Narasiṃha ] (half man half lion in the upper part) man [men] achieve a self-conscious domination over animals and natural forces.</font> Short man (Vamana) was enlightened with the idea that he could capture the three worlds (triloka) of earth, heavan and hell. This incarnation brought forth the idea in the human mind that he can overpower three worlds (Triloka)[.] It should be understood that Vishnu's incarnations, line of evolution leads the way toward higher[,] wider and deeper awareness which is the true index by which the creation's development can be measured."<br>
+<font size="+0"><b>1902-0000 Handwritten Note on Viṣhṇu's Central Path related to The Book of Ādi Śhakti, Chapter 2</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "You cheat Śhaṅkarjī and take away His wife, but then you will be in trouble.<br>
 And whatever boon He gives, there is always a loophole that gets created due to His innocence. He gives a complete blessing. But in that, there will be one or the other loophole due to which the demon gets killed.<br>
 <font color="red">You know in Narasiṃha Avatār, He had given a boon. Once the demon got caught up, he was killed.</font><br>

@@ -9,6 +9,13 @@ tags:
 <div class="para-divider"></div>
 
 <p>
+"At the time of Narashima [Narasiṃha ] (half man half lion in the upper part) man [men] achieve a self-conscious domination over animals and natural forces. <font color="red">Short man (Vamana) was enlightened with the idea that he could capture the three worlds (triloka) of earth, heavan and hell. This incarnation brought forth the idea in the human mind that he can overpower three worlds (Triloka)[.]</font> It should be understood that Vishnu's incarnations, line of evolution leads the way toward higher[,] wider and deeper awareness which is the true index by which the creation's development can be measured."<br>
+<font size="+0"><b>1902-0000 Handwritten Note on Viṣhṇu's Central Path related to The Book of Ādi Śhakti, Chapter 2</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "<font color="red">As you must have heard of Rāja Balī [Mahābalī or Māveli] when Vāmana Avatār occurred. Rāja Balī was said to be religious person.</font> [<b>Variant:</b> <font color="red">You must have heard about king Bali when Vāmana Incarnation took place. Rāja Balī was a religious person.</font>] But he did Yagñya.<br>
 For getting creative powers people do Yagñya.<br>
 ......<br>

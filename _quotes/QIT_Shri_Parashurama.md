@@ -10,6 +10,22 @@ tags:
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"The incarnation of Parashurama (the strong man) created an awareness of physical and mental power tequnique [technique]. The seekers discovered many new methods of meditation.<br>
+......<br>
+Right from Parashurama's son onward we find a great galaxy of very hot tempered ascetic[s]. How can these people without any Divine Love achieve salvation.[?]"</font><br>
+<font size="+0"><b>1902-0000 Handwritten Note on Haṭha Yoga related to The Book of Ādi Śhakti, Chapter 7</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"In his incarnation of strong man (Parasurama [Paraśhurāma]) Vishnu brought forth the powers achieved by self control (Tepobala). Human beings became aware of the strength of the spiritual life and started a new search of the inner life in the forest. The search was individual and the seeker absolutely secluded himself from the society. He lived in forests to persue [pursue] his search day and night for years often lives after lives."</font><br>
+<font size="+0"><b>1902-0000 Handwritten Note on Viṣhṇu's Central Path related to The Book of Ādi Śhakti, Chapter 2</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "It is very surprising that till today My experience with Haṭha Yogis &#8211; there are many Haṭha Yogis in America also &#8211; has been that all of them have heart troubles. It is very surprising. Haṭha Yogis are especially great worshipers of Śhivjī.<br>
 <font color="red">The reason is that Haṭha Yoga is not for people leading a worldly life but for those living in the jungles, like Paraśhurām.</font> It is another thing to do a little within balance, but Haṭha Yoga is not meant for you people. If you do it in extreme, then your heart will suffer from problems."<br>
 <font size="+0"><b>1975-1222 Public Program (Hindi), Day 1, Prabhu ke Prem kā Anubhav (Experiences of Lord's Love), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
@@ -39,6 +55,13 @@ And they also see them when their Kuṇḍalinī moves. You see, they see the so
 And so, they studied every sound: how which sound was created, what sound was created, what color was there.<br>
 And so it is the one-sided knowledge of the right-hand side, of the people who went to the right-hand side that they say, that, 'This thing was created,' 'That thing was created,' and then, 'This sound was created.' "<br>
 <font size="+0"><b>1977-0126 Talk to Sahaja Yogis (28th Republic Day), Day 1, Questions on Chakras, Bordi, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"After that, the Incarnation of Paraśhurāma showed that humans can conquer whatever problems arise from their anger or strength, or any natural problems that we face from nature. Therefore, the Incarnation of Paraśhurāma happened."</font><br>
+<font size="+0"><b>1979-0117 Public Program (Hindi), Day 4, Chakroṃ para Upasthita Devatā (Deities on All Chakras), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -76,7 +99,7 @@ There was a trick in that. Paraśhurāma is also an Incarnation of Śhrī Viṣh
 Why these two Incarnations came together? Because when Paraśhurāma came, He was a strong man, very strong, fiery, extremely fiery, and in those days people only cared for very strong people. He had captured the hearts of people through His fierce nature.</font><br>
 In human beings there are of different levels at different times.<br>
 <font color="red">Then when Rāma came and when Paraśhurāma recognized Him, then people had to recognize Rāma."</font><br>
-<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5&#8211;12</b></font>
+<font size="+0"><b>1979-0328 Public Address, Inauguration of The Advent (Guḍhī Pāḍavā Day), FICCI Auditorium, 1 Tansen Mārg, New Delhi, India from Anant Jeevan, Issue 1 (July 1979), Pages 5--12</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -89,7 +112,7 @@ Then why did Kṛiṣhṇa Himself reincarnated so many times on this Earth? Did
 <font color="red"><b>Śhrī Mātājī:</b></font> Why did He incarnate?<br>
 Did He not? <font color="red">He came as a fish, then He came as this and that and that, and then He came as Rāma, Paraśhurāma, and then He came as Śhrī Kṛiṣhṇa.</font><br>
 Why? How? Because He at least was beyond karmas."<br>
-<font size="+0"><b>1979-0616 Public Program, This Is Not the Work of Mediocres, House of Dr. Johnson, Birmingham, UK</b></font>
+<font size="+0"><b>1979-0616 Public Program, This Is Not the Work of Mediocres, House of Dr. Johnson, Birmingham, West Midlands, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -168,7 +191,7 @@ Very good. Not to believe in the person who has come now, but to believe in some
 Actually it does not.<br>
 But you can use that Guru as you like. About Kṛiṣhṇa you can say what you like. About Rāma what, you say what you like. About Nāṇaka you say what you like. About everybody you can say what you like. That, 'He said so,' 'He said so,' they all feel they have become themselves the gurus. Because you can use them also very well.<br>
 But they cannot give you Realization, that's a fact."<br>
-<font size="+0"><b>1982-0223 Public Program (English+Hindi), Day 6, The Universal Sahaja Yoga Temple (Āśhram), Deities that Adorn the Centers, and After Self-realization, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India (place not sure)</b></font>
+<font size="+0"><b>1982-0223 Public Program (English + Hindi), Day 6, The Universal Sahaja Yoga Temple (Āśhram), Deities that Adorn the Centers, and After Self-realization, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India (place not sure)</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -181,7 +204,7 @@ One was Lakṣhmaṇa, and he was that fiery type, you see. He couldn't bear any
 <font color="red">Even Paraśhurāma who was, there, a contemporary Incarnation of Śhrī Rāma Himself was Paraśhurāma. Is a very interesting story about that.<br>
 But, he could not bare Paraśhurāma in any way</font> [<font color="Orange">gap</font>]<br>
 ...... He is the Śheṣha as they call it: the ... the serpent which sleeps in the Bhavasāgara, on which Śhrī Viṣhṇu rests. The same Śheṣha had taken birth as Śhrī Lakṣhmaṇa."<br>
-<font size="+0"><b>1982-0402 Śhrī Rāma Pūjā, Rāma Navamī, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
+<font size="+0"><b>1982-0402 Śhrī Rāma Pūjā (Rāma Navamī Day), Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -248,6 +271,14 @@ Now when I have come, you are talking about Kṛiṣhṇa. Where is He?"<br>
 <div class="para-divider"></div>
 
 <p>
+"<font color="red">When Śhrī Rām's Incarnation came, people said, ``We don't believe in You. Before You, Paraśhurām came, we believe in Him."</font> Because when Śhrī Rām came, He was sākṣhāt among them and you had to stand before Him. They had to see the truth in the present time.<br>
+Truth should be understood in the present only. But we will believe in Them who have gone."<br>
+<font size="+0"><b>1986-1201 Public Program (Hindi), Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Why, whas [what's] the matter with you? Why? What is it? You come and sit here, this side. Come along, Tina! Come and sit on the other side! Why do you talk to her? Go and sit at the back! Go.<br>
 She's already given Me a very bad time in Poona [Pune]. And now, here she is.<br>
 While I'm talking, please don't talk to each other! This is the least you can do to Me. Have you seen any Indians behaving like this?<br>
@@ -260,7 +291,7 @@ But in Sahaja Yoga [raises Her shoulders], you can't carry on like Śhrī Rāma.
 ......<br>
 [After the crown is removed, before Āratī with the garland on, refers to the second bow:] [Laughs.] Is kamāl hai [is (a) feat]! Is a real professional one!<br>
 <font color="red">So, one belongs to Paraśhurāma and one belongs to Rāma!</font>" [Laughter.]<br>
-<font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Switzerland</b></font>
+<font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Vaud, Switzerland</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -301,7 +332,7 @@ So, all Gods were brought to the level of human beings, with ... 'bestowed' with
 
 <p>
 "But as human beings have evolved, even the Deities have evolved Themselves accordingly. <font color="red">So it was a fish, and then, then a tortoise, and like that, it went on, till we come to the stage of Vāmana Avatāra where it was a small man, then a big man, a tall, big man, a Greek, who we call as Zeus, is Paraśhurāma.</font> And then came Śhrī Rā... Śhrī Rām."<br>
-<font size="+0"><b>1990-0817 Talk to Sahaja Yogis, before the Evening Program, the Friday before Śhrī Kṛiṣhṇa Pūjā, Hallowtree Scout Campsite, Nacton, Ipswich IP10 0JP, UK</b></font>
+<font size="+0"><b>1990-0817 Talk to Sahaja Yogis, before the Evening Program, the Friday before Śhrī Kṛiṣhṇa Pūjā, Hallowtree Scout Campsite, Nacton, Ipswich IP10 0JP, Essex, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -313,7 +344,7 @@ Rāma did not talk of spiritual life, though there was an undercurrent in India.
 <font color="red">We had Vāmana Avatāra, then we had Paraśhurāma, we had so many of these people, never, never They talked of spiritual life, never.</font><br>
 It was Śhrī Kṛiṣhṇa only who first started talking about spiritual life, and only to Arjuna He talked. Because, you see, what was the condition: people were not prepared. So those people, Sahaja Yogis, who feel frustrated today, because there are not many Sahaja Yogis or the there's a[n] obstruction, there are certain problems, must know that at the time of Śhrī Kṛiṣhṇa, He could dare speak about spirituality only to one person, and that one was Arjuna.<br>
 So, I mean, we are much better off, you see? [As laughter starts:] Aren't we?"<br>
-<font size="+0"><b>1990-0819 Śhrī Kṛiṣhṇa Pūjā, Hallowtree Scout Campsite, Nacton, Ipswich IP10 0JP, UK</b></font>
+<font size="+0"><b>1990-0819 Śhrī Kṛiṣhṇa Pūjā, Hallowtree Scout Campsite, Nacton, Ipswich IP10 0JP, Essex, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -335,14 +366,27 @@ So, I mean, we are much better off, you see? [As laughter starts:] Aren't we?"<b
 <div class="para-divider"></div>
 
 <p>
-"Ādi Śhakti incarnated as Durgā a thousand times to protect such Saints, and apart from these full Incarnations She also manifested Her Powers through many chaste women of India in a partial form (<i>Aṃśhāvatāra</i>). <font color="red">The Incarnation of Ādi Viṣhṇu as Paraśhurāma. (the Strong Man) created an awareness of the techniques of physical and mental powers. Seekers discovered many new methods of meditation through such discoveries.</font>"<br>
+"Ādi Śhakti incarnated as Durgā a thousand times to protect such Saints, and apart from these full Incarnations She also manifested Her Powers through many chaste women of India in a partial form (<i>Aṃśhāvatāra</i>). <font color="red">The Incarnation of Ādi Viṣhṇu as Paraśhurāma. (the Strong Man) created an awareness of the techniques of physical and mental powers. Seekers discovered many new methods of meditation through such discoveries.</font><br>
+......<br>
+There are many examples of cruel and ascetic Haṭha Yogis (<i>saṃnyāsins</i>) in ancient times. One of them was Viśhwāmitra who went after many truthful and saintly householders. Rāja Hariśhchandra, a noble king, was cruelly tortured by him. From Paraśhurāma's son onwards there was a steady stream of very hot tempered ascetics. It is hard to imagine how such people, devoid of any Divine Love, can achieve their salvation."<br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 7: Haṭha Yoga and Rāja Yoga, Page 105</b></font>
 </p>
 
 <div class="para-divider"></div>
 
-[Download pdf here](http://bit.ly/3x3O6L7)
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+
+<div class="para-divider"></div>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
-
-Quotes on Incarnations Team
