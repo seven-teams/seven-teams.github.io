@@ -1109,12 +1109,24 @@ All these sinful things were devised afterwards."<br>
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">Though this Incarnation is such that It never dies. Even if They leave the body, They are always around. And They are the Ones who perform lots of miracles when any other Incarnation comes on this Earth. They help, support, guide that seekers to go to the Incarnations.<br>
-So, to celebrate His [Śhrī Guru Nāṇaka's] birthday, on such a date, is also a myth because He never died. He is eternally living: They never grow and They never die.<br>
-But His birth is important, because, symbolically, He came on this Earth not to propagate any particular type of the Void as Muhammad did, or, say, Moses did, David, Moses and then, before that Abraham, Lao Tze, or Socrates, which followed into a religion. But He came to create amenity, amity we can say, to create understanding, to create unity between the religions. This was a very big step for Sahaja Yoga.<br>
-After that as you know, He was born again, God knows where, no one knows where He was born, but He appeared as Śhirḍī Sāī Nāth. He too said the same thing: that, 'To talk ill of any religion is a sin.'</font>
+"Today is the famous, great, Full Moon. Is called as: Śhārada ... Indu. Śhārada Indu.<br>
+That's the name of the Goddess also, Śhārada Indu.<br>
+Is the Moon on the autumn season. Uh this is the biggest Moon, and the -- of course not in England, but in India -- that day the Moon is-ss giving the greatest light, you see?<br>
+<font color="red">And is such a great thing that Guru Nāṇaka was born on such a date.</font><br>
 ......<br>
-So, try to gather nourishment. Like reading Devī Māhātmyam, reading about ... finding out about Bible and finding about other Scriptures, about Qur'ān, this, that, and which supports you, which nourishes you. <font color="red">Blake, Kabīr, Nāṇak, I mean there are so many, Lao Tze. This is the Guru: is the knowledge.</font>"<br>
+<font color="red">Oh ... and this great personality was born in Punjab, where people were unaware of God's ways.<br>
+He was, always, bothered about the dharma in all His lives. Because as you know He was the Primal Master. And the Primal Master is always placed in looking after our Void, in sustaining us, and giving us a model of an Ideal Master.<br>
+And He always took birth either in the most difficult places like hills and dales and mountains, or They took places-s-s which are even more difficult things, among people who were horrid, and who needed Their help.</font><br>
+......<br>
+<font color="red">That's how, in those circumstances where there was a quarrel going on between the followers of Muhammad and followers of Hinduism, Muhammad Himself took His birth, on this Earth, though He had decided not to take any more births. He thought that: 'It will solve the problem.' <br>
+Though this Incarnation is such that It never dies. Even if They leave the body, They are always around.<br>
+And They are the Ones who perform lots of miracles when any other Incarnation comes on this Earth. They help, support, guide that seekers to go to the Incarnations.<br>
+So, to celebrate His birthday, on such a date, is also a myth because He never died. He is eternally living: They never grow, and They never die.<br>
+But His birth is important, because, symbolically, He came on this Earth not to propagate any particular type of the Void as Muhammad did, or, say, Moses did, David did, Moses and then, before that Abraham, Lao Tze, or Socrates, which followed into a religion. But He came to create amenity ... amity we can say, to create understanding, to create unity between the religions.<br>
+This was a very big step for Sahaja Yoga.<br>
+After that as you know, He was born again, God knows where, no one knows where He was born, but He appeared as Śhirḍī Sāī Nāth. He too said the same thing: that, "To talk ill of any religion is a sin."<br>
+......<br>
+So, try to gather nourishment. Like reading Devī Māhātmyam, reading about ... finding out about Bible and finding about other Scriptures, about Qur'ān, this, that, and which supports you, which nourishes you. <font color="red">Blake, Kabīr, Nāṇak, I mean there are so many, Lao Tze. This is the Guru: is a knowledge.</font>"<br>
 <font size="+0"><b>1982-1101 Talk to Sahaja Yogis (Śhrī Guru Nāṇaka Jayanti), Every Sahaja Yogi Has to Become a Guru, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>
 

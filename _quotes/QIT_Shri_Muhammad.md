@@ -1286,10 +1286,12 @@ This balancing is done by people who incarnate on this Earth as Great Prophets. 
 <div class="para-divider"></div>
 
 <p>
-"Though this Incarnation is such that It never dies. Even if They leave the body, They are always around. And They are the Ones who perform lots of miracles when any other Incarnation comes on this Earth. They help, support, guide that seekers to go to the Incarnations.<br>
-So, to celebrate His [Śhrī Guru Nāṇaka's] birthday, on such a date, is also a myth because He never died. He is eternally living: They never grow and They never die.<br>
-<font color="red">But His birth is important, because, symbolically, He came on this Earth not to propagate any particular type of the Void as Muhammad did, or, say, Moses did, David, Moses and then, before that Abraham, Lao Tze, or Socrates, which followed into a religion.</font> But He came to create amenity, amity we can say, to create understanding, to create unity between the religions. This was a very big step for Sahaja Yoga.<br>
-After that as you know, He was born again, God knows where, no one knows where He was born, but He appeared as Śhirḍī Sāī Nāth. He too said the same thing: that, 'To talk ill of any religion is a sin.' "<br>
+"Though this Incarnation is such that It never dies. Even if They leave the body, They are always around.<br> 
+And They are the Ones who perform lots of miracles when any other Incarnation comes on this Earth. They help, support, guide that seekers to go to the Incarnations. <br>
+So, to celebrate His birthday, on such a date, is also a myth because He never died. He is eternally living: They never grow, and They never die.<br>
+<font color="red">But His birth is important, because, symbolically, He came on this Earth not to propagate any particular type of the Void as Muhammad did, or, say, Moses did, David did, Moses and then, before that Abraham, Lao Tze, or Socrates, which followed into a religion.</font> But He came to create amenity ... amity we can say, to create understanding, to create unity between the religions.<br>
+This was a very big step for Sahaja Yoga.<br>
+After that as you know, He was born again, God knows where, no one knows where He was born, but He appeared as Śhirḍī Sāī Nāth. He too said the same thing: that, "To talk ill of any religion is a sin." "<br>
 <font size="+0"><b>1982-1101 Talk to Sahaja Yogis (Śhrī Guru Nāṇaka Jayanti), Every Sahaja Yogi Has to Become a Guru, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>
 
@@ -1321,7 +1323,7 @@ In Sahaja Yoga lung... language we call it Mahākālī, Mahālakṣhmī, Mahāsa
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">Everyone has said it: Christ has said it, Muhammad has said it, Buddha has said it, Mahāvīra has said it.</font> Everyone has said the same thing! Like Lao Tze, you can say Zen system, everything has said that, ``You are to be born-again," there has to be some transformation within you. They didn't tell us lies!"<br>
+"<font color="red">Everyone has said it: Christ has said it, Muhammad has said it, Buddha has said it, Mahāvīra has said it.</font> Everyone has said the same thing! Like Lao Tze, you can say Zen system, everything has said that, "You are to be born-again," there has to be some transformation within you. They didn't tell us lies!"<br>
 <font size="+0"><b>1983-0308 Press Conference, The Hotel Windsor, 111 Spring Street, Melbourne, Australia</b></font>
 </p>
 
@@ -1673,7 +1675,7 @@ He attended the wedding! That means, did He want to encourage the original sin�
 <div class="para-divider"></div>
 
 <p>
-"William Blake, a great poet from England, has said that, ``This idea of original sin has been invented by some devil."<br>
+"William Blake, a great poet from England, has said that, "This idea of original sin has been invented by some devil."<br>
 <font color="red">According to this [idea], everybody and every Incarnation, like Śhrī Kṛiṣhṇa, Śhrī Rāma, Muhammad Sāhab, Nāṇak Sāhab, Lao Tze, everybody is a sinner!</font><br>
 Such an absurd thing that was put forward, and because it was a very dominating religion, was the official religion behaving like a tyrannical king, people had to accept! Those people who did not believe in it were boiled, were roasted in the huts."<br>
 <font size="+0"><b>1992-0724 Public Program, Salle Gaveau, 45-47 Rue La Boétie, Paris, France</b></font>

@@ -1,5 +1,5 @@
 ---
-title: '2023 Celebrating Śhrī Guru Nāṇaka Jayanti: May God bless you all! This day, in the name of Nāṇaka, I bless you all with that great spirit of mastery" '
+title: '2023 Celebrating Śhrī Guru Nāṇaka Jayanti: "May God bless you all! This day, in the name of Nāṇaka, I bless you all with that great spirit of mastery" '
 date: 2023-11-27
 permalink: /festivity/2023/11/27
 tags:

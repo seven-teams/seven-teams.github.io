@@ -199,6 +199,20 @@ And that Jerusalem is going to be in England, not in India. And you are the peop
 <div class="para-divider"></div>
 
 <p>
+"So, try to gather nourishment. Like reading Devī Māhātmyam, reading about ... finding out about Bible and finding about other Scriptures, about Qur'ān, this, that, and which supports you, which nourishes you. <font color="red">Blake, Kabīr, Nāṇak, I mean there are so many, Lao Tze. This is the Guru: is a knowledge.</font>"<br>
+<font size="+0"><b>1982-1101 Talk to Sahaja Yogis (Śhrī Guru Nāṇaka Jayanti), Every Sahaja Yogi Has to Become a Guru, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"And these great people have talked, Nāṇaka has talked very clearly, very recently they have talked about these things. Hundred years back only, William Blake has talked about Sahaja Yoga. He has said, "The men of God" -- Men of God, that's you -- "will become Prophets and they will have powers to make others Prophet."<br>
 He had such hopes of making England into Jerusalem.<br>
 But where are those English? I have still to meet many."</font><br>

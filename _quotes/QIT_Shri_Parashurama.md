@@ -374,19 +374,4 @@ There are many examples of cruel and ascetic Haṭha Yogis (<i>saṃnyāsins</i>
 
 <div class="para-divider"></div>
 
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-
-<div class="para-divider"></div>
-
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
