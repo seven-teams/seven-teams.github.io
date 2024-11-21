@@ -1,5 +1,5 @@
 ---
-title: 'Photos Post 9: Early Photographs (before 1976), Part 29'
+title: 'Photos Post 9: Early Photographs (before 1976), Part 30'
 date: 2024-11-20
 permalink: /photos/2024/1120
 tags:
