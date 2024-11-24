@@ -15,7 +15,7 @@ This month 25 new Photos were uploaded to 11 Pūjas as follows (12 high resoluti
 (i) 1979-0100 Pūjā A: 3 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1979"> <font color="DarkGreen"><b>India 1979</b></font></a>.<br>
 (ii) 1979-0100 Pūjā B: 4 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1979"> <font color="DarkGreen"><b>India 1979</b></font></a>.<br>
 (iii) 1979-0100 Pūjā C: 2 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1979"> <font color="DarkGreen"><b>India 1979</b></font></a>.<br>
-(iv) 1979-012x Pūjā D: 2 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1979"> <font color="DarkGreen"><b>India 1979</b></font></a>.<br>
+(iv) 1979-0127 Pūjā D: 2 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1979"> <font color="DarkGreen"><b>India 1979</b></font></a>.<br>
 (v) 1979-1202 Guru Pūjā: 1 high resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/UK/1979"> <font color="DarkGreen"><b>UK 1979</b></font></a>.<br>
 (vi) 1980-0118 Pūjā: 1 high resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1980"> <font color="DarkGreen"><b>India 1980</b></font></a>.<br>
 (vii) 1981-0504 Sahasrāra Pūjā: 1 low resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/UK/1981"> <font color="DarkGreen"><b>UK 1981</b></font></a>.<br>
