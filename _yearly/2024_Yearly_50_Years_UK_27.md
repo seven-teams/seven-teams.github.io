@@ -19,8 +19,8 @@ tags:
 
 <p>
 "So one has to understand ... that: this is the time of Mahā Yoga, where all these Antar Yoga, means all these happening inside takes place [snaps Her fingers], automatically [snaps again].<br>
-I have something to do with your Kuṇḍalinī, very much.! And She knows Me very well too. So much so [that] as soon as She sees Me She is up there. [Snaps again.] So happy! [Snaps again.]<br>
-And the first impact is so great! You feel he's got it. [Snaps again.] She rises with such a thumping joy: `You get it!' [Snaps again.]<br>
+I have something to do with your Kuṇḍalinī, very much! And She knows Me very well too. So much so [that] as soon as She sees Me She is up there. [Snaps again.] So happy! [Snaps again.]<br>
+And the first impact is so great! You feel he's got it. [Snaps again.] She rises with such a thumping joy: 'You get it!' [Snaps again.]<br>
 ......<br>
 When this Mahā Yoga comes in, you do not have to worry about anything else! All the Yogas are at your feet. You just raise your hands just like this, and the Kuṇḍalinī will rise.<br>
 It's a fact! You just try! Anybody is sick you just put your hand like this, and the person is going to be all right. Try yourself!<br>
