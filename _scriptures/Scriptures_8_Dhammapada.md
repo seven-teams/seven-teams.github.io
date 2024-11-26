@@ -1013,7 +1013,6 @@ you should keep company with spiritual friends, you should keep company with sup
 <b>79 Transliteration</b><br>
 <font color="Peru">Dhammapīti sukhaṁ seti, vippasannena chetasā,<br>
 Ariyappavedite Dhamme sadā ramati paṇḍito.</font>
-</font>
 </p>
 
 <p>
