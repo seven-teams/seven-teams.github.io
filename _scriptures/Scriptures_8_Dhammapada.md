@@ -379,14 +379,50 @@ heedful, fame greatly increases.</font>
 
 <p>
 <b>25 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Uṭṭhānen' appamādena saṁyamena damena cha,<br>
+dīpaṁ kayirātha medhāvī yaṁ ogho nābhikīrati.</font>
 </p>
 
 <p>
 <b>25 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">By arising in faith and watchfulness, by self-possession and self-harmony, the wise man makes an island for his soul which waters cannot overflow.</font><br>
+<font color="blue">By watching and working<br>
+The master makes for himself an island<br>
+Which the flood cannot overwhelm.</font><br>
+<font color="Peru">Through activity, heedfulness, through self-control and through restraint,<br>
+the sage should make an island that no flood waters can overcome.</font>
+</p>
+
+<p>
+<b>29 Transliteration</b><br>
+<font color="Peru">Appamatto pamattesu, suttesu bahujāgaro,<br>
+abalassaṁ va sīghasso hitvā, yāti sumedhaso. </font>
+</p>
+
+<p>
+<b>29 Translations</b><br>
+<font color="DarkGreen">Watchful among unwatchful, awake amongst those who sleep, the wise man like a swift horse runs his race, outrunning those who are slow.</font><br>
+<font color="blue">Mindful among the mindless, Awake while others dream,<br>
+Swift as the race horse<br>
+He outstrips the field.</font><br>
+<font color="Peru">Heedful amongst the heedless ones, wakeful amongst the ones who sleep,<br>
+like a swift horse who abandons a weak horse, the true sage moves on.</font>
+</p>
+
+<p>
+<b>30 Transliteration</b><br>
+<font color="Peru">Appamādena Maghavā devānaṁ seṭṭhataṁ gato,<br>
+appamādaṁ pasaṁsanti, pamādo garahito sadā.</font>
+</p>
+
+<p>
+<b>30 Translations</b><br>
+<font color="DarkGreen">It was by watchfulness that Indra became the cheif of Gods, and thus the gods praise the watchful, ......</font><br>
+<font color="blue">By watching<br>
+Indra became king of the gods.<br>
+......</font><br>
+<font color="Peru">Through heedfulness Maghavā [Sakka] attained leadership of the gods,<br>
+(the good) praise heedfulness, (but) heedlessness is always blamed.</font>
 </p>
 
 <div class="para-divider"></div>
@@ -885,7 +921,6 @@ the fool undergoes suffering.</font>
 <p>
 <b>70 Transliteration</b>Māse māse kusaggena bālo bhuñjeyya bhojanaṁ,<br>
 na so saṅkhātadhammānaṁ kalaṁ agghati soḷasiṁ.<br>
-<font color="Peru"></font>
 </p>
 
 <p>
@@ -942,110 +977,85 @@ in honors, but practise alone.</font>
 
 <p>
 <b>76 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Nidhīnaṁ va pavattāraṁ yaṁ passe vajjadassinaṁ,<br>
+niggayhavādiṁ medhāviṁ tādisaṁ paṇḍitaṁ bhaje;</font>
 </p>
 
 <p>
 <b>76 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>77 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>77 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen"> Look upon the man who tells thee thy faults as if he told thee of a hidden treasure, the wise man who shows thee the dangers of life. Follow that man: he who follows him will see good and not evil.</font><br>
+<font color="blue">The wise man tells you<br>
+Where you have fallen<br>
+And where you yet may fall -<br>
+Invaluable secrets!<br>
+Follow him, follow the way.</font><br>
+<font color="Peru">One should regard someone who shows your faults just like one who points out hidden treasure,<br>
+one should keep company with such a sagacious, learned person who reproves you;<br>
+keeping company with such is (surely) better for you, not worse.</font>
 </p>
 
 <p>
 <b>78 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+bhajetha mitte kalyāṇe, bhajetha purisuttame.</font>
 </p>
 
 <p>
 <b>78 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... go with man whose soul is good</font><br>
+<font color="blue">......<br>
+Find friends who love the truth.</font><br>
+<font color="Peru">......<br>
+you should keep company with spiritual friends, you should keep company with superior people.</font>
 </p>
 
 <p>
 <b>79 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Dhammapīti sukhaṁ seti, vippasannena chetasā,<br>
+Ariyappavedite Dhamme sadā ramati paṇḍito.</font>
+</font>
 </p>
 
 <p>
 <b>79 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">He who drinks of the waters of Truth, he rests in joy with mind serene. The wise find their delight in the DHAMMA, in the Truth revealed by the great.</font><br>
+<font color="blue">Drink deeply.<br>
+Live in serenity and joy.<br>
+The wise man delights in the truth<br>
+And follows the law of the awakened.</font><br>
+<font color="Peru">The one who drinks Dhamma lives well, with a clear mind,<br>
+the wise one will always delight in the Dhamma that is made known by the Noble.</font>
 </p>
 
 <p>
 <b>80 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+attānaṁ damayanti paṇḍitā.<br>
+</font>
 </p>
 
 <p>
 <b>80 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... and the wise control their own minds.</font><br>
+<font color="blue">......<br>
+So the wise man directs his mind.</font><br>
+<font color="Peru">......<br>
+the wise master themselves.</font>
 </p>
 
 <p>
 <b>81 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Selo yathā ekaghano vātena na samīrati,<br>
+evaṁ nindāpasaṁsāsu na samiñjanti paṇḍitā.</font>
 </p>
 
 <p>
 <b>81 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>82 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>82 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>83 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>83 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>84 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>84 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Even as a grea rock is not shaken by the wind, the wise man is not shaken by praise or by. blame.</font><br>
+<font color="blue">The wind cannot shake a mountain.<br>
+Neither praise nor blame moves the wise man.</font><br>
+<font color="Peru">Just as solid rock is not shaken by the wind,<br>
+so the wise are not moved by blame or praise.</font>
 </p>
 
 <p>
@@ -1055,57 +1065,35 @@ in honors, but practise alone.</font>
 
 <p>
 <b>85 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>86 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>86 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>87 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>87 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Few cross the river of time and are able to reach NIRVANA. ......</font><br>
+<font color="blue">Few cross over the river.<br>
+......</font><br>
+<font color="Peru">Amongst humans few people go beyond,<br>
+......</font>
 </p>
 
 <p>
 <b>88 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+pariyodapeyya attānaṁ chittaklesehi paṇḍito.</font>
 </p>
 
 <p>
 <b>88 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... and free from whatever may darken his mind.</font><br>
+<font color="Peru">......<br>
+the wise one should purify the self of defilements of mind.</font>
 </p>
 
 <p>
 <b>89 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Yesaṁ sambodhi-aṅgesu sammā cittaṁ subhāvitaṁ,<br>
+......</font>
 </p>
 
 <p>
 <b>89 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">For he whose mind is well trained in the ways that lead to light ......</font><br>
 </p>
 
 <div class="para-divider"></div>
