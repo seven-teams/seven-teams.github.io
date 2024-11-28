@@ -164,7 +164,22 @@ And that Jerusalem is going to be in England, not in India. And you are the peop
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"It is such a pleasure today, and great fortune too, that here, where William Blake lived, and He sang those songs of greatness, of the greatness of this country, the future that it has to be, the dreams He saw, have now come to shape: that we are here to celebrate His anniversary. Things go beyond words and you cannot express yourself.>br>
+Many people do not understand Him because He wrote it, according to them, in abstract language, or in the language that He understood. But I am happy that Sahaja Yogis understand Him so well.<br>
+And the prophesies that He made about England, people used to riducule [ridicule], ridicule it. Even today they can't believe that Jerusalem can be built in England. They cannot believe that people who have been all their lives, for ages together, thought of nothing but materialism, can take to spirituality to this extent that it becomes Jerusalem, and that the whole world comes to pay homage to this Holy Land: that this becomes the Holy Land. Is a fact! He dreamt, He wished it. Because He knew the value of this land.<br>
+......<br>
+Since long, people knew about Kuṇḍalinī.<br>
+Even if that is lost, for history, it remains it.<br>
+And He knew about It, He spoke about It.<br>
+In His lifetime, maybe, people never understood Him: He ... they must have thought that, `He's really a madman, or something, a fantasy, or some sort of a poet,' who doesn't understand.<br>
+For what He wrote, every word of it, is the Truth.<br>
+Such a great Soul should live, in Hampstead itself, is such a blessing. Great blessing.<br>
+Such people, even if They write or not, They leave Their mark. Their ascent becomes the milestone for the people who live there: their aspirations become different, their priorities become different. The change is so subtle: is to be seen, is to be felt, to be understood.<br>
+And very sensitive people only can be born in such places. Of course, there could be very bad people also who counteract. But the sensiti-vity of the atmosphere attracts such souls to that place who are sensitive.<br>
+You can see from His poems that He was absolutely authoritative. He knew the authority, He had the authority. He talked like a man with complete authority. He had no doubt even. He has no doubts. He just said, ``This is going to happen!"<br>
+And, like a great warrior, that He knew ... He knew that one has to fight the negativity, one has to fight all these dark problems.<br>
+The Spirit has to fight all the time the matter.<br>
+And that's how He talked, spoke, wrote, [as] a warrior would do, because He started the fight when He was born here, hundred years back."</font><br>
 <font size="+0"><b>1981-1128 Public Program, You Are the Spirit, Friends Meeting House, 120 Heath Street, Hampstead, London NW3 1DR, UK</b></font>
 </p>
 
