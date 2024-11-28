@@ -73,8 +73,82 @@ That is why whatever unfinished that is left you have to complete it. You have n
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"That's One who knows as Kṣhetragñya: is the One who knows the field, field, the Knower of the field. Actually it is the Self Itself.<br>
+But His vision in us, the vision of that -- you can call, that's what I call is the shadow -- the vision of that Self, we are all the time conscious of it. It is watching us even when they are ... we are alone, when we are in company and everywhere. It is watching us. This One in the [Bhagavad] Gītā is called as Kṣhetragñya: kṣhetra is the field, and the One it's a Knower of it.<br>
+Actually the Knower is the Self. But through Its vision, through Its power of knowledge It is knowing everything and we know that It is there. ``We," that means the ego part. The ego knows that pondery [somebody] is watching it.<br>
+With Sahaja Yoga, everything, what happens: that that vision that you have throughout, becomes the vibrations, becomes energetic, in the sense that you can have a rapport with that point from where it has manifested."</font><br>
 <font size="+0"><b>1978-0220 Talk to Sahaja Yogis, What Is the Surrender (Surrender, Will, Spirit, Attention, Mind), Āśhram, 234A Regent's Park Road, Finchley, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"And that's how, when you start respecting yourself, respecting your thoughts, respecting your inspirations, your dreams, your aspirations, your visions, write them down. Whatever thought you get, write it down. Whatever inspiration you get, write it down. Whatever visions you think you should have for yourself, write it down. All that you think that should be the future, write it down, and pray for it.<br>
+The greatest quality on this one is when you respect yourself. "</font><br>
+<font size="+0"><b>1978-1002 Public Program (1st Day of Navarātri), Knots on the Three Channels, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1978-1015 Talk to Sahaja Yogis, Zen and Void, Part 1, First Western Seminar, Day 2, Session 2 (during and after tea and coffee), Conference Center, East Hampstead Park (near Wokingham, 60 kms W of London), Berkshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1978-1023 Public Program (English + Hindi), The Three Channels, Śhrī Lakṣhmī, and Śhrī Saraswatī, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1978-1030 Public Program, Sahaja Yoga as a Hypothesis, Caxton Hall, 10 Caxton Street, Westminster, London, UK (very likely)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1978-1209 Talk to Sahaja Yogis, Seminar, Day 1, St. Mary's House, Uckfield Park, Buxted, Sussex, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1979-0119 Talk to Sahaja Yogis (Marathi), Āpan Dharma Janla Pahije (We Should Recognize Our Dharma), Seminar, Day 1, Kalwa, Thane, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"We gave Realization to thousands of people. 
+<b>Version 1<b>
+Since people's vision is upright down, so we have to enlighten them and this is such a time.<br>
+......<br>
+Because I have Absolute Knowledge that you don't see, that Śhrī Nāṇak explained as Alakh. I see with that vision."<br>
+<br>
+<b>Version 2<b>
+"But the undercurrents beneath this or what is understood due to intuition or what is subtly understood, that which you cannot see, for which you still do not have vision, for which you do not have sensation or have not reached a state of complete fulfillment to experience this, then how will you understand that this problem is due to the Gaṇeśh Tattwa having gone bad and that Śhrī Gaṇeśh is upset with us? That is why we cannot achieve Sahaja Yoga without pleasing that Deity."</font><br>
+<font size="+0"><b>1979-0922 Talk to Sahaja Yogis (Marathi), Kuṇḍalinī and Śhrī Gaṇeśha Principle, Navarātri Celebrations (1st Day), Amar Hind Mandal, West Dadar, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
