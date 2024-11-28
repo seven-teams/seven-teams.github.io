@@ -165,6 +165,13 @@ And that Jerusalem is going to be in England, not in India. And you are the peop
 
 <p>
 <font color="red">""</font><br>
+<font size="+0"><b>1981-1128 Public Program, You Are the Spirit, Friends Meeting House, 120 Heath Street, Hampstead, London NW3 1DR, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
 
@@ -230,7 +237,7 @@ But where are those English? I have still to meet many."</font><br>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
