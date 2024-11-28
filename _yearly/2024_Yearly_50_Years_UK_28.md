@@ -14,7 +14,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b>We Are Here To Celebrate His Anniversary.</b><br></font>
+<font size="+2"><b>We Are Here To Celebrate His Anniversary</b><br></font>
 </p>
 
 <p>
@@ -27,14 +27,20 @@ Even if that is lost, for history, it remains it.<br>
 And He knew about it, He spoke about it.<br>
 In His lifetime, maybe, people never understood Him: He ... they must have thought that, 'He's really a madman, or something, a fantasy, or some sort of a poet,' who doesn't understand.<br>
 For what He wrote, every word of it, is the Truth.<br>
-Such a great Soul should live, in Hampstead itself, is such a blessing. Great blessing."<br>
+Such a great Soul should live, in Hampstead itself, is such a blessing. Great blessing.<br>
+......<br>
+And is so subtle, so subtle, every word is so subtle, that is like a chanting, is like a chanting.<br>
+You are specially blessed, because such a great poet was born in this country.<br>
+And, wherever I go, in My series of lectures, at least in one lecture I always mention Him.<br>
+He has gone into great details, just like Mārkaṇḍeya, another great poet in India, who was born thousands of years back.<br>
+But to realize that, `This country is the heart of the Universe, and here the Jerusalem is going to be'!"<br>
 <font color="blue"><b>1981-1128 Public Program, You Are the Spirit, Friends Meeting House, 120 Heath Street, Hampstead, London NW3 1DR, UK</b></font><br>
 </p>
 
 <div style="text-align: center"><img src="https://pub-bcc3cbe9b1e94ba1ac28915f7a3900fa.r2.dev/1979-0700_Offering_of_Flowers_Garden_House_Crosscraig_Loch_Rannoch_(176_kms_N_of_Glasgow_in_Scotland)_UK_04_(from_tif)_(Mahipalsingh_Jaisingh_Raul_Collection_scanned_by_Ankit_Khare).jpg" /></div>
 
 <p>
-"This is the time of Thanksgiving. On this day we have to go to our elders and give thanks to them for whatever they have done for us. To all those people whom we have to give thanks, today is the day when we have to ask God to bless all these people."<br>
+"This is the time of Thanksgiving. On this day, we have to go to our elders and give thanks to them for whatever they have done for us. To all those people whom we have to give thanks, today is the day when we have to ask God to bless all these people."<br>
 <font color="blue"><b>1979-1020 Diwālī Pūjā (Diwālī Day), Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font><br>
 </p>
 
