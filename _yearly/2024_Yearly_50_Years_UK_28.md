@@ -14,7 +14,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b></b><br></font>
+<font size="+2"><b>We Are Here To Celebrate His Anniversary.</b><br></font>
 </p>
 
 <p>
@@ -25,7 +25,7 @@ This land has been touched by Christ's Feet.<br>
 Since long, people knew about Kuṇḍalinī.<br>
 Even if that is lost, for history, it remains it.<br>
 And He knew about it, He spoke about it.<br>
-In His lifetime, maybe, people never understood Him: He ... they must have thought that, `He's really a madman, or something, a fantasy, or some sort of a poet,' who doesn't understand.<br>
+In His lifetime, maybe, people never understood Him: He ... they must have thought that, 'He's really a madman, or something, a fantasy, or some sort of a poet,' who doesn't understand.<br>
 For what He wrote, every word of it, is the Truth.<br>
 Such a great Soul should live, in Hampstead itself, is such a blessing. Great blessing."<br>
 <font color="blue"><b>1981-1128 Public Program, You Are the Spirit, Friends Meeting House, 120 Heath Street, Hampstead, London NW3 1DR, UK</b></font><br>
@@ -43,7 +43,7 @@ Such a great Soul should live, in Hampstead itself, is such a blessing. Great bl
 <p>
 "It is such a[n] honor for all of us to pay this homage to the great poet, printer and a Prophet that was William Blake.<br>
 ......<br>
-When I read Him, I am amazed at His s-s-sense of humor: how He openly comes out with such remarks. I feel He is like Mārkaṇḍeya in India, or Kabīr Dās in India, who slashed the whole society with their sword all the time to see that they are brought to the proper shape, without fear. But so gentle. If you read the song of the `[Book of] Thel' [by Śhrī William Blake], is so gentle.<br>
+When I read Him, I am amazed at His s-s-sense of humor: how He openly comes out with such remarks. I feel He is like Mārkaṇḍeya in India, or Kabīr Dās in India, who slashed the whole society with their sword all the time to see that they are brought to the proper shape, without fear. But so gentle. If you read the song of the '[Book of] Thel' [by Śhrī William Blake], is so gentle.<br>
 And all of them, who were Him perhaps or are of the same style, [were] extremely open, straightforward, you can say even blatant and extremely gentle.br>
 ......<br>
 Traditionally we have known for thousands of years!<br>
