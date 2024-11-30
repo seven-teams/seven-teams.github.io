@@ -1,5 +1,5 @@
 ---
-title: 'Folder Post 2: Short Prose Pieces Monthly Newsletter, October 2024'
+title: 'Folder Post 2: Short Prose Pieces Bimonthly Newsletter, October 2024'
 date: 2024-10-31
 permalink: /folder/2024/1031
 tags:
