@@ -13,7 +13,7 @@ tags:
 
 <p>
 Howdy! For all those who haven't heard of it, here's a tip about a super catch-clearer (a household technique used for ages in India against negativity):<br>
-Wrap dried chillies (the tinier ones are hotter and more po- tent), black mustard seeds and salt in a paper towel; tape closed; vibrate; use freely to clear all blockages! Can be carried in the pockets, put under the pillow, laid on or used to bandhan chakras.<br>
+Wrap dried chillies (the tinier ones are hotter and more potent), black mustard seeds and salt in a paper towel; tape closed; vibrate; use freely to clear all blockages! Can be carried in the pockets, put under the pillow, laid on or used to bandhan chakras.<br>
 For best results, put on mustard oil and camphor after use and burn. (Can also be flushed down the toilet.)<br>
 Love, Ed<br>
 </p>
