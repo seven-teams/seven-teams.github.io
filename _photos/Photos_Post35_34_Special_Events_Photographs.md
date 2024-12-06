@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b></b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
+We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>1904-0000 Public Program (crossed hands, shawl, looking aside, BW, mike; Photo, light, flowers, wall)</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
 The direct link to the Photo of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1904"><font color="DarkGreen">Collection 1904</font></a>.<br> 
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
