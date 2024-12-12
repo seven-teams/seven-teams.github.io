@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Since the March 2024 newsletter, the following 8 extra Poems have been uploaded.<br>
+Since the September 2024 newsletter, the following 8 extra Poems have been uploaded.<br>
 1. <a href="https://seven-teams.github.io/folder/2004-0201-LFJ-2004-0227-SYAN-A"> <font color="DeepPink"><b>Poem</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/2004-0201-LFJ-2004-0227-SYAN-B"> <font color="DeepPink"><b>Poem</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/2004-0201-LFJ-2004-0227-SYAN-C"> <font color="DeepPink"><b>Poem</b></font></a><br>

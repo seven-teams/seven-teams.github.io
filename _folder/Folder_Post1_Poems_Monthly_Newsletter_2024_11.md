@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Since the March 2024 newsletter, the following 8 extra Poems have been uploaded.<br>
+Since the October 2024 newsletter, the following 8 extra Poems have been uploaded.<br>
 1. <a href="https://seven-teams.github.io/folder/2000-0804-0000-V-Poem-from-Dharamshala-SYAN"> <font color="DeepPink"><b>Poem from Dharamshala</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/1999-0801-AK"> <font color="DeepPink"><b>Poem Marathi Style</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/1983-1030-BB-Aquarius"> <font color="DeepPink"><b>AQUARIUS</b></font></a><br>
