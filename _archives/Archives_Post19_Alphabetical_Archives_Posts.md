@@ -33,7 +33,7 @@ tags:
  &emsp; &emsp; &emsp;<b>12.4.</b> <a href="https://seven-teams.github.io/archives/2023/0727"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 4 (2003)</b></font></a>: 41 files<br>
  &emsp; &emsp; &emsp;<b>12.5.</b> <a href="https://seven-teams.github.io/archives/2023/0706-a"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 5 (2004)</b></font></a>: 16 files<br>
   &emsp; &emsp; &emsp;<b>12.5.</b> <a href="https://seven-teams.github.io/archives/2024/0628"><font color="maroon"><b>Sahaja Yoga Australian Newsletter, Part 6 (2005)</b></font></a>: 1 file<br>
-<b>13.</b> <b>The Australian Sahaja Newsletter</b>: Total files 153<br>
+<b>13.</b> <b>The Australian Sahaja Newsletter</b>: Total files 157<br>
  &emsp; &emsp; &emsp;<b>13.1.</b> <a href="https://seven-teams.github.io/archives/2023/0914"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 1 (1993)</b></font></a>: 14 files<br>
  &emsp; &emsp; &emsp;<b>13.2.</b> <a href="https://seven-teams.github.io/archives/2023/1007"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 2 (1994)</b></font></a>: 39 files<br>
  &emsp; &emsp; &emsp;<b>13.3.</b> <a href="https://seven-teams.github.io/archives/2023/1209"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 3 (1995)</b></font></a>: 36 files<br>
@@ -42,7 +42,7 @@ tags:
  <b>14.</b> <b>The Australian Sahaja Yoga Newsletter</b>: Total files 83<br>
  &emsp; &emsp; &emsp;<b>14.1.</b> <a href="https://seven-teams.github.io/archives/2024/0703"><font color="maroon"><b>The Australian Sahaja Yoga Newsletter, Part 1 (2005)</b></font></a>: 17 files<br>
  &emsp; &emsp; &emsp;<b>14.2.</b> <a href="https://seven-teams.github.io/archives/2024/0705"><font color="maroon"><b>The Australian Sahaja Yoga Newsletter, Part 2 (2006)</b></font></a>: 17 files<br>
- &emsp; &emsp; &emsp;<b>14.3.</b> <a href="https://seven-teams.github.io/archives/2024/0706"><font color="maroon"><b>The Australian Sahaja Yoga Newsletter, Part 3 (2007)</b></font></a>: 19 files<br>
+ &emsp; &emsp; &emsp;<b>14.3.</b> <a href="https://seven-teams.github.io/archives/2024/0706"><font color="maroon"><b>The Australian Sahaja Yoga Newsletter, Part 3 (2007)</b></font></a>: 23 files<br>
  &emsp; &emsp; &emsp;<b>14.4.</b> <a href="https://seven-teams.github.io/archives/2024/0719-a"><font color="maroon"><b>The Australian Sahaja Yoga Newsletter, Part 4 (2008)</b></font></a>: 19 files<br>
  &emsp; &emsp; &emsp;<b>14.5.</b> <a href="https://seven-teams.github.io/archives/2024/0719-b"><font color="maroon"><b>The Australian Sahaja Yoga Newsletter, Part 5 (2009)</b></font></a>: 11 files<br> 
 <b>15.</b> <a href="https://seven-teams.github.io/archives/2023/0713"><font color="maroon"><b>The Life Eternal Trust India Annual Magazines and Souvenirs</b></font></a>: 3 files<br>
