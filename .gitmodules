@@ -1,0 +1,3 @@
+[submodule "pdf2"]
+	path = pdf2
+	url = https://git.sr.ht/~stag-enterprises/pdf-viewer
