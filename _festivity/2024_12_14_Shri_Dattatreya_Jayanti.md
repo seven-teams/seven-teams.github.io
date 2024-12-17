@@ -10,13 +10,13 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"<b>Today is Śhrī Dattā Jayanti. Today is a very great day. I think this day has come only because of His blessings that Sahaja Yoga has been blossomed in you people. The Guru of all the Gurus -- Ādi Guru Śhrī Dattā Mahārāja. I bow to Him, He is My Guru also.</b> He has taught Me quite enough on Sahaja Yoga all through My many births. And because of that only I have been able to do some work in this birth also, continuing to do.<br>
+<font color="DarkGreen">"<b>Today is Śhrī Dattā Jayanti. Today is a very great day. I think this day has come only because of His blessings that Sahaja Yoga has been blossomed in you people. The Guru of all the Gurus -- Ādi Guru Śhrī Dattā Mahārāja. I bow to Him, He is My Guru also.</b> He has taught Me quite enough on Sahaja Yoga all through My many births. And because of that only I have been able to do some work in this birth also, continuing to do.<br>
 "Gurūr Brahmā Gurūr Viṣhṇu Gurūr devo Maheśhwara, Gurūr sākṣhāt Parabrahma tasmai Śhrī Guru dev namaḥ." The Guru is Brahmā [creator], Viṣhṇu [sustainer] and Maheśh [destroyer] and the Guru who is Himself God, I offer My obeisance to Him.<br>
 By the time Ādi Śhakti created the universe, after creating the entire universe, like how a king spread out his kingdom and comes to see the world thereafter in a disguise, in the same way Ādi Śhakti has also incarnated on this Earth many a times. But no matter how supreme is Ādi Śhakti She still needs a human Guru. The place of man is still superior to that power.<br>
 If Śhakti has to take form of a human being then She is required to come on this Earth only after having achieved Her father sometimes, Her brother sometimes and Her son sometimes. First of all try to understand that entire universe was created by Brahmā, Viṣhṇu, and Maheśha. At that time a thought came in Ādi Śhakti's mind to lift people out of the world, who were stuck in it, and that if these three Principles [of Brahmā, Viṣhṇu, Maheśha] were to be combined together somehow and the childlikeness and innocence of Śhrī Gaṇeśha could be absorbed by it then it is possible to form a Guru from them who has to do a great task.<br>
 She [Śhrī Ādi Śhakti] was incarnated in the form of Satī Anusūyā. This is the only such a Satī in the whole world who has thought of emancipation of the human beings. This is a very great thing.<br>
 These Three Children [Śhrī Brahmā, Śhrī Viṣhṇu and Śhrī Maheśhwar] came to Anusūyā.<br>
-The meaning of Anusūyā is the One who is void of envy, She does not envy anyone, who is the Universal Love. "</font><br>
+The meaning of Anusūyā is the One who is void of envy, She does not envy anyone, who is the Universal Love."</font><br>
 <font size="+0"><b>1973-1209 Public Program (Hindi), Day 3, Śhrī Dattātreya Jayanti, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -53,21 +53,21 @@ The Primordial Master was also born as Macchindranāth, and again as Zoroaster w
 </p>
 
 <p>
-<font color="DarkGreen">"<b>To live with dharma does not mean parroting the name of God in the temples.</b><br>
-The meaning of being religious has been explained by a number of Saints in this country. In this land of Saints, a number of Gurus have come and have spoken to great lengths about what dharma is, we can't thank Them enough. But we don't follow any of what They have said.<br>
-<b>Out of all the gurus, there have been Ten Important Ones and They have come in this world multiple times.</b> Of these the Prophet Muhammad is an Incarnation of Dattātreya. After Muhammad Sāhib, Nāṇak who came on this earth was an Incarnation of Dattātreya too, so was Janak.<br>
-Likewise Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], who came before Mahāvīr, was also an Incarnation of Dattātreya. "</font><br>
-<font size="+0"><b>1979-0530 Public Program, A Higher Life, A World of Bliss and Joy (The Three Paths of Evolution), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
-</p>
-
-<p>
-<font color="DarkGreen">"<b>Dattātreya is the innocence of all these Three Powers.<br>
+<font color="DarkRed">"<b>Dattātreya is the innocence of all these Three Powers.<br>
 And this Guru uh was the One whose ... who then had a big tradition of Gurus.</b><br>
 In the same tradition, we had many Gurus in our country. And, specially, in the area near Bombay [Mumbai], which is called as Maharashtra, they came as Nāth. They are, <b>they were called as Nāth</b>.<br>
 So the first one was Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], then ahh Dattātreya, then Macchindranāth, then Gorakhnāth, like that a tradition of these Gurus came.<br>
 But all Their knowledge was kept as a guarded secret. It was a Gupta Vidyā. Is absolutely guarded secret: secret knowledge about Kuṇḍalinī.<br>
 They never talked about it, they never told about it. Because they thought: that, 'Just now, let us experiment with it fully, and then we will give some idea about it to people.'<br>
 But as you see everywhere it happens, even it happens with us here sometimes that we get people who do not get Realization or are half-baked and they cannot rise much higher. Then they get, sort of you see, very angry or sometimes they take this half-baked knowledge and start working on it and they go absolutely wrong on this side or that side."</font><br>
+<font size="+0"><b>1979-0530 Public Program, A Higher Life, A World of Bliss and Joy (The Three Paths of Evolution), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<p>
+<font color="DarkGreen">"<b>To live with dharma does not mean parroting the name of God in the temples.</b><br>
+The meaning of being religious has been explained by a number of Saints in this country. In this land of Saints, a number of Gurus have come and have spoken to great lengths about what dharma is, we can't thank Them enough. But we don't follow any of what They have said.<br>
+<b>Out of all the gurus, there have been Ten Important Ones and They have come in this world multiple times.</b> Of these the Prophet Muhammad is an Incarnation of Dattātreya. After Muhammad Sāhib, Nāṇak who came on this earth was an Incarnation of Dattātreya too, so was Janak.<br>
+Likewise Ādināth [Ṛiṣhabhadeva, first Tīrthaṅkara in Jainism], who came before Mahāvīr, was also an Incarnation of Dattātreya. "</font><br>
 <font size="+0"><b>1979-0223 Public Program (Marathi), Kuṇḍalinī Śhakti ani Sat Chakra (Kuṇḍalinī Śhakti and the Seven Chakras), Ahmednagar, Maharashtra, India</b></font>
 </p>
 
@@ -76,16 +76,17 @@ But as you see everywhere it happens, even it happens with us here sometimes tha
 <p style=" text-align:center;">
 <font color="DarkRed">Aei maan Guru Sharan. me rahio, rahio,<br> 
 He man Ma ki Sharan. Me rahio rahio</font><br>
-<font size="+0">O my heart, please stay under the Guru’s Protection,<br>
-O my heart, please stay under the Mother’s Protection</font><br>
+<font color="DarkRed"><font size="+0">O my heart, please stay under the Guru’s Protection,<br>
+O my heart, please stay under the Mother’s Protection</font></font><br>
 <a href="https://youtu.be/qRDLZNVcF6M">video</a><br>
 <br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Ādi Guru Dattātreya sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ</b></font><br>
+</p>
 </p>
 
 <p>
 <font color="DarkRed">"We have amongst ourselves Hindu[s], Muslims, Christians, all kinds of people, you know that. All these people can feel it within themselves: is the religion in their stomachs, they can feel it. <b>They can find out where is the religion. Because, I say, there, religion in the stomach is looked after by the Deities of Primordial Master whom we call as Dattātreya, in the Sanskrit language.<br>
-But does't mean Hinduism.<b> It doesn't mean Hinduism at all. <b>But it is called as Dattātreya in the Sanskrit language, in English is Primordial Master.</b><br>
+But does't mean Hinduism.</b> It doesn't mean Hinduism at all. <b>But it is called as Dattātreya in the Sanskrit language, in English is Primordial Master.</b><br>
 He is the same who incarnated on this earth: as Moses, as Abraham, and, say, incarnated as Muhammad Sāhab, as Rāja Janaka, as Nāṇaka, and also as Śhirḍī Sāī Nāth. Can you believe that Muhammad Sāhab is the same as our Nāṇak?<br>
 ......<br>
 The living religion is within us ......your religion automatically awakens and you just don't have to bother. Nobody has to tell you that ......<br>
