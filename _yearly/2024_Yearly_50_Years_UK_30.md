@@ -14,11 +14,17 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b></b><br></font>
+<font size="+2"><b>It Is Your Responsibility To Spread Sahaja Yoga</b><br></font>
 </p>
 
 <p>
-""<br>
+"Now it is your responsibility to spread Sahaja Yoga. Each person can do a lot. In every country it has worked this way.<br>
+......<br>
+We have to help our countrymen. We have to try to understand them.<br>
+Now we are much better Sahaja Yogis-ss, we understand Sahaja Yoga very well. Perhaps it is never .... been a great knowledge to you that you have become real great Saints. Is not a knowledge. Because, gradually, the whole thing has opened out so beautifully in you, whatever is your, your own being has shown its own ... uh manifestation and the whole thing has worked out so beautifully that you don't know what you have got.<br>
+You talk to anybody who is of a very high ranking philosopher, he will know what you know.<br>
+......<br>
+So now, it is our duty, as Christians specially, to bring good name to Christ. Because they're blocked people! They can't see, they cannot feel! And they don't want to know!"<br>
 <font color="blue"><b>1989-1203 Talk to Sahaja Yogis, Spreading Sahaja Yoga, Farewell Talk after 16 Years of Residence in UK, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font><br>
 </p>
 
