@@ -100,8 +100,8 @@ But it is an Absolute Religion in the sense that you all feel the same thing."</
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0112.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed">...... <b>Dattātreya is the One who is comprising all these forces: say, the existence force and the evolutionary force and the creative force</b>, all of them, in Its innocence.<br>
-I don't know if you understand it, but there is a story about Them is, that there are Three Deities, which belong to these Three Forces: <b>the left one is Śhiva's Force, then the right one is Brahmadeva's Force, and the center one is Viṣhṇu's Force.</b></font><br>
+<font color="DarkRed">"...... <b>Dattātreya is the One who is comprising all these forces: say, the existence force and the evolutionary force and the creative force</b>, all of them, in Its innocence.<br>
+I don't know if you understand it, but there is a story about Them is, that there are Three Deities, which belong to these Three Forces: <b>the left one is Śhiva's Force, then the right one is Brahmadeva's Force, and the center one is Viṣhṇu's Force."</b></font><br>
 <font size="+0"><b>1979-0530 Public Program, A Higher Life, A World of Bliss and Joy (The Three Paths of Evolution), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font><br>
 <br>
 <font color="Purple">Though you pursue no pleasures,<br>
@@ -132,7 +132,7 @@ What, indeed, will it all avail?</font><br>
 </p>
 
 <p>
-<font color="Maroon"><b>Guru kī Mahima</b></font><br>
+<font color="green"><b>Guru kī Mahima</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  
