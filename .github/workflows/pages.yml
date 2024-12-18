@@ -8,7 +8,7 @@ on:
 
 concurrency:
   group: "pages"
-  cancel-in-progress: false
+  cancel-in-progress: true
 
 permissions:
   contents: read
@@ -37,6 +37,7 @@ jobs:
 
   publish:
     runs-on: ubuntu-latest
+    needs: build
     steps:
       - name: Publish Artifact to GitHub Pages
         uses: actions/deploy-pages@v4
