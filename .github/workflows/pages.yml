@@ -38,6 +38,10 @@ jobs:
   publish:
     runs-on: ubuntu-latest
     needs: build
+    environment:
+      name: github-pages
+      url: ${{ steps.deployment.outputs.page_url }}
     steps:
       - name: Publish Artifact to GitHub Pages
+        id: deployment
         uses: actions/deploy-pages@v4
