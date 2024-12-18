@@ -24,4 +24,4 @@ sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
 
-<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/DivineMessageVersion9.5.pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf2/src/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/DivineMessageVersion9.5.pdf" width="1000px" height="1000px"></iframe>
