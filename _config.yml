@@ -118,6 +118,7 @@ include:
   - _pages
   - files
   - pdf
+  - pdf2
 exclude:
   - "*.sublime-project"
   - "*.sublime-workspace"
