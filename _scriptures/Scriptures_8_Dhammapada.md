@@ -17,7 +17,7 @@ tags:
 <br>
 <font color="blue"><b>Thomas Byrom's translation of Dhammapada available at</b></font> <a href="https://archive.org/details/pdfy-5xsS5pSi8sQDrKnc">link</a><br>
 <br>
-<font color="Peru"><b>Dhamma Verses -- Dhammapada edited and translated by Ānandajoti Bhikkhu (first edition 2016 August) available at</b> <a href="https://www.holybooks.com/wp-content/uploads/Dhamma-Verses.pdf">pdf</a></font>
+<font color="Peru"><b>Dhamma Verses -- Dhammapada edited and translated by Ānandajoti Bhikkhu (second edition, November 2017) available at</b> <a href="https://ancient-buddhist-texts.net/Texts-and-Translations/Dhammapada/Dhammapada.pdf">pdf</a></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1059,7 +1059,8 @@ so the wise are not moved by blame or praise.</font>
 
 <p>
 <b>85 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Appakā te manussesu ye janā pāragāmino,<br>
+......<br></font>
 </p>
 
 <p>
@@ -1086,7 +1087,7 @@ the wise one should purify the self of defilements of mind.</font>
 
 <p>
 <b>89 Transliteration</b><br>
-<font color="Peru">Yesaṁ sambodhi-aṅgesu sammā cittaṁ subhāvitaṁ,<br>
+<font color="Peru">Yesaṁ sambodhi-aṅgesu sammā chittaṁ subhāvitaṁ,<br>
 ......</font>
 </p>
 
@@ -1106,122 +1107,125 @@ the wise one should purify the self of defilements of mind.</font>
 
 <p>
 <b>90 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Gataddhino visokassa vippamuttassa sabbadhi,<br>
+sabbaganthappahīnassa, pariḷāho na vijjati. </font>
 </p>
 
 <p>
 <b>90 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">The traveller has reached the end of the journey! In the freedom of the infinite he is free from all sorrows, the fetters that bound him are thrown away, and the burning fever of life is no more.</font><br>
+<font color="blue">At the end of the way<br>
+The master finds freedom<br>
+From desire and sorrow -<br>
+Freedom without bounds.</font><br>
+<font color="Peru">For the one who has reached his goal, who grieves not, being released on all sides,<br>
+who has abandoned all the knots,1 no consuming fever2 is found.</font>
 </p>
 
 <p>
 <b>91 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Uyyuñjanti satīmanto na nikete ramanti te,<br>
+haṁsā va pallalaṁ hitvā, okam-okaṁ jahanti te.<br></font>
 </p>
 
 <p>
 <b>91 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>92 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>92 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Those who have high thoughts are ever striving: they are not happy to remain in the same place.</font><br>
+<font color="blue">Those who awaken<br>
+Never rest in one place.<br>
+Like swans, they rise<br>
+And leave the lake.</font><br>
+<font color="Peru">The mindful ones who are striving do not delight in a dwelling,<br>
+......<br></font>
 </p>
 
 <p>
 <b>93 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Yassāsavā parikkhīṇā, āhāre cha anissito,<br>
+suññato animitto cha vimokkho yesa’ gocharo,<br>
+ākāse va sakuntānaṁ, padaṁ tassa durannayaṁ.</font>
 </p>
 
 <p>
 <b>93 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... man who soars in the sky of liberation, the infinite Void without beginning, ......</font><br>
+<font color="blue">He rises on the limitless air<br>
+And flies an invisible course.<br>
+He wishes for nothing.<br>
+His food is knowledge.</font><br>
+<font color="Peru">......<br>
+for those whose resort is the liberation that is empty or signless,<br>
+......<br></font>
 </p>
 
 <p>
 <b>94 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru"><br>
+......<br>
+pahīnamānassa anāsavassa –<br>
+......</font>
 </p>
 
 <p>
 <b>94 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>95 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>95 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="blue">He lives upon emptiness.<br>
+He has broken free.<br>
+He is the charioteer.<br>
+He has tamed his horses,<br>
+Pride and the senses.<br>
+Even the gods admire him.</font><br>
+<font color="Peru">For the one whose senses are stilled,<br>
+......<br>
+who has abandoned conceit, who is without pollutants –<br>
+......</font>
 </p>
 
 <p>
 <b>96 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Santaṁ tassa manaṁ hoti, santā vāchā cha kamma' cha,<br></font>
+sammad-aññāvimuttassa, upasantassa tādino.
 </p>
 
 <p>
 <b>96 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>97 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>97 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">In the light of his vision he has found his freedom: his thoughts are peace, his words are peace and his work is peace.</font><br>
+<font color="blue">His thoughts are still.<br>
+His words are still.<br>
+His work is stillness.<br>
+He sees his freedom and is free.</font><br>
+<font color="Peru">His mind is calm, his speech and his actions are also calm,<br>
+liberated by right knowledge, such a one is (truly) peaceful.</font>
 </p>
 
 <p>
 <b>98 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+yattharahanto viharanti, taṁ bhūmiṁ rāmaṇeyyakaṁ.</font>
 </p>
 
 <p>
 <b>98 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">Whatever holy men dwell, that is indeed a place of joy - ......</font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+wherever the Arahats live, that ground is (surely) delightful.</font>
 </p>
 
 <p>
 <b>99 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+Ramaṇīyāni araññāni yattha na ramatī jano,<br>
+vītarāgā ramissanti, na te kāmagavesino.</font>
 </p>
 
 <p>
 <b>99 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen"> They make delightful the forests where other people could not dwell. Because they have not the burden of desires, they have joy which others find not.</font><br>
+<font color="blue">Even in the empty forest<br>
+He finds joy<br>
+Because he wants nothing.</font><br>
+<font color="Peru">The delightful wildernesses where the people do not delight,<br>
+those without passion will take delight, (but) not those who seek sense pleasures.</font>
 </p>
 
 <div class="para-divider"></div>
@@ -1234,62 +1238,45 @@ the wise one should purify the self of defilements of mind.</font>
 
 <p>
 <b>100 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Sahassam-api che vāchā anatthapadasaṁhitā,<br>
+ekaṁ atthapadaṁ seyyo yaṁ sutvā upasammati.</font>
 </p>
 
 <p>
 <b>100 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>101 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>101 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>102 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>102 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Better than a thousand useless words is one single word that gives peace.</font><br>
+<font color="blue">Better than a thousand hollow words<br>
+Is one word that brings peace.</font><br>
+<font color="Peru">......<br>
+better is one useful word hearing which one is brought to peace.</font>
 </p>
 
 <p>
 <b>103 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+ekañ-cha jeyya attānaṁ, sa ve saṅgāmajuttamo.</font>
 </p>
 
 <p>
 <b>103 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="blue">It is better to conquer yourself<br>
+Than to win a thousand battles.</font><br>
+<font color="Peru">......<br>
+but having conquered one’s own self, one would surely be supreme in battle.</font>
 </p>
 
 <p>
 <b>104 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Attā have jitaṁ seyyo yā chāyaṁ itarā pajā,<br>
+attadantassa posassa, nicchaṁ saññatachārino,</font>
 </p>
 
 <p>
 <b>104 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">...... the greatest of victories is the victory over oneself;</font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">Conquest over self is better than that over other people,<br>
+for the person who conquers himself, who lives constantly well-restrained,</font>
 </p>
 
 <p>
