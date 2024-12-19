@@ -12,7 +12,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>1991-0415 Cooking, Australia</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolutions from the Named Collections.<br>
+We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>1991-0415 Cooking, Australia</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
 The direct link to the 6 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Australia/1991"><font color="DarkGreen">Australia 1991</font></a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
