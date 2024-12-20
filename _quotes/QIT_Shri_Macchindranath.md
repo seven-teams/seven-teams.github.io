@@ -62,6 +62,16 @@ Now just look at Gaganagaḍ Mahārāj, it is true that he cured many people, bu
 <div class="para-divider"></div>
 
 <p>
+"And He actually came to do work of Sahaja Yoga in that area.<br>
+Maharashtra is a very good area for one reason: is a part of India where, since long, a group of people have been working on these lines of the Ādi Guru. They were called as Avadhūtas. And they started with Macchindranāth, you see, a Primordial Master was born as Macchindranāth.<br>
+And they started working on very people in the villages, or you can say in the hills and valleys. We can call them that they were like ascetics, separated, just dedicated to find out the Truth.<br>
+And these people, but very few of them, they started working it out.<br>
+Like the ... you can say the Kaśhyapas of the Zen system.<br>
+And they went into the various countries -- even Macchindranāth, His ... His disciple was Gorakhnāth -- they all went into various countries to find out: 'What is the problem, and how it is to be worked out.'<br>
+<font size="+0">1978-0220 Talk to Sahaja Yogis, What Is the Surrender (Leave Space and Say whatever You Want to), Āśhram, 234A Regent's Park Road, Finchley, London, UK (date and place not sure)<b></b></font>
+</p>
+
+<p>
 "Now, we have had great Saints in our country, no doubt.<br>
 Even a person like Gyāneśhwara, was a great Saint we have [had]. <font color="red">And He was in the same line as Macchindranāth, Gorakhnāth, then Gyānināth, and then His father [brother] there was Nivṛuttināth, and He initiated Him. And we had a Great Guru paramparā, Guru tradition in a ... that Nāth Pānthis.</font><br>
 Even He, Gyāneśhwara, who was a realized Soul, no doubt, and His brother was really a very great Saint. Even He, when He writes about [the] Kuṇḍalinī awakening, He doesn't do the way you Sahaja Yogis [<font color="orange">unclear</font>].<br>
@@ -113,8 +123,16 @@ They never talked about it, they never told about it. Because they thought: that
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"From Macchindranāth, everyone has taken so much efforts, are you going to waste all that hard work?<br>
+Today that [effort] is bearing fruits, today it is taking shape, let people be able to see its form that what Sahaja Yogis are."</font><br>
 <font size="+0"><b>1987-1221 Pūjā (Marathi + English + Marathi + English), Become Beautiful Vessels of Vibrations and Attention on Quality, House of Madhukar Bhikobā Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"But how to describe this state? The legendary Nāth Yogi, Macchindranāth, in the third chapter of the Kaulajñānanirnāya Tantra, puts it like this: ``Dearest, [in the piṇḍa exist] the chakras of five lines, sixteen lines, sixty-four petals, the truly beautiful 100 petal [lotus] [Āgñyā] and the beautiful thousand petal lotus [Sahasrāra] and above this is a very brilliant 10,000,000 petal lotus. Above the 10 million petal lotus is a 30,000,000 petal lotus, each pericarp of which is similar to a flame. Above this is the all encompassing, eternal, undivided, independent, steady lotus-pervading all stainless. By its [free] will (svecchā) it causes creation and dissolution. Both the animate and inanimate are dissolved in this liṅga." "</font><br>
+<font size="+0"><b>1988-1019 Quote, on the day of Navarātri Pūjā (9th Day), Pune, Maharashtra, India from Divine Cool Breeze (India), Volume XV, Issues 11-12 (2003 November-December), Page 21</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -265,10 +283,18 @@ In the Bible also it is there, that, "I'll appear before you like tongues of fla
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">I am very surprised that from India people like Macchindranāth, Gorakhnāth, who used to talk about Kuṇḍalinī, traveled to places like Bolivia, several thousand years back, which is a very difficult place for us to reach. They went to Ukraine and also to some parts of Russia. And after going there they explained to people that, 'This Kuṇḍalinī Śhakti is inside you and all the chakras are present inside your system.'</font><br>
+<font color="red">
+<b>Version 1:</b><br>
+"I am very surprised that from India people like Macchindranāth, Gorakhnāth, who used to talk about Kuṇḍalinī, traveled to places like Bolivia, several thousand years back, which is a very difficult place for us to reach. They went to Ukraine and also to some parts of Russia. And after going there they explained to people that, 'This Kuṇḍalinī Śhakti is inside you and all the chakras are present inside your system.'</font><br>
 And we people who are their progeny do not know anything about Kuṇḍalinī.<br>
 The natives of Bolivia know everything about Kuṇḍalinī but they say that they do not know how to awaken the Kuṇḍalinī, though they are aware of the existence of Kuṇḍalinī. I went to Bolivia only once, and many thousands of people got Self-realization instantly.<br>
 But we people do not have any knowledge of this, and no one tells us about it, nor it is mentioned in any of our books. It is as if we have been completely severed from that great culture and the great knowledge, and we ourselves do not know what kind of peculiar human beings we have become. We are neither Indians nor English. We do not know to which country we belong to. People also do not know the meaning of Kuṇḍalinī. Just imagine, people do not know what is this Kuṇḍalinī which has an ocean-like knowledge inside it."<br>
+<b>Version 3:</b><br>
+"I am not saying this Myself. It has been described by old Sages for centuries. People used to talk about Self-realization a thousand years ago.<br>
+People like Macchindranāth and Gorakhnāth reached countries like Bolivia at that time. Even today it is not easy to reach Bolivia. They went to Ukraine also, and some parts of Russia, and told people that they have this Power within themselves. They gave the knowledge of the chakras.<br>
+We are their descendants. What do we know? We know nothing. People in Bolivia know all about the subtle system but they did not know how to enlighten the Power of Kuṇḍalinī. We know all the rest.<br>
+When I went there [in Bolivia] it was spreading like fire. They got their Self-realization in huge numbers.<br>
+Here in India we have no knowledge about our subtle system, nor it is written in our modern books. Nobody shares this knowledge. It is like we are disconnected, disassociated from this Great Knowledge, and after disassociation from this knowledge, we became mad people of a very different country. We are not Westerners or Indians. We turned into something strange. We have no knowledge. People ask Me whether Kuṇḍalinī and kuṇḍalī [horoscope] are the same. Nobody has this knowledge. Imagine: this country is the real ocean of knowledge, an ocean full of knowledge."<br>
 <font size="+0"><b>1998-1218 Public Program (Hindi), Naitikatā aura Deśhabhakti (Ethics and Patriotism), Rāmlīlā Maidān, New Delhi, India</b></font>
 </p>
 
@@ -282,7 +308,9 @@ But we people do not have any knowledge of this, and no one tells us about it, n
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So you need to tell the whole world that they should join Sahaja Yoga, to get their Kuṇḍalinī awakened.<br>
+Everybody is aware of Kuṇḍalinī right from Macchindranāth to Gorakhnāth, as all these people have worked on Kuṇḍalinī. There are books on Kuṇḍalinī, but the knowledge has remained within the books, it has not spread out to other people.<br>
+You should tell people about Sahaja Yoga and the rising of the Kuṇḍalinī."</font><br>
 <font size="+0"><b>2000-0305 Śhivarātri Pūjā (English + Hindi + Marathi), Stadium, Pune, Maharashtra, India</b></font>
 </p>
 
