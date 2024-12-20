@@ -134,7 +134,7 @@ This is what it is!"<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"This, the central path was for, actually, redemption and for awakening the Kuṇḍalinī, which was done by mostly the Nāth Pānthis, like Macchindranāth, Gorakhnāth, Ādināth, these people did it."</font><br>
+<font color="red">"This, the central path, was for, actually, redemption and for awakening the Kuṇḍalinī, which was done by mostly the Nāth Pānthis: like Macchindranāth, Gorakhnāth, Ādināth, these people did it. "</font><br>
 <font size="+0"><b>1990-0212 Public Program, Day 1, Chowdia Memorial Hall, Town Hall, Bengaluru, Karnataka, India</b></font>
 </p>
 

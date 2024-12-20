@@ -131,7 +131,7 @@ Today that [effort] is bearing fruits, today it is taking shape, let people be a
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"But how to describe this state? The legendary Nāth Yogi, Macchindranāth, in the third chapter of the Kaulajñānanirnāya Tantra, puts it like this: ``Dearest, [in the piṇḍa exist] the chakras of five lines, sixteen lines, sixty-four petals, the truly beautiful 100 petal [lotus] [Āgñyā] and the beautiful thousand petal lotus [Sahasrāra] and above this is a very brilliant 10,000,000 petal lotus. Above the 10 million petal lotus is a 30,000,000 petal lotus, each pericarp of which is similar to a flame. Above this is the all encompassing, eternal, undivided, independent, steady lotus-pervading all stainless. By its [free] will (svecchā) it causes creation and dissolution. Both the animate and inanimate are dissolved in this liṅga." "</font><br>
+<font color="red">"But how to describe this state? The legendary Nāth Yogi, Macchindranāth, in the third chapter of the Kaulajñānanirnāya Tantra, puts it like this: "Dearest, [in the piṇḍa exist] the chakras of five lines, sixteen lines, sixty-four petals, the truly beautiful 100 petal [lotus] [Āgñyā] and the beautiful thousand petal lotus [Sahasrāra] and above this is a very brilliant 10,000,000 petal lotus. Above the 10 million petal lotus is a 30,000,000 petal lotus, each pericarp of which is similar to a flame. Above this is the all encompassing, eternal, undivided, independent, steady lotus-pervading all stainless. By its [free] will (svecchā) it causes creation and dissolution. Both the animate and inanimate are dissolved in this liṅga." "</font><br>
 <font size="+0"><b>1988-1019 Quote, on the day of Navarātri Pūjā (9th Day), Pune, Maharashtra, India from Divine Cool Breeze (India), Volume XV, Issues 11-12 (2003 November-December), Page 21</b></font>
 </p>
 
@@ -145,7 +145,7 @@ Today that [effort] is bearing fruits, today it is taking shape, let people be a
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"This, the central path, was for, actually, redemption and for awakening the Kuṇḍalinī, which was done by mostly the Nāth Pānthis: like Macchindranāth, Gorakhnāth, Ādināth, these people did it."</font><br>
 <font size="+0"><b>1990-0212 Public Program, Day 1, Chowdia Memorial Hall, Town Hall, Bengaluru, Karnataka, India</b></font>
 </p>
 
@@ -226,14 +226,15 @@ I don't know if you have read about Mārkaṇḍeya, who is, see, was about four
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"But in our books it is written: that two great Saints called Macchindranāth and Gorakhnāth came to Ukraine and to Russia. And there they described that, 'Eh there are lots [of] man of God living there.' And they taught them about Kuṇḍalinī because I can see on your uh-uh terra cottas, of those times, there is Kuṇḍalinī everywhere, and the chakras and all those ... now ... drawn on those terra cotta pots."</font><br>
 <font size="+0"><b>1996-0721 Public Program, CSCA Stadium, Povitroflots'kyi prospect 2, Kiev, Ukraine</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Then I went to Kiev, of all the places, and they told us, "There were two Saints who came from India" -- they, they told also the names of them: their names were Macchindranāth and Gorakhnāth. And they told us about this. And they have got pictures, they have got paintings, they have ... got everything, all about Kuṇḍalinī.<br>
+But then it vanished into thin air or in the illusion, you can go and see."</font><br>
 <font size="+0"><b>1996-0919 Public Program, Convocation Hall, University of Toronto, 31 King's College Circle, Toronto, ON, Canada</b></font>
 </p>
 
@@ -255,21 +256,23 @@ In the Bible also it is there, that, "I'll appear before you like tongues of fla
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Another thing I discovered was in Kyiv [Kiev], which is the capital: capital of Ukraine. They told Me that, "We have all this knowledge with us because two Great Saints came from India." I couldn't believe My ears. Went to the museum and saw all the chakras drawn, all Kuṇḍalinī drawn all over. And even on the pots and pans, they had created, out of their terra cotta which they make it with their own hands. And this was also twothousand before Christ [2000 BC]. I don't know, that's what they said but about that. They told Me the name of the Saints who came from India, very amazed: Macchindranāth and Gorakhnāth. I was really amazed: 'How they knew the names of these people!' And they talked of the Primordial Mother as the Aditi as we call it in Sanskrit language. So this knowledge was known to them."</font><br>
 <font size="+0"><b>1996-0927 Public Program, Auditorium, New York Society for Ethical Culture, 2 West 64th Street, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"The knowledge of Kuṇḍalinī was known to us, I don't know how many years back, you cannot say because our history is so unknown. But at the time of a great Saint, called as Macchindranāth and Gorakhnāth, they were indulging into awakening of Kuṇḍalinī, but the condition was that: 'One guru should give Realization to only one guru ... person.' "</font><br>
 <font size="+0"><b>1997-0406 Public Talk to Doctors, Conference "The Art of Healing and 'Sahaja Yoga' &#8211; A Special Session on Alternative Medicine", Indian Medical Association, FICCI Auditorium, 1 Tansen Mārg, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"It is said, in the twelfth century in India, there was one, we can call them Avadhūtas, one type of seeking. Once a ... some were seeking on the right side, some on the left, but in center, and they were called as Avadhūtas: Macchindranāth and Gorakhnāth, two great people uh-uh-uh ... Saints, you see. They went up to Burma, they went to ... even Russia, they went to uh-uh-uh ... Colombia, Bolivia. And these people talked about Kuṇḍalinī.<br>
+So they know about Kuṇḍalinī but they don't know how to awaken It.<br>
+And they have run away, these people have run away to Bolivia and all that, so it has not been affected, the knowledge is still there. In Bolivia, so high with that!"</font><br>
 <font size="+0"><b>1997-0622 Public Program, Convocation Hall, University of Toronto, 31 King's College Circle, Toronto, ON, Canada</b></font>
 </p>
 
@@ -326,7 +329,14 @@ I have seen, in the ancient paintings of the Russia, they have painted plexuses.
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"But for this, we must know: this is the knowledge of our country.<br>
+Not that others didn't know: they knew.<br>
+But what uh in Bolivia, I was surprised, Bolivia is so far off, people told Me, "We know all about chakras, we knew everything. But we don't know how to raise the Kuṇḍalinī." But they knew the word Kuṇḍalinī also.<br>
+So-oo-oo, I thought: "I must find out: 'Who has told you all this?' " Two Saints came from India long, long time back. 'Maybe,' I thought, `Macchindranāth and Gorakhnāth had gone everywhere.'<br>
+They went to Ukraine also.<br>
+So they might have told them about this Kuṇḍalinī and the awakening of the Kuṇḍalinī.<br>
+But, they said, "We don't know how to raise the Kuṇḍalinī."<br>
+Once you are entitled uh-uh-uh as S-s-sahaja Yogi, you can raise the Kuṇḍalinī of any person: you can cure any person, you can do whatever you want to do, as far as the physical side is concerned, even the mental side."</font><br>
 <font size="+0"><b>2000-0408 Public Address to I.A.S. Officers' Wives Association, New Delhi, India</b></font>
 </p>
 
@@ -353,7 +363,7 @@ Chinese people, they believe that there is a treasure of spirituality in India, 
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">Macchindranāth, an Incarnation of Dattātreya, the Primordial Master, started {\it Nāth Pāntha}.</font> There were some very feared gurus ({\it Avadhūtas}) of this cult even decades later. Its deterioration started, though, when tāntrikas imposed themselves as gurus, and took over the cult in many places. These fake gurus were criticized by the great Saint Kabīr Dās in His poems."<br>
+"<font color="red">Macchindranāth, an Incarnation of Dattātreya, the Primordial Master, started <i>Nāth Pāntha</i>.</font> There were some very feared gurus (<i>Avadhūtas</i>) of this cult even decades later. Its deterioration started, though, when tāntrikas imposed themselves as gurus, and took over the cult in many places. These fake gurus were criticized by the great Saint Kabīr Dās in His poems."<br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 7: Haṭha Yoga and Rāja Yoga</b></font>
 </p>
 

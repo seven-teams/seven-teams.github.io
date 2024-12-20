@@ -248,6 +248,24 @@ Like Kabīra has said that: "How am I to make them understand when the whole wor
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"The knowledge of Kuṇḍalinī was known to us, I don't know how many years back, you cannot say because our history is so unknown. But at the time of a great Saint, called as Macchindranāth and Gorakhnāth, they were indulging into awakening of Kuṇḍalinī, but the condition was that: 'One guru should give Realization to only one guru ... person.'<br>
+Went on like this, till the twelfth century when Gyānadeva first of all asked His Guru, His own Master was His own brother, asked Him that: "You please allow Me to at least write about Kuṇḍalinī."<br>
+Because in the Gītā it was not described. Though Śhrī Kṛiṣhṇa has talked of Sitha [Sthita] Pragñya [Unmovable in all situations] and all those things but He didn't talk about: 'How to get it? What is the mechanism within us whench [which] works it out?'<br>
+Then ... He wrote it in His Gyāneśhwarī, which is just a, I think, explanation of Gītā, very clearly, that: 'There is a power within us.'<br>
+In the sixth chapter He wrote about Kuṇḍalinī, but the people who were in charge of religion didn't want that. So, they said, "This is a niṣhiddha [prohibited] part, and you should not read this part of Kuṇḍalinī." "</font><br>
+<font size="+0"><b>1997-0406 Public Talk to Doctors, Conference "The Art of Healing and 'Sahaja Yoga' -- A Special Session on Alternative Medicine", Indian Medical Association, FICCI Auditorium, 1 Tansen Mārg, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"All this has been described by great Seers and Saints like Mārkaṇḍeya, Ādi Śhaṅkarāchārya, Nāṇaka and Jñānadeva."</font><br>
 <font size="+0"><b>1997-0827 Written (Presented) Talk, Russian Folk Medicine Conference, Russia (other date 0901)</b></font>
 </p>
