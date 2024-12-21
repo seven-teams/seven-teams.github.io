@@ -63,6 +63,22 @@ I will only give, I am not going to take anything.<br>
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"God's Power of Love, which is all-pervading, is moving with you all the time, is supporting you, is watching your mistakes and is also watching when you tell lies. It also knows when you criticize Mother and it also knows if you are living a frivolous and superficial life. This Power also knows if your commitment towards Sahaja Yoga is extremely poor.<br>
+Despite all this, it supports you and guides you at every place and every moment.<br>
+Even then you are misguided. You are stooping so low for all the world's money and power."</font><br>
+<font size="+0"><b>1976-0302 Havan (Hindi), Prajāpati (Lord of Creatures), Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">"I am with you at every step, at every place. Everywhere. Wherever you are, at whichever place you are, I am with you, completely, in person, by My Spirit and by My word completely. This is My promise to you."</font><br
 <font size="+0"><b>1976-0529 Talk to Sahaja Yogis (Hindi), Dhyān Kaise Karein (How to Meditate), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -266,6 +282,37 @@ Then this correction portion starts. You start thinking about yourself more than
 
 <div class="para-divider"></div>
 
+<div class="para-divider"></div>
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"A halfhearted commitment to Sahaja Yoga can cause a problem with the Ekādaśha Rudra."</font><br>
+<font size="+0"><b>1981-0000 Advices on How to Correct Problems with the Ekādaśha Rudra, Notes Taken by Sahaja Yogis, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1982-0414 Public Program, What Is the Need for Sahaja Yoga (Integration and Collective Consciousness), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
 <p>
 <font color="DarkRed">"So, today is a day when one has to determine: 'How far you are a guru,' first point. You have to take a pledge that you will establish your Guru Principle, second point. Thirdly, you have to pledge that you will establish Guru Principles in others.</font> Fourthly, you have to know that there is a little snag: that your Guru is a Mother. She's too kind to be a Guru, too mild to be a Guru, and extremely tolerant. So it is better that you take up this strictness towards yourself, and look after yourself."<br>
 <font size="+0"><b>1982-0704 Guru Pūjā, Establishing the Guru Principle, Guru Pūrṇimā Seminar, Day 2 (early morning), Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
@@ -299,7 +346,42 @@ We should not get involved into, it's nothing important."<br>
 
 <p>
 <font color="DarkRed">""</font><br>
+<font size="+0"><b>1982-1026 Interview with Sahaja Yogis (one day after Maha Navamī and one day before Dussehra), the Lexington Hotel, 511 Lexington Avenue, Entrance at E 48th St, Manhattan, New York City, U.S.A. (location to be confirmed)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
 <font size="+0"><b>1983-0321 Conversations with Sahaja Yogis, Songs and Felicitations after Birthday Pūjā, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1984-0818 Śhrī Kṛiṣhṇa Pūjā (the day before Janmāṣhṭamī Day), Tent, Backyard, House of Judy Gaddy, 442 Liberty Road, Englewood, NJ, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -336,7 +418,86 @@ Respect each and every person. N... not to what he has read or for what he has l
 
 <p>
 <font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1985-0518 Press Conference, Rome, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
 <font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"We are not here to gain everything out of Sahaja Yoga. Like, in the beginning people have problems about their families. So they think that God should solve the problem because they have come to Sahaja Yoga to oblige Sahaja Yoga now, so God must solve their problems. Now they have problems of their jobs, God must solve the problem! If there're problems with their relations, God must solve the problems. That's the sort of a job given to God, because they have very graciously joined Sahaja Yoga. Then, after that God must give them money. He must provide them for everything and He must look after them. For no commitment at all: there's no commitment. Nobody has any commitment in Sahaja Yoga. But, 'God is committed and God has to work it out.' Then they start, some people, foolishly start using Sahaja Yoga for other purposes, like earning money or earning power, or name or fame or domination or anything.<br>
+These are the steps which are going down, not upwards. And then, once you go down, you don't realize whether you are going upward or downward.<br>
+So, in dedication one has to see: :What have I dedicated for Sahaja Yog? All the time I have problems, all the time I say, 'I can't do this because of that. I can't do that because of this. This is the problem. This I would like to do, this I would like to do,' all the time there's an 'I, I, I and I.' But what have I dedicated? What time have I given to Sahaja Yoga? How much money have I given to Sahaja Yoga? Nothing at all!"<br>
+People don't even take leave for Sahaj Yog. They can't do anything for this!<br>
+These people not only took leave but permanently went and settled in that place, in that far-fetched place. Without any machinery, without anything, they did that whole painting and the whole uh excavation and all that uh, what you call, the entire work of such a tremendous volume that is impossible in these modern times.<br>
+Nobody can recreate something like that, with all your machinery, with everything, because people don't have dedication.<br>
+So for Sahaja Yoga, we have to put ourselves onto a point: 'What did I do, what did I sacrifice for Sahaja Yoga? Nothing! Is only for my own child, or maybe for my wife, or for myself, or for my job, or for something.' What is our commitment?<br>
+And without commitment purity cannot come in. Will go up and down like a yo-yo.<br>
+We are committed to Sahaja Yoga! If there are even five people who are really, fully committed to Sahaja Yoga, it can be built up that way.<br>
+But the problem is: everybody shares with each other this kind of noncommittal behavior. And that's something not good.<br>
+Committed means-s: even if we have to give our life we should do it. Even if we have to give up everything we should do it.<br>
+But all other considerations are to be taken there, everything should work out, it's all should be joy all the time, must get your jobs, must get your wives, must get your everything, children properly done, everything to be done by Sahaja Yoga.<br>
+And when this commitment will start, I'm sure Sahaja Yoga will spread like anything.<br>
+Even falsehood, when people are committed! Like you see in all other religions: every religion they did that. And how much it has spread!<br>
+Of course, Sahaja Yoga is blessings, is blissful, it blesses you all the time. It gives you a very long rope to hang you also sometimes, one must know: there's a blessing of that kind also.<br>
+So one has to be very-very alert that God has chosen us for such a very special work and we have to be fully committed to Sahaja Yoga. All those who are wise will take to this and understand that the life is only worth this. Otherwise it's useless, is good for nothing, it has no meaning. And this has to come from, first from the leaders and then from others: complete commitment to Sahaja Yoga.<br>
+It doesn't mean that you to give up anything. For My sake you don't have to do anything. But for your own sake, for your own betterment, you have to do it.<br>
+I hope next time when you come to India you will be coming better prepared for commitments.<br>
+Is not only money, is not only uh your talking about, your saying about it, writing about it, but it is through your own being it should have happen. You all should become the source of energy that, 'I want to emit all over the world that light which is going to enlighten.' No amount of artificially is going to work it out, but complete genuineniss [genuineness] within you.<br>
+Look at these Saints! They had nobody, they had ... didn't have Mother to help them.<br>
+This uh Gyāneśhwara's life if you read, you will be shocked! He didn't have even shoes to walk. He was treated so's badly because His father was a saṃnyāsī and was married, so they said that, "He, These are the children of a saṃnyāsī!" They had no food to eat, They had to walk for miles together barefeet [barefoot].<br>
+They had no blessings of the Mother on them. Despite [of] that, they kept to Sahaj Yog, they kept to their blessings of being one with God. Because They achieved that state.<br>
+Now, all this is for your good, for your benevolence that you get all the blessings. But that doesn't mean that you should stagnate, that you should not progress. One has to progress higher and higher. One has to decide the commitment: 'I have committed to Sahaja Yoga.' And that is what you have to be committed [to].<br>
+May God bless you all!"</font><br>
+<font size="+0"><b>1987-0111 Śhrī Devī Pūjā, We Must Fully Dedicate Ourself and Complete Commitment to Sahaja Yoga (One Has to Progress Higher and Higher), Paiṭhaṇ (51 kms S of Aurangabad), Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1987-0505 Interview with Andrew McCullen for the TV Service `7 News' of Seven Network, Brisbane, Queensland, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -352,8 +513,99 @@ And, finally, we thought that through l-l... the image of Your Photographs, thro
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1987-1009 Śhrī Mahālakṣhmī Pūjā, How to Talk to People, Upper Room, House of Trees and Willy Maes, Masstraat, Mechelen (27 kms S of Antwerp), Belgium</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1987-1225 Christmas Pūjā (English + Marathi), Tapasyā, Muktangan Bal-Ranjan Kendra Hall, Sarang Society, Aranyeśhwar Nagar, Parvati Paytha, Sahakamaka 2, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1988-0106 Śhrī Mahāgaṇeśha Pūjā (English + Marathi), God is Sat-chit-ānand (Clear Your Attention First and Fly in the Sky of Joy or All These Modern Ideas Are Anti Life), Gaṇapatīpuḷe, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1988-0403 Easter and Birthday Pūjā, First and Foremost Thing You Have to Be Strong like Christ (We Have to Be Strong Ourselves, We Have to Ascend and We Have to Be Collective), Attention Should Be Towards Your Ascent (It's a State of Your Personality), Follow His Footsteps in Doing Remarkable Things (Carry the Work of Christ of Resurrection), and What You Wanted Is the State of that Complete Faith Within Yourself, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">"I request all to pledge with feeling of humility and devotion that, 'I have gain nothing at all till now, I have yet to grow and progress, when I enlighten others it is I who is more enlightened.' You have to enlighten others."</font><br>
 <font size="+0"><b>1989-0303 Talk to Sahaja Yogis (Marathi), Unconditional Love, Nagpur, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1989-0615 Public Program, In Light of the Self You Know the Truth, Toronto, ON, Canada</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Dedication, discipline and commitment are the qualities of a Sahaja Yogi."</font><br>
+<font size="+0"><b>1989-0616 Quote on the Qualities of a Sahaja Yogi, Supper, Āśhram, Keith Road, Ambleside, West Vancouver, BC, Canada</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -372,6 +624,69 @@ So on this auspicious day take an oath and decide that, 'I am a Sahaja Yogi and 
 May God bless you all and be more and more meditative and be aware of yourself.<br>
 This is a tremendous work we have to do. It is the evolution of the highest type, we have to bring forth the changes and transformation of people. One Gorbachev is not sufficient. We need many of them and we are going to work it out."<br>
 <font size="+0"><b>1990-0324 Talk to Sahaja Yogis, Democracy, Communism, Human Laws and the Spirit, Birthday Felicitations, Bhaidas Hall, Gulmohar Road, (U-1) J.V.P.D, Near Mithibai College, Vile Parle West, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1990-0506 Sahasrāra Pūjā (Twenty-first Sahasrāra Pūjā), You Have All Become Mahāyogis Now and Sahaja Yoga is a Commitment and a Complete Involvement (Now You Have to Count Your Powers and Go Full Ahead with All the Maryādās of Sahaja Yoga), Teatro Comunale, Fiuggi (87 kms E-SE of Rome), Lazio, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1990-0531 Public Program, Day 2, Hall, Cafe Del Rey Moro, Balboa Park, San Diego, CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1990-0606 Public Program, Dag Hammarskjöld Auditorium, United Nations Headquarters, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1990-1225 Christmas Pūjā (English + Hindi), Gaṇapatīpuḷe, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1991-0413 Public Program, Auditorium, National Press Club, 16 National Circuit, Barton, ACT, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -501,9 +816,44 @@ This is how we enjoy the real spiritual life of the Kingdom of God.</font><br>
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1992-0211 Talk to Sahaja Yogis, We Are So Powerful, in Transit, Airport, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1992-0212 Public Program, Canberra, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now, the ... celebration of Diwālī should be that we carry the light all over the world and enlighten people, as many as we can. None of our private things, no... none of our own problems are important. So the, that what it is: that we have to realize that we have got a certain position, which no one has in this world. So, once you understand, your own esteem goes up, and you see for yourself what you have to do!<br>
 <font color="DarkRed">So then, everybody should, today, decide and take an oath, that, 'We'll do everything to spread Sahaja Yoga with humility.'</font> "<br>
 <font size="+0"><b>1992-1025 Diwālī Pūjā (Diwālī Day), Sala Olimpia (Olympia Sports Hall), Timişoara, Romania</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1993-0320 Talk to Sahaja Yogis, Birthday Pūjā Felicitations and Seminar Opening Address, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1993-0321 Birthday Pūjā, Satya Yuga, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -519,12 +869,61 @@ Because you do not meditate, you do not have the depth to show that you are grea
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1993-1015 Public Program (1st Day of Navarātri and the birthday of William Penn, City's Founding Father), Harrison Auditorium, University Museum, University of Pennsylvania, 33rd and Spruce Streets, Philadelphia, PA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">[He volunteers to give up his job to serve Her mission. Śhrī Mātājī dissuades him and says Her style is different; She wants everyone to keep to his or her job and family commitment while doing Sahaja work.]</font><br>
+<font size="+0"><b>1993-1212 Meeting with Mr. T. N. Seshan, Night Train Trip from Dehradun to New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1995-0321 Letter from Ayatollah Dr. Mehdi Rouhani, Birthday Felicitations, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <b>Version 1:</b><br>
 <font color="DarkRed">"So on this Day of Resurrection you have to take a vow that you will transform into a very high level and become very deep Sahaja Yogis."</font>
 <br>
 <b>Version 2:</b><br>
 <font color="DarkRed">"That is why, today on the Day of Resurrection take an oath in your mind that, 'We will become deep Sahaja Yogis of the highest order, Sahaja Yogis who have depth.' "</font><br>
 <font size="+0"><b>1995-0414 Easter Pūjā (English+Hindi), You have to Crucify Your Ego, Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1996-0927 Public Program, Auditorium, New York Society for Ethical Culture, 2 West 64th Street, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -566,6 +965,27 @@ But I am requesting you: that you have to go deep down into yourself and see tha
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>2000-1203 Talk to Sahaja Yogis, You Must Realize Your Own Personal Responsibility, Āśhram, 4950 Read Road, Moorpark (48 miles from Los Angeles), CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">[The primary guidance is that every Sahaja Yogi has to have personal commitment in giving Realization to others and spreading Sahaja Yoga. One should try to commit to at least one public and one collective meeting every week. Instead of having many programs in a center where only a couple of Sahaja Yogis can go, centers should consolidate some of the meetings to have more Sahaja Yogis present. They should make an effort to do publicity for that consolidating meeting.]</font><br>
+<font size="+0"><b>2000-1200 Guidelines on Public Programs in America, CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <b>Version 1:</b><br>
 "<font color="DarkRed">So today, we have to pledge that, 'We forgive everyone towards whoever we have grudge or anger.'</font><br>
 I agree that there are many such crimes that harms us deeply and we are unable to save ourselves from it. But if you are devotee of Śhivjī, then you will be surprised that you will not find any crime so big that your heart is bigger that Śhivjī. That's why He will realize it [<font color="orange">unclear</font>] and so don't insult anyone.<br>
@@ -576,9 +996,11 @@ To show someone down is wrong. Who are we to insult others?"<br>
 <font size="+0"><b>2003-0228 Śhivarātri Pūjā (Hindi), the day before Śhivarātri, Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>2003-0713 Guru Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -592,7 +1014,28 @@ All these are the messages from the Divine.<br>
 You don't have to worry about petty things: about money, about jobs, that's not your job.<br>
 Your destiny will work it out. You have a promise that you'll be looked after.<br>
 I hope you believe in that promise and are joyous in the p... highest way."</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>2003-1109 Diwālī Pūjā (16th day after Diwālī Day), Holiday Inn Express and Suites, 1080 Navigator Drive, Ventura, CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>2006-0407 Talk of Sir C.P., 59th Wedding Anniversary, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1976-0000 Chaitanya Nidhi (Hindi) Written by Mr. S. C. Rai and Mr. Mishra with Handwritten Corrections by Śhrī Mātājī Nirmalā Devī</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 7: Haṭha Yoga and Rāja Yoga</b></font>
 </p>
 
 <div class="para-divider"></div>
