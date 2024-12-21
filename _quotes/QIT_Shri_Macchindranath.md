@@ -95,28 +95,49 @@ They never talked about it, they never told about it. Because they thought: that
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"I mean, you take one of them, and is sufficient to give you full idea of Sahaja Yoga.<br>
+You take the simple person, uh-uh-uh a very simple person, like, say, mhh Sāī Nāth, who was to look at very simple, but what tremendous Ocean of Knowledge He had. Who was not educated or anything, nobody knows where He was born, what happened, from where He came and where ... uh where He lived, and how He came up to that age, no one knows about His uh-uh-uh background.<br>
+Or you take Ādi Śhaṅkarāchārya, or uh-uh you can take Kabīra, or anyone.<br>
+For example, you take Macchindranāth. If you uh read about Macchindranāth, you won't know, uh you'll think it's some sort of a mysterious uh knowledge He's giving. It's a tremendous work they did! They went into all the left and the right, and everything they did, all kinds of experimentations. If you see the books they have written about Nav Nāth, the Nine Nāthas, and about Macchindra's life. Macchindranāth went into such depth, and He found out so much about the places where women were rulers.<br>
+I think [it] must be the Belgian place He must [laughing:] have been [laughter, laughs], where women were the rulers and husbands were just like cabbages, and this and that.<br>
+And all kinds of things He discovered, and then what happened and how He tried to cure that.<br>
+It's the movement in another direction, you see, in the root direction, that how these roots have gone and given rise to such horrible trees, here and there, and that's how He worked out.<br>
+And it's such a symbolic thing that to understand their work, you have to be really very deep and very penetrating, for which thee [the] human mind, so far, is not boo... able to see the amount of work they have done. I[t']s not possible to see.<br>
+Like, if you see Ādi Śhaṅkarāchārya's descriptions or that even Mārkaṇḍeya's descriptions about your Mother, it's remarkable: how little, little things He could see, from where, from what angle. And every little bit of Mother He could see, as a child would see, you see, absolutely close to the Mother. That means the innocence was complete and perfected in Them. Otherwise you can't see these points that They have seen, all the little things like the three folds of the Mother. How can anyone see? But a child can see that three folds of the Mother's are there, that She has three folds in Her body. Uh only a child can see that.<br>
+It's-ss tremendous. I tell you, it's tremendous: Their innocence, Their penetration, and Their cou-rage.<br>
+You need real courage to grow into that penetration. "</font><br>
 <font size="+0"><b>1982-0926 Śhrī Durgā Pūjā, Mind Is just like a Donkey, House of Grégoire de Kalbermatten, Sternwartestrasse 62, Vienna, Austria</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">
+<b>Version 1:</b><br>
+"You may not know this but this is a place full of miracles.<br>
+There was Macchindranāth who was born here and He was a Great Incarnation of Ādi Guru Dattātreya. He worked very hard in this place.<br>
+Before Him, Śhāṇḍilya Muni was here who made this place very pure.<br>
+Thus this land of Rāhurī is so pure that Śhrī Rāma and Śhrī Sītā Themselves had to remove Their sandals and come here.<br>
+So, it is on such a pure land that you are sitting and are extremely fortunate. It is because of this good fortune that today we have so many seekers and so many Sahaja Yogis who are doing this work."</font><br>
+<b>Version 2:</b><br>
+And miracles that are going to take place here cannot happen anywhere else.<br>
+Perhaps you do not know, on this land Śhrī Macchindranāth a Great Incarnation of Śhrī Dattātreya has worked very hard.<br>
+Before that, Sages like Śhāṇḍilya made this land holy.<br>
+So this land is extremely holy, so much holy that Śhrī Rām and Śhrī Sītā had to take off Their footwear and come here barefoot.<br>
 <font size="+0"><b>1983-0107 Śhrī Gaṇeśha Pūjā (English + Marathi + English), Jñāneśhvarasāgar (Mulā Dharaṇa or Mula Dam), Bārāgāva Nāṃdūra (near Rāhurī), Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Also, all the Nāths, like Macchindranāth, Gorakhnāth, all these great evolved souls called as Avadhūtas, who were Incarnations of the Great Primordial Masters, worked in that area. They are the ones who talked of Kuṇḍalinī to begin with, openly."</font><br>
 <font size="+0"><b>1986-0106 Śhrī Mahālakṣhmī Pūjā (English + Marathi + English), Ascent Is the Main Attention, Sangli, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"So the knowledge of the Kuṇḍalinī we had since long but it was kept as a secret. And was not discussed by the Suṣhumṇā people. <font color="red">Eh [coughs] and they are the ones who formed this Macchindranāth, Gorakhnāth, all these people.</font> Most of this work was done in Maharashtra. Most of it it was done in Maharashtra. And that's how we have the Suṣhumṇā path in the central path of uh uh ascent or Realization was kept as a secret."<br>
 <font size="+0"><b>1986-0125 Pūjā, Why We Have Failed in Our Pursuit of God (The Whole System Has to Be Changed), Chennai, Tamil Nadu, India</b></font>
 </p>
 
@@ -219,7 +240,9 @@ I don't know if you have read about Mārkaṇḍeya, who is, see, was about four
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"We have no idea as to this knowledge of Sahaja Yoga existed thousands and thousands of years back.<br>
+I was surprised when I went to Kiev in Ukraine people were talking about Macchindranāth and Gorakhnāth and they had made pictures of different chakras and were talking about Aditi, is the Primordial Mother. I was shocked how so many years back, three thousand before Christ, these Great Saints went there and did such miraculous work.<br>
+We have in this country also a great knowledge of the power of Kuṇḍalinī, but we don't read all that, we don't want to know, but I was happy to know at least in the course of Ayurveda they try to talk about Kuṇḍalinī, they don't know much but they do talk. "</font><br>
 <font size="+0"><b>1996-0219 Public Address to Doctors, Inauguration, International Sahaja Yoga Research and Health Center, Plot No. 1, Sector 8, H.H. Śhrī Nirmalā Devī Mārg, C.B.D. Belapur, Navi Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -332,7 +355,7 @@ I have seen, in the ancient paintings of the Russia, they have painted plexuses.
 <font color="red">"But for this, we must know: this is the knowledge of our country.<br>
 Not that others didn't know: they knew.<br>
 But what uh in Bolivia, I was surprised, Bolivia is so far off, people told Me, "We know all about chakras, we knew everything. But we don't know how to raise the Kuṇḍalinī." But they knew the word Kuṇḍalinī also.<br>
-So-oo-oo, I thought: "I must find out: 'Who has told you all this?' " Two Saints came from India long, long time back. 'Maybe,' I thought, `Macchindranāth and Gorakhnāth had gone everywhere.'<br>
+So-oo-oo, I thought: "I must find out: 'Who has told you all this?' " Two Saints came from India long, long time back. 'Maybe,' I thought, 'Macchindranāth and Gorakhnāth had gone everywhere.'<br>
 They went to Ukraine also.<br>
 So they might have told them about this Kuṇḍalinī and the awakening of the Kuṇḍalinī.<br>
 But, they said, "We don't know how to raise the Kuṇḍalinī."<br>

@@ -89,6 +89,30 @@ I have not yet met anyone who has systematically said or explained about Kuṇ�
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"I mean, you take one of them, and is sufficient to give you full idea of Sahaja Yoga.<br>
+You take the simple person, uh-uh-uh a very simple person, like, say, mhh Sāī Nāth, who was to look at very simple, but what tremendous Ocean of Knowledge He had. Who was not educated or anything, nobody knows where He was born, what happened, from where He came and where ... uh where He lived, and how He came up to that age, no one knows about His uh-uh-uh background.<br>
+Or you take Ādi Śhaṅkarāchārya, or uh-uh you can take Kabīra, or anyone.<br>
+For example, you take Macchindranāth. If you uh read about Macchindranāth, you won't know, uh you'll think it's some sort of a mysterious uh knowledge He's giving. It's a tremendous work they did! They went into all the left and the right, and everything they did, all kinds of experimentations. If you see the books they have written about Nav Nāth, the Nine Nāthas, and about Macchindra's life. Macchindranāth went into such depth, and He found out so much about the places where women were rulers.<br>
+I think [it] must be the Belgian place He must [laughing:] have been [laughter, laughs], where women were the rulers and husbands were just like cabbages, and this and that.<br>
+And all kinds of things He discovered, and then what happened and how He tried to cure that.<br>
+It's the movement in another direction, you see, in the root direction, that how these roots have gone and given rise to such horrible trees, here and there, and that's how He worked out.<br>
+And it's such a symbolic thing that to understand their work, you have to be really very deep and very penetrating, for which thee [the] human mind, so far, is not boo... able to see the amount of work they have done. I[t']s not possible to see.<br>
+Like, if you see Ādi Śhaṅkarāchārya's descriptions or that even Mārkaṇḍeya's descriptions about your Mother, it's remarkable: how little, little things He could see, from where, from what angle. And every little bit of Mother He could see, as a child would see, you see, absolutely close to the Mother. That means the innocence was complete and perfected in Them. Otherwise you can't see these points that They have seen, all the little things like the three folds of the Mother. How can anyone see? But a child can see that three folds of the Mother's are there, that She has three folds in Her body. Uh only a child can see that.<br>
+It's-ss tremendous. I tell you, it's tremendous: Their innocence, Their penetration, and Their cou-rage.<br>
+You need real courage to grow into that penetration. "</font><br>
+<font size="+0"><b>1982-0926 Śhrī Durgā Pūjā, Mind Is just like a Donkey, House of Grégoire de Kalbermatten, Sternwartestrasse 62, Vienna, Austria</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "So, try to gather nourishment. Like reading Devī Māhātmyam, reading about ... finding out about Bible and finding about other Scriptures, about Qur'ān, this, that, and which supports you, which nourishes you. <font color="red">Blake, Kabīr, Nāṇak, I mean there are so many, Lao Tze. This is the Guru: is a knowledge.</font>"<br>
 <font size="+0"><b>1982-1101 Talk to Sahaja Yogis (Śhrī Guru Nāṇaka Jayanti), Every Sahaja Yogi Has to Become a Guru, Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
 </p>

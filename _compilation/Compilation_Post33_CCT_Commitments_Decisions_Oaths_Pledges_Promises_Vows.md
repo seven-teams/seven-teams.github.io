@@ -548,7 +548,10 @@ And, finally, we thought that through l-l... the image of Your Photographs, thro
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+"So sticking on to nonsensical things and to important things not paying attention is a[n] absolutely abuse of your attention. And this has been achieved through your so-called modern ideas of individualism. There's no integration of understanding, and the whole thing is breaking into pieces.<br>
+<font color="DarkRed">Between these two horrible extremes, I have dared to start Sahaja Yoga, to collect you all there in the center. How? With very intense love, with very intense effort, and a complete commitment, that, 'I am going to save this world.'</font><br>
+It has worked so well now, I can see you all getting into the third stage of joy.<br>
+And the joy is what I want you to have and not self-destruction or stupid conditioning pressures. Joy!"<br>
 <font size="+0"><b>1988-0106 Śhrī Mahāgaṇeśha Pūjā (English + Marathi), God is Sat-chit-ānand (Clear Your Attention First and Fly in the Sky of Joy or All These Modern Ideas Are Anti Life), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
