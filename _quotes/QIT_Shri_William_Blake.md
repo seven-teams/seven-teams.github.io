@@ -4,6 +4,8 @@ date: 2024-08-03
 permalink: /quotes/2024/0803
 tags:
   - crimson @ Shri William Blake
+  - hotpink @ Shri Bhairava
+  - hotpink @ Disciple Principle
 ---
 
 <div class="para-divider"></div>

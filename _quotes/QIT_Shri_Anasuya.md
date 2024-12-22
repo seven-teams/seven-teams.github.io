@@ -4,7 +4,7 @@ date: 2024-11-11
 permalink: /quotes/2024/1111
 tags:
   - crimson @ Shri Anasuya
-  - hotpink @ Shri Mahasaraswati  
+  - hotpink @ Shri Mahasaraswati
 ---
 
 <div class="para-divider"></div>

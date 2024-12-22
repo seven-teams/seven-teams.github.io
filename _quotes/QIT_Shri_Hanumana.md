@@ -4,6 +4,7 @@ date: 2024-08-05
 permalink: /quotes/2024/0805
 tags:
   - crimson @ Shri Hanumana
+  - hotpink @ Angels
 ---
 
 <div class="para-divider"></div>

@@ -4,7 +4,8 @@ date: 2024-08-16
 permalink: /quotes/2024/0816
 tags:
   - crimson @ Shri Lav
-  - crimson @ Shri Kush  
+  - crimson @ Shri Kush
+  - hotpink @ Disciple Principle  
 ---
 
 <div class="para-divider"></div>

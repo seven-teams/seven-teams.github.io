@@ -4,6 +4,7 @@ date: 2023-01-20
 permalink: /quotes/2023/0120
 tags:
   - crimson @ Shri Nivrittinath
+  - hotpink @ Shri Guru
 ---
 
 <div class="para-divider"></div>

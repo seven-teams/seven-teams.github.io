@@ -4,6 +4,7 @@ date: 2024-08-10
 permalink: /quotes/2024/0810
 tags:
   - crimson @ Shri Hazarat Ali
+  - hotpink @ Shri Brahmadeva 
 ---
 
 <div class="para-divider"></div>
