@@ -4,6 +4,7 @@ date: 2024-08-12
 permalink: /quotes/2024/0812
 tags:
   - crimson @ Shri Adi Shankaracharya
+  - hotpink @ Disciple Principle  
 ---
 
 <div class="para-divider"></div>

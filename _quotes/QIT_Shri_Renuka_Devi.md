@@ -4,6 +4,7 @@ date: 2024-11-08
 permalink: /quotes/2024/1108
 tags:
   - crimson @ Shri Renuka Devi
+  - hotpink @ Shri Mahasaraswati  
 ---
 
 <div class="para-divider"></div>

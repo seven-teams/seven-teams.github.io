@@ -4,6 +4,7 @@ date: 2024-08-09
 permalink: /quotes/2024/0809
 tags:
   - crimson @ Shri Kabir
+  - hotpink @ Disciple Principle
 ---
 
 <div class="para-divider"></div>

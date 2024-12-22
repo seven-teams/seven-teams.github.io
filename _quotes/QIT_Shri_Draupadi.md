@@ -4,6 +4,7 @@ date: 2024-11-12
 permalink: /quotes/2024/1112
 tags:
   - crimson @ Shri Draupadi
+  - hotpink @ Shri Vishnumaya  
 ---
 
 <div class="para-divider"></div>

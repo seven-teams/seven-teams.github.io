@@ -5,6 +5,7 @@ permalink: /quotes/2024/0817-b
 tags:
   - crimson @ Shri Hasan
   - crimson @ Shri Husayn
+  - hotpink @ Disciple Principle  
 ---
 
 <div class="para-divider"></div>

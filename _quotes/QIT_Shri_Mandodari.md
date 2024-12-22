@@ -4,6 +4,7 @@ date: 2024-11-09
 permalink: /quotes/2024/1109
 tags:
   - crimson @ Shri Mandodari
+  - hotpink @ Shri Mahakali
 ---
 
 <div class="para-divider"></div>

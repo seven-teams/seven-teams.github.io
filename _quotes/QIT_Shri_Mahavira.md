@@ -3,8 +3,8 @@ title: 'ŚHRĪ MAHĀVĪRA in the Words of ŚHRĪ MĀTĀJĪ'
 date: 2023-07-22
 permalink: /quotes/2023/0722
 tags:
-  - crimson @ Shri Ramadas Swami
-  - hotpink @ Angels
+  - crimson @ Shri Mahavira
+  - hotpink @ Disciple Principle
 ---
 
 <div class="para-divider"></div>

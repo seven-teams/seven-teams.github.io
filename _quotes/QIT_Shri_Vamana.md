@@ -4,6 +4,7 @@ date: 2024-11-10
 permalink: /quotes/2024/1110
 tags:
   - crimson @ Shri Vamana
+  - hotpink @ Shri Vishnu  
 ---
 
 <div class="para-divider"></div>
