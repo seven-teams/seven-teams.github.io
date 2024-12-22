@@ -3,8 +3,8 @@ title: 'ŚHRĪ MACCHINDRANĀTH in the Words of ŚHRĪ MĀTĀJĪ'
 date: 2023-06-30
 permalink: /quotes/2023/0630
 tags:
-  - crimson @ Shri Ramadas Swami
-  - hotpink @ Angels
+  - crimson @ Shri Macchindranath
+  - hotpink @ Shri Adi Guru
 ---
 
 <div class="para-divider"></div>
