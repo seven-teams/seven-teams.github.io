@@ -7,7 +7,9 @@ tags:
   - blue @ Madhuri
   - brown @ 1999
   - cornflowerblue @ ISPS Dharamshala, Class X
-  - deeppink @ 1999-1200 Sahaj Amrit  
+  - deeppink @ 1999-1200 Sahaj Amrit
+  - maroon @ Mountains
+  - maroon @ Speak 
 ---
 
 <br>

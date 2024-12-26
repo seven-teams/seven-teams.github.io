@@ -8,6 +8,10 @@ tags:
   - brown @ 1999
   - cornflowerblue @ ISPS Dharamshala
   - deeppink @ 1999-1200 Sahaj Amrit
+  - maroon @ Bad  
+  - maroon @ Everything
+  - maroon @ Excess
+  - maroon @ Is
 ---
 
 <br>
