@@ -12,6 +12,7 @@ tags:
 
 <p>
 <font color="DarkRed">"<b>Happy Christmas to you all!</b><br>
+<b>May God bless you.</b><br>
 ......<br>
 The birth of Christ is celebrated all over the world, and is nice that we are celebrating here, at Gaṇapatīpuḷe, His birth. As you know very well, in Sahaja Yoga we have realized that the Principle of Christ was Śhrī Gaṇeśha. So this is the right place to celebrate the Christmas and the Birth of Christ. Is the ... absolutely it coincides today and I am very happy that you have chosen Gaṇapatīpuḷe for that. "</font><br>
 <font size="+0"><b>1988-1224 Talk to Sahaja Yogis, The Symbol of Purity and Holiness and The Most Important Thing for Us Is to Be Pure People (We Are Going to Follow a Life of Complete Purity and Detachment), before the Evening Program, Gaṇapatīpuḷe, Maharashtra, India</b></font>
