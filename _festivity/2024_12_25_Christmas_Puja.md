@@ -34,7 +34,6 @@ Destroys the greatest of sins</b><br>
 <font size="+0"><b>(Jai He Jai He Jai He Devī)</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
-</p>
 
 <p>
 <font color="DarkRed">"It is written in the Devī Māhātmyam about the birth of Christ who was the Son of Rādhā, and that Rādhā was also Mahālakṣhmī. He was born in another state [apart from a human womb], and within an egg, half of which incarnated as Śhrī Gaṇeśha and the other half became Mahāviṣhṇu who is our Lord Jesus Christ. So Jesus Christ and Mahāviṣhṇu are one and the same Deity. When Śhrī Mahālakṣhmī came upon this Earth She brought forth Her Child by the Immaculate Conception which She had previously done as Śhrī Rādhā. Jesus Christ is the Son of the Great Being of the Virāṭa. Viṣhṇu was the Viṣhṇu Tattwa [the Ādhāra or the Support of the Virāṭa] so Mahāviṣhṇu became the Virāṭa is also called the Akbar [the Greatest Person].<br>
@@ -78,7 +77,7 @@ Then He comes there, like a morning flower, to make you happy. First to make you
 <font size="+0"><b>1979-1210 Public Program, Christmas and Its Relationship to Lord Jesus, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FFT0115.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0115.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"It was a living example of a very Great Advent that He came on this Earth and led such a pure and a holy life.<br>
@@ -96,8 +95,8 @@ He was a detached man, not attached to material things, nothing of the kind."</f
 Now, it is for you people to bring back the Glory of Christ, to bring back the Dharma of Christ, to reflect the great image of Christ.<br>
 When people say that you had no ideals, I'm amazed! Who could be a better ideal than Jesus Christ?"<br>
 ......<br>
-Today you have to ask just one thing from Me, that, 'O Mother, today we ask You to give us that power of uh-uh-uh penance, of tapasyā of Christ.' I wish this would be granted today and you will become tapasvi[n]s.<br>
-May God bless you.</font><br>
+<b>Today you have to ask just one thing from Me, that, 'O Mother, today we ask You to give us that power of uh-uh-uh penance, of tapasyā of Christ.' I wish this would be granted today and you will become tapasvi[n]s.<br>
+May God bless you.</b>"</font><br>
 <font size="+0"><b>1987-1225 Christmas Pūjā (English + Marathi), Tapasyā, Muktangan Bal-Ranjan Kendra Hall, Sarang Society, Aranyeśhwar Nagar, Parvati Paytha, Sahakamaka 2, Pune, Maharashtra, India</b></font>
 </p>
 
