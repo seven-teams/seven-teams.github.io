@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>198x-0000 Walk, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolutions from the Named Collections.<br>
-The direct link to the 2 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/198x"><font color="DarkGreen">India 198x</font></a>.<br>
+We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>198x-0000 Walk, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
+The direct link to the 3 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/198x"><font color="DarkGreen">India 198x</font></a>.<br>
+[Note: 1 Photo uploaded only on 2024-1228.]<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
