@@ -22,24 +22,24 @@ sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
 
-<font color="DarkGreen"><b>1985SAHYOG(MAR)1.</b></font> <b></b> (4 pages, uploaded on 2024-1229)
+<font color="DarkGreen"><b>1985SAHYOG(MAR)1.</b></font> <b>1986-0300 Sahaj Yog (Marathi), Volume 1, Issue 9, Version 2 (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2024-1229)
 
 <iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-0300_Sahaj_Yog_(Marathi)_Volume_1_Issue_9_Version_2_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1985SAHYOG(MAR)2.</b></font> <b></b> (4 pages, uploaded on 2024-1229)
+<font color="DarkGreen"><b>1985SAHYOG(MAR)2.</b></font> <b>1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10 (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2024-1229)
 
 <iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-0400_Sahaj_Yog_(Marathi)_Volume_1_Issue_10_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1985SAHYOG(MAR)3.</b></font> <b></b> (4 pages, uploaded on 2024-1229)
+<font color="DarkGreen"><b>1985SAHYOG(MAR)3.</b></font> <b>1986-0500 Sahaj Yog (Marathi), Volume 1, Issue 11 (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2024-1229)
 
-<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-0400_Sahaj_Yog_(Marathi)_Volume_1_Issue_11_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-0500_Sahaj_Yog_(Marathi)_Volume_1_Issue_11_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1985SAHYOG(MAR)4.</b></font> <b></b> (4 pages, uploaded on 2024-1229)
+<font color="DarkGreen"><b>1985SAHYOG(MAR)4.</b></font> <b>1986-0600 Sahaj Yog (Marathi), Volume 1, Issue 12 (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2024-1229)
 
-<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-0400_Sahaj_Yog_(Marathi)_Volume_1_Issue_12_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-0600_Sahaj_Yog_(Marathi)_Volume_1_Issue_12_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
