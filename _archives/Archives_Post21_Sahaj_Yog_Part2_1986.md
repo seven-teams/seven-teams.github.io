@@ -1,7 +1,7 @@
 ---
 title: 'Archive Post 21: Sahaj Yog (Marathi), Part 2 (1986)'
-date: 2024-07-19
-permalink: /archives/2024/0719-b
+date: 2024-12-29
+permalink: /archives/2024/1229
 tags:
   - darkblue @ Sahaja Yog (Marathi)
   - red @ Archive
