@@ -1,5 +1,5 @@
 ---
-title: '2025 Celebrating New Year's Day: &#8220;This is going to be your vow on the New Year day, that, &#8216;Now we are going to start Sahaja Yoga in a new way, in a bigger way, in a more dynamic way.&#8217; &#8221; '
+title: '2025 Celebrating New Year&#8217;s Day: &#8220;This is going to be your vow on the New Year day, that, &#8216;Now we are going to start Sahaja Yoga in a new way, in a bigger way, in a more dynamic way.&#8217; &#8221; '
 date: 2025-01-01
 permalink: /festivity/2025/01/01
 tags:
