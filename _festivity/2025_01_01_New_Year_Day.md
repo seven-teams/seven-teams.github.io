@@ -73,8 +73,8 @@ Every year a new year comes and keeps coming. But people do not understand the f
 <br> 
 <font size="+0"><font color="DarkGreen"><b>Tujhach. Mātājī Pare Prakash. Antari</b><br>
 Let your light come within us<br>
-Tujhech. Sahaj. Yog. He Phire Jagavari<br>
-Let us thus spread Sahaja Yoga in the whole world</font><br>
+<b>Tujhech. Sahaj. Yog. He Phire Jagavari</b><br>
+Let us thus spread Sahaja Yoga in the whole world</font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
