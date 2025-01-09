@@ -20,7 +20,7 @@ In this New Year, I'll think there is greater chance for you to do much better, 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0117.png" /></div>
 
 <p style="text-align:center;">
-"Today I was thinking that uh <b>we'll do the Pūjā to Mahālakṣhmī, would be better, so that we'll understand what is Vishwa Nirmala Dharma is</b>."<br>
+<font color="DarkRed">"Today I was thinking that uh <b>we'll do the Pūjā to Mahālakṣhmī, would be better, so that we'll understand what is Vishwa Nirmala Dharma is</b>."</font><br>
 <font size="+0"><b>1992-0220 Śhrī Mahālakṣhmī Pūjā, Mahālakṣhmī Principle and Understand What Is Vishwa Nirmala Dharma, Brisbane, Queensland, Australia</b></font>
 </p>
 
