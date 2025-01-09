@@ -36,19 +36,19 @@ But you'll become very dynamic. You'll be amazed at your dynamism. Just you have
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0118.png" /></div>
 
 <p style="text-align:center;">
-"<b>Today is a great day when we are celebrating Mahālakṣhmī's Pūjā.</b><br>
+<font color="DarkRed">"<b>Today is a great day when we are celebrating Mahālakṣhmī's Pūjā.</b><br>
 You must be knowing that today is the day of Mary, Mother of Christ, who was Mahālakṣhmī.<br>
 <b>Mahālakṣhmī's Incarnation is very important for Sahaja Yoga.<br>
 First, She establishes our dharma, by which we become righteous, we become religious in the real sense.</b> After the light of Realization we cannot do anything that is not dharma.<br>
 As you know what is dharma is, and the maryādās, the boundaries of our behavior.<br>
 This transformation takes place automatically. I don't have to tell you, 'Don't do this, don't do this,' like Ten Commandments. You, yourself, establish your dharma, and you enjoy your virtues.<br>
 This happens, as you know already has happened to all of you, with the Grace of Mahālakṣhmī.<br>
-Then She starts bestowing blessings on you."<br>
+Then She starts bestowing blessings on you."</font><br>
 <font size="+0"><b>1993-0908 Śhrī Mahālakṣhmī Pūjā, National Palace of Culture (NDK), Boulevard Bulgaria, 1463 NDK, Sofia, Bulgaria</b></font>
 </p>
 
 <p>
-<font color="DarkRed">"Today, again, is a New Year's Day.<br>
+<font color="DarkRed">"<b>Today, again, is a New Year's Day.</b><br>
 Uh every new year comes because we have to take to something that is new. It has been so arranged that the Sun has to move for three hundred and sixty-five [365] days and again a new year has to come.<br>
 Actually the whole solar system is moving in a spiral way. So, there is definitely a higher, higher state, of this solar system. Every year it is rising higher in a spiral way. So it is not only that: it is because three hundred and sixty-five [365] days have passed because it has moved a step forward, higher than whuh ... what it was.<br>
 Now, we can see that in awareness, human beings have definitely risen much higher than what they were, say, about two thousand years back.<br>
@@ -59,16 +59,16 @@ But the first system that started, the whole universe was the first model, one c
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0119.png" /></div>
 
 <p style="text-align:center;">
-"And that model has to be perfect. And that was a perfect model, which then started perfecting the rest of it. So that is the perfect model which is in the Principle of this Ascent, and that is working out this ascent.<br>
+<font color="DarkRed">"And that model has to be perfect. And that was a perfect model, which then started perfecting the rest of it. So that is the perfect model which is in the Principle of this Ascent, and that is working out this ascent.<br>
 Now, the perfection of the rest of the universe takes place in various directions. But today we have to consider the Mahālakṣhmī Principle.<br>
-<b>Now Mahālakṣhmī, as I told you, is a perfect principle. Is a perfect principle, it's perfect in it. It's born as perfect, will remain as perfect, will be always eternally perfect. So, that is not necessary to be corrected.</b>"<br>
+<b>Now Mahālakṣhmī, as I told you, is a perfect principle. Is a perfect principle, it's perfect in it. It's born as perfect, will remain as perfect, will be always eternally perfect. So, that is not necessary to be corrected.</b>"</font><br>
 <font size="+0"><b>1983-0101 Śhrī Mahālakṣhmī Pūjā, Mahālakṣhmī Principle of Our Ascent (Try to Develop that Innocence which Is the Basis of Mahālakṣhmī Tattwa and Mahālakṣhmī Tattwa Is Strengthened through Guru Principle), Nirmalā Kuṭīr (Cottage), Lakṣmī Nārāyaṇa Mandir, Shahupuri, Kolhapur, Maharashtra, India</b></font>
 </p>
 
 <p style="text-align:center;">
-<b>"<b>Today is the auspicious occasion of the New Year and auspicious blessings to you all.</b><br>
+<font color="DarkRed">"<b>Today is the auspicious occasion of the New Year and auspicious blessings to you all.</b><br>
 Every year a new year comes and keeps coming. But people do not understand the feeling of creating a new year. They only understand that on the New Year Day they will wear new clothes and celebrate. They never think that a new year is coming and what new thing we must think of. Whatever has been going on, it goes on day after day.<br>
-<b>In Sahaja Yoga when we are so collective, then we must think what new thing we must have in Sahaja Yoga. You have gone quite deep in meditation. You understand meditation and you have also established a certain state.</b> But in a new year what new aspect you should take, we must put out attention towards this. <b>We must think what are the problems of our country and also the problems of the world, and how can we solve them. For this I think wherever a Sahaja Yogi has interest he should put attention on that.</b>"<br>
+<b>In Sahaja Yoga when we are so collective, then we must think what new thing we must have in Sahaja Yoga. You have gone quite deep in meditation. You understand meditation and you have also established a certain state.</b> But in a new year what new aspect you should take, we must put out attention towards this. <b>We must think what are the problems of our country and also the problems of the world, and how can we solve them. For this I think wherever a Sahaja Yogi has interest he should put attention on that.</b>"</font><br>
 <font size="+0"><b>1995-1025 Nava Varṣha Pūjā (Hindi) (Bhaiya Dhuj Day), New Delhi, India</b></font><br>
 <br> 
 <font size="+0"><font color="DarkGreen"><b>Tujhach. Mātājī Pare Prakash. Antari</b><br>
@@ -84,20 +84,13 @@ Let us thus spread Sahaja Yoga in the whole world</font></font><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
-<font color="DeepPink"><b>2025 Celebrating New Year's Day: "This is going to be your vow on the New Year day, that, 'Now we are going to start Sahaja Yoga in a new way, in a bigger way, in a more dynamic way.' "</b></font>
-
 <p>
-<font color="MediumVioletRed"><b>Tujhacha Mātājī Pare</b></font><br>
+<font color="green"><b>Apne Panah Mein Hame Rakhna</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
 <font color="green"><b>Apne Dil Me Sahaj Ko</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-</p>
-
-<p>
-<font color="green"><b>Apne Panah Mein Hame Rakhna</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -113,6 +106,9 @@ Let us thus spread Sahaja Yoga in the whole world</font></font><br>
 
 <p>
 <font color="MediumVioletRed"><b>Tum Asha Vishwas Hamare</b></font><br>
+You are our hope and Belief<br>
+Tum Dharti Akash Hamare<br>
+You are the Earth and sky<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
