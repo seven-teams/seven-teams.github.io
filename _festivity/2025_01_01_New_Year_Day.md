@@ -1,5 +1,5 @@
 ---
-title: '2025 Celebrating New Year's Day: "This is going to be your vow on the New Year day, that, &#8217;Now we are going to start Sahaja Yoga in a new way, in a bigger way, in a more dynamic way.&#8217; " '
+title: '2025 Celebrating New Year's Day: &#8220;This is going to be your vow on the New Year day, that, &#8216;Now we are going to start Sahaja Yoga in a new way, in a bigger way, in a more dynamic way.&#8217; &#8221; '
 date: 2025-01-01
 permalink: /festivity/2025/01/01
 tags:
@@ -105,7 +105,7 @@ Let us thus spread Sahaja Yoga in the whole world</font></font><br>
 </p>
 
 <p>
-<font color="MediumVioletRed"><b>Tum Asha Vishwas Hamare</b></font><br>
+<font color="green"><b>Tum Asha Vishwas Hamare</b></font><br>
 You are our hope and Belief<br>
 Tum Dharti Akash Hamare<br>
 You are the Earth and sky<br>
@@ -119,7 +119,7 @@ You are the Earth and sky<br>
 
 <p>
 <font color="Indigo">Wishing you all a Very</font> <font color="DarkGreen">Happy</font> <font color="Maroon">New</font> <font color="Purple">Year!</font><br>
-</p>
+<br>
 <font size="+0">Jai Śhrī Mātājī!<br>
 On behalf of the festivity team!</font>
 </p>
