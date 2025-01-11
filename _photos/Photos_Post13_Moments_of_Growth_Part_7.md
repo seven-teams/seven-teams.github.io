@@ -11,7 +11,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to bring to your attention 1 new gallery <a href="https://imageevent.com/sahaja/momentsofgrowth/outdooroutreach"><font color="DarkGreen"><b>Outdoor Outreach</b></font></a>.<br>
+We are pleased to bring to your attention 1 new albym <a href="https://imageevent.com/sahaja/momentsofgrowth/outdooroutreachbyannamancini"><font color="DarkGreen"><b>Outdoor Outreach by a Collector/Photographer</b></font></a>.<br>
 Please kindly share the news and the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
