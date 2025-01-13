@@ -21,5 +21,3 @@ The Photo Subteam<br>
 sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
-
-https://imageevent.com/sahaja/art/drawings
