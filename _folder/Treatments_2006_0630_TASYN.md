@@ -7,7 +7,7 @@ tags:
   - blue @ TBD
   - brown @ 2006
   - deeppink @ 2006-0630 The Australian Sahaja Yoga Newsletter
-  - maroon @ footsoak
+  - maroon @ Footsoak
 ---
 
 <br>
