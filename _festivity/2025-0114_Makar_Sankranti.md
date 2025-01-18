@@ -25,8 +25,8 @@ But through the ascent, when we achieve a higher state, it's only possible when 
 </p>
 
 <p>
-<font color="DarkRed">"Today is the day they give you a sweet thing to say that: `You must s-speak sweetly,' which is very important for Western people. That when you are doing and organizing, you become heated up, there's tension and you develop the temperament which is dry, emotionless, you know the heart goes into a tantrum. At that time, they say that, 'You take the sweet.'<br>
-This sweet is a heated thing because now the Sun is moving towards the other side. That time, also they, to give it a balance, they say: `Speak very sweetly. Use sweet words, use sweetness. Bring sweetness in your language.' Which is very important, you understand that.<br>
+<font color="DarkRed">"Today is the day they give you a sweet thing to say that: 'You must s-speak sweetly,' which is very important for Western people. That when you are doing and organizing, you become heated up, there's tension and you develop the temperament which is dry, emotionless, you know the heart goes into a tantrum. At that time, they say that, 'You take the sweet.'<br>
+This sweet is a heated thing because now the Sun is moving towards the other side. That time, also they, to give it a balance, they say: 'Speak very sweetly. Use sweet words, use sweetness. Bring sweetness in your language.' Which is very important, you understand that.<br>
 And this is one of the religions we have to accept: that we will not use harsh words to each other, and then later on to others.<br>
 First of all to each other. There are very [many] people who will be kind to others, because others will eat them off, but unkind to their own Sahaja Yogis.<br>
 Because it is a universal happening. It's the whole thing is ... is working out universally.<br>
@@ -58,7 +58,6 @@ The Sun has its place at the Āgñyā chakra. You all know it, and think of the 
 O Divine Mother, You are verily the one who does the Divine work. Salutations to You!</font><br>
 <a href="https://www.youtube.com/watch?v=jqmPOEnU9tg"> <font color="red">12 names of Shri Surya - UK</font></a><br>
 </p>
-</p>
 
 <p>
 <font color="Red"><b>"Because all over the world we realize that Sahaja Yoga is the only way for human emancipation. Is the only way we are going to transform this world into a beautiful place. For that, we have to get into a pop ... proper understanding geared up, absolutely like soldiers into a disciplined life, so that whatever we want to do we can do in our optimum capacities.<br>
@@ -69,9 +68,9 @@ So, to allow your full capacities to manifest, try to negate, to overlook your g
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0123.png" /></div>
 
 <p style="text-align:center;">
-"<b>So today is a great day. This saṅkramaṇa that has started requires serious effort. We cannot play about with that. It's very great emergency. I can feel in the atmosphere the emergency. All the Gods and Goddesses are there to help you to work it out. You are in ... on the stage and you have to create that great drama of revolution.<br>
+<font color="DarkRed">"<b>So today is a great day. This saṅkramaṇa that has started requires serious effort. We cannot play about with that. It's very great emergency. I can feel in the atmosphere the emergency. All the Gods and Goddesses are there to help you to work it out. You are in ... on the stage and you have to create that great drama of revolution.<br>
 We have to show to this world that it's only the Spirit that can save the world, nothing else. And so, from today we start our journey towards that subtlety and that sensitivity, which you can feel, with which you can feel Nirānanda. Nirānanda, your Mother's name is Nirā, and at Sahasrāra you feel the ānanda, the joy of Nirā.<br>
-May God bless you all.</b>"<br>
+May God bless you all.</b>"</font><br>
 <font size="+0"><b>1984-0114 Makar Saṅkrānti Pūjā, The Revolution Within Ourselves and Feel Your Subtler Sensitivities (It's Only the Spirit that Can Save the World), Suryavanshi Hall (near Śhivajī Park), Dadar, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -87,18 +86,18 @@ May God bless you all.</b>"<br>
 </p>
 
 <p>
-<font color="OrangeRed"><b>Sarva Mangala Mangale</b> (1987-0114 Makar Saṅkrānti Pūjā)</font><br>
-<a href="https://youtu.be/T_myaTlqb4Y">video</a> 
+<font color="green"><b>Sarva Mangala Mangale</b> (1987-0114 Makar Saṅkrānti Pūjā)</font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
 <font color="green"><b>Brahma Shodile</b> (1988 Music after Sakranti Puja)</font><br>
-<a href="http://youtu.be/T9C8MIBqAxc">video</a> 
+ <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="OrangeRed"><b>Navgraha Strotra</b></font><br>
-<a href="https://youtu.be/feugPtjSqVE">video</a> 
+<font color="green"><b>Navgraha Strotra</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p style="text-align:center;">
