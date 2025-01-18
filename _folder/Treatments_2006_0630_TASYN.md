@@ -4,9 +4,10 @@ date: 2006-06-01
 permalink: /folder/2006-0601-Treatment-2006-0630-TASYN
 tags:
   - black @ Treatment
-  - blue @ Edward Saugstad
-  - brown @ 2003
+  - blue @ TBD
+  - brown @ 2006
   - deeppink @ 2006-0630 The Australian Sahaja Yoga Newsletter
+  - maroon @ footsoak
 ---
 
 <br>

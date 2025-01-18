@@ -1,13 +1,17 @@
 ---
-title: '2006-0407 Song &#8216;What a Time! – 59th Wedding Anniversary&#8217; by Michelle Shete, Sydney from 2006-0414 The Australian Sahaja Yoga Newsletter, Page 2'
+title: '2006-0407 Song &#8216;What a Time! &#8211; 59th Wedding Anniversary&#8217; by Michelle Shete, Sydney from 2006-0414 The Australian Sahaja Yoga Newsletter, Page 2'
 date: 2006-04-07
 permalink: /folder/2006-0407-MS-What-a-Time
 tags:
   - blue @ Song
   - black @ Michelle Shete
   - brown @ 2006
+  - cornflowerblue @ Sydney 
   - crimson @ TBD
   - deeppink @ 2006-0414 The Australian Sahaja Yoga Newsletter
+  - maroon @ Time
+  - maroon @ What
+---
 
 <br>
 
