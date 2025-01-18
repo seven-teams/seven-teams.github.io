@@ -438,13 +438,13 @@ Respect each and every person. N... not to what he has read or for what he has l
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"I would request each one of you should rise. At your own level, rise higher and try to spread Sahaja Yoga in the proper way.<br>
+<font color="DarkRed">"I would request [that] each one of you should rise. At your own level, rise higher and try to spread Sahaja Yoga in the proper way.<br>
 So today, the first and the foremost vow is, as I told you, that we have to get cleansed up in such a way that become ... we become free of ego and superego. We should get rid of our ignorance and darkness. And the second vow, as I have said, that you have to become the light to remove the darkness and ignorance of others.<br>
 By sharing My problems, by sharing My anxieties about them -- those who are lost -- and not to be involved into your own personal anxieties and petty things. My problems should be your problems now because you all belong to Me, to My body, to My being.<br>
 And I request you to join hands with Me, with full determination and complete attention and the heart of a lion.<br>
 I hope you will not fail Me and you will promise in your heart tonight, that, 'We'll do' the things that I have request[ed] you you to do.<br>
 ......<br>
-Grégoire says we should take these vows aloud. I think that's a good idea. Let I see by saying aloud if it works out. It should be said inside."</font><br>
+Grégoire says we should take these vows aloud. I think that's a good idea. Let us see by saying aloud if it works out. It should be said inside."</font><br>
 <font size="+0"><b>1985-1116 Talk to Sahaja Yogis, Racism, during the Evening Program, after dinner the day before Diwālī Pūjā, Tivoli, Lazio, Italy</b></font>
 </p>
 
