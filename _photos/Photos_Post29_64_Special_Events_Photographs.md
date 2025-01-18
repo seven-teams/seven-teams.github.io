@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 3 Photos of the special event <font color="Crimson"><b>1990-0329 Conversation, Jaipur, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 high resolutions from the Named Collections.<br>
-The direct link to the 3 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1990">Collection 1990</a>.<br>
+The direct link to the 3 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1990-01-to-11">Collection 1990-01 to 11</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

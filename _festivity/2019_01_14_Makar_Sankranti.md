@@ -74,7 +74,7 @@ In some countries people believe that if you speak to someone sweetly, it is a s
 <div style="text-align: center"><img src="/images/image121.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>Aum twameva sakshat Shri Deva- Karya sakshat Shri Adi Shakti Mataji Shri Nirmala Devyai namo namah!</b><br>
+<font color="DarkRed"><b>Auṃ Twameva sākṣhāt Śhrī Deva-Karyā sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
 O Divine Mother, You are verily the one who does the Divine work. Salutations to You!</font><br>
 <a href="https://www.youtube.com/watch?v=jqmPOEnU9tg"> <font color="red">12 names of Shri Surya - UK</font></a><br>
 </p>
