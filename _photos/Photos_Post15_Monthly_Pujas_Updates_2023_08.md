@@ -20,7 +20,7 @@ This month new Photos were uploaded to 9 Pūjas as follows.<br>
 (vi) 1983-0114 Śhrī Saraswatī Pūjā: 2 medium resolutions and 6 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1983"> <font color="DarkGreen"><b>India 1983</b></font></a>.<br>
 (vii) 1983-0118 Śhrī Gaṇeśha Pūjā: 6 medium resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1983"> <font color="DarkGreen"><b>India 1983</b></font></a>.<br>
 (viii) 1983-0211 Śhivarātri Pūjā: 12 medium resolutions and 2 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1983"> <font color="DarkGreen"><b>India 1983</b></font></a>.<br>
-(ix) 1988-0304 Holī Pūjā (Raṃgavalī Holī): 1 medium resolution and 1 low resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1988"> <font color="DarkGreen"><b>India 1988</b></font></a>.<br>
+(ix) 1988-0304 Holī Pūjā (Raṃgavalī Holī): 1 medium resolution and 1 low resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1988-01-to-11"> <font color="DarkGreen"><b>India 1988-01 to 11</b></font></a>.<br>
 Please kindly share the news and the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

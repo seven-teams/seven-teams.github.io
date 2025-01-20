@@ -13,7 +13,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 10 Photos from the special event <font color="Crimson"><b>1988-0000 Watching the Work, Pune, Maharashtra, India</b></font> have been uploaded 6 days ago to <font color="DarkGreen"><b>Eternal Moments</b></font>: 10 low resolutions from the Named Collections.<br>
-The direct link to the 11 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1988"> India 1988</a>.<br>
+The direct link to the 11 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1988-01-to-11"> India 1988-01 to 11</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
