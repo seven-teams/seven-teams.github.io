@@ -11,7 +11,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>1986-1005 Śhrī Gaurī Pūjā, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
-The direct link to the 4 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1986"><font color="DarkGreen">India 1986</font></a>.<br>
+The direct link to the 4 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1986-02-to-12"><font color="DarkGreen">India 1986-02 to 12</font></a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

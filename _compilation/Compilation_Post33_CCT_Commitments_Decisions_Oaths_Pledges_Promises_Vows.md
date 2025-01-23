@@ -444,7 +444,7 @@ By sharing My problems, by sharing My anxieties about them -- those who are lost
 And I request you to join hands with Me, with full determination and complete attention and the heart of a lion.<br>
 I hope you will not fail Me and you will promise in your heart tonight, that, 'We'll do' the things that I have request[ed] you you to do.<br>
 ......<br>
-Grégoire says we should take these vows aloud. I think that's a good idea. Let us see by saying aloud if it works out. It should be said inside.</font>
+Grégoire says we should take these vows aloud. I think that's a good idea. Let us see by saying aloud if it works out. It should be said inside.</font><br>
 <b>Grégoire de Kalbermatten:</b> I just felt that, as sometimes we are not so truly honest, when we say things inside, then we forget we have said them. So, let us say things aloud, so that we take for witnesses all living beings, all the Deities who are present around Śhrī Mātājī wherever She goes, all the creatures moving and unmoving, and the stars. So, let us take our vow aloud.<br>
 So, Śhrī Mātājī, that we can be sure that we don't forget. And [Italian].<br>
 So, now, what we are going to do: we are going to say aloud, without any shyness. Śhrī Mātājī, we take the vow to be free. And we repeat this three times.<br>
@@ -460,8 +460,8 @@ So, now, what we are going to do: we are going to say aloud, without any shyness
 <b>Grégoire de Kalbermatten followed by many Sahaja Yogis:</b> Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and owe and strength unill the end of our life. Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and strength unill the end of our life. Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and strength unill the end of our life.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> : Thank you very much.<br>
 May God bless you.</font><br>
-[After two Jay jayakāras:] May God bless you all. May God bless you all. May God bless you all.<br>
-I would suggest that: those who are elderly people should be given chairs, and those who are younger people should come down - is not proper for the elder people to be standing uh-uh ... s... sitting on the ground. Please take your seat.<br>
+[After two Jay jayakāras:] <font color="DarkRed">May God bless you all. May God bless you all. May God bless you all.<br>
+I would suggest that: those who are elderly people should be given chairs, and those who are younger people should come down - is not proper for the elder people to be standing uh-uh ... s... sitting on the ground. Please take your seat.</font><br>
 <font size="+0"><b>1985-1116 Talk to Sahaja Yogis, Racism, during the Evening Program, after dinner the day before Diwālī Pūjā, Tivoli, Lazio, Italy</b></font>
 </p>
 
