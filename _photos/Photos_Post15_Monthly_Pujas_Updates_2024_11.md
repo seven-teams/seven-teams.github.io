@@ -17,7 +17,7 @@ This month 8 new Photos were uploaded to 7 Pūjas as follows (1 high resolutions
 (iii) 1913-0000 Pūjā: 1 medium resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1913"> <font color="DarkGreen"><b>India 1913</b></font></a>.<br>
 (iv) 1983-0211 Śhivarātri Pūjā: 1 resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1983"> <font color="DarkGreen"><b></b></font></a>.<br>
 (v) 1987-0830 Śhrī Gaṇeśha Pūjā: 1 medium resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1987-01-to-09"> <font color="DarkGreen"><b>India 1987-01 to 09</b></font></a>.<br>
-(vi) 1988-1211 Śhrī Ādi Śhakti Pūjā: 1 high resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/"> <font color="DarkGreen"><b></b></font></a>.<br>
+(vi) 1988-1211 Śhrī Ādi Śhakti Pūjā: 1 high resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1988-12"> <font color="DarkGreen"><b>India 1988</b></font></a>.<br>
 (vii) 1990-1021 Diwālī Pūjā: 1 medium resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1990"> <font color="DarkGreen"><b>Italy 1990</b></font></a>.<br>
 Please kindly share the news and the links with all our brothers and sisters.<br>
 <br>

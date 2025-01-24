@@ -438,7 +438,30 @@ Respect each and every person. N... not to what he has read or for what he has l
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">I would request [that] each one of you should rise. At your own level, rise higher and try to spread Sahaja Yoga in the proper way.<br>
+So today, the first and the foremost vow is, as I told you, that we have to get cleansed up in such a way that become ... we become free of ego and superego. We should get rid of our ignorance and darkness. And the second vow, as I have said, that you have to become the light to remove the darkness and ignorance of others.<br>
+By sharing My problems, by sharing My anxieties about them -- those who are lost -- and not to be involved into your own personal anxieties and petty things. My problems should be your problems now because you all belong to Me, to My body, to My being.<br>
+And I request you to join hands with Me, with full determination and complete attention and the heart of a lion.<br>
+I hope you will not fail Me and you will promise in your heart tonight, that, 'We'll do' the things that I have request[ed] you you to do.<br>
+......<br>
+Grégoire says we should take these vows aloud. I think that's a good idea. Let us see by saying aloud if it works out. It should be said inside.</font><br>
+<b>Grégoire de Kalbermatten:</b> I just felt that, as sometimes we are not so truly honest, when we say things inside, then we forget we have said them. So, let us say things aloud, so that we take for witnesses all living beings, all the Deities who are present around Śhrī Mātājī wherever She goes, all the creatures moving and unmoving, and the stars. So, let us take our vow aloud.<br>
+So, Śhrī Mātājī, that we can be sure that we don't forget. And [Italian].<br>
+So, now, what we are going to do: we are going to say aloud, without any shyness. Śhrī Mātājī, we take the vow to be free. And we repeat this three times.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> Free of ignorance and darkness.</font><br>
+<b>Grégoire de Kalbermatten:</b> The vow is: 'Śhrī Mātājī we take the vow to be free from ignorance and darkness.'<br>
+<b>Many Sahaja Yogis:</b> Śhrī Mātājī, we take the vow to be free from ignorance and darkness. Śhrī Mātājī, we take the vow to be free from ignorance and darkness. Śhrī Mātājī, we take the vow to be free from ignorance and darkness.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> The second one should be: 'To be the light of Sahaja Yoga, and to spread the light of Sahaja Yoga till the end of our life, with all our strength.'</font><br>
+<b>Grégoire de Kalbermatten:</b> And the second vow is: ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> With all our heart we should say. Strength and heart.</font><br>
+<b>Grégoire de Kalbermatten:</b> Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> And strength.</font><br>
+<b>Grégoire de Kalbermatten:</b> <br>  ... and strength, for all our life.<br>
+<b>Grégoire de Kalbermatten followed by many Sahaja Yogis:</b> Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and owe and strength unill the end of our life. Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and strength unill the end of our life. Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and strength unill the end of our life.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> : Thank you very much.<br>
+May God bless you.</font><br>
+[After two Jay jayakāras:] <font color="DarkRed">May God bless you all. May God bless you all. May God bless you all.<br>
+I would suggest that: those who are elderly people should be given chairs, and those who are younger people should come down - is not proper for the elder people to be standing uh-uh ... s... sitting on the ground. Please take your seat.</font><br>
 <font size="+0"><b>1985-1116 Talk to Sahaja Yogis, Racism, during the Evening Program, after dinner the day before Diwālī Pūjā, Tivoli, Lazio, Italy</b></font>
 </p>
 
