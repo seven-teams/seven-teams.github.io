@@ -16,7 +16,7 @@ This month 41 new Photos were uploaded to 12 Pūjas as follows (32 high resoluti
 (ii) 1980-1123 Śhrī Guru Nāṇaka Jayanti Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/UK/1980"> <font color="DarkGreen"><b>UK 1980</b></font></a>.<br>
 (iii) 1981-0126 Śhrī Lakṣhmī-Viṣhṇu Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1981"> <font color="DarkGreen"><b>India 1981</b></font></a>.<br>
 (iv) 1984-0226 Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1984"> <font color="DarkGreen"><b>India 1984</b></font></a>.<br>
-(v) 1985-0126 Śhrī Devī Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1985"> <font color="DarkGreen"><b>India 1985</b></font></a>.<br>
+(v) 1985-0126 Śhrī Devī Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1985-01-20-to-31"> <font color="DarkGreen"><b>India 1985-01-20 to 31</b></font></a>.<br>
 (vi) 1986-0108 Śhrī Devī Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1986-01"> <font color="DarkGreen"><b>India 1986-01</b></font></a>.<br>
 (vii) 1987-0114 Makar Saṅkrānti Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1987-01-to-09"> <font color="DarkGreen"><b>India 1987-01 to 09</b></font></a>.<br>
 (viii) 1988-0508 Sahasrāra Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1988"> <font color="DarkGreen"><b>Italy 1988</b></font></a>.<br>

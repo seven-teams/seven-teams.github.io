@@ -248,7 +248,7 @@ Dīpawali, dīp means these lights, āwali means the row of lights.<br>
 All these great ideas come to us when we touch our depths. And we feel responsible for all the rest of the humanity.</font><br> 
 But then we gradually realize that there are lots of problems with our us ... own being, and the Kuṇḍalinī goes back into it, comes up again, and you realize that you have to correct yourself quite a lot.<br>
 Then this correction portion starts. You start thinking about yourself more than about others. And also other things which were identified with us like our own personal problems, our own personal ideas, ambitions, professions and all the things that, with which we have been enamored so far start peeping into our minds. <font color="DarkRed">And we start forgetting that moment when we got our Realization and all that we promised within ourselves to do.</font><br>
-<font color="DarkRed">So, the New [Year] Day comes to remind you: 'Doesn't matter, whatever has happened has happened, is finished. Today a new day has come to you again for you to promise again. Again start your journey, know the sun has come. And now be refreshed, the newness bring[s] the freshness of life.' And then you again start, greater enthusiasm on the New [Year] Day, with new ideas, with new promises, with new vows and with greater understanding about Sahaj Yog.</font>"<br>"
+<font color="DarkRed">So, the New [Year] Day comes to remind you: 'Doesn't matter, whatever has happened has happened, is finished. Today a new day has come to you again for you to promise again. Again start your journey, know the sun has come. And now be refreshed, the newness bring[s] the freshness of life.' And then you again start, greater enthusiasm on the New [Year] Day, with new ideas, with new promises, with new vows and with greater understanding about Sahaj Yog.</font>"<br>
 <font size="+0"><b>1979-1020 Diwālī Pūjā (Diwālī Day), Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
@@ -332,7 +332,7 @@ Then this correction portion starts. You start thinking about yourself more than
 ...... ... to decide that we will be worshiping Yogeśhwara.<br>
 We have to worship Him. Means: our relationships about these things has [have] to be cleaned.<br>
 We should not get involved into, it's nothing important."<br>
-<font color="blue"><b>1982-0815 Śhrī Yogeśhwara (God of Yoga) Pūjā, To do Duty to Him First and Foremost Thing Is You Have to Develop that Purity of a Yogeśhwara (Complete Purity) and A Real Yogi Is a Person who Gets this Yogeśhwara Awakened within Him (Unless and Until You Follow the Path of Yogeśhwara, You Cannot Establish Yourself Fully), Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font><br>
+<font color="+0"><b>1982-0815 Śhrī Yogeśhwara (God of Yoga) Pūjā, To do Duty to Him First and Foremost Thing Is You Have to Develop that Purity of a Yogeśhwara (Complete Purity) and A Real Yogi Is a Person who Gets this Yogeśhwara Awakened within Him (Unless and Until You Follow the Path of Yogeśhwara, You Cannot Establish Yourself Fully), Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -438,30 +438,7 @@ Respect each and every person. N... not to what he has read or for what he has l
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">I would request [that] each one of you should rise. At your own level, rise higher and try to spread Sahaja Yoga in the proper way.<br>
-So today, the first and the foremost vow is, as I told you, that we have to get cleansed up in such a way that become ... we become free of ego and superego. We should get rid of our ignorance and darkness. And the second vow, as I have said, that you have to become the light to remove the darkness and ignorance of others.<br>
-By sharing My problems, by sharing My anxieties about them -- those who are lost -- and not to be involved into your own personal anxieties and petty things. My problems should be your problems now because you all belong to Me, to My body, to My being.<br>
-And I request you to join hands with Me, with full determination and complete attention and the heart of a lion.<br>
-I hope you will not fail Me and you will promise in your heart tonight, that, 'We'll do' the things that I have request[ed] you you to do.<br>
-......<br>
-Grégoire says we should take these vows aloud. I think that's a good idea. Let us see by saying aloud if it works out. It should be said inside.</font><br>
-<b>Grégoire de Kalbermatten:</b> I just felt that, as sometimes we are not so truly honest, when we say things inside, then we forget we have said them. So, let us say things aloud, so that we take for witnesses all living beings, all the Deities who are present around Śhrī Mātājī wherever She goes, all the creatures moving and unmoving, and the stars. So, let us take our vow aloud.<br>
-So, Śhrī Mātājī, that we can be sure that we don't forget. And [Italian].<br>
-So, now, what we are going to do: we are going to say aloud, without any shyness. Śhrī Mātājī, we take the vow to be free. And we repeat this three times.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> Free of ignorance and darkness.</font><br>
-<b>Grégoire de Kalbermatten:</b> The vow is: 'Śhrī Mātājī we take the vow to be free from ignorance and darkness.'<br>
-<b>Many Sahaja Yogis:</b> Śhrī Mātājī, we take the vow to be free from ignorance and darkness. Śhrī Mātājī, we take the vow to be free from ignorance and darkness. Śhrī Mātājī, we take the vow to be free from ignorance and darkness.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> The second one should be: 'To be the light of Sahaja Yoga, and to spread the light of Sahaja Yoga till the end of our life, with all our strength.'</font><br>
-<b>Grégoire de Kalbermatten:</b> And the second vow is: ...<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> With all our heart we should say. Strength and heart.</font><br>
-<b>Grégoire de Kalbermatten:</b> Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart ...<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> And strength.</font><br>
-<b>Grégoire de Kalbermatten:</b> <br>  ... and strength, for all our life.<br>
-<b>Grégoire de Kalbermatten followed by many Sahaja Yogis:</b> Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and owe and strength unill the end of our life. Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and strength unill the end of our life. Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and strength unill the end of our life.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> : Thank you very much.<br>
-May God bless you.</font><br>
-[After two Jay jayakāras:] <font color="DarkRed">May God bless you all. May God bless you all. May God bless you all.<br>
-I would suggest that: those who are elderly people should be given chairs, and those who are younger people should come down - is not proper for the elder people to be standing uh-uh ... s... sitting on the ground. Please take your seat.</font><br>
+<font color="DarkRed">""</font><br>
 <font size="+0"><b>1985-1116 Talk to Sahaja Yogis, Racism, during the Evening Program, after dinner the day before Diwālī Pūjā, Tivoli, Lazio, Italy</b></font>
 </p>
 
