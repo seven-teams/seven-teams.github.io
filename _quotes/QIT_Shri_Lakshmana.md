@@ -24,7 +24,12 @@ Keep the eyes low. Gradually all these baddhas will go away spontaneously."</fon
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"
+<b>Version 1:</b><br>
+Agni is our Brother-in-law (Dīr). That means Lakṣhmaṇa. They move about in the Form of Śheṣhanāg. But their main task is to protect our modesty. They come up to My Feet and no further."
+<br>
+<b>Version 2:</b><br>
+"Agni is My dīra [brother-in-law], means He is Lakṣhmaṇ. He roams around in the Form of Śheṣhanāg. Protecting My chastity is His most important task. He only comes up to My Feet and never beyond it."</font><br>
 <font size="+0"><b>1977-0322 Public Program, Questions and Answers, Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -32,7 +37,7 @@ Keep the eyes low. Gradually all these baddhas will go away spontaneously."</fon
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1977-1113 Letter to Iṃdirābāī (Marathi), London, UK}</b></font>
 </p>
 
 <div class="para-divider"></div>
