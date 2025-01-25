@@ -43,8 +43,146 @@ Agni is our Brother-in-law (Dīr). That means Lakṣhmaṇa. They move about in 
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"The gaze should be kept down to the ground.<br>
+We have the example of Lakṣhmaṇa. Sītā was His sister-in-law. Now we do banter and joke with our sister-in-law. Even while talking to Her, He used to look at Her Feet only. Never used to look up. So much respect He must have had.<br>
+So the gaze should be at the feet. Do not look in the upward direction. If someone does speak and ask, then look up slowly with great respect and reverence. This movement of the eyes helps in Sahaja Yoga."</font><br>
+<font size="+0"><b>1979-0226 Talk to Sahaja Yogis (Marathi), Sahajayogyānshi Hitguj (Benefit Providing Talk with Sahaja Yogis), Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1979-0528 Talk to Sahaja Yogis, Christ the Gate and Śhrī Mātājī the Destination, Seminar, Day 2, Session 1 (morning), Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">Now, you all should understand that when we talk about religion then it is more within than external.<br>
+There are many examples for it. You can take example of Śhrī Rāma. There was an old lady without teeth, living in jungle, without taking bath. She brought the berries for Śhrī Rāma by tasting it that if they are sweet or sour and offered them to Śhrī Rāma. In Maharashtra they are very particular about this that they will not eat of it is eaten by others. Will you eat those berries? But Śhrī Rāma enjoyed them with love! He told to Sītā that, "I will not give you even one, I will eat them all. I never got such taste ever." Then that old lady said that I have more and they are broken by my teeth. Lakṣhmaṇa became very angry seeing all this. Then Sītājī said that, "It is true that even I have not tasted such berries ever in My life. Give Me more and also to My brother-in-law." It is described so beautifully." "</font><br>
+<font size="+0"><b>1979-0924 Talk to Sahaja Yogis (Marathi), Kuṇḍalinī, Śhrī Śhivaśhakti and Śhrī Viṣhṇuśhakti, Navarātri Celebrations (3rd Day), Amar Hind Mandal, West Dadar, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1980-0704 Talk to Sahaja Yogis, The Joy of Life, Advice on Marriage, Wedding of Tony (Cooley) Paniotou, Hesta Szpiro's Mother's House, Abbey Lodge, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1981-1212 Conversation with Sahaja Yogis, House, 48 Brompton Square, Knightsbridge, London, UK (date not sure)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"The man should have his honor. Just like a woman cherishes her dignity, men should also have that.<br>
+Look at a man like Lakṣhmaṇ. How He used to walk with lowered eyes! He did not see anything above His sister-in-law's Feet.<br>
+So discard these beastly instincts and maintain you honor."</font><br>
+<font size="+0"><b>1982-0119 Śhrī Ādi Śhakti Pūjā (Marathi), Love Is the Main Thing, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Now He had two brothers, very interesting. I mean he had other brothers also, but Bharat and another was Lakṣhmaṇa. These were two brothers were with Him.<br>
+Now they show the two sides of a human being.<br>
+One was Lakṣhmaṇa, and he was that fiery type, you see. He couldn't bear anybody misbehaving towards Rāma. He couldn't bear anybody talking in a very mundane type to Śhrī Rāma. And he used to get so angry with all these people, that he would just come out like a big thunderbolt on anybody who tried to say anything about Śhrī Rām.<br>
+Even Paraśhurāma who was, there, a contemporary Incarnation of Śhrī Rāma Himself was Paraśhurāma. Is a very interesting story about that.<br>
+But, he could not bare Paraśhurāma in any way  [<font color="orange">gap</font>]<br>
+... He is the Śheṣha as they call it: the ... the serpent which sleeps in the Bhavasāgara, on which Śhrī Viṣhṇu rests. The same Śheṣha had taken birth as Śhrī Lakṣhmaṇa.<br>
+......"</font><br>
+<font size="+0"><b>1982-0402 Śhrī Rāma Pūjā (Rāma Navamī Day), Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-0425 Conversation with Sahaja Yogis, Apartment of Ruth Lederberger, Via Giuseppe Mercalli, 46, Rome, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-0503 Talk to Sahaja Yogis, before and during Breakfast, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), Île-de-France, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-0822 Śhrī Gaṇeśha Pūjā, House of Charles and Magda Mathys, Chemin des Moulins-de-Drize 5, Troinex (6 kms S of Geneva), Gèneve, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0118 Śhrī Gaṇeśha Pūjā (Vināyaka Chaturthī Day), House of Dr. Ramesh Adinath Saṃghavī, B.N-1, Sapt Shrung, Krishnanagar Housing Society, Saharanpur Road, Nasik, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Small cherries given by Śhabarī to Rām, Rām ate with such love, appreciating it to Sītā. Lakṣhmaṇ became angry. Sītājī told Him, "Brother-in-law, please try these berries. I have never eaten such berries in life." Trusting His sister-in-law, He tried one and He found it heavenly. They enjoyed the cherry Śhabarī gave Them even though she had tasted each of them prior to offering Them because she tasted each with love to ensure that only the sweet ones are offered.<br>
+[Is] the innocent offering to God."</font><br>
+<font size="+0"><b>1983-0504 Public Program (Hindi), Sane Gurujī Vidyālaya (English Medium) School, Bhikoba Waman Pathare Mārg, Near Dadar Catering College, Shivaji Park, West Dadar, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0310 Śhrī Devī Pūjā, Sahaja Yoga Is Our Aim, Is Our Dharma, Is Our Being and One Has to Be All the Time Ascending (You Are Stationed in the Center in Your Spirit), Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"When Rāma incarnated, you sent Lakṣhmaṇa for his support. When Kṛiṣhṇa incarnated, you sent Arjuna as his instrument. But you sent Me all alone with nobody to help. It does not matter, the love of My children is enough for Me to accomplish My mission, and I shall not leave this Earth till My last child is saved."</font><br>
+<font size="+0"><b>1985-0328 Quote on Greeting the Himalayas (Her father), Dharmaśhālā, Himachal Pradesh, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0804 Śhrī Gaṇeśha Pūjā, The Vehicle We Have Is Our Chastity, Brighton Friends Meeting House, Ship Street, Brighton, East Sussex, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">[Śhrī Mātājī says Nasik is a "Tapa Bhūmi" meaning it is a land for tapas, meaning penance. Śhrī Rāma, Śhrī Sītā and Śhrī Lakṣhmaṇa came and lived here for many years. They walked barefoot on this land, so this is very special land that is been vibrated by them. Nasik is the place where Śhrī Lakṣhmaṇa cut off the nose of a demonic character, the sister of Rāvaṇa called Śhūrpaṇakhā.]</font><br>
+<font size="+0"><b>1985-1216 Comments on Nasik, Balcony, House, Nasik, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-1217 Pūjā (English + Marathi + English), Right Type of Conduct and The Establishment of Our Dharma Is Very Important, House of Dr. Ramesh Adinath Saṃghavī, B.N-1, Sapt Shrung, Krishnanagar Housing Society, Saharanpur Road, Nasik, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1986-1101 Diwālī Pūjā (Hindi + Marathi) (Diwālī Day), Puṣhpa Maṅgal Karyalaya, Mote Mangal Karyalay Road, Sheth Narayan Das Dugad Chowk, Bibwewadi, Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1986-1223 Pūjā, About Ego, House of Dr. Ramesh Adinath Saṃghavī, B.N-1, Sapt Shrung, Krishnanagar Housing Society, Saharanpur Road, Nasik, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -65,122 +203,117 @@ Agni is our Brother-in-law (Dīr). That means Lakṣhmaṇa. They move about in 
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Vaud, Switzerland</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1988-1220 Pūjā (English + Marathi), Garden, little House, Brahmapuri, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1989-1229 Talk to Sahaja Yogis (English + Marathi + English), after the Public Program with an Aggression, Aṃgāpūr (near Brahmapuri), Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1990-0213 Śhrī Mahiṣhāsuramardinī Pūjā, House, Bengaluru, Karnataka, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1990-0831 Śhrī Hanumāna Pūjā, Electromagnetic Force, Schloss Schwetzingen, Schloß Mittelbau, Schwetzingen, Baden-Württemberg, Germany</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"So the Love of God Almighty you already know, you have the knowledge. And whatever you wish to know you can know. Wherever He turns His attention, the attention will know what it is. He knows all this on your chakras, and also He knows how to correct these chakras. And the procedure is so beautiful, gentle and delicate, that to understand it we should have a heart. Unless we have a heart, we cannot understand that action of the Paramātma.<br>
+Like the berries of Śhabarī. Śhabarī belonged to a simple class called Bhīls. Bhīls are among the lowest strata of the caste system. She was old, and her teeth were missing. She just had about three or four teeth in her mouth. When Śhrī Rām came to that area, she collected some berries, and pierced each one with her teeth, to taste if they were sweet, because she could not offer sour fruits to Him. That is why she selected each one carefully.<br>
+When she offered them to Śhrī Rām, He got a glimpse of her love in it. He knew. He recognized that this was an offering of love. He accepted the whole lot, and began to eat them, one by one. He said, "I have never eaten such tasty berries before. They are pure Amṛut. His wife, who was verily the Devī, saw this and said, "Really? Then give Me also some." He said, "No! I am not giving any to anyone. These are for Me." Just see the mirth. Such a way of expressing His love. His wife said, "Look. I am Your other half, and You will have to share half with Me!" In the name of dharma He agreed, and gave Her some. Just two or three. Not more. She ate them, and She said, "What wonderful berries these are! I have never eaten this kind before."<br>
+Normally, no one eats something that has been half eaten by someone else. But the half-eaten berries of this tribal woman, were eaten by both of Them. Lakṣhmaṇ was reacting, and got angry. He thought, 'What discourteous behavior is this! Such a great Incarnation is standing before us, and this woman has come with her half-eaten berries, and is actually feeding it to Him! And They seem to be eating and enjoying them.' And He got into a temper.<br>
+But when Sītājī exclaimed that She had never eaten such tasty berries, He got a little tempted. He pleaded, "Please give me also a few. Please give." She said, "No. I will not give." Then He said, "All right, please forgive me. But please give me a few." So, Sītājī relented, and gave Him two or three. No sooner He ate the berries, His anger came down. He became absolutely cool.<br>
+So in which way this loving banter, these waves of love, these small, small things are used by Paramātma to raise the level of a human being. It is only by these waves of love that a human being can be raised by Paramātma. This is how He tries to raise them. No other. Only God knows the different ways of setting right human beings."</font><br>
+<font size="+0"><b>1991-0304 Public Program (Hindi), Prema Hī Paramātmā (Love is Divine), Noida, Uttar Pradesh, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"In Pure Conduct first quality is love and affection.<br>
+When Śhrī Sītā was with Her husband in jungle She never complaint about Her husband that, 'He has no money, He doesn't buy things for me,' instead She said, "If He lives in jungle I will be with Him, whatever He eats I will eat the same." She used to feed Her husband, Her brother-in-law Lakṣhmaṇa and then eat the food."</font><br>
+<font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi) (the day after Rāma Navamī Day), If You Believe in Śhrī Rāma Follow His Ideal (Our Nature Can Change because He Is Our Ideal and You All Become Ideals for this World), Kolkata, West Bengal, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1994-0911 Śhrī Gaṇeśha Pūjā, Innocence and Love, Moscow, Russia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1994-0928 Indian and Iranian Public Program (English + Hindi + English), Sequoia Athletic Club, 7530 Orangethorpe Avenue, Buena Park (33 kms SW of Los Angeles), CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1994-0929 Public Program, Think about Your Benevolence, Loews Santa Monica Beach Hotel, 1700 Ocean Ave, Santa Monica, CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Śhrī Rāma met a tribal woman, perhaps you must have seen a Bhilni, tribal person. These people belong to Madhya Pradesh and are very ignorant people. Śhrī Rāma ate, that kind of an old women already tasted berries. He not only ate them, but also described them and gave them to His wife saying, "You also eat them, they are so tasty." Lakṣhmaṇjī also agreed to eat them."</font><br>
+<font size="+0"><b>1994-1130 Public Program (Hindi), Paise ke Pīche Dauṛ (The Race after Money), Noida, Uttar Pradesh, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"In this way, there was no casteism before.<br>
+I am going to give you proof for this.<br>
+When Śhrī Rām went to jungle, Śhabarī an old woman who had very few teeth, tasted each piece of berry on her tooth, gave these to Śhrī Rām. So, Śhrī Rām said: "Oh! How sweet and nice these are!" He took berries and started eating. He said, "This is Amṛut fruit, how beautiful!" His wife said, "I should also get some share as I am Your better half."<br>
+But Lakṣhmaṇjī was getting very angry that this old lady is touching the berries to her teeth and feeding [Him]. And she was Bhilni, meaning Śhūdra.<br>
+Then His wife Sītājī said, "How nice these berries are!" Then Lakṣhmaṇjī said, "Give me some too." "Why shall I give? You are getting angry?" He said, "Please give me some." After eating some, he said, "These are just like Amṛut fruit."<br>
+This is an example of Śhrī Rāmachandrajī, it proves that He did not believe in Śhūdra, etc."</font><br>
+<font size="+0"><b>1995-0422 TV Broadcast (Hindi), Sahaj Yog Se Lābh (Benefits of Sahaja Yoga), Part 4, Dūradarśhan Television Network, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1996-0716 Śhrī Lakṣhmī Pūjā, Lakṣhmī Principle and We Have to Live like One Family, Moscow, Russia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"To uphold the maryādās of the throne He renounced Śhrī Sītājī (who was very dear to Him), simply because people doubted Her despite her crossing the fire (Agni Parīkṣhā). Śhrī Sītājī Herself also left Śhrī Rāma, in a way in the end after bringing up Her children nicely; who had acquired all vidyās and had mastered the Art of Archery, so much so that they defeated their own uncle Śhrī Lakṣhmaṇa and ultimately Śhrī Rāma had to come to fight with them to free the horse of `Aśhvamedh Yagñya'. But Śhrī Sītājī who stood on `dharma', intervened and averted the fight between the father and the sons."</font><br>
+<font size="+0"><b>1998-0405 Śhrī Rāma Pūjā (Rāma Navamī), House, Noida, Uttar Pradesh, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1998-0816 Śhrī Kṛiṣhṇa Pūjā, Witness Without Reaction and Allow the Power to Act, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
