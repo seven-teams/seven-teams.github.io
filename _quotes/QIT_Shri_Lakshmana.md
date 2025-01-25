@@ -304,7 +304,7 @@ This is an example of Śhrī Rāmachandrajī, it proves that He did not believe 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"To uphold the maryādās of the throne He renounced Śhrī Sītājī (who was very dear to Him), simply because people doubted Her despite her crossing the fire (Agni Parīkṣhā). Śhrī Sītājī Herself also left Śhrī Rāma, in a way in the end after bringing up Her children nicely; who had acquired all vidyās and had mastered the Art of Archery, so much so that they defeated their own uncle Śhrī Lakṣhmaṇa and ultimately Śhrī Rāma had to come to fight with them to free the horse of `Aśhvamedh Yagñya'. But Śhrī Sītājī who stood on `dharma', intervened and averted the fight between the father and the sons."</font><br>
+<font color="red">"To uphold the maryādās of the throne He renounced Śhrī Sītājī (who was very dear to Him), simply because people doubted Her despite her crossing the fire (Agni Parīkṣhā). Śhrī Sītājī Herself also left Śhrī Rāma, in a way in the end after bringing up Her children nicely; who had acquired all vidyās and had mastered the Art of Archery, so much so that they defeated their own uncle Śhrī Lakṣhmaṇa and ultimately Śhrī Rāma had to come to fight with them to free the horse of 'Aśhvamedh Yagñya'. But Śhrī Sītājī who stood on 'dharma', intervened and averted the fight between the father and the sons."</font><br>
 <font size="+0"><b>1998-0405 Śhrī Rāma Pūjā (Rāma Navamī), House, Noida, Uttar Pradesh, India</b></font>
 </p>
 
