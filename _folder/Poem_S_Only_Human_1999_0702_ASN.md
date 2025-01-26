@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8216;Only Human&#8217; by Sidsel, Norway from 1999-07022 Australian Sahaja Newsletter, Page 5'
+title: 'Poem &#8216;Only Human&#8217; by Sidsel, Norway from 1999-0702 Australian Sahaja Newsletter, Page 5'
 date: 1999-07-02
 permalink: /folder/1999-0702-S-Only-Human
 tags:

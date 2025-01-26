@@ -1,7 +1,7 @@
 ---
 title: 'Poem &#8216;Through Collective Eyes&#8217; by Roginey, Durban from 1998-0214 Australian Sahaja Newsletter, Page 8'
 date: 1997-01-01
-permalink: /folder/1997-01-01-Roginey-Through-Collective-Eyes
+permalink: /folder/1997-0101-Roginey-Through-Collective-Eyes
 tags:
   - black @ Poetry
   - blue @ Roginey
