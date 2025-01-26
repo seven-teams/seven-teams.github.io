@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#Sahasrara&#8217; from the 1990-0300 The Divine Cool Breeze (U.S.A.), Volume 4, Issue 2, Page 5'
+title: 'Poem &#8216;Sahasrara&#8217; from the 1990-0300 The Divine Cool Breeze (U.S.A.), Volume 4, Issue 2, Page 5'
 date: 1990-01-01
 permalink: /folder/1990-0101-Sahsrara-1990-0300-DCB-USA-P5
 tags:

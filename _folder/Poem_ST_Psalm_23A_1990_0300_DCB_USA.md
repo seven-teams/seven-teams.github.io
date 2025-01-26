@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#Psalm 23A&#8217; by Stephen Taylor, Australia from the 1990-0300 The Divine Cool Breeze (U.S.A.), Volume 4, Issue 2, Page 10'
+title: 'Poem &#8216;Psalm 23A&#8217; by Stephen Taylor, Australia from the 1990-0300 The Divine Cool Breeze (U.S.A.), Volume 4, Issue 2, Page 10'
 date: 1990-01-01
 permalink: /folder/1990-0101-ST-Psalm-23A-1990-0300-DCB-USA-P10
 tags:
