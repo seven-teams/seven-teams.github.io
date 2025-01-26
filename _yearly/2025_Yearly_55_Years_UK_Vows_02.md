@@ -13,7 +13,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b></b><br></font>
+<font size="+2"><b>Without Commitment Purity Cannot Come In</b><br></font>
 </p>
 
 <p>
