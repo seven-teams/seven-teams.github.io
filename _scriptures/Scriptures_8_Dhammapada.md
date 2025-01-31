@@ -1280,135 +1280,33 @@ for the person who conquers himself, who lives constantly well-restrained,</font
 </p>
 
 <p>
-<b>105 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>105 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>106 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>106 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>107 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>107 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>108 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>108 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
 <b>109 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Abhivādanasīlissa nicchaṁ vaddhāpachāyino,<br>
+chattāro dhammā vaḍḍhanti: āyu vaṇṇo sukhaṁ balaṁ.</font>
 </p>
 
 <p>
 <b>109 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>110 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>110 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>111 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>111 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">And whosoever honours in reverence those who are old in virtue and holiness, he indeed conquers four treasures: long life, and health, and power and joy.</font><br>
+<font color="blue">To revere such a man,<br>
+A master old in virtue and holiness,<br>
+Is to have victory over life itself,<br>
+And beauty, strength and happiness.</font><br>
+<font color="Peru">For the one who is constantly worshipping honourable elders,<br>
+four things increase: the length of life, beauty, happiness, and strength.</font>
 </p>
 
 <p>
 <b>112 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+ekāhaṁ jīvitaṁ seyyo, viriyam-ārabhato daḷhaṁ.</font>
 </p>
 
 <p>
 <b>112 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>113 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>113 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>114 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>114 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>115 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>115 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... life lived with courage and powerful striving.</font><br>
+<font color="blue">...... one day spent in determination.</font><br>
+<font color="Peru">......  life of one day is better, for one with energy set up and firm</font>
 </p>
 
 <div class="para-divider"></div>
@@ -1421,63 +1319,18 @@ for the person who conquers himself, who lives constantly well-restrained,</font
 </p>
 
 <p>
-<b>116 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>116 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>117 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>117 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>118 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>118 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>119 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>119 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
 <b>120 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Bhadro pi passati pāpaṁ yāva bhadraṁ na pacchati,<br>
+yadā cha pacchati bhadraṁ atha bhadro bhadrāni passati.</font>
 </p>
 
 <p>
 <b>120 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">A man may find pain in doing good as long as his good has not given fruit; but when the fruit of good comes then that man finds goood indeed.</font><br>
+<font color="blue">And a good man may suffer<br>
+Until his goodness flowers.</font><br>
+<font color="Peru">Even the fortunate one experiences wickedness as long as the good fortune does not ripen,<br>
+but when the fortune ripens then the fortunate one experiences good fortune.</font>
 </p>
 
 <p>
