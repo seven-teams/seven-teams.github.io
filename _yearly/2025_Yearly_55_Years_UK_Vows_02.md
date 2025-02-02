@@ -36,7 +36,7 @@ One has to decide the commitment: 'I have committed to Sahaja Yoga.' And that is
 <font color="blue"><b>1987-0111 Śhrī Devī Pūjā, We Must Fully Dedicate Ourself and Complete Commitment to Sahaja Yoga (One Has to Progress Higher and Higher), Paiṭhaṇ (51 kms S of Aurangabad), Maharashtra, India</b></font><br>
 </p>
 
-Links to suggested talk: <a href=""> video talk</a> and <a href=""> video</a><br>
+Links to suggested talk: <a href="https://vimeo.com/564390119"> SL</a> and <a href="https://soundcloud.com/nirmala-vidya-portal/1987-0111-commitment-and"> NVA</a><br>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
