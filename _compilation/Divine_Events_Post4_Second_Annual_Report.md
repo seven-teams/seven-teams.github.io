@@ -1,7 +1,7 @@
 ---
 title: 'Divine Events Post 4: Second Annual Report'
-date: 2025-02-01
-permalink: /compilation/2025/0201
+date: 2025-02-02
+permalink: /compilation/2025/0202
 tags:
   - pink @ Divine Events
   - violet @ Annual Report
