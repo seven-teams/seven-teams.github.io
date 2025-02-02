@@ -87,7 +87,9 @@ E-mail: <b>yearlycelebrations@gmail.com</b>
     
     x. **<font color="DarkGreen">2023 Celebrating Birthday Centenary of H. H. Shri Mataji Nirmala Devi</font>** 
     
-    xi. **<font color="DarkGreen">2024 Celebrating 50 Years of Sahaja Yoga in the UK</font>**         
+    xi. **<font color="DarkGreen">2024 Celebrating 50 Years of Sahaja Yoga in the UK</font>**
+    
+    xii. **<font color="DarkGreen">2025 Celebrating 55 Years of Commitments, Decisions, Oaths, Pledges, Promises, and Vows</font>**
 
 6. **<font color="blue">Divine Message Subteam.</font>** Pdf files and links to pdf files of different databases of transcripts (current or prior) of talks and writings of Śhrī Mātājī. Versions 1 and 2 were made available on July 1, 2016 and February 3, 2017.<br>
 E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
@@ -117,8 +119,13 @@ For other websites of Photographs please see:
 
     viii. <a href="https://photos.app.goo.gl/xLEgcynB4zgdL1gY6"> Cabella a Moskva </a> (David Burša Collection of Cabella and Moscow, created in 2020 as a Google Photos website, with earlier versions created in 2014)
     
+    ix. <a href="https://photos.app.goo.gl/frXim36sGNqaRxj89"> 1993/07/25 Public Program </a> or <a href="https://cloudcz108.cz4.quickconnect.to/mo/sharing/SNOg9uOLB"> 1993/07/25 Public Program </a> (David Burša Collection of Cabella and Moscow, created in 2025 as a Google Photos or Cloud Photos websites)
+    
 8. **<font color="blue">Archives Subteam.</font>** Pdf files and images and links to pdf files of different websites or databases of publications.<br>
-E-mail: <b>sahajayoga.compilations@gmail.com</b>  
+E-mail: <b>sahajayoga.compilations@gmail.com</b><br>
+For other websites of Magazines and Newsletter please see:
+
+    i. <a href="https://library.sahajaworld.org/magazines"> </a> (of Sahaja Digital Library) (created in 2017)
 
 9. **<font color="blue">Divine Events Subteam.</font>** Events blessed by H. H. Shri Mataji Nirmala Devi that are searchable on one page and that contain recollections and contributions received and/or researched.<br> 
 E-mail: <b>sahajayoga.compilations@gmail.com</b>
@@ -130,4 +137,10 @@ E-mail: <b>sahajayoga.compilations@gmail.com</b>
 E-mail: <b>sahajayoga.compilations@gmail.com</b>
 
 12. **<font color="blue">Chronology Team.</font>** Quotes from Śhrī Mātājī's talks and writings pertaining to U.S.A., grouped in chronological order.<br>
-E-mail: <b>sahajagyaan@gmail.com</b>    
+E-mail: <b>sahajagyaan@gmail.com</b>
+
+13. **<font color="blue">Handwritings Subteam.</font>** Handwritings of Śhrī Mātāj, grouped in chronological order.<br>
+E-mail: <b>sahajayoga.compilations@gmail.com</b>    
+
+14. **<font color="blue">Drawings and Letters (English, Hindi, Marathi) Subteam.</font>** Drawings and Letters of Śhrī Mātājī, grouped in chronological order.<br>
+E-mail: <b>sahajayoga.compilations@gmail.com</b> 

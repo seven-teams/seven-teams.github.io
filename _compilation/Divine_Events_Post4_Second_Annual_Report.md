@@ -1,6 +1,6 @@
 ---
 title: 'Divine Events Post 4: Second Annual Report'
-date: 2024-02-02
+date: 2025-02-01
 permalink: /compilation/2025/0201
 tags:
   - pink @ Divine Events
