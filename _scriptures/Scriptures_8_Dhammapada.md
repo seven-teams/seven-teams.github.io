@@ -1334,99 +1334,43 @@ but when the fortune ripens then the fortunate one experiences good fortune.</fo
 </p>
 
 <p>
-<b>121 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>121 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
 <b>122 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+dhīro pūrati puññassa, thokathokam-pi āchinaṁ.</font>
 </p>
 
 <p>
 <b>122 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>123 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>123 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+the wise one, gathering bit by bit, becomes full of merit.</font>
 </p>
 
 <p>
 <b>124 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+......, natthi pāpaṁ akubbato.</font>
 </p>
 
 <p>
 <b>124 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>125 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>125 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... the man who has no evil cannot be hurt by evil.</font><br>
+<font color="blue">...... The innocent come to no harm.</font><br>
+<font color="Peru">...... there is no bad result for the one who does no (wrong).</font>
 </p>
 
 <p>
 <b>126 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+....., parinibbanti anāsavā.</font>
 </p>
 
 <p>
 <b>126 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>127 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>127 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>128 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>128 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... those who are pure reach NIRVANA.</font><br>
+<font color="blue">...... the pure are not reborn.</font><br>
+<font color="Peru">...... those who are pollutant-free are emancipated.</font>
 </p>
 
 <div class="para-divider"></div>
@@ -1440,43 +1384,18 @@ but when the fortune ripens then the fortunate one experiences good fortune.</fo
 
 <p>
 <b>129 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+attānaṁ upamaṁ katvā, na haneyya na ghātaye.</font>
 </p>
 
 <p>
 <b>129 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>130 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>130 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>131 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>131 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>132 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="blue">......<br>
+See yourself in other.<br>
+Then whom can you hurt?<br>
+What harm can you do?</font><br>
+<font color="Peru">......<br>
+comparing oneself (with others), one should not hurt or have (them) hurt.</font>
 </p>
 
 <p>
