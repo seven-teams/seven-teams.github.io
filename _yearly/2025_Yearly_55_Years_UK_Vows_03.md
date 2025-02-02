@@ -37,5 +37,3 @@ Links to suggested talk: <a href="https://vimeo.com/59370238"> SL</a> and <a hre
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
 <p>Yearly Topics Team</p>
-
-Light doesn't mean, Light doesn't mean what you see with your gross eyes. Light means from within: the Light of Love. That one should understand: Light of Love. And it's so soothing, is so sweet, it's so beautiful, it's so enamoring, it's so abounding that unless and until you can feel that Light within you -- that Light which is of pure love, of purity, pure relationships, pure understanding. 
