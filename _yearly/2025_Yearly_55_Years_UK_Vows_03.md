@@ -1,5 +1,5 @@
 ---
-title: '2025 Celebrating 55 Years of Commitments, Decisions, Oaths, Pledges, Promises, and Vows, Post 3 on Vasant '
+title: '2025 Celebrating 55 Years of Commitments, Decisions, Oaths, Pledges, Promises, and Vows, Post 3 on Vasant Pañchamī'
 date: 2025-02-02
 permalink: /yearly/2025/0202
 tags:
