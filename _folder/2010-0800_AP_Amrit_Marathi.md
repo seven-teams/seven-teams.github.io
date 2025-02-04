@@ -1,13 +1,14 @@
 ---
 title: '2010-0800 Poem &#8216;Amrit&#8217; (Marathi)by Amit Pradhan, U.S.A.'
 date: 2010-08-01
-permalink: /folder/2010-0801-AP
+permalink: /folder/2010-0801-AP-Amrit-Marathi
 tags:
   - black @ Poetry
   - blue @ Amit Pradhan
   - brown @ 2010
   - cornflowerblue @ U.S.A.
   - maroon @ Amrit
+  - maroon @ Marathi
 ---
 
 <br>
