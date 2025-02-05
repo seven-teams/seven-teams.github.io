@@ -40,6 +40,8 @@ tags:
 </p>
 
 <p>
+<b>[English translation]</b><br>
+<br>
 Neither have I the knowledge of Dharma<br>
 Nor have earned the wealth of karma<br>
 Defeated I am in the realm of technique (yukti)<br>
@@ -62,6 +64,5 @@ Lost are the saints having watched radiance of the Being<br>
 Amazed at the seeing the infinite contained in this body<br>
 Having heard all these stories, Mother my thirst keeps on growing<br>
 My heart now begs of this one last wish<br>
-Mother, may I too get the taste of this honey.<b>[English translation]</b><br>  
-<br>
+Mother, may I too get the taste of this honey.
 </p>
