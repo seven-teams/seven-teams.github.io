@@ -7,6 +7,7 @@ tags:
   - blue @ Walter Lerchner
   - brown @ 2009
   - cornflowerblue @ U.S.A.
+  - deeppink @ 2009 Book Society Enlightened  
   - green @ Story of Poem Prayer
   - maroon @ Prayer
 ---

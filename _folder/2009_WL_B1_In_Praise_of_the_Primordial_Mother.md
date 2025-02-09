@@ -7,6 +7,7 @@ tags:
   - blue @ Walter Lerchner
   - brown @ 2009
   - cornflowerblue @ U.S.A.
+  - deeppink @ 2009 Book Poems of Love and Seeking  
   - green @ Story of Poem In Praise of the Primordial Mother
   - maroon @ Mother
   - maroon @ Praise
