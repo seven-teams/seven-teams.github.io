@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 13: Moments of Growth, New Albums and Galleries, Part 33'
-date: 2025-02-04
-permalink: /photos/2025/0204
+date: 2025-02-10
+permalink: /photos/2025/0210
 tags:
   - crimson @ Photos Moments of Growth
   - green @ Updates
@@ -11,8 +11,8 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to bring to your attention one new album of Art:<br>
-<b>1.</b> <a href=""><font color="DarkGreen"><b>Paintings of Drawings</b></font></a>.<br>
+We are pleased to bring to your attention one new album of Shri Mataji's Places:<br>
+<b>1.</b> <a href="https://imageevent.com/sahaja/shrimatajisplaces/shuddhicamp"><font color="DarkGreen"><b></b></font></a>.<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>

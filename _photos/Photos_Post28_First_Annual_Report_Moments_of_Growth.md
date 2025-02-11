@@ -26,7 +26,7 @@ In particular, below are the 12 new galleries which have been started in the las
 <b>9.</b> <a href="https://imageevent.com/sahaja/personalities/photos"> <font color="DarkGreen"><b>Personalities Photos</b></font></a>: has 133 images.<br>
 <b>10.</b> <a href="https://imageevent.com/sahaja/shrimatajisplaces/isps"> <font color="DarkGreen"><b>ISPS</b></font></a>: has 28 images.<br>
 <b>11.</b> <a href="https://imageevent.com/sahaja/shrimatajisplaces/palazzodoriabyjohnwatkinson"> <font color="DarkGreen"><b>Palazzo Doria by John Watkinson</b></font></a>: has 26 images.<br>
-<b>12.</b> <a href="https://imageevent.com/sahaja/shrimatajisplaces/huddhicampbycolinheinsen"> <font color="DarkGreen"><b>Śhuddy Camp by Colin Heinsen</b></font></a>: has 204 images.<br>
+<b>12.</b> <a href="https://imageevent.com/sahaja/shrimatajisplaces/shuddhicampbycolinheinsen"> <font color="DarkGreen"><b>Śhuddy Camp by Colin Heinsen</b></font></a>: has 204 images.<br>
 Please kindly share the news and the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
