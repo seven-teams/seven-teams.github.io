@@ -139,7 +139,10 @@ But, he could not bare Paraśhurāma in any way  [<font color="orange">gap</font
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"You know the story of Śhabarī. She was a very simple woman, an old lady with very few teeth. When Rāma was coming, she said, "What should I give to Śhrī Rām?" All right, she went round and round. There were, in the forest, some small, little what we call berries, ber, and she thought, 'It may not be sweet for my Rām. How will I give Him?" So, she picked them up, she used to test them with her teeth. One tooth she used to pierce in it and see if it is sweet. And then she would collect those and those who were bad she threw away.<br>
+When Śhrī Rām came, she said, "Śhrī Rām, I couldn't get anything but these for You. Will You have it?" Now, Śhrī Rāma, being an Incarnation, knew the depth of the love of this lady. He took it up in His hand. He knew that this is given by great love of a great heart. So, she says: "This I have tested each one of them. Don't have any doubts. I have tested in every one of them, they are all very sweet. You can have them." So: He puts it in the mouth, tells His wife, "I have never eaten such beautiful fruits, such great fruits before." I mean, it's such a simple fruit, you see. Sītājī, His wife, being an Incarnation Herself, She said, "You must give Me some. After all, I am your ardhāṅgi[ni]." Is the half, better half. [Laughter.] But Lakṣhmaṇa was getting angry. He said, "Who is this old woman sitting here and giving such?"<br>
+Uh we, we don't eat things, you see, eaten by others. We call it tustha, is a uttiṣhṭa, means, if the one who has eaten something is never given. And to Rāma?<br>
+So, He get, was very angry, fuming with temper. So She takes it in Her hand and She tells Her brother-in-law, "Oh, this is the best I've had, oh my brother-in-law. I've never had such beautiful fruits." Now He gets tempted. And he says: "Really? [Laughter.] Can I have some?" She said, "No! It's only for Me and My husband! [Laughter.] You better ask her." So She asks ... He asks Śhabarī, "Can you give Me some, please?" The whole temper fizzles out. And then He sees the beauty of that fruit because it is done with love. "</font><br>
 <font size="+0"><b>1985-0310 Śhrī Devī Pūjā, Sahaja Yoga Is Our Aim, Is Our Dharma, Is Our Being and One Has to Be All the Time Ascending (You Are Stationed in the Center in Your Spirit), Sydney, New South Wales, Australia</b></font>
 </p>
 
@@ -189,20 +192,6 @@ But, he could not bare Paraśhurāma in any way  [<font color="orange">gap</font
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
 <font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Vaud, Switzerland</b></font>
 </p>
 
@@ -230,7 +219,10 @@ But, he could not bare Paraśhurāma in any way  [<font color="orange">gap</font
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So the ... Hanumāna, you see, He is the one who is always anxious to do the work of Śhrī Rāma, always. If Śhrī Rāma says, `All right, you go and get the ...,' uh He told Him the, "Go and get the-mhh-mh sañjīvanī," is the kind of a uh-uh-uh herb that was needed to bring Lakṣhmaṇa to life, He went there and He brought the whole mountain with Him, "Now, better have it." Is like that sort of a person, you see. So, He brought the -- that's, that's childlike behavior of His.<br>
+And the discrimination in this is that, 'That, Śhrī ... if Śhrī Rāma has asked for, whatever He asked for I'll do it.'<br>
+So, is a relationship of a, I would say, like a guru and śhiṣhya. But even more than that: that the śhiṣhya is just like a sssss... subservient servant, absolutely surrendered to God. Absolutely surrendered to God.<br>
+And His main thing is surrender."</font><br>
 <font size="+0"><b>1990-0831 Śhrī Hanumāna Pūjā, Electromagnetic Force, Schloss Schwetzingen, Schloß Mittelbau, Schwetzingen, Baden-Württemberg, Germany</b></font>
 </p>
 
