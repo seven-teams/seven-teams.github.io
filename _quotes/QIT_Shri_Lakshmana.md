@@ -156,7 +156,7 @@ So, He get, was very angry, fuming with temper. So She takes it in Her hand and 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"You see, you know that where Śhrī Rāma and Śhrī Sītā and Lakṣhmaṇa all lived there in Nasik."</font><br>
 <font size="+0"><b>1985-0804 Śhrī Gaṇeśha Pūjā, The Vehicle We Have Is Our Chastity, Brighton Friends Meeting House, Ship Street, Brighton, East Sussex, UK</b></font>
 </p>
 

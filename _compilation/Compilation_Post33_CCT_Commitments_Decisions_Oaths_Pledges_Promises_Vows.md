@@ -28,8 +28,26 @@ tags:
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"But still I am satisfied because within you there are some enamored souls (śhaukīn jīv). They realize what they have got after many births, so they are holding tight to Sahaja Yoga and are enjoying the taste of love. They are swimming in bliss. They don't have a feeling of separation or sadness: they have become a poem. There are several flowers like this too.<br>
+Sometimes you hurt and trample over these two flowers. Are these the signs of a Yogi?<br>
+You should take a vow today, introspect your own shortcomings and be surrendered, speak and love everything from your heart. The mind that highlights the shortcomings [faults] of others, that horse is moving in the opposite direction, by straightening its path must be conquered (mārg akramit kelā pāhije).<br>
+I have dedicated My life for you and all My puṇya is at your disposal for the betterment [upliftment] of you. But you should also gather some puṇya on your own, isn't it?<br>
+You are the light lamps of the entire world. You are brothers and sisters amongst yourself so be one, be submerged and be awakened."</font><br>
+<font size="+0"><b>1901-0000 Letter on Navarātri Day (Marathi)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "But how can one man fight the evils of this whole world? In the modern times when everything is moving very fast, it is very difficult for a single person to achieve anything without compromising with the trend of the world. Hence, it is absolutely essential that those artists who seek freedom and who believe that they have to play a vital role to further the cause of art, should give up their petty differences and jealousies and unite together. <font color="DarkRed">If such a group of artists decides to accept good in their personal, economic and social life and pledge not to deviate from the right path, then no power, however destructive, can lay hands on them.</font> Unity of purpose can only grant them all the security needed for the creation of their Art."<br>
 <font size="+0"><b>1961-1000 Article 'Art Culture and Artist' published in the souvenir Dignity of Art' brought out to commemorate the Inauguration of the 'Youth Society For Films' by the Union Home Minister Lal Bahadur Shastri on 1961-1008, the function presided over by the Chief Minister of Maharashtra Y. B. Chevam, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Third thing that, a good character, good conduct and purity, without this you cannot rise. If you have some bad habits you will have to make an effort to leave, take this vow on My Feet."</font><br>
+<font size="+0"><b>1973-0903 Pūjā (Hindi), Ātma-sākṣhātkār ka Arth (Meaning of Self-realization), Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -87,7 +105,22 @@ Even then you are misguided. You are stooping so low for all the world's money a
 
 <p>
 <font color="DarkRed">""</font><br>
+<font size="+0"><b>1977-0216 Śhivarātri Pūjā (Hindi), Śhivajī Ke Ūpara Sārā Saṃsāra Nirbhara Hai (The Whole World Is Dependent on Śhivajī), New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"On the day of this great festival of Śhivjī, all the Sahaj Yogis should take a vow that their heart should be absolutely pure. It should have simplicity, genteelness (sajjanatā). We should introspect ourselves and feel ashamed that, `Are we so rogue that we think like that?' Look at your heart and ask, 'Are we so miser and low charactered people that we are thinking like that?' "</font><br>
 <font size="+0"><b>1977-0219 Talk To New Sahaja Yogis (Hindi + English), Problems from Fake Gurus, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"So, today you have to take some vows. And you have to say: that, `We are going to do these things. We are going to talk about Sahaj Yog, we are going to propagate it, we are going to spread it. And what may come, we are going to surrender ourselves to Mother. Even, if She's supposing, scolds us, or says anything it is for our good. And we are not going to get confused.' And that's how you have to absolutely vow that you are going to dedicate yourself to Sahaj Yog to help others, to e... emancipate, and to create atmosphere for the completion of this universe, of this creation, for that fruitful day when we will say: that the Kingdom of God has been brought on this Earth.<br>
+So today is not the day for Me to give, but for you. You have to announce."</font><br>
+<font size="+0"><b>1977-0701 Guru Pūjā (Guru Pūrṇimā Day) (first more formal Pūjā in the West), Self-realization, Living Room, Gavin Brown's Geological Institute (Terrace House), 160 North Gower Street, 2nd Floor, Euston, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -163,6 +196,16 @@ Then what do you do? If you cannot get the work done simply then you have to tur
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"So, I would like to say to the Sahaja Yogis of Pune, that the Tattwa of Gaṇeśha should be strengthened on our side. I will tell you how to do it because this is a communication for your benefit.<br>
+The first thing is that it is a vow of holiness.<br>
+So the defects that happen to Gaṇeśha happen first from the eye. Gaṇeśha has a direct relation with the eyes and this Gaṇeśha Tattwa itself has disappeared from Pune.<br>
+So in the middle of it where the optic nerves cross, there is the place of the Āgñyā chakra and the Āgñyā chakra is the representation of the Gaṇeśha Tattwa. It is a manifestation. So, if Gaṇeśh Tattwa itself has gone bad, then it must be remembered that eyes have seen something that is not desirable."</font><br>
+<font size="+0"><b>1979-0226 Talk to Sahaja Yogis (Marathi), Sahajayogyānshi Hitguj (Benefit Providing Talk with Sahaja Yogis), Pune, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b>1979-0227 Story on Quitting Smoking, Part 2, Dhule, Maharashtra, India</b></font>
 </p>
@@ -209,6 +252,13 @@ I said, "Really?" He said, "Yes. I feel I am looking like Hanumānjī, You pleas
 <p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b>1979-0618 Conversation with Sahaja Yogis, Questions and Answers, Jim Proctor's House, Cookridge (10 kms NW of Leeds), West Yorkshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">[Today is the day of Guru Pūjā. What gurudakṣhiṇā have you given Me? Understand that your money is not worth the dust on the Feet of your Mother Guru! You should give your hearts only clean and holy hearts. You must clean your physical beings. Do not be lazy in that. Make a vow! You must get up early in the morning and spend at least one hour on meditation and worshiping. Perform 'Āratī' and meditation in the evening.]</font><br>
+<font size="+0"><b>197x-0700 Letter to Sahaja Yogis (Marathi) on Guru Pūrṇimā from Nirmala Yoga, Issue 15 (May-June 1983), Pages 12 and 13 (not later than 1979)</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -263,6 +313,20 @@ Then this correction portion starts. You start thinking about yourself more than
 
 <p>
 <font color="DarkRed">""</font><br>
+<font size="+0"><b>1979-1202 Talk to Sahaja Yogis, before and during a Meal after Guru Pūjā, Living Room, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1980-0129 Public Program (Hindi), Seminar, Day 2, Do Saṃsthāeṃ -- Mana aura Buddhi (Two Institutions -- Mind and Intelligence), Cowasji Jehangir Hall, 15, Madam Cama Road, Mantralaya, Fort, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
 <font size="+0"><b>1980-0313 Public Program, The Meaning of Sahaja Yoga, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
@@ -277,12 +341,16 @@ Then this correction portion starts. You start thinking about yourself more than
 
 <p>
 <font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1980-0505 Sahasrāra Pūjā, Collective Spirit and Complete Integration (Active Sincerity and Patience and Sincerity Is the Key of Your Success), Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
-<div class="para-divider"></div>
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p>
@@ -936,6 +1004,13 @@ Because you do not meditate, you do not have the depth to show that you are grea
 <p>
 <font color="DarkRed">[He volunteers to give up his job to serve Her mission. Śhrī Mātājī dissuades him and says Her style is different; She wants everyone to keep to his or her job and family commitment while doing Sahaja work.]</font><br>
 <font size="+0"><b>1993-1212 Meeting with Mr. T. N. Seshan, Night Train Trip from Dehradun to New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1994-1203 Talk to Sahaja Yogis, Release of Sir C.P.'s Book Lal Bahadur Shastri A Life of Truth in Politics, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
