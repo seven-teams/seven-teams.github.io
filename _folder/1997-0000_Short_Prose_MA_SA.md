@@ -1,5 +1,5 @@
 ---
-title: '1997-0000 Short Prose &#8216;Our Jungle Friend&#8217; by Mahadevi Annapurnna, ISPS Dharamshala, Class 5 from 1997-98 Sahaj Amrit, Pages 11 and 12'
+title: '1997-0000 Short Prose &#8216;Our Jungle Friends&#8217; by Mahadevi Annapurnna, ISPS Dharamshala, Class 5 from 1997-98 Sahaj Amrit, Pages 11 and 12'
 date: 1997-12-01
 permalink: /folder/1997-98-MA-SA
 tags:
