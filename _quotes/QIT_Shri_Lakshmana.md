@@ -177,7 +177,7 @@ So, He get, was very angry, fuming with temper. So She takes it in Her hand and 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Śhabarī aboriginal woman gave the berries to Śhrī Rām to eat and He highly praised them. Did He not have anything else to eat? It shows how rich Śhabarī was. Śhrī Rām, Śhrī Sītā and Śhrī Lakṣhmaṇ came as her guests and respecting her wishes ate those berries that she had tasted [it is never done in India]."</font><br>
 <font size="+0"><b>1986-1101 Diwālī Pūjā (Hindi + Marathi) (Diwālī Day), Puṣhpa Maṅgal Karyalaya, Mote Mangal Karyalay Road, Sheth Narayan Das Dugad Chowk, Bibwewadi, Pune, Maharashtra, India</b></font>
 </p>
 
@@ -198,7 +198,7 @@ So, He get, was very angry, fuming with temper. So She takes it in Her hand and 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"We have come to a place which we call as Brahmapuri here, called, perhaps, maybe because here Śhrī Rāmadāsa, the Guru of Śhivajī Mahārās [Mahārāj], in these deep waters found the statue of Śhrī Rāma, Sītā, Lakṣhmaṇa and Hanumāna together."</font><br>
 <font size="+0"><b>1988-1220 Pūjā (English + Marathi), Garden, little House, Brahmapuri, Maharashtra, India</b></font>
 </p>
 
