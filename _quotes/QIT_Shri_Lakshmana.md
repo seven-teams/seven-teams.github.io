@@ -170,7 +170,19 @@ So, He get, was very angry, fuming with temper. So She takes it in Her hand and 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Now, you have to notice on the streets of Maharashtra -- just now I was coming by train -- I saw no mens [men], there were [was] nobody who were interested in women, no women were interested in men, some men were hugging each other, walking around vmore ery innocently. I mean, the whole thing was that life-ph-ph is innocence.<br>
+And that is what it was here when this rākṣhasa's wi... sister, Śhūrpaṇakhā.Mbr>
+So nowadays if there is any woman in India who behaves like that, tries to entice men, is called as Śhūrpaṇakhā.<br>
+So this woman came and tried to entice Śhrī Rāma.<br>
+Imagine! What audacity! [Some laughter.]<br>
+So Śhrī Rāma being saṅkochī, means He was a man full of grace, He told her, ``See now, what's the use of running after Me? I have already got a beautiful wife. So why do you run after Me? Better try My brother who has no wife."<br>
+Because He knew Him [laughter, laughs]. Becuase He knew that His brother is a ... Śheṣhanāga, `He is the serpent on which ... very big serpent called Śheṣhanāg, Śheṣha. And He is a hot tempered fellow, and He will just know how to deal with this woman, I can't manage this show.' Because He would not ill-treat a woman! It was too much for Him. Though, she was Śhūrpaṇakhā, and not only that, but she was also a woman.<br>
+So-o-o, when He went ... No! He ... He asked her: that, ``You go and see Him."<br>
+Lakṣhmaṇa was sitting outside.<br>
+Lakṣhmaṇa had taken a vow to be a brahmachārī, elibate man, with fourteen years penance. Though He was a married man. This He had to do for that's the only way He could kill another demon, whose name was Meghanād, who had run away with His daughter, called as Sulochanā. It's a long story. [Laughter.]<br>
+So make it short, this fellow went to this brahmachārī, Lakṣhmaṇa, though He had a wife in Ayodhyā, who is leading a life of a brahmachārī.<br>
+Is very common in India. I mean if your wife is away, you just think about her, and you are in separation, still you enjoy your wife thinking about her! And thinking about the good things she has done to you.<br>
+But if she has done all the time bad things you don't want to think about her [laughter], and then all these demonic things start."</font><br>
 <font size="+0"><b>1985-1217 Pūjā (English + Marathi + English), Right Type of Conduct and The Establishment of Our Dharma Is Very Important, House of Dr. Ramesh Adinath Saṃghavī, B.N-1, Sapt Shrung, Krishnanagar Housing Society, Saharanpur Road, Nasik, Maharashtra, India</b></font>
 </p>
 
@@ -219,7 +231,7 @@ So, He get, was very angry, fuming with temper. So She takes it in Her hand and 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"So the ... Hanumāna, you see, He is the one who is always anxious to do the work of Śhrī Rāma, always. If Śhrī Rāma says, `All right, you go and get the ...,' uh He told Him the, "Go and get the-mhh-mh sañjīvanī," is the kind of a uh-uh-uh herb that was needed to bring Lakṣhmaṇa to life, He went there and He brought the whole mountain with Him, "Now, better have it." Is like that sort of a person, you see. So, He brought the -- that's, that's childlike behavior of His.<br>
+<font color="red">"So the ... Hanumāna, you see, He is the one who is always anxious to do the work of Śhrī Rāma, always. If Śhrī Rāma says, 'All right, you go and get the ...,' uh He told Him the, "Go and get the-mhh-mh sañjīvanī," is the kind of a uh-uh-uh herb that was needed to bring Lakṣhmaṇa to life, He went there and He brought the whole mountain with Him, "Now, better have it." Is like that sort of a person, you see. So, He brought the -- that's, that's childlike behavior of His.<br>
 And the discrimination in this is that, 'That, Śhrī ... if Śhrī Rāma has asked for, whatever He asked for I'll do it.'<br>
 So, is a relationship of a, I would say, like a guru and śhiṣhya. But even more than that: that the śhiṣhya is just like a sssss... subservient servant, absolutely surrendered to God. Absolutely surrendered to God.<br>
 And His main thing is surrender."</font><br>
@@ -303,7 +315,12 @@ This is an example of Śhrī Rāmachandrajī, it proves that He did not believe 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So, the third, bhakti part, also comes after Self-realization.<br>
+Now in the bhakti, you see, there is no ... 'What is the value is?', and, 'How much you paid for it?', and, 'How you bought it?', is not important.<br>
+For that an a great example is of Śhrī Rāma when He ... He went in the jungles. There was a[n] old lady from the scheduled's class, means she was uh-uh-uh ... one of the Bhilini [Bhilni] as they call it a -- these people live in the jungles. So she brought some berries, and offered it to Śhrī Rām. And she said that: "I have tasted all of them, and they are not sour. All of them I have tasted."<br>
+Now, after tasting something in India, people call it, it's a ... become not to be eaten. I mean a ... we cannot eat ... taste something and give it to somebody else. Is not done, according to Indian culture.<br>
+But Śhrī Rāma took it. He took it, He said, "What? Beautiful fruits, I've never eaten such fruit!" So, Lakṣhmaṇa got very angry! He said, "You, stupid woman, you have eaten these fruits and that's what you are giving to Śhrī Rām! Why did [you] do that?" So, Sītā was watching. So she asked Him, "Why don't you give Me some of these fruits?" He gave. She said, "My God! What nice fruits these are! I have never eaten such good fruits." So then Lakṣhmaṇa also His temper came down, and He said: "Can You not give Me some?" She said, "Why? You were so angry, why should I give You?" So ultimately, She gaves [gives] Him that fruit.<br>
+So what did He see in those fruits? Was the love: the love of this old lady living in the forest, her love which was important."</font><br>
 <font size="+0"><b>1998-0816 Śhrī Kṛiṣhṇa Pūjā, Witness Without Reaction and Allow the Power to Act, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
