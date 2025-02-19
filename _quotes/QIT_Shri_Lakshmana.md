@@ -124,7 +124,7 @@ But, he could not bare Paraśhurāma in any way  [<font color="orange">gap</font
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So, we are in a very holy place, because as you know Sītā lived here for so many years and Śhrī Rāma's was also with Her, and also Śhrī Lakṣhmaṇa. So, it is obvious that this is a big come of .. we can say a ... quite a big meeting place of various holy things that happened during the different periods of Maharashtra."</font><br>
 <font size="+0"><b>1983-0118 Śhrī Gaṇeśha Pūjā (Vināyaka Chaturthī Day), House of Dr. Ramesh Adinath Saṃghavī, B.N-1, Sapt Shrung, Krishnanagar Housing Society, Saharanpur Road, Nasik, Maharashtra, India</b></font>
 </p>
 
@@ -175,9 +175,9 @@ And that is what it was here when this rākṣhasa's wi... sister, Śhūrpaṇak
 So nowadays if there is any woman in India who behaves like that, tries to entice men, is called as Śhūrpaṇakhā.<br>
 So this woman came and tried to entice Śhrī Rāma.<br>
 Imagine! What audacity! [Some laughter.]<br>
-So Śhrī Rāma being saṅkochī, means He was a man full of grace, He told her, ``See now, what's the use of running after Me? I have already got a beautiful wife. So why do you run after Me? Better try My brother who has no wife."<br>
-Because He knew Him [laughter, laughs]. Becuase He knew that His brother is a ... Śheṣhanāga, `He is the serpent on which ... very big serpent called Śheṣhanāg, Śheṣha. And He is a hot tempered fellow, and He will just know how to deal with this woman, I can't manage this show.' Because He would not ill-treat a woman! It was too much for Him. Though, she was Śhūrpaṇakhā, and not only that, but she was also a woman.<br>
-So-o-o, when He went ... No! He ... He asked her: that, ``You go and see Him."<br>
+So Śhrī Rāma being saṅkochī, means He was a man full of grace, He told her, "See now, what's the use of running after Me? I have already got a beautiful wife. So why do you run after Me? Better try My brother who has no wife."<br>
+Because He knew Him [laughter, laughs]. Becuase He knew that His brother is a ... Śheṣhanāga, 'He is the serpent on which ... very big serpent called Śheṣhanāg, Śheṣha. And He is a hot tempered fellow, and He will just know how to deal with this woman, I can't manage this show.' Because He would not ill-treat a woman! It was too much for Him. Though, she was Śhūrpaṇakhā, and not only that, but she was also a woman.<br>
+So-o-o, when He went ... No! He ... He asked her: that, "You go and see Him."<br>
 Lakṣhmaṇa was sitting outside.<br>
 Lakṣhmaṇa had taken a vow to be a brahmachārī, elibate man, with fourteen years penance. Though He was a married man. This He had to do for that's the only way He could kill another demon, whose name was Meghanād, who had run away with His daughter, called as Sulochanā. It's a long story. [Laughter.]<br>
 So make it short, this fellow went to this brahmachārī, Lakṣhmaṇa, though He had a wife in Ayodhyā, who is leading a life of a brahmachārī.<br>
@@ -301,7 +301,12 @@ This is an example of Śhrī Rāmachandrajī, it proves that He did not believe 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"We have [a] story like that.<br>
+She told Śhrī Rām that she was an old woman from a-eh-eh-eh u-uh-uh downtrodden s-s-society, that "I have eaten every ... I have touched every uh-uh ber with my teeth, you see, and s... found out that there's none of them are uh-uh-uh sour."<br>
+[After the translator first says, "Sour," and second translates:] In India, nobody eats uh-uh-h anything which is touched uh-uh by mouth, on any food, is regarded uttiṣhṭa, is a something wrong.<br>
+But Śhrī Rām immediately took! He said: "Oh-oh, how sweet of you to have done this f... testing for Me." But His brother was very angry. He didn't like it, Lakṣhmaṇa. Śhrī Rāma ate, He said, "I've never eaten such beautiful bers." So, His wife Sītā said, "Give Me also little bit, I am Your half-f-f thing. You should give Me." So, when Śhrī Rāma gave Her, She ate, She said, "Oh, My goodness! What a beautiful fruit this one is." So Lakṣhmaṇa said, "Why not give Me?" He asked His sister-in-law: "Give Me also," He [Śhrī Rāma] said, "No! Because you were so angry." But She gave it to Lakṣhmaṇa, and Lakṣhmaṇa said: "I have never eaten such beautiful fruits."<br>
+What was in that ber was nothing but giving sense of this old lady. She didn't have anything to give, she was poor lady, so she did all this just to give to Śhrī Rām.<br>
+So the sharing, of your things, is an extremely joy-giving thing. "</font><br>
 <font size="+0"><b>1996-0716 Śhrī Lakṣhmī Pūjā, Lakṣhmī Principle and We Have to Live like One Family, Moscow, Russia</b></font>
 </p>
 
