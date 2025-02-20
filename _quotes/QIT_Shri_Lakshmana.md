@@ -139,10 +139,19 @@ But, he could not bare Paraśhurāma in any way  [<font color="orange">gap</font
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"You know the story of Śhabarī. She was a very simple woman, an old lady with very few teeth. When Rāma was coming, she said, "What should I give to Śhrī Rām?" All right, she went round and round. There were, in the forest, some small, little what we call berries, ber, and she thought, 'It may not be sweet for my Rām. How will I give Him?" So, she picked them up, she used to test them with her teeth. One tooth she used to pierce in it and see if it is sweet. And then she would collect those and those who were bad she threw away.<br>
-When Śhrī Rām came, she said, "Śhrī Rām, I couldn't get anything but these for You. Will You have it?" Now, Śhrī Rāma, being an Incarnation, knew the depth of the love of this lady. He took it up in His hand. He knew that this is given by great love of a great heart. So, she says: "This I have tested each one of them. Don't have any doubts. I have tested in every one of them, they are all very sweet. You can have them." So: He puts it in the mouth, tells His wife, "I have never eaten such beautiful fruits, such great fruits before." I mean, it's such a simple fruit, you see. Sītājī, His wife, being an Incarnation Herself, She said, "You must give Me some. After all, I am your ardhāṅgi[ni]." Is the half, better half. [Laughter.] But Lakṣhmaṇa was getting angry. He said, "Who is this old woman sitting here and giving such?"<br>
-Uh we, we don't eat things, you see, eaten by others. We call it tustha, is a uttiṣhṭa, means, if the one who has eaten something is never given. And to Rāma?<br>
-So, He get, was very angry, fuming with temper. So She takes it in Her hand and She tells Her brother-in-law, "Oh, this is the best I've had, oh my brother-in-law. I've never had such beautiful fruits." Now He gets tempted. And he says: "Really? [Laughter.] Can I have some?" She said, "No! It's only for Me and My husband! [Laughter.] You better ask her." So She asks ... He asks Śhabarī, "Can you give Me some, please?" The whole temper fizzles out. And then He sees the beauty of that fruit because it is done with love. "</font><br>
+<font color="red">"You know the story of Śhabarī. She was a very simple woman, an old lady with very few teeth.<br>
+When Rāma was coming, she said, "What should I give to Śhrī Rām?"<br>
+All right, she went round and round. There were, in the forest, some small, little what we call berries, ber, and she thought, 'It may not be sweet for my Rām. How will I give Him?" So, she picked them up, she used to test them with her teeth. One tooth she used to pierce in it and see if it is sweet. And then she would collect those. And those who were bad she threw away.<br>
+When Śhrī Rām came, she said, "Śhrī Rām, I couldn't get anything but these for You. Will You have it?"<br>
+Now, Śhrī Rāma, being an Incarnation, knew the depth of the love of this lady. He took it up in His hand. He knew that this is given by great love of a great heart.<br>
+So, she says: "This I have tested each one of them. Don't have any doubts. I have tested in every one of them, they are all very sweet. You can have them." So: He puts it in the mouth, tells His wife, "I have never eaten such beautiful fruits, such great fruits, before."<br>
+I mean, it's such a simple fruit, you see.<br>
+Sītājī, His wife, being an Incarnation Herself, She said: "You must give Me some. After all, I am Your ardhāṅgi[ni]."<br>
+Is a half, better half. [Laughter.]<br>
+But Lakṣhmaṇa was getting angry. He said, "Who is this old woman sitting here and giving such?"<br>
+Uh-uh-uh we, we don't eat things, you see, eaten by others. We call it tustha, is a uttiṣhṭa, means, if the one who has eaten something is never given. And to Rāma?<br>
+So, He get, was very angry, fuming with temper. So She takes it in Her hand, and She tells Her brother-in-law: "Oh, this is the best I've had, oh my brother-in-law. I have never had such beautiful fruits." Now He gets tempted. And He says: "Really? [Laughter.] Can I have some?" She said, "No! It's only for Me and My husband! [Laughter.] You better ask her." So She asks-s-s ... He asks Śhabarī, "Can you give Me some, please?" The whole temper fizzles out. And then He sees the beauty of that fruit because it is done with love.<br>
+So this is what it is: love which you have should be expanded."</font><br>
 <font size="+0"><b>1985-0310 Śhrī Devī Pūjā, Sahaja Yoga Is Our Aim, Is Our Dharma, Is Our Being and One Has to Be All the Time Ascending (You Are Stationed in the Center in Your Spirit), Sydney, New South Wales, Australia</b></font>
 </p>
 
@@ -261,7 +270,15 @@ When Śhrī Sītā was with Her husband in jungle She never complaint about Her 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"And when the generosity is done innocently, you are not even aware of what you are doing. You just enjoy your generosity, and you don't bother as to see what is the reaction of the another person is.<br>
+We have in our Śhāstras description of such people.<br>
+Like Śhrī Rām, He went into the forest, and there was a very old lady of a ... uh-uh-uh what you call ... tribal, of a tribal area, very old. Only she had two teeth left.<br>
+[After the trsnslator says, "Yes," and translates:] Her name was Śhabarī.<br>
+And the ... she came before Śhrī Rām, and offered Him some ... ah-ha-ha plums you can say, the ber. 
+......<br>
+And she very innocently told Him, "See, all these I have tested with my teeth. And those who were sour, I have thrown away because You don't like sour ones. But they are all sweet."<br>
+Normally, in India, people don't eat anything uh-uh-uh which has been touched by another mouth, you see.<br>
+So, Śhrī Rāma says, "Oh, I see. You've done this work, so, please, may I have all these?" But His brother Lakṣhmaṇa was angry, 'What is this lady? She has no manners!' So, when she started putting this ber into the mouth of Śhrī Rāma, He was getting even worse. So, she said: "See how carefully I have uh done this testing, and you are enjoying. Ah, otherwise You would not have enjoyed them." And here, Shrī ... Lakṣhmaṇa was getting angry, very angry. So, Śh... Śhrī Rāma says: "Oh! What wonderful fruits! I have never eaten such fruits in My lifetime!" So, His wife Sītā, she said, "Why don't You give Me some?" He said, "No, no! These are for Me! I can't give You." So Sītājī said that: "After all, I am uh-uh-uh He... Your wife, and You have to share everything with Me." He said, "All right. As a matter of right I am giving You." So He gave those ber, those fruits, to Her. So Sītā said, "What? This is just like Ambros[i]a. Such beautiful fruits I have never eaten!" So She tells Her brother-in-law: "See, what fruits! These are heavenly fruits!" So He got tempted. So, Lakṣhmaṇa said: "Give Me some to taste also." So, Sītājī said: "No-no-no-no! I am not going to share. Uh after all, I have got it with great difficulty from Your mother [brother], I am not going to share." So, Śhrī Rāma said, "All right. Give Her ... give Him something, [<font color="orange">unclear</font> it's all right]." So this innocent old lady says: "No, I have some more! I can give Him. You can have Your share. I have some more, I can give Him." And she gave it to Lakṣhmaṇa. He started eating and He really enjoyed. So much He enjoyed! He said, "My God, I have never eaten such beautiful fruits." "</font><br>
 <font size="+0"><b>1994-0911 Śhrī Gaṇeśha Pūjā, Innocence and Love, Moscow, Russia</b></font>
 </p>
 
