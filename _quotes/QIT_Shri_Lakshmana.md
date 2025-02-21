@@ -285,14 +285,22 @@ So, Śhrī Rāma says, "Oh, I see. You've done this work, so, please, may I have
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"All of Them have shown in Their life.<br>
+Śhrī Rāma eating ... uh-uh-uh the ... berries which were ... was touched by a very, very old ... uh-uh-uh-uh-uh ... [As someone says, "Aboriginal":] ... aboriginal Bhilini [Bhilni] lady, enjoying it very much. There was ... description is beautiful that: He's, was enjoying it, and the ... Śh[rī] Lakṣhmaṇa didn't like it. "What is this? She has eaten it and now she is giving to You." She says, "See, I ... have tasted all of them because I know You don't like sour things. So they are not sour. You can have it." Lakṣhmaṇa was angry. So, S-S-Sītājī says: "All right, let Me also have some of this." "Is no-no-no! These are the best, I won't give You!" "Let me have, I am Your wife, You see, must give Me." So He gave Her some. She said, "I've never eaten such nice berries!"<br>
+See.<br>
+So Lakṣhmaṇa says, "Then give Me also. Sister-in-law, please give some." "No-no, now I am not going to give You. Because You are so much angry because she had tasted it. I won't give You!" He said, "Please give Me." And She gives Him. And He really says that, "These are fruits from the Heavens!"<br>
+The whole thing shows it is love. The Divine is Love. The whole thing is of's ... expression of Divine Love."</font><br>
 <font size="+0"><b>1994-0928 Indian and Iranian Public Program (English + Hindi + English), Sequoia Athletic Club, 7530 Orangethorpe Avenue, Buena Park (33 kms SW of Los Angeles), CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"There are so many examples to show!<br>
+For example, Śhrī Rāma ate the fruits from an old lady who had eaten them before to see that they are not sour.<br>
+In India if somebody eats something, you'll never eat that. But look at Śhrī Rām.<br>
+And then He tells His wife, "Oh! What fruits! Ihave never eaten like that." But the brother was angry! So brother says: "Why should she give you such fruits‽ Is not proper." So the wife says, "Please give Me some. After all I am your wife." Then she eats something, and says, "Wow-woh! What fruits!" Now the brother, Lakṣhmaṇa says: "Sister-in-law, give Me also little bit." Says, "No! You were so angry, I will not give You."<br>
+The whole story shows the love, the compassion, the oneness, because of love. "</font><br>
 <font size="+0"><b>1994-0929 Public Program, Think about Your Benevolence, Loews Santa Monica Beach Hotel, 1700 Ocean Ave, Santa Monica, CA, U.S.A.</b></font>
 </p>
 
