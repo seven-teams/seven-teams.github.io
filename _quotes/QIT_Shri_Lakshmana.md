@@ -56,8 +56,59 @@ So the gaze should be at the feet. Do not look in the upward direction. If someo
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b>1979-0528 Talk to Sahaja Yogis, Christ the Gate and Śhrī Mātājī the Destination, Seminar, Day 2, Session 1 (morning), Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
+"So She was married to him [Rāvaṇa].<br>
+And when Rāvaṇa, you see, uh-uh-uh s... was fighting Rāma, She was the Satī and She ... She was a de... devotee of Śhrī Viṣhṇu. And She always used to worship Śhrī Viṣhṇu.<br>
+So She threw Her kaṅkaṇ [bracelet of thread used in Pūjās] -- this is the kaṅkaṇ. It's call as kaṅkaṇ, you see. See this one?<br>
+[After a Sahaja Yogi says something:] [<font color="orange">unclear</font>]. See now.<br>
+[After a Sahaja Yogi says something:] Very interesting, very interesting.<br>
+[After a Sahaja Yogi says, "Mh-hm,":] Kaṅkaṇ.<br>
+[After a Sahaja Yogi says, "Mh,":] You see, not easy to make.<br>
+[After a Sahaja Yogi says, "Yeah.":] [<font color="orange">unclear</font>].<br>
+[After two Sahaja Yogis say something:] You see.<br>
+Be careful, [<font color="orange">unclear</font>].<br>
+[<font color="orange">unclear</font>].<br>
+[After a Sahaja Yogi says something:] You see? You see, she came out.<br>
+So, all these ... uh ... this kaṅkaṇ, you know, She threw it in the air. And Rāma's ... ah-ah-uh arrows were coming, and they would return back to Rāma.<br> 
+Because Rāma cannot cross beyond the Powers of a Satī also. He has to respect her [a Satī in general].<br>
+Because She was the devotee of Rāma, first of all, and of which, you know, that Kālī is the sister of a ... Umā is the sister of ...<br>
+[After a Sahaja Yogi says, "Viṣhṇu,":] ... Viṣhṇu. So, you see, how can He kill the whuh ... husband of ...<br>
+[After a Sahaja Yogi interrupts, "Sister":] ... the sister?<br>
+You see, all of these points are there.<br>
+And the kaṅkaṇa was in the air, is projective. Everything failed. You see, nothing would go, even Sudarśhan Chakra wouldn't go that side.<br>
+[After a Sahaja Yogi says, "Mh,":] So, Lakṣhmaṇa said, "What are you doing‽ What is it? You are getting back your, all your arrows! Why don't you control your arrows? You see what to do. See there, what is there." He saw this kaṅkaṇa was moving there. He said, "Oh, God! Now, you have it. If this is the thing to work out, then am I useless?" Poor Lakṣhmaṇa was sitting very much in frustration.<br>
+Then Yama, the God of Death, he thought: "The time is coming and what is this kaṅkaṇ doing here? You see, so must try to solve this problem." [Sahaja Yogi laughs.]<br>
+So, He is the clever one.<br>
+He ... he went into the heart of ... uh-uh-uh or He went into the mind of Rāvaṇa, and told him: "Oh, you are not uh the one who is winning the war, it is your wife's anger." And, oh, his ego was challenged. [During laughter:] [<font color="orange">unclear</font>], "Kaṅkaṇ [<font color="orange">unclear</font>] you see in the air, you see that [<font color="orange">unclear</font>] is there. That is the one that is protecting you." Very angry: "What does She mean by challenging my manliness?"<br>
+See, so he went down to his palace.<br>
+And he saw She ... She was sitting there smiling. She said: "I know you will come back." He said: "What do You mean? I cannot fight the war? You think I live by Your powers? Will You please get ... get back your kaṅkaṇa? It's my order!"<br>
+So, as a Satī you have to obey the orders of your husband, you see.<br>
+[After a Sahaja Yogi says, "Mh,":]  She said, "All right. I will take it back." She took [it] back, you see.<br>
+So, [as the Sahaja Yogi laughs:] but you can find out loopholes, you see. That is, that's the [<font color="orange">unclear</font>]. [Everyone laughs.]<br> 
+So, She said, "Now, I've taken back My kaṅkaṇ." All right. Then She sat before Viṣhṇu. She said, "How dare You kill My husband? I will not eat food till he comes back here alive, I will not eat."<br>
+Now, Viṣhṇu had a problem. Now what to do? He cannot kill, Rāma being Viṣhṇu, you see. [Another Sahaja Yogi laughs.] He cannot kill Rāvaṇa. Now He said, "What to do?" So He told Lakṣhmaṇa: "It's a big problem!"<br>
+So Lakṣhmaṇa informed Yama: "Again the problem has come [same Sahaja Yogi laughs]: She won't eat food till [he laughs again] ... Rā-ah ... Her husband goes back, you know." So Yama said, "I know it's very dangerous, but I have to try this trick otherwise I'm in for trouble. This man has to die, for the time has come." So, Yama said, "It's a very big risk of ... to say this to Satī."<br>
+You see: one woman fighting all this [he laughs again], with Her will Power.<br>
+"It's all right." He says, "All right. I will manage it."<br>
+He took the form of a ... of Rāvaṇa himself. He became, took, started looking like Rāvaṇa.<br>
+And He went there, and He stood up in the door. And he said: "Now, see, I have come now." [She] said: "Did you win the war?" She [he] said, "Yes!" She said, "All right." "Now, will You eat Your food?" And the food was lying before Her. And She made a mistake there: She ate the food.<br>
+Before your husband has taken the food you are not supposed to eat your food. You see, that's why Indian women will never eat it. [Sahaja Yogi laughs.] Because this gives them power, you see. To be [a] dedicated wife means power.<br>
+So, they do not mind, even if their husbands are bad, even if they are rākṣhasas, they are anything: they will be dedicated to their husbands. They'll love them. So that they keep their own powers, and by that they save their husbands' also.<br>
+So he stood up there, and [<font color="orange">unclear</font>], "You eat Your food."<br>
+As soon as She ate the food, you see, uh not even She ate the first morsel, Rāvaṇa's head was cut. And the head fell at the feet of a ...<br>
+[After a Sahaja Yogi says, "Mh-hm,":] ... Mandodarī.<br>
+And then, you know, he, Yama came in his own form. And She cursed him that, "You will be a dog in the next life." And He became a dog, in the next life. He has to become that.<br>
+So they are so powerful.<br>
+But this I'm telling you about someone who was uh uh sort of a Sahaja Sāmarthya [Spontaneous Power], [<font color="orange">unclear</font>].<br>
+[After a Sahaja Yogi interrupts, "Which dog was this, Mother?":] Hah?<br>
+[After the Sahaja Yogi says, "Which dog? This wasn't the dog which accompanied Yudhiṣhṭhira,":] Of course!<br>
+[Overlapping with a Sahaja Yogis]: Who else?<br>
+Yes!<br>
+[After a Sahaja Yogi laughs and says, "That's the Yudhiṣhṭhira who released Yama from this,":] You see, actually, it is uh, Rāv... after Rāma, you see, whatever curses and everything went carried on during the time of Kṛiṣhṇa.<br> 
+[After a Sahaja Yogi says, "Acchā,":] So he is the same dog!<br>
+[After a Sahaja Yogi says, "Mh,":]  The one who followed Yudhiṣhṭhira, you see.<br>
+[After a Sahaja Yogi says, "Mh-hm,":] Near ... Dharmarāja means ...<br>
+<font color="red">So, this uh ... this story, She ... tells you about Mandodarī, who was of's Kālī, Umā, She was Pārvatī Śhakti, so is different.</font>"<br>
+<font size="+0"><b>1979-0528 Talk to Sahaja Yogis, Seminar, Day 2, Session 2, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -71,7 +122,20 @@ There are many examples for it. You can take example of Śhrī Rāma. There was 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"There are two nice stories about giving: is one about Rāma and one about Kṛiṣhṇa.<br>
+But uh I don't know if I have told you about Rāma stories when the Śhabarī, an old aboriginal woman, who was there and she gave ... is a kind of a fruit [ber -- ziziphus mauritiana] like berries, after testing them with her teeth, to Rām. Every, every fruit she took out, tested it nicely. I mean, ate them, in the sense that she pierced them with her teeth to see [if] they were sour or not. And then they kept them collected in a bunch, I mean in a basket.<br>
+And when He came, you see, she took them to Rāma.<br>
+And she said to Him, you see -- I mean first she talked to all the leaves and all the trees and everyone that, 'Give me the best fruits, all right? He's coming now. And I've adored Him, I have prayed for Him, now He's coming, so you give me the best fruit.' And then she collected all those things. And she was waiting for Him to come.<br>
+When He came, she washed His Feet and made Him sit down. And then she offered this fruit. She said,:"Every fruit I have tested! So, You can eat all of them, because they are not at all sour." Oh Rāma took that immediately. he tarted eating: "What a nice thing! Really I've never eaten such good fruits! Never in My life I have had such good fruits! What taste! Immense... Immensely delicious!" And Lakṣhmaṇa, the brother, was getting very angry with her, that, 'What is this?'
+In ... in India it is regarded [as] uttishtha [forbidden]. You see, [if] somebody has eaten something, except for [when] that person is a Saint you are not supposed to eat that.<br>
+And this lady [laughing:] had done all that, to eating and []. And He was enjoying it!<br>
+So, He told His wife, Sītā, He said: "Oh, I cannot give You anything out of this. If You want to have more You should ask her to get some more. But I will never share anything!" So, Sītā says, "No-no-no-no. Little bit let Me also enjoy. What is this? You are going to enjoy everything, is not good. After all I am Your ardhāṅgini [principal half], I am Your half  ... half-personality so You cannot eat the whole. You have to give Me little bit." Then She took some. And She started []. She tells Her brother-in-law, She says, you see, "I've never eaten really such nice fruits! But I'm not going to give You anything! Even if You ask for it, I sm not going to give You. You can ask Your brother." His brother said, "No! I've shared with You but why should I share with Him? You can share with Him, why should I share?" [Laughter.] "This is so great!"<br>
+You see?<br>
+And She was praising and praising. Then Lakṣhmaṇ said, "All right, let Me also have a little." [Some laughter.] So She says, "All right! I will give You only few." Rāma said, "All right, first You give, then I will see how much I can give." So She counted and gave Him. He ate. He said, "Really, there's something. Something I don't know, it's like Amṛut Phal."<br>
+Amṛut Phal means a ... Amṛut is uh-uh-uh ... the Fruit of Nectar, you see,. <br>
+"I just cannot imagine what a taste is!" He asked Rāma, "After all, You cannot be that selfish. You are My elder brother, You have to share Your things with Me. Better give Me some."<br>
+And they started, you see, quarreling about it. [It] is such a beautiful description in the Rāmāyaṇa, of Śhabarī ... `Śhabarī ke ber', `The ...' The bers of Śhabarī'.<br>
+This is one of the thing[s] [stories]."</font><br>
 <font size="+0"><b>1980-0704 Talk to Sahaja Yogis, The Joy of Life, Advice on Marriage, Wedding of Tony (Cooley) Paniotou, Hesta Szpiro's Mother's House, Abbey Lodge, London, UK</b></font>
 </p>
 
