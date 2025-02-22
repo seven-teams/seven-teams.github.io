@@ -24,7 +24,11 @@ Keep the eyes low. Gradually all these baddhas will go away spontaneously."</fon
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Secondly, the eyes are very important thing, where you have to be careful not to move your eyes very fast anywhere. Try to keep your eyes steady and mostly on the Mother Earth.<br>
+You see, you have heard about Lakṣhmaṇa: He never saw the Feet of Sītājī, never. Or never saw Her face. He only saw Her Feet. How can that be? He was always living with Her, He had never seen Her face! He had just seen His [Her] Feet.<br>
+So, you can imagine what should be the position.<br>
+And for fourteen years He had to lead a complete brahmachārī's life. He just, She was like His mother. He know [knew] She was Ādi Śhakti, but He just saw Her Feet.<br>
+That should be our case, in his thing, that we should lead a sanctified married life. "</font><br>
 <font size="+0"><b>1977-0322 Public Program, Questions and Answers, Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -233,7 +237,8 @@ But if she has done all the time bad things you don't want to think about her [l
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"As you know about the old lady Śhabarī, she collected some berries and tasted each one of them with teeth. When Rāma came, she said, "Please eat, because You don't like sour things. I have tasted all of them, and the sweet ones I have kept for You." But Lakṣhmaṇa, who was the other kind, was very angry, that, 'How dare this low caste woman offer Rāma in such a manner!' Whereas Śhrī Rāma had tears in His eyes and started eating and said, "I have never eaten such tasty and sweet berries." Sītājī understood the whole thing and said, "May I have some?" When Sītājī ate them She described them as Amṛuta. Then Lakṣhmaṇa asked for some but Sītājī said, "No, you can't have any as You were so angry." After pleading with, He also ate some and found them sweet.<br>
+So the Proof of Love is the greatest joy."</font><br>
 <font size="+0"><b>1990-0213 Śhrī Mahiṣhāsuramardinī Pūjā, House, Bengaluru, Karnataka, India</b></font>
 </p>
 
@@ -355,7 +360,17 @@ So what did He see in those fruits? Was the love: the love of this old lady livi
 </p>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"When He went into the village, and He found there was an old woman. And this old woman had all her teeth out practically. And she was from the aboriginal. And sheenk [she] gave Him some ... uh-uh-uh ... we call them ber, is something like uh-uh ...<br>
+......
+Is a ... kind of a fruit, small fruits.<br>
+And the ... she said, "See, I have tasted all of them. And all of them are very sweet, because You should not have something which is not sweet. So I have tasted them with my tooth: I have put my tooth on to them and I have tasted it. So please have them."<br>
+Immediately He took it. But His brother Lakṣhmaṇa got very angry, that it's very inauspicious in India, if you have put something in the mouth, and then you want to give to somebody is something uttiṣhṭa, is not to be done. Ha-ha-ha but Śhrī Rāma said: "I've never eaten such beautiful fruits. They are the most beautiful fruits I have eaten." So His wife says: "Also give Me some after all. I am Your half this thing, You must give Me." So Śhrī Rāma gave Her some. She said, "Wow! What a thing it is! Is tremendous!" She ate it! And then the Lakṣhmaṇa says: "Give Me also, sister-in-law." She said, "Just now You were saying all kinds of things against this lady, why do you want to have it?" He said, "Now please forgive Me, give Me."<br>
+So, see, it shows that Śhrī Rāma could see her love, her vibrations in those fruits that she had offered. And He could appreciate to that extent that He gave it to His wife and the wife also joined hands with Him.<br>
+This is what it is: that whatever you do, you do it with love. If you do it with love, you will be able to make it auspicious.<br>
+But if there's no love, you are just doing for some purpose, then it is useless.<br>
+So this is what is there for giving.<br>
+Giving to the ... person like Śhrī Rām, and to such a Great Incarnation, she just thought of her love, and she gave it to Him.<br>
+In the same way, you have to be very simple, simple-hearted, and then you will know what is the best to be done."</font><br>
 <font size="+0"><b>1998-1025 Diwālī Pūjā (6th day after Diwālī Day), Expression of Love, Pal Sports Complex, Novi Ligure, Alessandria, Italy</b></font>
 </p>
 
