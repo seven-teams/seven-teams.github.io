@@ -101,7 +101,7 @@ So they are so powerful.<br>
 But this I'm telling you about someone who was uh uh sort of a Sahaja Sāmarthya [Spontaneous Power], [<font color="orange">unclear</font>].<br>
 [After a Sahaja Yogi interrupts, "Which dog was this, Mother?":] Hah?<br>
 [After the Sahaja Yogi says, "Which dog? This wasn't the dog which accompanied Yudhiṣhṭhira,":] Of course!<br>
-[Overlapping with a Sahaja Yogis]: Who else?<br>
+[Overlapping with a Sahaja Yogi]: Who else?<br>
 Yes!<br>
 [After a Sahaja Yogi laughs and says, "That's the Yudhiṣhṭhira who released Yama from this,":] You see, actually, it is uh, Rāv... after Rāma, you see, whatever curses and everything went carried on during the time of Kṛiṣhṇa.<br> 
 [After a Sahaja Yogi says, "Acchā,":] So he is the same dog!<br>
@@ -128,13 +128,13 @@ And when He came, you see, she took them to Rāma.<br>
 And she said to Him, you see -- I mean first she talked to all the leaves and all the trees and everyone that, 'Give me the best fruits, all right? He's coming now. And I've adored Him, I have prayed for Him, now He's coming, so you give me the best fruit.' And then she collected all those things. And she was waiting for Him to come.<br>
 When He came, she washed His Feet and made Him sit down. And then she offered this fruit. She said,:"Every fruit I have tested! So, You can eat all of them, because they are not at all sour." Oh Rāma took that immediately. he tarted eating: "What a nice thing! Really I've never eaten such good fruits! Never in My life I have had such good fruits! What taste! Immense... Immensely delicious!" And Lakṣhmaṇa, the brother, was getting very angry with her, that, 'What is this?'
 In ... in India it is regarded [as] uttishtha [forbidden]. You see, [if] somebody has eaten something, except for [when] that person is a Saint you are not supposed to eat that.<br>
-And this lady [laughing:] had done all that, to eating and []. And He was enjoying it!<br>
-So, He told His wife, Sītā, He said: "Oh, I cannot give You anything out of this. If You want to have more You should ask her to get some more. But I will never share anything!" So, Sītā says, "No-no-no-no. Little bit let Me also enjoy. What is this? You are going to enjoy everything, is not good. After all I am Your ardhāṅgini [principal half], I am Your half  ... half-personality so You cannot eat the whole. You have to give Me little bit." Then She took some. And She started []. She tells Her brother-in-law, She says, you see, "I've never eaten really such nice fruits! But I'm not going to give You anything! Even if You ask for it, I sm not going to give You. You can ask Your brother." His brother said, "No! I've shared with You but why should I share with Him? You can share with Him, why should I share?" [Laughter.] "This is so great!"<br>
+And this lady [laughing:] had done all that, to eating and [<font color="orange">unclear</font>]. And He was enjoying it!<br>
+So, He told His wife, Sītā, He said: "Oh, I cannot give You anything out of this. If You want to have more You should ask her to get some more. But I will never share anything!" So, Sītā says, "No-no-no-no. Little bit let Me also enjoy. What is this? You are going to enjoy everything, is not good. After all I am Your ardhāṅgini [principal half], I am Your half  ... half-personality so You cannot eat the whole. You have to give Me little bit." Then She took some. And She started [<font color="orange">unclear</font>]. She tells Her brother-in-law, She says, you see, "I've never eaten really such nice fruits! But I'm not going to give You anything! Even if You ask for it, I sm not going to give You. You can ask Your brother." His brother said, "No! I've shared with You but why should I share with Him? You can share with Him, why should I share?" [Laughter.] "This is so great!"<br>
 You see?<br>
 And She was praising and praising. Then Lakṣhmaṇ said, "All right, let Me also have a little." [Some laughter.] So She says, "All right! I will give You only few." Rāma said, "All right, first You give, then I will see how much I can give." So She counted and gave Him. He ate. He said, "Really, there's something. Something I don't know, it's like Amṛut Phal."<br>
 Amṛut Phal means a ... Amṛut is uh-uh-uh ... the Fruit of Nectar, you see,. <br>
 "I just cannot imagine what a taste is!" He asked Rāma, "After all, You cannot be that selfish. You are My elder brother, You have to share Your things with Me. Better give Me some."<br>
-And they started, you see, quarreling about it. [It] is such a beautiful description in the Rāmāyaṇa, of Śhabarī ... `Śhabarī ke ber', `The ...' The bers of Śhabarī'.<br>
+And they started, you see, quarreling about it. [It] is such a beautiful description in the Rāmāyaṇa, of Śhabarī ... 'Śhabarī ke ber', 'The ... The bers of Śhabarī'.<br>
 This is one of the thing[s] [stories]."</font><br>
 <font size="+0"><b>1980-0704 Talk to Sahaja Yogis, The Joy of Life, Advice on Marriage, Wedding of Tony (Cooley) Paniotou, Hesta Szpiro's Mother's House, Abbey Lodge, London, UK</b></font>
 </p>
@@ -142,7 +142,50 @@ This is one of the thing[s] [stories]."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Where?<br>
+<b>Sahaja Yogi:</b> Where is he residing, in the ...?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> [Showing the stomach:] In the stomach.<br>
+<b>Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> That is the Bhūr Bhuvaḥ Swāhā. Swāhā it is. The food, the [<font color="orange">unclear</font>] that takes away all your ... it swallows everything.<br>
+<b>Sahaja Yogi:</b> Swāhā?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Swā-hā. Swāhā is ...<br>
+<b>Sahaja Yogi:</b> [Overlapping:] What does it mean. Mother?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> You see, Bhūr Bhuvaḥ Swāhā. Is the essence of Agni is Swāhā.<br>
+<b>Sahaja Yogi:</b> The essence of Agni?<br>
+<b>Another Sahaja Yogi:</b> Fire.<br>
+<b>Sahaja Yogi:</b> Mh-hm.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Swāhā means ...<br>
+<b>Sahaja Yogi:</b> Mh-hm.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> ... swallowing power, or the burning power, all that burns is Swāhā, within you.<br>
+<b>Sahaja Yogi:</b> That's why we are doing this ...<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Swāhā.<br>
+<b>Sahaja Yogi:</b> ... Swāhā.<br>
+<b>Another Sahaja Yogi:</b> Ah-ha!<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Bhūr means this Mother Earth. Then Bhūr Bhuvaḥ. Bhuvaḥ is all that is created, Bhuvaḥ. Is all this universe that is created. Swāhā is the power to burn, you see, power of Fire.<br>
+<b>Sahaja Yogi:</b> Disintegrate.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> All that which ir is burning, which burns down.<br>
+Is in the stomach! This power to burn.<br>
+<b>Another Sahaja Yogi:</b> So is He an aspect of Lord Viṣhṇu?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Hah?<br>
+<b>Sahaja Yogi:</b> [Slower:] Is He an aspect of Lord Viṣhṇu?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Viṣhṇu's aspect, His brother, His brother Lakṣhmaṇa.<br>
+<b>Sahaja Yogi:</b> Agni?<br>
+<b>Another Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>
+<b>Previous Sahaja Yogi:</b> Ah-ha!<br>
+<b>The other Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> [<font color="orange">unclear</font> Must be] the one.<br>
+And He is ... is the one who ... actually is the ... like a serpent, you know, with [<font color="orange">unclear</font>] in the stomach. He stays there always to Viṣhṇu resides. [As a Sahaja Yogi says something:] And that's His brother role, Śheṣha.<br>
+<b>Another Sahaja Yogi:</b> Śheṣha.<br>
+<b>Another Sahaja Yogi:</b> [<font color="orange">unclear</font>].<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> That's Agni.<br>
+He was Arjuṇa. In His next life, with Kṛiṣhṇa, ...<br>
+<b>Another Sahaja Yogi:</b> [interrupts]: [<font color="orange">unclear</font>] Arjuna.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> ... He was Arjuṇa.<br>
+<b>Another Sahaja Yogi:</b> His brother ...<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Śheṣha is the snake, ...<br>
+<b>Another Sahaja Yogi:</b> [interrupts]: [<font color="orange">unclear</font>].<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> ... representing the Agni in the stomach, you see. When you have any problem, then you get that kind of a pain, you know, that's ...<br>
+<b>Another Sahaja Yogi:</b> Ah-ha.<br>
 <font size="+0"><b>1981-1212 Conversation with Sahaja Yogis, House, 48 Brompton Square, Knightsbridge, London, UK (date not sure)</b></font>
 </p>
 
@@ -171,7 +214,11 @@ But, he could not bare Paraśhurāma in any way  [<font color="orange">gap</font
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> And the ... he's such a dirty man, that he said, "Even it was that relationship between the Mother of Christ and Christ Himself." Then he said about Muhammad Sāhab same. He said the same about uh-uh-uh, you see, Rāma and Sītā and Lakṣhmaṇa.<br>
+[During translation:] What? Yeah.<br>
+<b>Sahaja Yoginī:</b> He also pretends to be higher than Christ.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> And that, I don't know that he pretends or not, but he wants to bring down everyone saying that, 'They were sexually infected people.' And he said that uh , "Maria Magdalena was a keep of uh ... Christ."<br>
+Just imagine. Last filth. Doesn't matter."</font><br>
 <font size="+0"><b>1982-0425 Conversation with Sahaja Yogis, Apartment of Ruth Lederberger, Via Giuseppe Mercalli, 46, Rome, Italy</b></font>
 </p>
 
