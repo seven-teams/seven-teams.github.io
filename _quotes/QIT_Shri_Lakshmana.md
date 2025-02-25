@@ -226,13 +226,6 @@ Just imagine. Last filth. Doesn't matter."</font><br>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b>1982-0503 Talk to Sahaja Yogis, before and during Breakfast, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), Île-de-France, France</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
 <font size="+0"><b>1982-0822 Śhrī Gaṇeśha Pūjā, House of Charles and Magda Mathys, Chemin des Moulins-de-Drize 5, Troinex (6 kms S of Geneva), Gèneve, Switzerland</b></font>
 </p>
 
@@ -341,7 +334,8 @@ But if she has done all the time bad things you don't want to think about her [l
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"It's a ... Raṃgāpūr [Aṃgāpūr] has a-uh-uh very special feature about it. You see, Śhrī Rām[a]dās Swāmī, the ... the-uh-uh Master of, the Guru of uh Śhivajī found the statue of uh ... Śhrī Rāma, Sītā and Lakṣhmaṇa uh in this uh-uh-uh .... uh-uh-uh river, at this point, in the Kṛiṣhṇa River. And the-uh-uh this-ss was such a remarkable thing, the ... they didn't know how the statue has come there. So it was taken to a place called Chāphaḷ where they put it.<br>
+Now Śhrī Rām[a]dās Swāmī had created lots of Hanumānas out of the Mother Earth, lot of Hanumānas out of the Mother Earth, and ..."</font><br>
 <font size="+0"><b>1989-1229 Talk to Sahaja Yogis (English + Marathi + English), after the Public Program with an Aggression, Aṃgāpūr (near Brahmapuri), Maharashtra, India</b></font>
 </p>
 
