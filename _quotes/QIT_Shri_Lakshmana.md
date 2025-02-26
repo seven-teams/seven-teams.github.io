@@ -225,7 +225,7 @@ Just imagine. Last filth. Doesn't matter."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"And Hanumāna, on His side, say for example when Lakṣhmaṇa was sick, and Ra-ah ... He had to get some medicine from one big uh-uh-uh mountain, uh-uh-uh-uh He brought the whole mountain, you see. [Some laughter.] Because He said, "I have no time to find it," you see, "so better find it now," and brought the whole mountain. [Laughter, smiles.]"</font><br>
 <font size="+0"><b>1982-0822 Śhrī Gaṇeśha Pūjā, House of Charles and Magda Mathys, Chemin des Moulins-de-Drize 5, Troinex (6 kms S of Geneva), Gèneve, Switzerland</b></font>
 </p>
 
@@ -313,7 +313,29 @@ But if she has done all the time bad things you don't want to think about her [l
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So now, we have here one of the most ancient places, called Nasik.<br>
+I think you must have heard about what happened when Śhrī Rāma and Sītā were staying here, why this place was called as Nasik. But I'll tell you in short.<br>
+This is the place where Śhrī Rāma and Sītā and Lakṣhmaṇa were staying, and the sister of Rāvaṇa, because Rāvaṇa's some of the empires, a part of the empire was very close to this place. She came down to entice Śhrī Rāma. So Śhrī Rāma smiled at her. He said that: "Is not possible with Me because I have a very nice wife," in His own sweet ways, as He is known for His ... uh-uh-uh ... formal's, formal is not the word but for He's sweet formalities, as we call saṅkocha. He said, "You better try your hand at My brother," because He knew His brother is a terrific fellow. [Laughter, laughs.]<br>
+So, this, this is all rākṣhasī: is a quality of rākṣhasas. That the women who are rākṣhasinis try to entice men. Men who are rākṣhasas tries [try[]] to entice woman. Is a quality of rākṣhasas, not of human beings. And of course not of Devas.<br>
+So this rākṣhasini wanted to try her luck. With her ego she went down to Lakṣhmaṇa, and she told Him that: "You are now ... uh-uh-uh living without Your wife for fourteen years, and the this fourteen years are going to be very heavy for You, so, I think You better marry me. I am a good lady, why don't You marry me? Sss-so-o-o, He, she said, "I have got a beautiful nose, I have got beautiful eyes, I am very beautiful," [laughter starts, smiles] ...<br>
+Ah-ah-oah must be artificial, I'm sure. [Laughter, laughs.] Or might have been to some sort of a Beauty Parlor or something [as luaghter starts, laughing:] is there. [Laughs.]<br>
+God knows what she must have tried, but she was trying to impress.<br>
+And the fellow was getting infuriated at it. He could not see, you see that, 'Look at this lady coming and trying to challenge My chastity.' And He got ultimately very angry. He told her, "You get out from here. I have nothing to do with you. You are useless. Don't try all these tricks with Me." But she would not go. She was so enchanted by Him and she, her ego was hurt. She said, "Now, this not." Not to accept any defeat. She went on.<br>
+Then He got very angry and He cut her nose, of which she was very proud that, "I have [a] beautiful nose." He cut her nose.<br>
+And nose represents ego. See when people have ego, you see, their noses go like that. [Laughter, laughs.]<br>
+Like we have, you must have seen when while coming from Lonavala, they said, "Duke's nose." Because such a big nose they start, must, it cannot be any Englishman's nose. It must be the Duke of some place, otherwise cannot be such a big nose, you see. So the Indians call it as, 'Duke's nose'.<br>
+So, the big nose, such a big nose she had. So He cut her nose, showing that: He tried to destroy her ego of her beauty.<br>
+Is very significant. Very significant that ... this Lakṣhmaṇa resides in the stomach, we can say, on the right side. He looks after our right side which is the liver, which gives us the ego part. And it is He only who destroys it. So He is the big destroyer of our ego. Is significant, that He destroyed the ego of this woman [Śhūrpaṇakhā]. That she could [not anymore] endi... entice anyone by cutting her nose.<br>
+Nose is a word call nāsikā in Sanskrit language. That's why this place was named, after that cutting of the nose, as Nasik."<br>
+......<br>
+And that is the thing in a place like this where Sītā had to suffer so much, where uh-uh ... Lakṣhmaṇa had to do all these ugly things. It was a terrible thing that happened in Nasik.<br>
+And then, if you get in that background, like in a drama, you see, you show a climax and then an anticlimax like that, yesterday I felt that the drama is complete now. I was really very much satisfied with what happened last night: the oneness with which we sang, the oneness we felt, and the oneness we had about ourselves.<br>
+We are Universal Beings! We do not belong to any country. We do not belong to any caste, community or so-called religions. We are all universal people. We have no such bondages, which keep us separate from each other.<br>
+All this love, all this affection. and all this is going to transform this horrible world into the right path, into the righteous path, into the path of benevolence.<br>
+So Nasik has done something good to Me.<br>
+Last time I had tears in My ... eyes and you have taken a Photograph of this Sāndra Karuṇā. And today I have got the feeling of great joy within Myself.<br>
+May God bless you all!<br>
+Thank you!</font><br>
 <font size="+0"><b>1986-1223 Pūjā, About Ego, House of Dr. Ramesh Adinath Saṃghavī, B.N-1, Sapt Shrung, Krishnanagar Housing Society, Saharanpur Road, Nasik, Maharashtra, India</b></font>
 </p>
 
