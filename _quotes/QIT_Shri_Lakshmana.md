@@ -207,7 +207,22 @@ One was Lakṣhmaṇa, and he was that fiery type, you see. He couldn't bear any
 Even Paraśhurāma who was, there, a contemporary Incarnation of Śhrī Rāma Himself was Paraśhurāma. Is a very interesting story about that.<br>
 But, he could not bare Paraśhurāma in any way  [<font color="orange">gap</font>]<br>
 ... He is the Śheṣha as they call it: the ... the serpent which sleeps in the Bhavasāgara, on which Śhrī Viṣhṇu rests. The same Śheṣha had taken birth as Śhrī Lakṣhmaṇa.<br>
-......"</font><br>
+......<br>
+So, this is what it is, that He sleeps on the Śheṣha.<br>
+And Śheṣha is the one who is sometimes expressed in Sahaja Yogis, I have seen, as anger, when you try to be non protocolish or when you try to be funny or ... uh-uh-uh you don't behave yourself. That's the Śheṣha in them.<br>
+That is also sometimes needed! You have to be a Śheṣha sometimes because otherwise people will start misbehaving and by that they will be harmed. Not that I will be harmed, but they will be harmed. So that kind of temperament is also needed.<br>
+But the other one [temperament], is very interesting, is that of Bharata, the brother. He sowed [saw] how Śhrī Rāma bestowed the kingdom to Him because of His mother's uh-uh-uh agitation. And he didn't know what to do.<br>
+So, because she ... he went back to Rāma, and he said that, "You take back your kingdom. I don't want anything. You are the one who should govern. Why should I have it?" So, Rāma said, "All right, you ... you ... you just be there in charge of the kingdom. I have to obey My father, I have to obey My mother because I have given them a promise."<br>
+So Śhrī Māt ... Śhrī ... Śhrī Rāma's another great quality was once given a promise, is to be kept.<br>
+This is another quality we have to have that, if you have promised anything, you have to keep it up. If you have said, "I will do this," you must do it. You should not find out excuses to avoid it. Is a[n] absolutely an anti-God activity to avoid doing things that you have promised. Yoh... Your Deities will never be happy! You must see that, whatever you have promised you must do.<br>
+Now, when Bharata was sent back by Him, he said, "All right, give Me your uh-uh-uh sandals, which I'll take there, and I'll use them as if that's the symbol of You being there."<br>
+And he put those sandals on the throne and he ruled that kingdom and looked after -- Bharata.<br>
+Though he was .... uh when he was going to see Rāma, then Lakṣhmaṇa saw him coming, and he said, "Look at this! He's coming here to invade You now! He has thrown You out of the kingdom, and now he's coming to invade You."<br>
+So this is also, I have seen, among Sahaja Yogis, is there. That the Sahaja Yogis, who are like Śheṣha, cannot see also the goodness of other Sahaja Yogis who are very good people, extremely sacrificing, nice people, but their intentions are not understood, are misunderstood, which is a very sad thing. You must see the intentions of another type of people also, who may not be so hot tempered, may not be so much angry, but their intentions are very good.<br>
+They have come actually to ask for the sandals of Śhrī Rām.<br>
+So among this two type of people, I have seen [that] there is always a bit [of a] misunderstanding going on. So both the types of people should try to understand, that, 'We both are needed for Sahaja Yoga.'<br>
+I cannot only do with one type of people. We have to have both type[s] of people who leek ... look after both the styles of the thing.<br>
+But, when you are dealing with others, one should go as one."</font><br>
 <font size="+0"><b>1982-0402 Śhrī Rāma Pūjā (Rāma Navamī Day), Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
@@ -342,7 +357,32 @@ Thank you!</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"
+You go further with His life, see, He went and uh into the village where a very old woman, who was-ss belonging to the primitive class of Bhīls, had very few teeth, and brought, she brought some uh ... some fruits, little fruits we call as ber. And she brought and gave it to Him, that's-ss, "Śhrī Rām, You see, I have got these for You. I don't have anything else. And these, I have tested all of them."<br>
+Actually in India, if you put in the mouth it is uttiṣhṭa: nobody will touch it.<br>
+But she says, "I have tasted all of them by piercing my teeth into it, and I have seen that theh [theyy] none of them are sour." Is Śhrī Rāma didn't like sour fruits, she knew, "S-so none of them are sour, and You can have them."<br>
+I mean, in a way, if it is done to somebody in the West, they will hit you hard! [Laughter.]<br>
+Immediately Śhrī Rāma rushed forward and took the uh bers from her hand, kissed her hands, said, "All right, all right, I'm going to have them!" With such enthusiasm He ate them. So Lakṣhmaṇa was little angry [as laughter starts:] at that lady: "Whas [what's] this going on?" S-so, Sītājī said, "Oh, do You like them very much?" He said, "Yes, but I'm not going to give You anything." She said, "No! I am your half body, You have to give Me." So, He gave some to Sītājī. So Sītājī ate. She, "Yeah! What a thing! It's like Nectar of Heaven I am eating." So Lakṣhmaṇa felt very jealous. [Laughter, laughs.] He said: "Sister-in-law, can I not have a little of it?" He [She] said, "No! I can't give You. You ask Your brother. I'm not going to give You. I have a very little share. Why don't You ask Your brother?" So, He goes to His brother, He said, "Can I have some more?" So, Śh... Śhrī Rāma smiled and gave Him that ber which was eaten or touched or was pierced by the teeth of a primitive woman, who is actually an outcast according to the Brahminic laws of India.<br>
+The sweetness of Śhrī Rāma, the way He used to make people feel comfortable.<br>
+......<br>
+See the softness of Śhrī Rāma goes to the extremes where I call the saṅkocha, the formality, the formal. But did you see English language? formal is not the word: saṅkoch.<br>
+He was once, uh-uh-uh ... when He was fighting Śh... Rāvaṇa, He was taking out with His arrow his ten heads one after another. And if He took out one, then took out the second, the first one would come back. So because he had a kind of a blessing that nobody can kill him by hitting him on his head. So Lakṣhmaṇa says, "You know for definite that this Rāvaṇa cannot be killed by hitting on his head, so why don't You hit him in his heart?" So He said: "The reason is this. That just now in his heart is Mahālakṣhmī, the Śhs... Śhītā [Sītā]. Sītā is sitting in his heart. And how can I hit him on his heart? Because She's there, She might be hurt." "So whas [what's] the use of hitting on the head?" He said. He said, "Because, once I start hitting him on the head fast, his attention will go there. As soon as his attention will go into his head, then I can hit him on his heart." [Some laughter.]<br>
+See the saṅkoch! See the saṅkoch, the way He talked.<br>
+......<br>
+Now this man had to give up His wife. In this contrast you can see the wave rising and falling of a personality. The ... the society in which He lived, the state which He ruled, had an objection for a wife who huh had lived with Rāvaṇa. And the public started talking about it. So, as a good king, He just, as a good king, He just decided that His wife should be left forever.<br>
+And then He sent Her on a beautiful uh chariot with His uh-uh-uh-uh prime minister and His brother, Lakṣhmaṇa, who took Her down and left Her, told Her, "This is what has happened," and that: "Śhrī Rāma has asked Her [Me] to take You down to the āśhram of Vālmīki." As a result of that She got very uuh upset. And She said -- She was Ādi Śhakti so She ... She doesn't had to bother -- She said, "You just leave Me here."<br>
+Very self-respecting person. She didn't say, 'No, no, no, no, I'll come to Him,' or, 'I'll sue Him. I'll go in the courts, get all His money. How dare He throw Me out!' Nothing of the kind.<br>
+That's the grace of a woman.<br>
+Graciously, She said, "All right. Now, You have listened to Your brother, I'm Your sister-in-law, elder to You, now You obey Me. And I tell You, as Your sister-in-law, that You can now go, leave Me here alone, and I don't want You to go any further with Me to deport Me with somebody."<br>
+And She was pregnant.<br>
+Here if it happens, of course, horrible things can happen, but in India if such a thing happens, the wife will kill herself or she won't be able to bear it.<br>
+I think both things are just the same, an escape. If there's no aggression, then there is recession.<br>
+But She said, "No! I have to give birth to these two children. I can look after Myself, all right. Graciously He's done it, I have nothing. And please tell Him not to worry about Me." And She told Śhrī Rāma ... Śhrī Lakṣhmaṇa that, "All right, You look after Him, that's all I want." And She told the chief minister, the mantri, that: "You must uh look after the kingdom."<br>
+See the dignity, see the balance, see the character, the personality of Śhrī Rām! He was called as Maryādā Puruṣhottama, and look at His wife! She was equal to Him in every way.<br>
+......<br>
+Now here the contrast is also, that Hanumāna had Navadhā, Navadhā uh-uh-u Siddhis, Navadhā Siddhis, Nine Siddhis: the Aṇima, Garima, Raguma [Laghima], and all sorts of things, that He could become small, He could become big, He could ... it so many things He had.<br>
+Despite all these siddhis and the amount the [of] power He had, that Śhrī Rāma once asked Him that, "My s... My uh-uh-uh brother now, uh Lakṣhmaṇa, is being hit and He's very sick. I mean, He's just dying! So You go and get a particular kind of a sañjīvanī, a kind of a[n] herb, is which I want to rub on His head." So He went there, and He found He couldn't find it. So He brought the whole of the mountain on His hand, and [laughing:] gave it to Rāma, "Now You select! I don't know, I can't find it." [Soft laughter.]<br>
+That is the Hanumāna Śhakti! And with all that power, He was such a humble person and such a dedicated person."</font><br>
 <font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Vaud, Switzerland</b></font>
 </p>
 
@@ -356,7 +396,7 @@ Thank you!</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"It's a ... Raṃgāpūr [Aṃgāpūr] has a-uh-uh very special feature about it. You see, Śhrī Rām[a]dās Swāmī, the ... the-uh-uh Master of, the Guru of uh Śhivajī found the statue of uh ... Śhrī Rāma, Sītā and Lakṣhmaṇa uh in this uh-uh-uh .... uh-uh-uh river, at this point, in the Kṛiṣhṇa River. And the-uh-uh this-ss was such a remarkable thing, the ... they didn't know how the statue has come there. So it was taken to a place called Chāphaḷ where they put it.<br>
+<font color="red">"It's a ... Raṃgāpūr [Aṃgāpūr] has a-uh-uh very special feature about it. You see, Śhrī Rām[a]dās Swāmī, the ... the-uh-uh Master of, the Guru of uh Śhivajī found the statue of uh ... Śhrī Rāma, Sītā and Lakṣhmaṇa uh in this uh-uh-uh ... uh-uh-uh river, at this point, in the Kṛiṣhṇa River. And the-uh-uh this-ss was such a remarkable thing, the ... they didn't know how the statue has come there. So it was taken to a place called Chāphaḷ where they put it.<br>
 Now Śhrī Rām[a]dās Swāmī had created lots of Hanumānas out of the Mother Earth, lot of Hanumānas out of the Mother Earth, and ..."</font><br>
 <font size="+0"><b>1989-1229 Talk to Sahaja Yogis (English + Marathi + English), after the Public Program with an Aggression, Aṃgāpūr (near Brahmapuri), Maharashtra, India</b></font>
 </p>
