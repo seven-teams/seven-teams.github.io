@@ -1,5 +1,5 @@
 ---
-title: '2024 Celebrating Śivarātri Pūjā: "We pray to Lord Śhiva to look after our union." '
+title: '2024 Celebrating Śhivarātri Pūjā: "We pray to Lord Śhiva to look after our union." '
 date: 2024-03-08
 permalink: /festivity/2024/03/08
 tags:

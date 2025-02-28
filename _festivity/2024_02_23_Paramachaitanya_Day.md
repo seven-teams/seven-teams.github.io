@@ -1,5 +1,5 @@
 ---
-title: '2024 Celebrating Mahāsamādhi Day'
+title: '2024 Mahāsamādhi Day'
 date: 2024-02-23
 permalink: /festivity/2024/02/23
 tags:
