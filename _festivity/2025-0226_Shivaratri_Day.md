@@ -86,7 +86,7 @@ May God bless you."</font><br>
 <font color="DarkRed"><b>TUHI MAI BANDHU, TUHI JAGAT JANANI</b></font><br>
 <b>You are my Mother and brother, You are the Mother of the universe</b><br>
 <font color="DarkRed"><b>SAKAL JAGAT MEIN YAH TERA PASARA</b></font><br>
-<b>The whole universe is but Your Form </b><br></font>
+<b>The whole universe is but Your Form </b><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 </p>
 
@@ -164,8 +164,8 @@ He who is actionless,<br>
 He who is above all,<br>
 He who does not have any doubts,<br>
 He who is without stains,<br>
-He who has matchless assets,</font><br>
-<b>Śhiva Kavach Sage Rishabha, from Skanda Puran</b></b></font><br>
+He who has matchless assets,</b></font><br>
+<b>Śhiva Kavach Sage Rishabha, from Skanda Puran</b></font><br>
 </p>
 
 <p>
