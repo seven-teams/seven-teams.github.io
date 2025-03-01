@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 15: Monthly Pūjās Updates, February 2025'
 date: 2025-02-25
-permalink: /photos/2024/0225-b
+permalink: /photos/2025/0225-b
 tags:
   - crimson @ Photographs of Shri Mataji
   - green @ Monthly Pujas Updates
