@@ -12,7 +12,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to bring to your attention one new album of Shri Mataji's Places:<br>
-<b>1.</b> <a href="https://imageevent.com/sahaja/shrimatajisplaces/shuddhicamp"><font color="DarkGreen"><b></b></font></a>.<br>
+<b>1.</b> <a href="https://imageevent.com/sahaja/shrimatajisplaces/shuddhicamp"><font color="DarkGreen"><b>Shuddhi Camp</b></font></a>.<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
