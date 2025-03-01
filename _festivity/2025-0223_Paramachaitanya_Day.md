@@ -161,7 +161,8 @@ As I realized that worship can only exist through selfless surrender to the Lotu
 <a href="https://vimeo.com/60342739"> video</a><br>
 
 <p style="text-align:center;">
-<font color="DarkGreen">Thank You for revealing to us within the human body the reflection of the Vishwa-rupa (universal form).<br>
+<font color="DarkGreen">Thank You for revealing to us within the human body<br>
+the reflection of the Vishwa-rupa (universal form).<br>
 Thank You for revealing to us the primordial principles of creation.<br>
 Thank You for revealing to us the reality of human nature.<br>
 Thank You for revealing to us the meaning of true religion.<br>
