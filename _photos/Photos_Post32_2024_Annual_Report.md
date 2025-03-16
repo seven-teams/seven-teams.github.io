@@ -26,7 +26,7 @@ B3. The XYZ Unknown Collection has 1,432 Photos which represents 5.7528% of the 
 <br>
 <b>C. TOTAL NUMBER OF PHOTOS MOMENTS OF JOY: 8,280.</b><br>
 C1. A total of 1,073 photos Moments of Joy were uploaded since the second annual report on 2023-0312, which means a daily average of 2.9316 photos Moments of Joy per day in the last year.<br>
-C2. A total of 4,797 photos Moments of Joy were uploaded since the second annual report on 2022-0312, which means a daily average of 6.5622 photos Moments of Joy per day in the last 2 years.<br>
+C2. A total of 4,797 photos Moments of Joy were uploaded since the first annual report on 2022-0312, which means a daily average of 6.5622 photos Moments of Joy per day in the last 2 years.<br>
 C3. The XYZ Unknown Collection has 237 photos Moments of Joy which represents 2.8623% of the total.<br>
 <br>
 <b>D. TOTAL NUMBER OF NAMED COLLECTIONS: 34 (cf. 26 on 2023-0312 and 21 on 2022-0312).</b><br>
