@@ -46,6 +46,13 @@ You are the light lamps of the entire world. You are brothers and sisters amongs
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1973-0715 Guru Pūjā (Hindi) (Guru Pūrṇimā), Sahaja Yoga is a New Discovery, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">"Third thing that, a good character, good conduct and purity, without this you cannot rise. If you have some bad habits you will have to make an effort to leave, take this vow on My Feet."</font><br>
 <font size="+0"><b>1973-0903 Pūjā (Hindi), Ātma-sākṣhātkār ka Arth (Meaning of Self-realization), Mumbai, Maharashtra, India</b></font>
 </p>
@@ -271,7 +278,10 @@ I said, "Really?" He said, "Yes. I feel I am looking like Hanumānjī, You pleas
 <div class="para-divider"></div>
 
 <p>
-"Rabindranath [Tagore] wrote beautiful prose. A kid lost his way in the market and started crying loudly. People asked him what he wanted, [but] he kept on crying. <font color="DarkRed">People promised him to give a horse or elephant or all that but he said, "I just want my mother," and kept on crying. He did not eat and kept crying and became calm when he got his mother.</font>"<br>
+"Rabindranath [Tagore] wrote beautiful prose. A kid lost his way in the market and started crying loudly. People asked him what he wanted, [but] he kept on crying. <font color="DarkRed">People promised him to give a horse or elephant or all that but he said, "I just want my mother," and kept on crying. He did not eat and kept crying and became calm when he got his mother.<br>
+......<br>
+Say, you have some issue with your prostrate gland -- now I want to narrate My experience. I have a disciple named Agnihotrī. His name is Rajwade but as he has performed many important Yagñyas he is referred to as Agnihotrī Rajwade. He is a very committed Sahaja Yogi. Two, three years ago he came to Me and said that, ``I don't have any issue except that of prostrate gland." I was very surprised. `This [is a] very accomplished devotee and Sahaja Yogi and why should he have an issue with his prostrate?' Because the prostrate ailment arises due to the issue with the Gaṇeśh Tattwa or if Gaṇeśh gets upset with him. There was no reason for Gaṇeśh to be upset with him. `As he was a committed devotee and had total faith in Me and was a very simple person, then why is the Gaṇeśh Tattwa working in the opposite direction for him?' could not understand. I told him, ``Take some prasād." The prasād is in the form of chaṇa. When I gave this to him, his fellow person said, ``Today, Dādā will not eat anything." I asked, ``Why? Why are you not eating today?" He said, ``Today is Saṅkaṣhṭi. Everyone says, `You should not eat chaṇas on Saṅkaṣhṭi.' " I said, ``This is the mistake."<br>
+Saṅkaṣhṭi is Lord Gaṇeśha's Birthday. Now all of you are educated people. Even if some one tells you anything, you should use your intelligence. Should be alert always. We keep fast on Saṅkaṣhṭi. Saṅkaṣhṭi or Gaṇeśh Chaturthi are the Birthdays of Śhrī Gaṇeśha. If you keep fast on His Birthday, are you in mourning or what?"</font><br>
 <font size="+0"><b>1979-0922 Talk to Sahaja Yogis (Marathi), Kuṇḍalinī and Śhrī Gaṇeśha Principle, Navarātri Celebrations (1st Day), Amar Hind Mandal, West Dadar, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -347,6 +357,13 @@ Then this correction portion starts. You start thinking about yourself more than
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1980-0827 Talk to Sahaja Yogis, Feel the Urge to Grow, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK (other dates 0700, 0800)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now I have found out: that Western people waste so much of their energy in decision-making. And what are the decisions you have made, so far? Like, What food should we have?'<br>
 'What does it become ultimately, all the food that you decide to eat?' Same about our lives. 'When we think and try to plan our lives, what do we make out of it? What is the ultimate result of our life?', we should think.<br>
 Because of this ego orientation, this decision-making is there. I'm amazed: how this decision-making about food has started!<br>
@@ -365,8 +382,20 @@ Now, another thing I have to tell you is this: that, I was thinking that if you 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"The shortcoming of our country is falsity. We speak any lie without blinking the eyelid. `What happens? What can happen?'<br>
+Must discard falsity. Sahaja Yogis should take a vow that they will not speak lies.<br>
+Instead don't speak. Don't tell. We don't have the right to tell others.<br>
+......<br>
+Sahaja Yogi should develop an overall sense: that of discretion.<br>
+There is no need to tell lies. People speak lies when they are afraid about something, when they need something. Why to speak lies when the Almighty Himself has awakened in you? When the Truth Itself has awakened in you, why to speak lies?<br>
+So we should take a vow that, `We will not speak lies.' The second vow that we should take is that, `We will not speak lies.'<br>
+`We must give up addiction' and `We will not speak lies.' This is [are] our vow[s].<br>
+......<br>
+This is the third vow that you should take. `Don't pay attention to trivial matters!'<br>
+Whether to give two paise to the rikśhā person or three paise, well, pay three paise, does not matter. He brought you breathlessly puffing. Why do you further take away his breath? What will you lose if you pay him three paise?<br>
+Learn to give. Don't calculate too much. Otherwise you will suffer. People who inordinately run after money also suffer inordinately from it.<br>
+So don't account for each paisā and reduce stinginess. This is the fourth vow."</font><br>
+<font size="+0"><b>1980-1209 Talk to Sahaja Yogis (Marathi), Day 1, Sane Gurujī Vidyālaya (English Medium) School, Bhikoba Waman Pathare Mārg, Near Dadar Catering College, Shivaji Park, West Dadar, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -380,7 +409,49 @@ Now, another thing I have to tell you is this: that, I was thinking that if you 
 
 <p>
 <font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1981-0324 Talk to Sahaja Yogis, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia (date not sure)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1981-0809 Talk to Sahaja Yogis, Establishing Your Marriage, before the Haldī Ceremony, Tent, Garden, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1981-1029 Conversation (Practical Session) with Sahaja Yogis, Meditation on Prāṇa and Mana, Āśhram, former Hotel, Bramham Gardens, Earl's Court, Kensington, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1981-1029 Conversation (Practical Session) with Sahaja Yogis, Meditation on Prāṇa and Mana, Āśhram, former Hotel, Bramham Gardens, Earl's Court, Kensington, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1981-1128 Public Program, You Are the Spirit, Friends Meeting House, 120 Heath Street, Hampstead, London NW3 1DR, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1981-1207 House Warming Pūjā, House, 48 Brompton Square, Knightsbridge, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1981-1231 Talk to Sahaja Yogis, New Year's Eve, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -388,13 +459,6 @@ Now, another thing I have to tell you is this: that, I was thinking that if you 
 <p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b>1982-0414 Public Program, What Is the Need for Sahaja Yoga (Integration and Collective Consciousness), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -496,8 +560,14 @@ Respect each and every person. N... not to what he has read or for what he has l
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"So there is only one importance of today's Pūjā, 'Correct your Gaṇapati and start the work with determination, and dedicate ourselves to Sahaja Yoga, with pure and clean heart surrender to Sahaja Yoga, and be good Sahaja Yogis,' we should take this pledge today."</font><br>
-<font size="+0"><b>1985-0321 Birthday Pūjā (Marathi + English), Completely Surrender Our Lives to Sahaja Yoga and People Should See through You the Greatness of Sahaja Yoga (We Have Started Vishwa Nirmala Dharma and the Great Religion of Realized Souls), Mumbai, Maharashtra, India</b></font>
+<font color="DarkRed">"Forget whatever has happened, whatever wrong you must have done in Sahaja Yoga. From today decide that, 'We will behave in the same way which suits to Sahaja Yoga as we are Sahaja Yogis,' we should say this in the beginning, in the middle and at the end, say it three times that, 'We are Sahaja Yogis, we will not do this, we won't do this as this is wrong.' We should start today's day with this resolution.<br>
+......<br>
+So there is only one importance of today's Pūjā, 'Correct your Gaṇapati and start the work with determination, and dedicate ourselves to Sahaja Yoga, with pure and clean heart surrender to Sahaja Yoga, and be good Sahaja Yogis,' we should take this pledge today.<br>
+......<br>
+Now the third thing is that with all these things we are doing, we must promise to God also that, 'We will know about Sahaja Yoga through proper understanding, reading every word of it, we'll master the knowledge of Sahaj Yog, we'll keep ourselves clean, and completely surrender our lives to Sahaja Yoga.' This is what you have to promise in your heart. Surrendering to Sahaja Yoga is actually surrendering to joy, bliss and peace. In that you are the gainer, nobody is a loser in it. This is how today we have to decide once for all.<br>
+......<br>
+Have all the strength, have all the courage, and go ahead with this promise onward, because I think now Sahaja Yoga is going to take a new turn. Definitely it is going to take. We are going to come up to a stage where thousands and thousands will join Sahaj Yog."</font><br>
+<font color="blue"><b>1985-0321 Birthday Pūjā (Marathi + English), Completely Surrender Our Lives to Sahaja Yoga and People Should See through You the Greatness of Sahaja Yoga (We Have Started Vishwa Nirmala Dharma and the Great Religion of Realized Souls), Mumbai, Maharashtra, India</b></font><br>
 </p>
 
 <div class="para-divider"></div>
