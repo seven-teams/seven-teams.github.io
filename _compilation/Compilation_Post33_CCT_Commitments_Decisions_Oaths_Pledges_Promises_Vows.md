@@ -1255,8 +1255,8 @@ I hope you believe in that promise and are joyous in the p... highest way."</fon
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"There is a tendency, built up in the West since the time of Enlightenment and the democratic revolutions of the 18th century, that we should be free to absorb all the unrighteous, unholy, inauspicious and destructive ideas that we can find in every film, every book, and every newspaper, whatever the source. Somehow people want to take up the challenge to become the evil force themselves. People have now to decide if they want to stop this democratic derailment by understanding what must be done. The progress that the West is proud of is towards complete destruction, as human beings have the freedom to achieve heaven or go to hell and also they have the tremendous power of rationality to justify their doom."</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 3: Democracy</b></font>
 </p>
 
 <div class="para-divider"></div>

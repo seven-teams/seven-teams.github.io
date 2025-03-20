@@ -1399,166 +1399,133 @@ comparing oneself (with others), one should not hurt or have (them) hurt.</font>
 </p>
 
 <p>
-<b>132 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
 <b>133 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Māvocha pharusaṁ kañchi, vuttā paṭivadeyyu’ taṁ,<br>
+dukkhā hi sārambhakathā, paṭidaṇḍā phuseyyu’ taṁ.</font>
 </p>
 
 <p>
 <b>133 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Never speak harsh words, for once spoken they may return to you. Angry words are painful and there may be blows for blows.</font><br>
+<font color="blue">Never speak harsh words<br>
+For they will rebound upon you.<br>
+Angry words hurt<br>
+And the hurt rebounds.</font><br>
+<font color="Peru">Do not say anything harsh, spoken to they might answer back to you,<br>
+for arrogant talk entails misery, and they might strike you back with a stick.</font>
 </p>
 
 <p>
 <b>134 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Sace neresi attānaṁ kaṁso upahato yathā,<br>
+esa pattosi Nibbānaṁ, sārambho te na vijjati.</font>
 </p>
 
 <p>
 <b>134 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>135 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>135 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">If you can be in silent quietness like a broken gong that is silent, you have reached the peace of NIRVANA and your anger is peace.</font><br>
+<font color="blue">Like a broken gong<br>
+Be still, and silent.<br>
+Know the stillness of freedom<br>
+Where there is no more striving.</font><br>
+<font color="Peru">If you make no sound like a gong that is broken,<br>
+you are (like) one who has attained Nibbāna, contention is not found in you.</font>
 </p>
 
 <p>
 <b>136 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Atha pāpāni kammāni karaṁ bālo na bujjhati,<br>
+sehi kammehi dummedho aggidaḍḍho va tappati.</font>
 </p>
 
 <p>
 <b>136 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>137 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>137 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>138 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>138 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>139 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>139 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>140 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>140 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">When a fool does evil work, he forgets that he is lighting a fire wherein he must burn one day.</font><br>
+<font color="blue">But the fool in his mischief forgets<br>
+And he lights the fire<br>
+Wherein one day he must burn.</font><br>
+<font color="Peru">The fool does not understand the wicked deeds he is doing,<br>
+the stupid one is consumed by his deeds as (by) a burning fire.</font>
 </p>
 
 <p>
 <b>141 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+sodhenti macchaṁ avitiṇṇakaṅkhaṁ.</font>
 </p>
 
 <p>
 <b>141 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... pure from doubts and desires.</font><br>
+<font color="blue">......<br>
+So long as he is not free from doubts,<br>
+He will not find freedom.</font><br>
+<font color="Peru">...... removed uncertainty.</font>
 </p>
 
 <p>
 <b>142 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+so brāhmaṇo so samaṇo sa bhikkhu.</font>
 </p>
 
 <p>
 <b>142 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... holy Brahmin, a hermit of seclusion, a monk called a Bhikkhu.</font><br>
+<font color="blue">......<br>
+He is a true seeker.</font><br>
+<font color="Peru">......<br>
+he is a brahmin, an ascetic, a monastic.</font>
 </p>
 
 <p>
 <b>143 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Hirīnisedho puriso kochi lokasmi’ vijjati,<br>
+yo nindaṁ appabodhati, asso bhadro kasām-iva.</font>
 </p>
 
 <p>
 <b>143 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">Whatever person in the world is found restrained by conscience,<br>
+and is aware of his fault, is like a good horse that is (restrained) by a whip.</font>
 </p>
 
 <p>
 <b>144 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Asso yathā bhadro kasāniviṭṭho,<br>
+ātāpino saṁvegino bhavātha.<br>
+Saddhāya sīlena cha vīriyena cha,<br>
+samādhinā Dhammavinicchayena cha.<br></font>
 </p>
 
 <p>
 <b>144 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... By faith, by virtue and energy, by deep contemplation and vision, by wisdom and by right action, ......</font><br>
+<font color="blue">Then like a noble horse<br>
+Smart under the whip.<br>
+Burn and be swift.<br>
+Believe, meditate, see.<br>
+Be harmless, be blameless.<br>
+Awake to the dharma.</font><br>
+<font color="Peru">Like a good horse restrained by the whip,<br>
+you should be ardent and spiritually intense.<br>
+Having faith, virtue and energy,<br>
+concentration and investigation of the Dhamma.</font>
 </p>
 
 <p>
 <b>145 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+attānaṁ damayanti subbatā.</font>
 </p>
 
 <p>
 <b>145 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... the holy control their Soul.</font><br>
+<font color="blue">......<br>
+And the wise man masters himself.</font><br>
+<font color="Peru">......<br>
+the mild master themselves.</font>
 </p>
 
 <div class="para-divider"></div>
