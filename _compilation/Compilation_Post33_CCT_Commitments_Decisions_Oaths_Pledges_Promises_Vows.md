@@ -118,14 +118,14 @@ Even then you are misguided. You are stooping so low for all the world's money a
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"On the day of this great festival of Śhivjī, all the Sahaj Yogis should take a vow that their heart should be absolutely pure. It should have simplicity, genteelness (sajjanatā). We should introspect ourselves and feel ashamed that, `Are we so rogue that we think like that?' Look at your heart and ask, 'Are we so miser and low charactered people that we are thinking like that?' "</font><br>
+<font color="DarkRed">"On the day of this great festival of Śhivjī, all the Sahaj Yogis should take a vow that their heart should be absolutely pure. It should have simplicity, genteelness (sajjanatā). We should introspect ourselves and feel ashamed that, 'Are we so rogue that we think like that?' Look at your heart and ask, 'Are we so miser and low charactered people that we are thinking like that?' "</font><br>
 <font size="+0"><b>1977-0219 Talk To New Sahaja Yogis (Hindi + English), Problems from Fake Gurus, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"So, today you have to take some vows. And you have to say: that, `We are going to do these things. We are going to talk about Sahaj Yog, we are going to propagate it, we are going to spread it. And what may come, we are going to surrender ourselves to Mother. Even, if She's supposing, scolds us, or says anything it is for our good. And we are not going to get confused.' And that's how you have to absolutely vow that you are going to dedicate yourself to Sahaj Yog to help others, to e... emancipate, and to create atmosphere for the completion of this universe, of this creation, for that fruitful day when we will say: that the Kingdom of God has been brought on this Earth.<br>
+<font color="DarkRed">"So, today you have to take some vows. And you have to say: that, 'We are going to do these things. We are going to talk about Sahaj Yog, we are going to propagate it, we are going to spread it. And what may come, we are going to surrender ourselves to Mother. Even, if She's supposing, scolds us, or says anything it is for our good. And we are not going to get confused.' And that's how you have to absolutely vow that you are going to dedicate yourself to Sahaj Yog to help others, to e... emancipate, and to create atmosphere for the completion of this universe, of this creation, for that fruitful day when we will say: that the Kingdom of God has been brought on this Earth.<br>
 So today is not the day for Me to give, but for you. You have to announce."</font><br>
 <font size="+0"><b>1977-0701 Guru Pūjā (Guru Pūrṇimā Day) (first more formal Pūjā in the West), Self-realization, Living Room, Gavin Brown's Geological Institute (Terrace House), 160 North Gower Street, 2nd Floor, Euston, London, UK</b></font>
 </p>
@@ -280,7 +280,7 @@ I said, "Really?" He said, "Yes. I feel I am looking like Hanumānjī, You pleas
 <p>
 "Rabindranath [Tagore] wrote beautiful prose. A kid lost his way in the market and started crying loudly. People asked him what he wanted, [but] he kept on crying. <font color="DarkRed">People promised him to give a horse or elephant or all that but he said, "I just want my mother," and kept on crying. He did not eat and kept crying and became calm when he got his mother.<br>
 ......<br>
-Say, you have some issue with your prostrate gland -- now I want to narrate My experience. I have a disciple named Agnihotrī. His name is Rajwade but as he has performed many important Yagñyas he is referred to as Agnihotrī Rajwade. He is a very committed Sahaja Yogi. Two, three years ago he came to Me and said that, ``I don't have any issue except that of prostrate gland." I was very surprised. `This [is a] very accomplished devotee and Sahaja Yogi and why should he have an issue with his prostrate?' Because the prostrate ailment arises due to the issue with the Gaṇeśh Tattwa or if Gaṇeśh gets upset with him. There was no reason for Gaṇeśh to be upset with him. `As he was a committed devotee and had total faith in Me and was a very simple person, then why is the Gaṇeśh Tattwa working in the opposite direction for him?' could not understand. I told him, ``Take some prasād." The prasād is in the form of chaṇa. When I gave this to him, his fellow person said, ``Today, Dādā will not eat anything." I asked, ``Why? Why are you not eating today?" He said, ``Today is Saṅkaṣhṭi. Everyone says, `You should not eat chaṇas on Saṅkaṣhṭi.' " I said, ``This is the mistake."<br>
+Say, you have some issue with your prostrate gland -- now I want to narrate My experience. I have a disciple named Agnihotrī. His name is Rajwade but as he has performed many important Yagñyas he is referred to as Agnihotrī Rajwade. He is a very committed Sahaja Yogi. Two, three years ago he came to Me and said that, "I don't have any issue except that of prostrate gland." I was very surprised. 'This [is a] very accomplished devotee and Sahaja Yogi and why should he have an issue with his prostrate?' Because the prostrate ailment arises due to the issue with the Gaṇeśh Tattwa or if Gaṇeśh gets upset with him. There was no reason for Gaṇeśh to be upset with him. 'As he was a committed devotee and had total faith in Me and was a very simple person, then why is the Gaṇeśh Tattwa working in the opposite direction for him?' could not understand. I told him, "Take some prasād." The prasād is in the form of chaṇa. When I gave this to him, his fellow person said, "Today, Dādā will not eat anything." I asked, "Why? Why are you not eating today?" He said, "Today is Saṅkaṣhṭi. Everyone says, 'You should not eat chaṇas on Saṅkaṣhṭi.' " I said, "This is the mistake."<br>
 Saṅkaṣhṭi is Lord Gaṇeśha's Birthday. Now all of you are educated people. Even if some one tells you anything, you should use your intelligence. Should be alert always. We keep fast on Saṅkaṣhṭi. Saṅkaṣhṭi or Gaṇeśh Chaturthi are the Birthdays of Śhrī Gaṇeśha. If you keep fast on His Birthday, are you in mourning or what?"</font><br>
 <font size="+0"><b>1979-0922 Talk to Sahaja Yogis (Marathi), Kuṇḍalinī and Śhrī Gaṇeśha Principle, Navarātri Celebrations (1st Day), Amar Hind Mandal, West Dadar, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -382,16 +382,16 @@ Now, another thing I have to tell you is this: that, I was thinking that if you 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"The shortcoming of our country is falsity. We speak any lie without blinking the eyelid. `What happens? What can happen?'<br>
+<font color="DarkRed">"The shortcoming of our country is falsity. We speak any lie without blinking the eyelid. 'What happens? What can happen?'<br>
 Must discard falsity. Sahaja Yogis should take a vow that they will not speak lies.<br>
 Instead don't speak. Don't tell. We don't have the right to tell others.<br>
 ......<br>
 Sahaja Yogi should develop an overall sense: that of discretion.<br>
 There is no need to tell lies. People speak lies when they are afraid about something, when they need something. Why to speak lies when the Almighty Himself has awakened in you? When the Truth Itself has awakened in you, why to speak lies?<br>
-So we should take a vow that, `We will not speak lies.' The second vow that we should take is that, `We will not speak lies.'<br>
-`We must give up addiction' and `We will not speak lies.' This is [are] our vow[s].<br>
+So we should take a vow that, 'We will not speak lies.' The second vow that we should take is that, 'We will not speak lies.'<br>
+'We must give up addiction' and 'We will not speak lies.' This is [are] our vow[s].<br>
 ......<br>
-This is the third vow that you should take. `Don't pay attention to trivial matters!'<br>
+This is the third vow that you should take. 'Don't pay attention to trivial matters!'<br>
 Whether to give two paise to the rikśhā person or three paise, well, pay three paise, does not matter. He brought you breathlessly puffing. Why do you further take away his breath? What will you lose if you pay him three paise?<br>
 Learn to give. Don't calculate too much. Otherwise you will suffer. People who inordinately run after money also suffer inordinately from it.<br>
 So don't account for each paisā and reduce stinginess. This is the fourth vow."</font><br>

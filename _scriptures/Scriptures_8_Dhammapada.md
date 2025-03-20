@@ -1538,134 +1538,78 @@ the mild master themselves.</font>
 
 <p>
 <b>146 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+andhakārena onaddhā, padīpaṁ na gavesatha?</font>
 </p>
 
 <p>
 <b>146 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>147 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>147 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>148 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>148 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>149 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>149 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>150 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>150 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... When you are in deep darkness, will you not ask for a lamp?</font><br>
+<font color="blue">......<br>
+You are deep in the dark.
+Will you not ask for a light?</font><br>
+<font color="Peru">......<br>
+why, when enveloped by darkness, do you not seek for a light?</font>
 </p>
 
 <p>
 <b>151 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+satañ-cha Dhammo na jaraṁ upeti,<br>
+santo have sabbhi pavedayanti.</font>
 </p>
 
 <p>
 <b>151 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>152 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>152 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... The virtue of the good never grows old, and thus they can teach the good to those who are good.</font><br>
+<font color="blue">......<br>
+But the spirit of purity is changeless<br>
+And so the pure instruct the pure.</font><br>
+<font color="Peru">......<br>
+but the good Dhamma does not decay,<br>
+the good surely pass it on to the good.</font>
 </p>
 
 <p>
 <b>153 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Anekajātisaṁsāraṁ sandhāvissaṁ anibbisaṁ<br>
+gahakārakaṁ gavesanto: dukkhā jāti punappunaṁ.</font>
 </p>
 
 <p>
 <b>153 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">I have gone round in vain the cycles of many lives ever striving to find the builder of the house of life and death. How great is the sorrow of life that must die!</font><br>
+<font color="blue">"Vainly I sought the builder of my<br>
+house<br>
+Through countless lives.<br>
+I could not find him...<br>
+How hard it is to tread life after life!<br>
+</font><br>
+<font color="Peru">Through the round of countless births and deaths I have wandered without finding<br>
+the housebuilder I was seeking: born and suffering once again.</font>
 </p>
 
 <p>
 <b>154 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Gahakāraka diṭṭhosi! Puna gehaṁ na kāhasi:<br>
+sabbā te phāsukā bhaggā, gahakūṭaṁ visaṅkhitaṁ,<br>
+visaṅkhāragataṁ chittaṁ, taṇhānaṁ khayam-ajjhagā.<br>
+</font>
 </p>
 
 <p>
 <b>154 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>155 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>155 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>156 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>156 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">But now I have seen thee, the housebuilder: never more shalt thou build this house. The rafters of sins are broken, the ridge-pole of ignorance is destroyed. the fever of carving is past: for my mortal mind is gone to the joy of the immortal NIRVANA.</font><br>
+<font color="blue">"But now I see you, O builder!<br>
+And never again shall you build my<br>
+house.<br>
+I have snapped the rafters,<br>
+Split the ridge-pole<br>
+And beaten out desire.<br>
+And now my mind is free."</font><br>
+<font color="Peru">O housebuilder, now you are seen! You will not build the house again:<br>
+all your rafters have been broken, and the ridgepole has been destroyed,<br>
+my mind has reached the unconditioned, and craving’s end has been achieved.</font>
 </p>
 
 <div class="para-divider"></div>

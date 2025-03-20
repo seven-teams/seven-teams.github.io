@@ -6,6 +6,7 @@ tags:
   - crimson @ Shri Yeshoda
   - crimson @ Shri Yashoda
   - crimson @ Shri Yasoda
+  - crimson @ Shri Yesoda
   - crimson @ Shri Jashoda
   - crimson @ Shri Jasoda
   - crimson @ Shri Jeshoda
@@ -87,21 +88,7 @@ The manner in which His name Jesus originated is also very interesting. <font co
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
 <font size="+0"><b>1981-1006 Public Program (8th Day of Navarātri), Day 3, The New Age Has Started (From Kṛiṣhṇa to Christ), Venue 2, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -115,7 +102,79 @@ The manner in which His name Jesus originated is also very interesting. <font co
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1983-0310 Public Program, Day 3, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0918 Śhrī Kṛiṣhṇa Pūjā, Bring Out the Potential of This Country by Exciting the Deities, Śhrī Kṛiṣhṇa Himself (He's to Be Pleased) and The Task of Sahaja Yoga Is to Establish the Truth within Yourself, House of Dr. Vinod Worlikar, 17301 Maria Avenue, Cerritos (32 kms SE of Los Angeles), CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-1106 Diwālī Pūjā (Bhāūbīj Day), Become the Ideals (Unless and Until You Become Your Ideals You Are Not a Sahaja Yogi), Temple of All Faiths (now demolished, 11c Pond St), Belsize Park, Hampstead, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-0818 Conversation with Sahaja Yogis and Comments on the Music Listen, right after Śhrī Gṛuhalakṣhmī Pūjā, House, 48 Brompton Square, Knightsbridge, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1986-0402 Public Program (Hindi), Day 3, Samast Chakras or Sahaja Yog Se Lābh (About All Chakras or Benefits of Sahaja Yoga), Ghanaśhyām das Birla Sabhaghar, 29 Ashutosh Choudhry Avenue, Near Birla Mandir, Ballygunge, Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"His name which was Christ, is also derived from Kṛiṣhṇa. From Kṛiṣhṇa, Christ is derived.<br>
+<font color="red">Like this, from the name of Yaśhoda, Śhrī Rādhā kept His name as Jesus.</font><br>
+Everything is related to one another. Very close relationship is there."<br>
+<font size="+0"><b>1986-1201 Public Program (Hindi), Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1987-0808 Talk to Sahaja Yogis, Woman Plays the Most important Role or The Power of Woman, the day before Śhrī Viṣhṇumāyā Pūjā, Y.M.C.A. Holiday Hills Conference Center, 2 Lakeside Drive, Pawling, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0227 Conversation with Sahaja Yogis, On a Note from the Bible, Departure, Airport, Christchurch, Canterbury, New Zealand</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0704 Śhrī Viṣhṇumāyā Pūjā, Viṣhṇumāyā's Powers, Āśhram, Everbeek, Belgium</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0919 Śhrī Viṣhṇumāyā Pūjā, Stop Feeling Guilty or She Exists in All the Five Elements, The Shawnee Inn, 100 Shawnee Inn Drive, Shawnee on Delaware, Smithfield Township, PA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-1211 Śhrī Kṛiṣhṇa Pūjā, Yamunānagar, Haryana, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -131,13 +190,29 @@ The manner in which His name Jesus originated is also very interesting. <font co
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1995-0301 Talk to Sahaja Yogis, Zen System or Sahaja Yoga Is Also Zen, before the Public Program, Four Seasons Hotel, Tokyo, Japan</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
+<font size="+0"><b>1996-0901 Śhrī Kṛiṣhṇa Pūjā, Śhrī Kṛiṣhṇa and Sahaja Culture, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1998-0322 Talk to Sahaja Yogis, after the Evening Program, 75th Birthday Celebrations, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Śhrī Kṛiṣhṇa was first born in a very difficult situation, as you know, and He was carried from there to Gokul where He was brought up by Yeśhodā.<br>
+Now, there He started His playfulness.<br>
+So, you have to be playful in life. You have to create fun and joy."</font><br>
 <font size="+0"><b>2000-0820 Śhrī Kṛiṣhṇa Pūjā, In Every Walk of Life You Should Have a Very Spontaneous Decision and You Have to Create (fun and joy, maybe art, maybe music, maybe poetry, maybe literature) and Above All You Have to Create Sahaja Yogi (Personality Which Only Lives for Others Not for Oneself and Which Really Reflects God's Love and Becoming a Mahāyogi by Which Your Spirit Gives Joy, Peace and Blessings to Everyone), Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
