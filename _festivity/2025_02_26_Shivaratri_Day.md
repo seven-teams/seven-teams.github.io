@@ -15,7 +15,7 @@ Every matter has been created with a Deity in [it]. And that Deity is establishe
 <font size="+0"><b>1982-0222 Śhivarātri Pūjā, The Establishment of Śhiva on This Earth (We Have to Take Śhiva and Establish Him into the Virāṭ) and Śhiva Tattwa (What Makes Mother Pleased), New Delhi, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0128.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0129.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"When your Kuṇḍalinī pierces the Sahasrāra, Śhrī Mahādeva is seated there. That is why He is called Mahādeva, the God of Gods ......"</b></font><br>
@@ -132,7 +132,7 @@ May God bless you."</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0129.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0128.png" /></div>
 
 <p style="text-align:center;">
 <font color="red"><b>Nirgunaya, Nishkāmaya, Nirupaplavaya, Niravadhyaya, Nirantharaya, Nishkaranaya, Nirathangaya, Nishprapanchaya,<br>
