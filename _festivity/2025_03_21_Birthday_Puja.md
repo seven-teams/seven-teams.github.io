@@ -1,5 +1,5 @@
 ---
-title: '2025 Celebrating Birthday Pūjā:"You are the petals, you are the corona, you are the color, you are the beauty, you are the pollen of that beautiful lotus, which is My vision of this world." '
+title: '2025 Celebrating Birthday Pūjā: "You are the petals, you are the corona, you are the color, you are the beauty, you are the pollen of that beautiful lotus, which is My vision of this world." '
 date: 2025-03-21
 permalink: /festivity/2025/03/21
 tags:
@@ -10,11 +10,11 @@ tags:
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>Shubh Mangalmay, Divas He Aya</b></font><br>
-<font size="+0">The Auspicious Benevolent Day has come</font>
+<font size="+0">The Auspicious Benevolent Day has come</font><br>
 <font color="DarkGreen"><b>Ādi Śhakti, Swayam Hain Padhāri </b></font><br>
-<font size="+0">Ādi Śhakti has come Herself</font>
+<font size="+0">Ādi Śhakti has come Herself</font><br>
 <font color="DarkGreen"><b>Shubh Mangalmay, Divas He Aya</b></font><br>
-<font size="+0">The Auspicious Benevolent Day has come.</font>
+<font size="+0">The Auspicious Benevolent Day has come.</font><br>
 <font color="DarkGreen">Sur Nar Muni, Sab Jhūm Rahe Hain<br>
 Aaj Prakriti Khil, Phul Rahi Hai<br>
 Phūl Khile, Bhanware Khag Mil Ke<br>  
