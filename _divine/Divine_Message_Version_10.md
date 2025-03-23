@@ -33,8 +33,8 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 <font color="blue"> Divine Message, Version 10:</font> <br>
 1. has 20,785 (an increment of 1,046 pages from Version 9);<br>
 2. contains 5,210 events started (an increment of 389 from Version 9);<br>
-3. contains 513 figures (an increment of 139 from Version 9);<br> 
-4. contains 143 footnotes (an increment of 22 from Version 9);<br>
+3. contains 514 figures (an increment of 140 from Version 9);<br> 
+4. contains 148 footnotes (an increment of 27 from Version 9);<br>
 5. has a size of 432.4 mb.<br>
 </p>
 
