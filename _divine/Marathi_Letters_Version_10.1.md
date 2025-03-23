@@ -1,7 +1,7 @@
 ---
 title: 'Marathi Letters from Divine Message, Version 10.1'
 date: 2025-03-23
-permalink: /divine/2025/03/23
+permalink: /divine/2025/03/23-b
 tags:
   - Divine Message
 ---
@@ -28,4 +28,7 @@ Jay Śhrī Mātājī!<br>
 The Marathi Subteam<br>
 sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
+https://www.facebook.com/sahajayogavidya (Warning: solely for communications when email is less convenient)<br> 
 </p>
+
+<iframe src="/pdf2/src/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/Marathi_Letters_from_Divine_Message_Version_10.1_2025_0323_BroWsinG_MS.pdf" width="1000px" height="1000px"></iframe>

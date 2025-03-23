@@ -1,7 +1,7 @@
 ---
 title: 'Divine Message, Version 10'
 date: 2025-03-23
-permalink: /divine/2025/03/23
+permalink: /divine/2025/03/23-a
 tags:
   - Divine Message
 ---
