@@ -11,7 +11,7 @@ tags:
 <p>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We would like to share with you all the up-dated <font color="blue">Marathi Letters, from Divine Message Version 10.1</font> we have been working on since Divine Message, Version 10 was posted earlier today. The pdf file with 1 full new IAST transliteration and 1 full version translation is available at the link <a href="https://bit.ly/Divine_Message_V_10_1">Version 10.1</a>.<br>
+We would like to share with you all the up-dated <font color="blue">Marathi Letters, from Divine Message Version 10.1</font> we have been working on since Divine Message, Version 10 was posted earlier today. The pdf file of Version 10.1 with 1 full new IAST transliteration and 1 full version translation is displayed below.<br>
 Total Marathi Letters: 38.<br>
 Originals: 25.75 letters.<br>
 Retyped or (original) rewritten text: 5.25 letters.<br>
