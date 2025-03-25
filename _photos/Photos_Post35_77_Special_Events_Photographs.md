@@ -1,7 +1,7 @@
 ---
-title: 'Photos Post 35: Special Events (after 1975), Part 77'
-date: 2025-03-24
-permalink: /photos/2025/0324
+title: 'Photos Post 35: Special Events (after 1975), Part 78'
+date: 2025-03-25
+permalink: /photos/2025/0325
 tags:
   - green @ Updates
 ---
@@ -10,9 +10,8 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 12 Photos of the special event <font color="Crimson"><b>1985-0121 Procession, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 12 high resolutions from the Named Collections.<br>
-The direct link to the 28 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1985-01-20-to-31"><font color="DarkGreen">Collection 1985</font></a>.<br>
-The event has as well 6 photos Moments of Joy which can be seen in the smallest gallery at the link <a href="https://eternalmoments.smugmug.com/Collections/Karan-Khurana-Collection/Moments-of-Joy"> Collection Moments of Joy</a>.<br>
+We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>1988-0902 Birthday Anniversary, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolutions from the Named Collections.<br>
+The direct link to the 28Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1988-01-to-11"><font color="DarkGreen">Collection 1985</font></a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

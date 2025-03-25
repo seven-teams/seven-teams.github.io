@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo from the special event <font color="Crimson"><b>1988-0000 (likely) Evening Program, Pratiṣhṭhān, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 medium resolution from the Named Collections.<br>
-The direct link to the Photo of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/John-Watkinson-Collection/1988/"> Collection 1988</a>.<br>
+We are pleased to let you know that 2 Photos from the special event <font color="Crimson"><b>1988-0902 Birthday Anniversary, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution and 1 medium resolution from the Named Collections.<br>
+The direct link to the Photo of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1988-01-to-11/"> India 1988-01 to 11</a>.<br>
+[Note: title updated and the second Photo uploaded on 2025-0325.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
