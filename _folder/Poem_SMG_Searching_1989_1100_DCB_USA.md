@@ -8,7 +8,7 @@ tags:
   - brown @ 1989
   - cornflowerblue @ Toronto
   - deeppink @ 1989-1100 The Divine Cool Breeze (U.S.A.)
-  - green @ Story of Poem Searching?
+  - green @ Story of Poem Searching
   - maroon @ Searching    
 ---
 

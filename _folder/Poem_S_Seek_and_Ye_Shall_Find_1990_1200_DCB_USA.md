@@ -1,7 +1,7 @@
 ---
-title: 'Poem &#8216;Seak and Ye Shall Find&#8217; by Sonia, England from the 1990-1200 The Divine Cool Breeze (U.S.A.), Volume 4, Issue 11, Page 15'
+title: 'Poem &#8216;Seek and Ye Shall Find&#8217; by Sonia, England from the 1990-1200 The Divine Cool Breeze (U.S.A.), Volume 4, Issue 11, Page 15'
 date: 1990-12-01
-permalink: /folder/1990-1201-S-Seak-and-Ye-Shall-Find-1990-1200-DCB-USA-P15
+permalink: /folder/1990-1201-S-Seek-and-Ye-Shall-Find-1990-1200-DCB-USA-P15
 tags:
   - black @ Poem
   - blue @ Sonia
@@ -9,7 +9,7 @@ tags:
   - cornflowerblue @ England
   - deeppink @ 1990-1200 The Divine Cool Breeze (U.S.A.)
   - maroon @ Find
-  - maroon @ Seak
+  - maroon @ Seek
   - maroon @ Shall
   - maroon @ Ye
 ---
