@@ -28,7 +28,7 @@ The cause of time, cause of creation<br>
 Cause of life and knowledge<br>
 <br>
 She is a power in you – a power in me<br>
-A power you can feel – a power in motio<br>
+A power you can feel – a power in motion<br>
 A power you can give – a power you can receive<br>
 <br>
 She is so close to me<br>
