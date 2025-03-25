@@ -16,7 +16,7 @@ tags:
 <br>
 
 <p>
-Wha tdo you see in her deep brown eyes?<br>
+What do you see in her deep brown eyes?<br>
 I see love, compassion and forgiveness.<br>
 What do you hear when she talks so calmly?<br>
 I hear music, harmony and laughter.<br>
