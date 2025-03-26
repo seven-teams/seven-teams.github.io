@@ -3,7 +3,7 @@ title: 'Poem &#8216;Psalm 23A&#8217; by Stephen Taylor, Australia from the 1990-
 date: 1990-01-01
 permalink: /folder/1990-0101-ST-Psalm-23A-1990-0300-DCB-USA-P10
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Stephen Taylor
   - brown @ 1990
   - cornflowerblue @ Australia

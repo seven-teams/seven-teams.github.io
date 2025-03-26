@@ -3,7 +3,7 @@ title: 'Poem &#8216;Our Mother Nirmala&#8217; by Christina, Spain from the 1990-
 date: 1990-01-01
 permalink: /folder/1990-0101-C-Our-Mother-Nirmala-1990-0400-DCB-USA-P12
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Christina
   - brown @ 1990
   - cornflowerblue @ Spain

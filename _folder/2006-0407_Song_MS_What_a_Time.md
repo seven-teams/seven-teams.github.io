@@ -6,8 +6,7 @@ tags:
   - blue @ Song
   - black @ Michelle Shete
   - brown @ 2006
-  - cornflowerblue @ Sydney 
-  - crimson @ TBD
+  - cornflowerblue @ Sydney
   - deeppink @ 2006-0414 The Australian Sahaja Yoga Newsletter
   - maroon @ Time
   - maroon @ What

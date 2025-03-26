@@ -3,7 +3,7 @@ title: 'Poem &#8216;Mother&#8217;s All-pervading Love&#8217; from the 1990-0400 
 date: 1990-08-01
 permalink: /folder/1990-0801-Mothers-All-pervading-Love-1990-0800-DCB-USA-P21
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ TBD
   - brown @ 1990
   - cornflowerblue @ TBD

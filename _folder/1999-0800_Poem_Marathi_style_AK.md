@@ -3,7 +3,7 @@ title: '1999-0801 Poem Marathi Style by Alla Kulkarni, CA'
 date: 1999-08-01
 permalink: /folder/1999-0801-AK
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Alla Kulkarni
   - brown @ 1999
   - cornflowerblue @ CA

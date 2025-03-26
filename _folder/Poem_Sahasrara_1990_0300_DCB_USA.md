@@ -3,7 +3,7 @@ title: 'Poem &#8216;Sahasrara&#8217; from the 1990-0300 The Divine Cool Breeze (
 date: 1990-01-01
 permalink: /folder/1990-0101-Sahsrara-1990-0300-DCB-USA-P5
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ TBD
   - brown @ 1990
   - cornflowerblue @ TBD

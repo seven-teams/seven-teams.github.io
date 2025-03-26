@@ -3,7 +3,7 @@ title: '1989-0700 Poem &#8216;To the Mother of all the Gurus&#8217; by Yogi Maha
 date: 1989-07-01
 permalink: /folder/1989-0700-YM-To-the-Mother-of-all-the-Gurus
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Yogi Mahajan
   - brown @ 1989
   - cornflowerblue @ India

@@ -3,7 +3,7 @@ title: '1999-0000 Poem &#8216;The Light of Innocence&#8217; by Pragya Mahajan, C
 date: 1999-12-01
 permalink: /folder/1999-1201-PM-The-Light-of-Innocence
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Pragya Mahajan
   - brown @ 1999
   - cornflowerblue @ ISPS Dharamshala, Class XII

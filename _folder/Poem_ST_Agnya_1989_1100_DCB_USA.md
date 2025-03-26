@@ -3,7 +3,7 @@ title: 'Poem &#8216;Agnya&#8217; by Stephen Taylor, Australia from the 1989-1100
 date: 1989-11-01
 permalink: /folder/1989-0101-ST-Agnya-1989-1100-DCB-USA-P19
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Stephen Taylor
   - brown @ 1989
   - cornflowerblue @ Australia

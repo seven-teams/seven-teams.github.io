@@ -3,7 +3,7 @@ title: 'Poem by Grégoire de Kalbermatten from the 1990-0200 The Divine Cool Bre
 date: 1990-01-01
 permalink: /folder/1990-0201-dJK-1990-0200-DCB-USA-P18
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Grégoire de Kalbermatten
   - brown @ 1990
   - cornflowerblue @ TBD

@@ -3,7 +3,7 @@ title: 'Poem &#8216;Searching?&#8217; by Steven Mohan Gulati, Toronto from the 1
 date: 1989-11-01
 permalink: /folder/1989-1101-SMG-Searching-1989-1100-DCB-USA-P20
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Steven Mohan Gulati
   - brown @ 1989
   - cornflowerblue @ Toronto

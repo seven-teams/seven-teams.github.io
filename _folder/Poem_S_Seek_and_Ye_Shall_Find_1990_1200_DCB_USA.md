@@ -3,7 +3,7 @@ title: 'Poem &#8216;Seek and Ye Shall Find&#8217; by Sonia, England from the 199
 date: 1990-12-01
 permalink: /folder/1990-1201-S-Seek-and-Ye-Shall-Find-1990-1200-DCB-USA-P15
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Sonia
   - brown @ 1990
   - cornflowerblue @ England

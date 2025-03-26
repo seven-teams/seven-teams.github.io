@@ -3,7 +3,7 @@ title: 'Poem &#8216;The Dawning of We Who Would Be Free&#8217; by Kevin Andersen
 date: 1990-10-01
 permalink: /folder/1990-1001-KA-The-Dawning-1990-1000-DCB-USA-P12
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Kevin Andersen
   - brown @ 1990
   - cornflowerblue @ Australia
