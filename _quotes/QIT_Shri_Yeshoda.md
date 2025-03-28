@@ -108,7 +108,8 @@ The manner in which His name Jesus originated is also very interesting. <font co
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"And most of you Sahaja Yogis know the relationship of Christ and Śhrī Kṛiṣhṇa, why He was called Christ. Christ words comes from the same kṛiṣhi.<br>
+<font color="red">And, His first name comes from the word Yeśhodā. Yeśhodā is also called as Je-su or Ye-su. And that's why Kṛiṣh... Christ was called as Je-su or Ye-su. Some people call Him Yesu, and some people call Him as Jesu, because of Yeśhodā, the mother ... the foster mother of Śhrī Kṛiṣhṇa.</font>"<br>
 <font size="+0"><b>1983-0918 Śhrī Kṛiṣhṇa Pūjā, Bring Out the Potential of This Country by Exciting the Deities, Śhrī Kṛiṣhṇa Himself (He's to Be Pleased) and The Task of Sahaja Yoga Is to Establish the Truth within Yourself, House of Dr. Vinod Worlikar, 17301 Maria Avenue, Cerritos (32 kms SE of Los Angeles), CA, U.S.A.</b></font>
 </p>
 
@@ -189,7 +190,9 @@ Everything is related to one another. Very close relationship is there."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Also your name has-s lots of Sanskrit in it. <font color="red">Like Yeśhodā ... uh-uh-uh is the One Giver of uh ... Success.</font> So many names I know are ... have Sanskrit in itch [it].<br>
+But I don't know if Viditama .... uh-uh-uh was an Indian or a ... uh ... Japanese, but he came to Japan, whatever it is. Because so many names here also are just like Indian names.<br>
+But the Zen, those who follow even Zen religion don't understand."<br>
 <font size="+0"><b>1995-0301 Talk to Sahaja Yogis, Zen System or Sahaja Yoga Is Also Zen, before the Public Program, Four Seasons Hotel, Tokyo, Japan</b></font>
 </p>
 

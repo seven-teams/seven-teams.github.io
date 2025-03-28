@@ -126,7 +126,7 @@ Keep the hands one minute and give the promise to Śhrī Mātājī.</b><br>
 
 <p style="text-align:center;">
 "On the auspicious day of Sankranti, Shri Mataji commenced the construction of Her farmhouse on an 11-acre farm on NDA Road overlooking Pune. 
-She named it 'Prathisthan' - after the capital of Her ancestors who ruled over the province of Paithan."<br>
+She named it 'Pratishthan' - after the capital of Her ancestors who ruled over the province of Paithan."<br>
 <b>1986, 'The Tenth Incarnation' by Yogi Mahajan</b>
 </p>
 
