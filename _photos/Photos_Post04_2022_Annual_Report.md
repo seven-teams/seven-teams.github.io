@@ -11,7 +11,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,
 
 Jay Śhrī Mātājī!
 
-The website <a href="https://imageevent.com/sahaja"><font color="DarkGreen"><b>Jai Shri Mataji or Sahaja Image Events</b></font></a> has now 21,064 Photographs of Śhrī Mātājī, including versions and details (an increment of 3,492 since Post 3), and 3,483 photos Moments of Joy (an increment of 2,845 since Post 3). 
+The website <a href="https://eternalmoments.smugmug.com/"><font color="DarkGreen"><b>Eternal Moments</b></font></a> has now 21,064 Photographs of Śhrī Mātājī, including versions and details (an increment of 3,492 since Post 3), and 3,483 photos Moments of Joy (an increment of 2,845 since Post 3). 
 There are 21 Collections with 19,954 Photographs of Śhrī Mātājī and 3,444 photos Moments of Joy. 
 
 Gradually, the Photographs and the photos Moments of Joy that are not part of the Collections will be also made available in the XYZ Folder of the Collections. 

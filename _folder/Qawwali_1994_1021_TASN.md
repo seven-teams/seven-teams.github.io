@@ -1,5 +1,5 @@
 ---
-title: 'Song Offerings to the Creator from 1994-1021 The Australian Sahaja Newsletter, Page 8'
+title: 'Song Sang at Śhrī Ādi Śhakti Pūjā from 1994-1021 The Australian Sahaja Newsletter, Page 8'
 date: 1994-06-01
 permalink: /folder/Qawwali-Sang-at-Shri-Adi-Shakti-Puja-1994-1021-TASN
 tags:
