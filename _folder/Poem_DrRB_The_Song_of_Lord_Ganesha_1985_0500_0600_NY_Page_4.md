@@ -3,7 +3,7 @@ title: 'Poem &#8216;The Song of Lord Ganesha&#8217; by Dr. Rustom Burjorjee from
 date: 1985-05-01
 permalink: /folder/1985-0501-DrRB-The-Song-of-Lord-Ganesha
 tags:
-  - black @ Poetry
+  - black @ Song
   - blue @ Dr. Rustom Burjorjee
   - brown @ 1985
   - cornflowerblue @ TBD
