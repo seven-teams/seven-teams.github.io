@@ -116,14 +116,44 @@ The manner in which His name Jesus originated is also very interesting. <font co
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So you have to not fight yourself but to tame. And this is very easy. You'll start enjoying it, looking at yourself: 'Oh mister so-and-so.' Then you won't be angry. 'I know how to handle you. You are hiding behind there, all right, giving excuses.' And the child grows big, so big that mother sees that and is amazed.<br>
+Like in Śhrī Kṛiṣhṇa's childhood, the Mother was Yeśhodā and the child was Śhrī Kṛiṣhṇa, is very symbolic. And He used to play very naughty tricks [a Sahaja Yoginī laughs]. And She said: "You went and ate that mud from there. I know You have eaten." He said, "How can I eat? How can I? I can't even go out of the house. I'm sitting down here. Where is the mud? How can I eat?" "You did eat, I know You have eaten. So, better show Me Your mouth." He says, "Really?" And then the mouth opens and the complete Viśhwa Swarūpa, complete vision of the whole Viśhwa She sees, and the Mother falls at His Feet.<br>
+That's what it should be. This mother has to fall at the feet of the child that has grown. Very symbolic. That is how you have to grow: into that Viśhwa Swarūpa, into that Collective Being, into that Virāṭa.<br>
+Arjuna and Śhrī Kṛiṣhṇa is another very good symbolic thing. Arjuna was a friend who used to take liberties with Śhrī Kṛiṣhṇa. Śhrī Kṛiṣhṇa tried to tell him about Gītā, all these things. But still Śhrī Kṛiṣhṇa could not convince him of that. All these were just outside, bla bla bla's, as Mother['s] talks are.<br>
+Mother['s] talks are very entertaining, you know: very humorous, nice to hear them, instead of listening to any music better to hear Mother's talks. And then the people think: if they are listening to Mother they have become Mother already.<br>
+That's it, happened to Arjuna also. But still he said e ... he found out that there's something lacking in him, that he has not become the ideal. Still his attention is not there as it should have been. So he asked Śhrī Kṛiṣhṇa: "I think I'll see your great image." Kṛiṣhṇa said, "All right, are you prepared?" He said, "Yes, I am prepared." And then He became the Virāṭa, the vision of the Virāṭa, and when he saw it, he said, "It's, stop it, is too much for me!"<br>
+That's what should happen to your friend, who is this child: that it should become that Virāṭ, [and] when you see that, should be amazed at yourself, 'Oh God, I have grown like this‽' Just like Yeśhodā falling at the Feet of the little Child, you have to fall at the feet of the child that is within you.<br>
+I'm sure this will happen now. 
+"</font><br>
 <font size="+0"><b>1983-1106 Diwālī Pūjā (Bhāūbīj Day), Become the Ideals (Unless and Until You Become Your Ideals You Are Not a Sahaja Yogi), Temple of All Faiths (now demolished, 11c Pond St), Belsize Park, Hampstead, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Now he describes how Śhrī Kṛiṣhṇa has done it, or the God has done it.<br>
+'By only a glance of the grace the whole universe is uh sustained: all through one glance of the grace of that God. And ... and such a God I've ... we have seen Him in Gokul, uh dancing over, uh-uh-uh asking for the butter.' Just imagine! For Him the whole world He nourishes, [but] here it is He is just crying for butter, in Gokul, just to please His Mother.<br>
+[After 27 seconds:] 'One who [<font color="orange">unclear</font>]': Śhambhu is the Mahādeva, is the ... Virañchi is the Brahmadeva. 'All the Devas, Sanaka' is the one, Sanak is the very great, high, spiritu... spiritually evolved personality, 'could not get into meditation towards Him, and He is playing here with the little boys uh who are uh ordinary uh cowherd uh [<font color="orange">unclear</font>] cowherds,' you see, [<font color="orange">unclear</font>].<br> 
+[After a Sahaja Yogi says something:] 'Once [<font color="orange">unclear</font>] with the little, little boys. We saw him playing with Him there.'<br>
+'[<font color="orange">unclear</font>], the one who cannot even meditate [on Śhrī Kṛiṣhṇa].' Virañchi is Brahmadeva. Śhambhu is Mahādeva. 'They cannot even get into meditate [meditation]': Sureśh, Gaṇeśh, Maheśh, is everybody. 'They ... they think of God but They cannot go beyond [God].'<br>
+'But here He is, uh-uh-uh He is uh being uh driven ma... mad by few gopīs who have some little buttermilk to offer to Him.'<br>
+Very good poetry!<br>
+[After 14 seconds:] 'The Feet of ... whose Feet are under the ... under the guidance of Kamalā,' means a Lakṣhmī: 'She is the One who is holding His Feet while sitting down. He can't get out of it. He cannot take out His Feet out of Her Powers. The One who is even looked after, [by] Śhrī Lakṣhmī, you see, such a person.' [After 16 seconds:] 'Such a God, whom I have seen His Feet walking on the ... on the ... thorns of the Gokul.' You see, where He was walking there were thorns, bare Feet. 'Walking there such a God, who's Feet are pressed even by Śhrī Lakṣhmī,' for His bhaktas, because they were all His bhaktas there.<br>
+Like Me in London! [Laughs, some laughter.]<br>
+[After 16 seconds:] 'By only uh little turning of the' ... kind of ... [<font color="orange">unclear</font>] ... What you call this? Kind of [<font color="orange">unclear</font>].<br>
+[As a Sahaja Yogi says something:] Uh?<br>
+[After he says something:] So, seven ... seven ... seven fees [seas] start boiling with one, this thing.<br>
+Then he describes, you see, Bindu is the poet, he describes. Such a great poet! Such a ...<br>
+......<br>
+Such a great power of God that just lifting one, the eyebrows, He makes seven seas to boil.<br>
+......<br>
+That there He, with the Mother Yeśhodā's fear, He drops the little drops of tears ... tear, what you call? Uh what call them? Aśhru [teardrop].<br>
+Kahata aśhru [saying teardrop] [<font color="orange">Hindi</font>]?<br>
+......<br>
+Bindu's. Uh?<br>
+[After Sir C.P. says, "Drop":] Drops, drops! But drops [<font color="orange">unclear</font>].<br>
+His name [Bindu] is also a drop, so he puts it that [way]. [<font color="orange">unclear</font>] carry that. [<font color="orange">unclear</font>].<br>
+'From His eyes He drops this little, little drops of uh bindu.' So, from where to where? He can make seven rivers ... the seven seas to boil and here, there are tear drops, you see, just like bindus falls from His eyes, just to please His Mother."</font><br>
 <font size="+0"><b>1985-0818 Conversation with Sahaja Yogis and Comments on the Music Listen, right after Śhrī Gṛuhalakṣhmī Pūjā, House, 48 Brompton Square, Knightsbridge, London, UK</b></font>
 </p>
 
@@ -160,30 +190,48 @@ Everything is related to one another. Very close relationship is there."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"But at the time of Śhrī Kṛiṣhṇa, She was born as the sister of Śhrī Kṛiṣhṇa.<br>
+And instead of Śhrī Kṛiṣhṇa being killed by Her uncle, as you know the story is, She was exchanged. She was actually the daughter of Yeśhodā: exchanged for Śhrī Kṛiṣhṇa. And this girl, little girl was killed by the uncle of Śhrī Kṛiṣhṇa, who became the lightning in the sky and announced that, "Śhrī Kṛiṣhṇa has already incarnated, and your uh destiny is in His hands, and He is going to kill you." She told Kaṃsa.<br>
+So this is the Viṣhṇumāyā."</font><br>
 <font size="+0"><b>1992-0704 Śhrī Viṣhṇumāyā Pūjā, Viṣhṇumāyā's Powers, Āśhram, Everbeek, Belgium</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Now I have to tell you about also the origin of Viṣhṇumāyā, which is very interesting.<br>
+Viṣhṇumāyā was the sister of Śhrī Kṛiṣhṇa, who was born after Śhrī Kṛiṣhṇa was born.<br>
+Actually, She was not His own sister, but She was the daughter of Nanda. And when Śhrī Kṛiṣhṇa was taken over and was put in the care of Nand and Yeśhodā, they gave their own daughter in His place. And the father of Śhrī Kṛiṣhṇa brought It back.<br>
+So, when Kaṃsa came. the uncle -- you all know about the story -- to ask about the eighth child, they said, "This is the child!" He said, "But is not a man! This is a woman." He took the child [gesturing whirling:] in his hand, and did like this and threw it in the sky. And there She went. And there She announced: that, "Śhrī Kṛiṣhṇa is already incarnated, He is living, and He is your killer." "</font><br>
 <font size="+0"><b>1992-0919 Śhrī Viṣhṇumāyā Pūjā, Stop Feeling Guilty or She Exists in All the Five Elements, The Shawnee Inn, 100 Shawnee Inn Drive, Shawnee on Delaware, Smithfield Township, PA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Also, His mother was there, Yeśhodā. And when Rādhājī was the Mahālakṣhmī, Mother Mary, and She gave birth to Śhrī Gaṇeśha, that was Lord Jesus Christ.<br>
+In India, nobody would doubt the uh-uh-uh uh-uh Immaculate Conception, nobody would doubt. But for others it is too much to-oo-oo believe in the Immaculap ... Immaculate Conception, or they are all arguing and saying all kinds of nonsensical things. Because Gaṇeśha was created like that, and, also, Christ could be created like that.<br>
+......<br>
+[After 15 seconds:] So Rā-dhā: She was Mother Mary.
+And, it is surprising, if you read the Devī Māhātmyam, in that, it's clearly written who was Christ. That He was the support. He was called as Mahāviṣhṇu. He was the support. That's the Mūlādhāra. He was the Support of the Universe.<br>
+All these were all related people, but we are stupidly fighting because we do not have the Knowledge of Reality.<br>
+So, Rādhājī wanted to give Him the name Ye-Yeśhoda. So He called Him Yesu, in Hebrew it is Jesu. Also, in India, Yeśhodā is called just as Jaśhodā. [<font color="orange">unclear</font>]' many people call it Jesu. That's how He became Jesus.<br>
+You can verify what I'm saying on your vibrations. "</font><br>
 <font size="+0"><b>1993-1211 Śhrī Kṛiṣhṇa Pūjā, Yamunānagar, Haryana, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-"<font color="red">And She [Śhrī Rādhā] is the one who called Him Jesus. Actually, in the Hebrew it is Yesu. And also in the &#8211; thank God, I read the Bible in Marathi, which was directly translated from Hebrew &#8211; Yesu is the name. Yesu is the name of the Mother of Christ, now, Mo... Mother of Śhrī Kṛiṣhṇa. Yesu, means, as we call Her, Jesu or Yesu from Jesodā or Yeśhodā. From that She called Him.</font> And Christ word comes from Kṛiṣhṇa. <font color="red">So She called Him Krista and Yesu or Jesus.</font><br>
-<font color="red">We, too, call Yeśhodā sometimes Jesu or Yesu.</font><br>
-<font color="red">So She called Him by that name. And that is how She put the link for us to understand how close He was to Śhrī Kṛiṣhṇa.</font>"<br>
+"<font color="red">She was Rādhā. Rādhā also had a Son, and He was like an egg. And the half of the egg was Christ and half of the egg was Śhrī Gaṇeśh. But when this child was born, He started crying for His Father. Father was Śhrī Kṛiṣhṇa.<br>
+It's in the ... if you need ... read Devī Māhātmyam it is there.<br>
+So, always, [gestures with the two right fingers raised up:] He puts His hands like this, towards His Father. So one is, as you know, is Śhrī Kṛiṣhṇa's finger, another is Viṣhṇu's.<br>
+And She was Rā-dhā. Rā means energy, dhā means the one who has sustained the energy.<br>
+And She is the one who called Him Jesus.<br>
+Actually, in the-uh-uh Hebrew it is Yesu. And also in the -- thank God, I read the Bible in Marathi, which was directly translated from Hebrew -- Yesu is the name. Yesu is the name of the Mother of Christ, uh, Mo... Mother of Śhrī Kṛiṣhṇa. Yesu, means: as we call Her, Jesu or Yesu from Jesodā or Yeśhodā.<br>
+From that She called Him. And Christ word comes from Kṛiṣhṇa. So She called Him Krista and Yesu or Jesus.<br>
+We, too, call Yeśhodā sometimes Jesu or Yesu.<br>
+So She called Him by that name. And that is how She put the link for us to understand how close He was to Śhrī Kṛiṣhṇa. .</font>"<br>
 <font size="+0"><b>1993-1225 Christmas Pūjā, Rationality Can Never Make You Understand Divinity, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
@@ -206,7 +254,7 @@ But the Zen, those who follow even Zen religion don't understand."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"It was very sweet, and you know, I really enjoyed his style of describing the village life, which is so sweet, and s-shows how people love each other and express their love. There's no carnal love, nothing of the kind, but very pure love. Between, say, Yeśhodajī and Rādhā, I was surprised how it was described so well. "</font><br>
 <font size="+0"><b>1998-0322 Talk to Sahaja Yogis, after the Evening Program, 75th Birthday Celebrations, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 

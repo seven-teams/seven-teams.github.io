@@ -63,9 +63,18 @@ In the life of Jesus Christ (incarnation of Maha Vishnu) the highest expression 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font color="red">"So you have to not fight yourself but to tame. And this is very easy. You'll start enjoying it, looking at yourself: 'Oh mister so-and-so.' Then you won't be angry. 'I know how to handle you. You are hiding behind there, all right, giving excuses.' And the child grows big, so big that mother sees that and is amazed.<br>
+Like in Śhrī Kṛiṣhṇa's childhood, the Mother was Yeśhodā and the child was Śhrī Kṛiṣhṇa, is very symbolic. And He used to play very naughty tricks [a Sahaja Yoginī laughs]. And She said: "You went and ate that mud from there. I know You have eaten." He said, "How can I eat? How can I? I can't even go out of the house. I'm sitting down here. Where is the mud? How can I eat?" "You did eat, I know You have eaten. So, better show Me Your mouth." He says, "Really?" And then the mouth opens and the complete Viśhwa Swarūpa, complete vision of the whole Viśhwa She sees, and the Mother falls at His Feet.<br>
+That's what it should be. This mother has to fall at the feet of the child that has grown. Very symbolic. That is how you have to grow: into that Viśhwa Swarūpa, into that Collective Being, into that Virāṭa.<br>
+Arjuna and Śhrī Kṛiṣhṇa is another very good symbolic thing. Arjuna was a friend who used to take liberties with Śhrī Kṛiṣhṇa. Śhrī Kṛiṣhṇa tried to tell him about Gītā, all these things. But still Śhrī Kṛiṣhṇa could not convince him of that. All these were just outside, bla bla bla's, as Mother['s] talks are.<br>
+Mother['s] talks are very entertaining, you know: very humorous, nice to hear them, instead of listening to any music better to hear Mother's talks. And then the people think: if they are listening to Mother they have become Mother already.<br>
+That's it, happened to Arjuna also. But still he said e ... he found out that there's something lacking in him, that he has not become the ideal. Still his attention is not there as it should have been. So he asked Śhrī Kṛiṣhṇa: "I think I'll see your great image." Kṛiṣhṇa said, "All right, are you prepared?" He said, "Yes, I am prepared." And then He became the Virāṭa, the vision of the Virāṭa, and when he saw it, he said, "It's, stop it, is too much for me!"<br>
+That's what should happen to your friend, who is this child: that it should become that Virāṭ, [and] when you see that, should be amazed at yourself, 'Oh God, I have grown like this‽' Just like Yeśhodā falling at the Feet of the little Child, you have to fall at the feet of the child that is within you.<br>
+I'm sure this will happen now. 
+"</font><br>
+<font size="+0"><b>1983-1106 Diwālī Pūjā (Bhāūbīj Day), Become the Ideals (Unless and Until You Become Your Ideals You Are Not a Sahaja Yogi), Temple of All Faiths (now demolished, 11c Pond St), Belsize Park, Hampstead, London, UK</b></font>
 </p>
+
 
 <div class="para-divider"></div>
 
