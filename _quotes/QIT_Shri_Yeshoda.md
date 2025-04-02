@@ -100,7 +100,7 @@ And then the story is that how he tried to kill Him, so that you forget about th
 Christ is called also as Yesu in India. The short form of Jesodā is Yesu or Jesu, we have both the things. From there the name Jesus has come.<br>
 <font color="red">She wanted to name Her [Him] after the foster mother. Because She was a lady, so She was called as Jesodā. But for a man, She selected the name Yesu and Jesu.</font><br>
 Moreover, the word Jesu or Yesu is very important. Je, ja in Sanskrit language means -- every word has a meaning in Sanskrit language -- means to know, is to know, the knowledge: gyā-na. "Jā neti [jānāti] sa Gyāna." The One who knows! But Je-su, su means auspicious. Su means 'that brings auspiciousness, that brings blessings'. Je-su: is 'the One who knows how to bring auspiciousness on this Earth'.<br>
-People never told this! They never knew! [Those] who went from here with the message that Christ was born."</font><br>
+People never told this! They never knew! [Those] who went from here with the message that Christ was born."<br>
 <font size="+0"><b>1981-1006 Public Program (8th Day of Navarātri), Day 3, The New Age Has Started (From Kṛiṣhṇa to Christ), Venue 2, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
 </p>
 
@@ -111,7 +111,7 @@ People never told this! They never knew! [Those] who went from here with the mes
 In Indian languages, a short form Ye ... Yeśhodā is Jesu or Yesu. We even call Christ Yesu. We call Him Yesu as well as Jesu, many people call Him Yesu. In many European countries is also [that] they call Him Yesu.<br>
 Now this Yeśhodā was the foster mother.<br>
 And Christ itself comes from the word Kṛiṣhṇa. Kṛiṣhṇa means: the one who has done the -- what you call -- sowing, sowing of the seed. Is the sowing of the seed. He has done the sowing. He's Kṛiṣhṇa.<br>
-And Rādhā Herself is Mahālakṣhmī and She was born as the Mother of Christ."</font><br>
+And Rādhā Herself is Mahālakṣhmī and She was born as the Mother of Christ."<br>
 <font size="+0"><b>1981-1018 Public Program, Day 2, Session 2 (evening), Heartwood Community Center, 200 7th Avenue, Santa Cruz, CA, U.S.A.</b></font>
 </p>
 
@@ -121,7 +121,7 @@ And Rādhā Herself is Mahālakṣhmī and She was born as the Mother of Christ.
 "But even the nime ... name of Christ comes to Him from the same heritage, which I was telling you, that His name was Ye-su [Yeśhu], not Jesus, because in the Bible I get Myself confused when I read that Anna was not Anna, it [she] was Hannah, John was Yohan. Every name has been corrupted in the English Bible. In the same way they have corrupted Christ's name, Yeśhu, into Jesus. Actually, they called Him, some people of course call Him Jesu.<br>
 This is the name given to Him by Śhrī Rādhājī, the One who was the Power of Śhrī Kṛiṣhṇa. <font color="red">She's the One who gave Him this name because She was very much indebted to the foster mother of Śhrī Kṛiṣhṇa, who was Yeśhodā.</font> And that's why She called Him Yeśhu.<br>
 Yeśhu is the word in Hebrew language. And we call Yeśhodā as Yeśhu, also some people in a uh-uh-uh, what you call, in a country language also call the same thing as Jesu [Yeśhu]. You know that Y and J's always, sort of, brought together in that way, like Yugoslavia we call it, they call it Jugoslavia.<br>
-So, His name Yeśhu comes from that, and that's how He was created a special One. In the Devī Māhātmyam it is said that Kṛiṣhṇa has said that, "You will become the Support of the Universe." "</font><br>
+So, His name Yeśhu comes from that, and that's how He was created a special One. In the Devī Māhātmyam it is said that Kṛiṣhṇa has said that, "You will become the Support of the Universe." "<br>
 <font size="+0"><b>1983-0310 Public Program, Day 3, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
@@ -313,7 +313,7 @@ But the Zen, those who follow even Zen religion don't understand."<br>
 <p>
 "<font color="red">Śhrī Kṛiṣhṇa was first born in a very difficult situation, as you know, and He was carried from there to Gokul where He was brought up by Yeśhodā.</font><br>
 Now, there He started His playfulness.<br>
-So, you have to be playful in life. You have to create fun and joy."</font><br>
+So, you have to be playful in life. You have to create fun and joy."<br>
 <font size="+0"><b>2000-0820 Śhrī Kṛiṣhṇa Pūjā, In Every Walk of Life You Should Have a Very Spontaneous Decision and You Have to Create (fun and joy, maybe art, maybe music, maybe poetry, maybe literature) and Above All You Have to Create Sahaja Yogi (Personality Which Only Lives for Others Not for Oneself and Which Really Reflects God's Love and Becoming a Mahāyogi by Which Your Spirit Gives Joy, Peace and Blessings to Everyone), Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
