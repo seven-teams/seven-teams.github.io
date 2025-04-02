@@ -80,28 +80,48 @@ The manner in which His name Jesus originated is also very interesting. <font co
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"The name Jesus also comes from the word Yeśhodā. Yeśhodā was the foster mother of Śhrī Kṛiṣhṇa and Rādhā thought that Her name must be brought in because She was also another power. So, Yeśhodā is called also as Jesodā in the northern parts, in where Kṛiṣhṇa lived. She was called actually like Jesodā. And the small [short] form of Jesodā is Jesu. And that's why He was called as Jesu or Yesu. In Indian languages He is called as Yesu [<font color="orange">unclear</font>] Jesu. And even in Hebrew He is called as Yesu, not as Jesu.<br>
+You see, this Y and J, like Yugoslavians and all these people use, is a confusion between Y, ya and ja. And these two words are confused in the world: Yesu or Jesu.<br>
+......<br>
+The left-hand side is the one when He was ... born and His early life when He has a sister.<br>
+His sister was, actually the daughter of Yeśhodā, was sacrificed, [<font color="orange">unclear</font>] big story: how Kṛiṣhṇa was born in a jail and He's taken .. uh by Kaṃsa ... uh by His father and put it in a ... and the place called uh Gokul, and the child in that place who was a girl who was sent. And She is the one who appears as the ... uh lightning in the air. And how She became the lightning when She was killed and announced that, "Your killer is still a li... alive" to the horrible rākṣhasa who was actually the brother of Kṛiṣhṇa's mother. There was announced that, 'The eighth child of this Devakī,' his sister, is Kaṃsa's sister, Kaṃsa is the rākṣhasa, is the ... is the devil, 'will kill him.'<br>
+And this frightened him so much that he started killing all the children that were born to this Devakī, his sister, who was put in the jail. The last one was Śhrī Kṛiṣhṇa.<br>
+And when He was born, everybody slept off. And the doors opened up, and His father carried Him in a basket, just like Moses story is, and crossed the River Yamunā. And when the river touched Śhrī Kṛiṣhṇa's Feet it again went down, crossed over, went to Gokul, put the child there, took the child of Nand, Yeśhodā, and brought the child back and he placed it. Then the child was replaced, you see, it was a girl.<br>
+So Kaṃsa came and said, he said, "The eighth is a girl, how can it be?" So then he just hurled the girl. And She went up and She announced: that, "The killer of you, Ka... Kaṃsa, is born there and He's living very much. Ad He is going to ... He's going to kill you! Beware."<br>
+And then the story is that how he tried to kill Him, so that you forget about that. But the main thing I'm telling it's was the sister of Śhrī Kṛiṣhṇa. "</font><br>
 <font size="+0"><b>1981-0401 Public Program, Cycle 1, Day 5, Viśhuddhi and Āgñyā Chakras, Maccabean Hall, 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"His name Christ comes from the word Kṛiṣhṇa, Krist. And the second one is Jesus.<br>
+Chri... Kṛiṣhṇa had a foster mother whom Rādhā loved very much. Her name was Yeśhodā, we also call her as Jesodā.<br>
+Christ is called also as Yesu in India. The short form of Jesodā is Yesu or Jesu, we have both the things. From there the name Jesus has come.<br>
+She wanted to name Her [Him] after the foster mother. Because She was a lady, so She was called as Jesodā. But for a man, She selected the name Yesu and Jesu.<br>
+Moreover, the word Jesu or Yesu is very important. Je, ja in Sanskrit language means -- every word has a meaning in Sanskrit language -- means to know, is to know, the knowledge: gyā-na. "Jā neti [jānāti] sa Gyāna." The One who knows! But Je-su, su means auspicious. Su means 'that brings auspiciousness, that brings blessings'. Je-su: is 'the One who knows how to bring auspiciousness on this Earth'.<br>
+People never told this! They never knew! [Those] who went from here with the message that Christ was born."</font><br>
 <font size="+0"><b>1981-1006 Public Program (8th Day of Navarātri), Day 3, The New Age Has Started (From Kṛiṣhṇa to Christ), Venue 2, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Now the main thing is, about Christ one has to understand, that His name was Jesus Christ. Jesus Christ: Jesus comes from the word Je-su. Jesu means -- there was the foster mother of Christ ... foster mother of Kṛiṣhṇa who was called as Jeśhodā. The name Jesu comes from that Jesodā.<br>
+In Indian languages, a short form Ye ... Yeśhodā is Jesu or Yesu. We even call Christ Yesu. We call Him Yesu as well as Jesu, many people call Him Yesu. In many European countries is also [that] they call Him Yesu.<br>
+Now this Yeśhodā was the foster mother.<br>
+And Christ itself comes from the word Kṛiṣhṇa. Kṛiṣhṇa means: the one who has done the -- what you call -- sowing, sowing of the seed. Is the sowing of the seed. He has done the sowing. He's Kṛiṣhṇa.<br>
+And Rādhā Herself is Mahālakṣhmī and She was born as the Mother of Christ."</font><br>
 <font size="+0"><b>1981-1018 Public Program, Day 2, Session 2 (evening), Heartwood Community Center, 200 7th Avenue, Santa Cruz, CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"But even the nime ... name of Christ comes to Him from the same heritage, which I was telling you, that His name was Ye-su [Yeśhu], not Jesus, because in the Bible I get Myself confused when I read that Anna was not Anna, it [she] was Hannah, John was Yohan. Every name has been corrupted in the English Bible. In the same way they have corrupted Christ's name, Yeśhu, into Jesus. Actually, they called Him, some people of course call Him Jesu.<br>
+This is the name given to Him by Śhrī Rādhājī, the One who was the Power of Śhrī Kṛiṣhṇa. She's the One who gave Him this name because She was very much indebted to the foster mother of Śhrī Kṛiṣhṇa, who was Yeśhodā. And that's why She called Him Yeśhu.<br>
+Yeśhu is the word in Hebrew language. And we call Yeśhodā as Yeśhu, also some people in a uh-uh-uh, what you call, in a country language also call the same thing as Jesu [Yeśhu]. You know that Y and J's always, sort of, brought together in that way, like Yugoslavia we call it, they call it Jugoslavia.<br>
+So, His name Yeśhu comes from that, and that's how He was created a special One. In the Devī Māhātmyam it is said that Kṛiṣhṇa has said that, "You will become the Support of the Universe." "</font><br>
 <font size="+0"><b>1983-0310 Public Program, Day 3, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>
 
@@ -160,7 +180,7 @@ His name [Bindu] is also a drop, so he puts it that [way]. [<font color="orange"
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"And the other name which is Jesus, in Hebrew He is known as Yeśhu. You are aware that Yaśhodā's name being Yeśhu, used to be called as Yeśhu, and that is the reason Rādhājī thought that His name should be written as Yeśhu."</font><br>
 <font size="+0"><b>1986-0402 Public Program (Hindi), Day 3, Samast Chakras or Sahaja Yog Se Lābh (About All Chakras or Benefits of Sahaja Yoga), Ghanaśhyām das Birla Sabhaghar, 29 Ashutosh Choudhry Avenue, Near Birla Mandir, Ballygunge, Kolkata, West Bengal, India</b></font>
 </p>
 
