@@ -13,7 +13,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
-The website <a href="https://imageevent.com/sahaja"> <font color="DarkGreen"><b>Jai Shri Mataji or Sahaja Image Events</b></font></a> has now 4,714 images. Since CCT has started uploading images to it on February 1, 2023, 2,604 images have been uploaded, among which 1402 have been uploaded since February 1, 2026. We aim to continue uploading (as an average) 100 images per month.<br>
+The website <a href="https://imageevent.com/sahaja"> <font color="DarkGreen"><b>Jai Shri Mataji or Sahaja Image Events</b></font></a> has now 4,714 images. Since CCT has started uploading images to it on February 1, 2023, 2,604 images have been uploaded, among which 1,402 have been uploaded since February 1, 2026. We aim to continue uploading (as an average) 100 images per month.<br>
 In particular, below are the 12 new galleries which have been started in the last 14 months (since February 1, 2024) and which already have at least 24 images.<br>
 <b>1.</b> <a href="https://imageevent.com/sahaja/momentsofgrowth/19850100sightseeingegypt"> <font color="DarkGreen"><b>1985-0100 Sightseeing Egypt</b></font></a>: has 132 images.<br>
 <b>2.</b> <a href="https://imageevent.com/sahaja/momentsofgrowth/indiatoursbyalessandrapallini"> <font color="DarkGreen"><b>India Tours by a Photographer</b></font></a>: has 24 images.<br>
