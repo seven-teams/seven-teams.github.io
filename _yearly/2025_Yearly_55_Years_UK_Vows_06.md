@@ -7,9 +7,9 @@ tags:
 ---
 
 <br>
-<div style="text-align: center"><img src="https://pub-b6058b8fc5314638989cdd5e49178be6.r2.dev/1989-0321_Birthday_Puja_Suryavanshi_Hall_(near_Shivaji_Park)_Dadar_Mumbai_Maharashtra_India_01_(Photo_credit_Rajesh_Viren_Shah).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-b6058b8fc5314638989cdd5e49178be6.r2.dev/2025_55_Years.png" /></div>
 
-<div style="text-align: center"><img src="" /></div>
+<div style="text-align: center"><img src="https://pub-b6058b8fc5314638989cdd5e49178be6.r2.dev/1989-0321_Birthday_Puja_Suryavanshi_Hall_(near_Shivaji_Park)_Dadar_Mumbai_Maharashtra_India_01_(Photo_credit_Rajesh_Viren_Shah).jpg" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
