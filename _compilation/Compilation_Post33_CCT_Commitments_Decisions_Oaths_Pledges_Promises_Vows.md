@@ -70,6 +70,15 @@ I will only give, I am not going to take anything.<br>
 <div class="para-divider"></div>
 
 <p>
+<b>Version 1:</b><br> 
+<font color="DarkRed">"First tell yourself that, 'I have decided not to hurt anyone today onward. O Divine, forgive everyone, all those who have hurt me and also forgive me because I have also hurt many people.' "</font><br>
+<br>
+<b>Version 2:</b><br> 
+<font color="DarkRed">"You should just decide that, 'From today I will not hurt anyone.' And, 'God forgive all who have hurt me and please forgive me because I have also hurt a lot of people.' "</font><br>
+<font size="+0"><b>1975-0201 Public Program (Hindi + English), Dhyāna Kyoṃ Karanā Chāhiye (Why Should One Meditate), Gurudev Cooperative Housing Society, Prabhadevi Sea Face, Mumbai, Maharashtra, India (other dates 0202 and 0209)</b></font>
+</p>
+
+<p>
 <font color="DarkRed">"Thoughtlessness, it is a reality, it is the Truth that is why I do not give you false promise. I have no false recommendation to you. In this I cannot give you false statement."</font><br>
 <font size="+0"><b>1975-0330 Public Program (Hindi), Day 2, Triguṇātmika, Mumbai, Maharashtra, India</b></font>
 </p>
@@ -1154,6 +1163,16 @@ Because you do not meditate, you do not have the depth to show that you are grea
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"You have to promise that after getting your Self-realization, you will grow.<br>
+......<br>
+But promise Me in your heart that we will magnify the light of our Spirit, and will awaken in the Collective Consciousness.<br>
+Is very important. Because of Collective Consciousness, there will be no collective fights or quarreling, nothing will be there."</font><br>
+<font size="+0"><b>1999-0220 Public Program (Hindi + Marathi), Hamārī Sanskṛiti ki Viśheṣhatā (Specialty of Our Culture), Śhivajī Park, Dadar West, Dadar, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "<font color="DarkRed">Today is a very special day: Śhivarātri. We should all take a pledge and pray to Śhiva and get His blessings, by getting which, you would feel, the flow of happiness and love in your heart.</font><br>
 First of all, you have to be deep-rooted in Sahaja Yoga.<br>
 The light which we have in our hearts, if we don't spread it then we will be in darkness, along with others. <font color="DarkRed">So we should decide and give Realization to a minimum of [one] hundred people, till next year.</font>"<br>
@@ -1197,8 +1216,18 @@ But I am requesting you: that you have to go deep down into yourself and see tha
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"Now, you must all promise Me that you will not divide amongst yourselves, as you have done with all the others.<br>
+[Before they could wonder what She means and who those ``others" are, Śhrī Mātājī continues saying how, after the departure of each Incarnation, the followers of that Incarnation had invariably started to disagree with each other and started to create division.]<br>
+[Śhrī Mātājī explains how at the time of Christ, they had allowed someone like Paul to take hold of the teachings, or how, almost immediately after the demise of Muhammad, human beings took over and created a division. She talks about how in many religions (Buddhism is also mentioned) human beings would change and distort the legacy of that Incarnation and create a system out of it.]<br>
+[After a while Śhrī Mātājī says:] But you must promise Me that you will not do that to Me. If I am the Ādi Śhakti, then the one thing you cannot do to Me ... is that later on you will create division amongst yourselves.<br>
+[Śhrī Mātājī is very concerned about the prospect that this could happen. She explains how the solution is in the fact that we have vibrations. If Sahaja Yogis truly are in the state in which the vibrations are guiding our thoughts and deeds, then such divisions cannot take place. She warns them that if division and discord do start to show up, it is a sign that they are not in tune with Her and the vibrations.].<br>
+[The very fact that She warns them about it indicates that it is not all that obvious that human beings -- having been gifted with free will -- will follow the Divine Principles. Śhrī Mātājī emphasizes that it is a very important responsibility that we have to preserve Her legacy and keep it intact.]<br>
+[She continues by saying that the other very important asset they have is collectivity. She stresses the importance of collectivity quite a lot, how -- as one body -- they must stick together and that they really must preserve unity and not allow division to take place.]<br>
+[She urges them that, if they are Her children, they cannot allow this to happen to Her and to Sahaja Yoga. That this is a responsibility Sahaja Yogis have towards Creation itself.]<br>
+[Śhrī Mātājī then makes them to promise to Her ... With calm determination She looks around at everyone in the room.]<br>
+Now, will you promise to Me?"<br>
+All leaders, individually and as a group, vow to Śhrī Mātājī: "Mother, we promise You!"]</font><br>
+<font size="+0"><b>2001-050x Talk to Sahaja Yogis Leaders, Living Room, Palazzo Doria, Cabella Ligure, Alessandria, Italy (month not sure)}</b></font>
 </p>
 
 <div class="para-divider"></div>
