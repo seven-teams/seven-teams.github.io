@@ -1622,123 +1622,102 @@ my mind has reached the unconditioned, and craving’s end has been achieved.</f
 </p>
 
 <p>
-<b>157 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>157 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
 <b>158 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Attānam-eva paṭhamaṁ patirūpe nivesaye,<br>
+athaññam-anusāseyya, na kilisseyya paṇḍito.</font>
 </p>
 
 <p>
 <b>158 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Let him find first what is right and then he can teach it to others, avoiding thus useless pain.</font><br>
+<font color="blue">First establish yourself in the way,<br>
+Then teach,<br>
+And so defeat sorrow.</font><br>
+<font color="Peru">First one should establish oneself in what is suitable,<br>
+then one can advise another, the wise one should not have (any) defilement.</font>
 </p>
 
 <p>
 <b>159 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Attānañ-che tathā kayirā yathaññam-anusāsati,<br>
+sudanto vata dametha, attā hi kira duddamo.</font>
 </p>
 
 <p>
 <b>159 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">If he makes himself as good as he tells others to be, then he in truth can teach others, Difficult indeed is self-control.</font><br>
+<font color="blue">To straighten the crooked<br>
+You must first do a harder thing -<br>
+Straighten yourself.</font><br>
+<font color="Peru">He should do himself as he would advise another (to do),<br>
+being well-trained, he could surely train (another), for it is said the self is difficult to train.</font>
 </p>
 
 <p>
 <b>160 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Attā hi attano nātho, ko hi nātho paro siyā?<br>
+Attanā va sudantena nāthaṁ labhati dullabhaṁ.</font>
 </p>
 
 <p>
 <b>160 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>161 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>161 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>162 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>162 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Only a man himself can be master of himself: who else from outside could be his master? When the Master and servant are ones, then there is true help and self-possession.</font><br>
+<font color="blue">You are your only master.<br>
+Who else?<br>
+Subdue yourself,<br>
+And discover your master.</font><br>
+<font color="Peru">For the self is the friend of self, for what other friend would there be?<br>
+When the self is well-trained, one finds a friend that is hard to find.</font>
 </p>
 
 <p>
 <b>163 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+yaṁ ve hitañ-cha sādhuñ-cha taṁ ve paramadukkaraṁ. </font>
 </p>
 
 <p>
 <b>163 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>164 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>164 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... but very difficult to do what is right, to do what is good for oneself.</font><br>
+<font color="blue">How hard it is to serve yourself,<br>
+......</font><br>
+<font color="Peru">......<br>
+but that which is beneficial and good is supremely hard to do.</font>
 </p>
 
 <p>
 <b>165 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+suddhī asuddhī pacchattaṁ, nāñño aññaṁ visodhaye.</font>
 </p>
 
 <p>
 <b>165 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... The pure and the impure come from oneself: no man can purify another.</font><br>
+<font color="blue">......<br>
+You are the source<br>
+Of all purity and impurity.</font><br>
+<font color="Peru">......<br>
+purity and impurity come from oneself, (for) no one can purify another.</font>
 </p>
 
 <p>
 <b>166 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Atta-d-atthaṁ paratthena bahunā pi na hāpaye;<br>
+atta-d-attham-abhiññāya sa-d-atthapasuto siyā. </font>
 </p>
 
 <p>
 <b>166 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Let no man endanger his duty, the good of his soul, for the good of another, however great. When he has seen the good of his soul, let him follow it with earnestness.</font><br>
+<font color="blue">No one purifies another.<br>
+Never neglect your work<br>
+For another's,<br>
+However great his need.<br>
+Your work is to discover your work And then with all your heart<br>
+To give yourself to it.</font><br>
+<font color="Peru">One should not neglect one’s own good for another’s, however great;<br>
+knowing what is good for oneself one should be intent on that good.</font>
 </p>
 
 <div class="para-divider"></div>
@@ -1750,147 +1729,95 @@ my mind has reached the unconditioned, and craving’s end has been achieved.</f
 </p>
 
 <p>
-<b>167 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>167 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
 <b>168 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Uttiṭṭhe nappamajjeyya, Dhammaṁ sucharitaṁ chare,<br>
+Dhammacārī sukhaṁ seti asmiṁ loke paramhi cha.</font>
 </p>
 
 <p>
 <b>168 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>169 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>169 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Arise! Watch. Walk on the right path. He who follows the right path has joy in this world and in the world beyond.</font><br>
+<font color="blue">Arise and watch.<br>
+Follow the way joyfully<br>
+Through this world and beyond.</font><br>
+<font color="Peru">One should strive, not be heedless, one should live by Dhamma, with good conduct,<br>
+living by Dhamma one lives at ease in this world and the next.</font>
 </p>
 
 <p>
 <b>170 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Yathā bubbulakaṁ passe, yathā passe marīchikaṁ,<br>
+evaṁ lokaṁ avekkhantaṁ Macchurājā na passati. </font>
 </p>
 
 <p>
 <b>170 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">When a man considers this world as a bubble of froth, and as the illusion of an appearance, then the king of death has no power over him.</font><br>
+<font color="blue">For consider the world -<br>
+A bubble, a mirage.<br>
+See the world as it is,<br>
+And death shall overlook you.</font><br>
+<font color="Peru">One should see it as a bubble, one should see it as a mirage,<br>
+looking on the world in this way the King of Death does not see (one).</font>
 </p>
 
 <p>
 <b>171 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+yattha bālā visīdanti – natthi saṅgo vijānataṁ.</font>
 </p>
 
 <p>
 <b>171 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>172 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>172 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>173 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>173 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="blue">......<br>
+But he who sees goes free.</font><br>
+<font color="Peru">......<br>
+where fools become depressed – there is no bond for those who understand.
+</font>
 </p>
 
 <p>
 <b>174 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Andhabhūto ayaṁ loko, tanukettha vipassati,<br>
+......</font>
 </p>
 
 <p>
 <b>174 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">This world is indeed in darkness, and how few can see the light! ......</font><br>
+<font color="blue">The world is in darkness.<br>
+How few have eyes to see!<br>
+......</font><br>
+<font color="Peru">This world is blind, few here have true insight,<br>
+......</font>
 </p>
 
 <p>
 <b>175 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+nīyanti dhīrā lokamhā, jetvā Māraṁ savāhanaṁ.</font>
 </p>
 
 <p>
 <b>175 Translations</b><br>
-<font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>176 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>176 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>177 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>177 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+the wise are led out of the world, after beating Māra and his host.</font>
 </p>
 
 <p>
 <b>178 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+...... sotāpattiphalaṁ varaṁ.</font>
 </p>
 
 <p>
 <b>178 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... joy of the man who enters the river of life that leads to NIRVANA.</font><br>
+<font color="blue">......<br>
+...... the joy of reaching the stream.</font><br>
+<font color="Peru">......<br>
+...... better is the fruit of stream-entry.</font>
 </p>
 
 <div class="para-divider"></div>
