@@ -17,7 +17,11 @@ tags:
 </p>
 
 <p>
-"Today, on this day you all should vow, vow that, 'We are on the warpath and we are going to find out ways and methods of doing these things, for these three months we are going to work it out.' Just vow. Just ask for wisdoms and the spiritual power, that's all. And promise it to Christ that, `As You did, we are going to do.' "<br>
+"You understand: that this is the reality that is come into you people. Actually you have felt the reality! Actually you know the reality! You are in the reality! And why not talk about it? Why should we not? Is it not the most important thing that we have to do? If you realize it, I'm sure it will work out.<br>
+With all My blessings, with all My love, I really command you to do that now!<br>
+May God bless you.<br>
+Today, on this day you all should vow! Vow, that: 'We are on the warpath and we are going to find out ways and methods of doing these things, for these three months we are going to work it out.' Just vow. Just ask for wisdom-ps [wisdoms] and the-ps spiritual power, that's all. And promise it to Christ, that, 'As You did, we are going to do.'<br>
+[After 15 seconds:] May God bless you!"<br>
 <font color="blue"><b>1985-0408 Easter Pūjā, Montague Hall, Montague Rd, Hounslow TW3 1LD (Outer London), Middlesex, UK</b></font><br>
 </p>
 
