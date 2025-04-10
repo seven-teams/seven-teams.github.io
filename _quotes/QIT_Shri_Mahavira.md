@@ -179,6 +179,23 @@ Then seriousness developed and the people became serious-minded, and made their 
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"But I do not know if I should tell you about Hell and frighten you, or I should put restrictions on you, but this is the one, Mahāvīra's Pūjā, I have been avoiding, so far.<br>
+......<br>
+So, the self-disciplining is very important. Of course, you need not go to the Mahāvīra's extent now, because-ss, luckily, I have given you Realization, but still, do not go back to things which you have left.<br>
+......<br>"</font><br>
+<font size="+0"><b>1990-0616 Śhrī Mahāvīra Pūjā, Touch Your Depth and Complete Kevalagyān (There Is Hell and You Must Learn to Have Self-discipline), Ca'n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 6: Religions</b></font>
 </p>

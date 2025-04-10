@@ -12,10 +12,10 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1993-0806 Public Program, Russia</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolution from the Named Collections.<br>
+We are pleased to let you know that 4 Photos of the special event <font color="Crimson"><b>1993-0806 Public Program, Russia</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 high resolution from the Named Collections.<br>
 The direct link to the 2 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1993"><font color="DarkGreen">Collection 1993</font></a>.<br>
-[Note: one Photo uploaded only on 2024-1221.]<br>
-The event has as well 3 photos Moments of Joy (one uploaded on 2024-1221) which can be seen in the smallest gallery at the link <a href="https://eternalmoments.smugmug.com/Countries/Russia/Moments-of-Joy"> Russia Moments of Joy</a>.<br>
+[Note: one Photo uploaded only on 2024-1221, two uploaded on 2025-0410.]<br>
+The event has as well 5 photos Moments of Joy (one uploaded on 2024-1221, two uploaded on 2025-0410) which can be seen in the smallest gallery at the link <a href="https://eternalmoments.smugmug.com/Countries/Russia/Moments-of-Joy"> Russia Moments of Joy</a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
