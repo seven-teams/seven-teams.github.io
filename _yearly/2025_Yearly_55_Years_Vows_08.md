@@ -32,6 +32,8 @@ Sahaja Yoga is the integration of all these Great Prophets and these Incarnation
 
 <div style="text-align: center"><img src="https://pub-b6058b8fc5314638989cdd5e49178be6.r2.dev/1990-0615_Evening_Program_the_day_before_Shri_Mahavira_Puja_Can_Bosc_(House_of_the_Woods)_(1_hour_North_of_Barcelona)_Spain_01_(Balwant_Kumbhojkar_Collection).jpg" /></div>
 
+<br>
+
 <p>
 "But, when I tell you this thing, you must understand, that: whatever is good for you, whatever is your temperament, whatever is [your] aptitude, you have to take something that will nourish that, that will improve you and give you a balance."<br>
 <font color="blue"><b>1991-0328 Śhrī Mahāvīra Pūjā, Left Side and Soul, Gidgegannup (40 kms NE of Perth), Darling Ranges, WA, Australia</b></font><br>
