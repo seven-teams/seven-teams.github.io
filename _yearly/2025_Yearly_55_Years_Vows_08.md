@@ -39,7 +39,7 @@ Sahaja Yoga is the integration of all these Great Prophets and these Incarnation
 <font color="blue"><b>1991-0328 Śhrī Mahāvīra Pūjā, Left Side and Soul, Gidgegannup (40 kms NE of Perth), Darling Ranges, WA, Australia</b></font><br>
 </p>
 
-Links to suggested talk: <a href="https://vimeo.com/543938237"> video</a> and <a href="https://vimeo.com/76398389"> audio</a><br>
+Links to suggested talk: <a href="https://vimeo.com/543938237"> video</a> and <a href="https://soundcloud.com/nirmala-vidya-portal/1990-0617-1"> audio</a><br>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
