@@ -1,7 +1,7 @@
 ---
-title: 'Photos Post 35: Special Events (after 1975), Part 87'
-date: 2025-04-11
-permalink: /photos/2025/0411
+title: 'Photos Post 35: Special Events (after 1975), Part 88'
+date: 2025-04-12
+permalink: /photos/2025/0412
 tags:
   - green @ Updates
 ---
@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 5 Photos of the special event <font color="Crimson"><b>1977-0000 Feeding, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 5 medium resolutions from the Named Collections.<br>
+We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1977-0100 Arrival, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 medium resolutions from the Named Collections.<br>
 The direct link to the 5 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Raj-Kunwar-Raul-Collection/1977"><font color="DarkGreen">Collection 1977</font></a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
