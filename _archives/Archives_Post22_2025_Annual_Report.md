@@ -27,8 +27,8 @@ ix. Total files uploaded (not including versions): 670 (an increment of 190 sinc
 x. Total pages uploaded or linked: 25,045 (and increment 1,368 since 2024-0316 and of 24,967 since 2023-0316).<br>
 xi. Other files (originals, received, etc.) uploaded (not counting versions): 458.<br>
 xii. Other pages uploaded: 2,908 (from the 458 files, an increment of 2,908).<br>
-xiii. Files scanned and cropped by CCT: 22 (an increment of 17).<br>
-xiv. Pages scanned and cropped by CCT: 213 (an increment of 135 pages).<br>
+xiii. Files scanned and cropped by CCT: 25 (an increment of 3 since 2024-0317 and of 20 since 2023-0316).<br>
+xiv. Pages scanned and cropped by CCT: 237 (an increment of 24 since 2024-0316 and of 159 pages since 2023-0316).<br>
 <br>
 We thank you in advance for any help, support, and feedback. Please write to us at sahajayoga.compilations@gmail.com<br>
 <br>
