@@ -10,8 +10,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 3 Photos of the special event <font color="Crimson"><b>1913-0000 Pūjā on a Stool, India (crown, garland, Lotus Feet, blessing and decorated hands, crossed hands, wall)</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 medium resolutions from the Named Collections.<br>
-The direct link to the 3 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Raj-Kunwar-Raul-Collection/1913"><font color="DarkGreen">Collection 1913</font></a>.<br>
+We are pleased to let you know that 26 Photos of the special event <font color="Crimson"><b>1913-0000 Pūjā on a Stool, India (crown, garland, Lotus Feet, blessing and decorated hands, crossed hands, wall)</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 26 medium resolutions from the Named Collections.<br>
+The direct link to the 26 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Raj-Kunwar-Raul-Collection/1913"><font color="DarkGreen">Collection 1913</font></a>.<br>
+[Note: 23 Photos uploaded only on 2025-0413.]<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
