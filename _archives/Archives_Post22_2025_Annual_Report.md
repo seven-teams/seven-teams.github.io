@@ -20,11 +20,11 @@ ii. Organized rows left to be added to the Table: 1,095 (a decrement of 133 sinc
 iii. Estimated unorganized rows left to be added to the Table: 1,500 (no change).<br>
 iv. Specific posts: 17 (an increment of 2 since 2024-0316 and of 15 since 2023-0316).<br> 
 v. Estimated specific posts to be started: 133.<br>
-vi. Total links: 1,413 (an increment of 253 since 2024-0316 and of 1,267 since 2023-0316).<br> 
+vi. Total links: 1,412 (an increment of 252 since 2024-0316 and of 1,266 since 2023-0316).<br> 
 vii. External Links: 737 (DCB: 142, SDL: 595) (an increment of 57 since 2024-0316 and of 596 since 2023-0316).<br> 
-viii. CCT Links: 676 (Collections: 659, CCT: 17) (an increment of 196 since 2024-0316 and of 671 since 2023-0316, Collections: 188 and 511, CCT: 8 and 9).<br> 
+viii. CCT Links: 675 (Collections: 658, CCT: 17) (an increment of 195 since 2024-0316 and of 670 since 2023-0316, Collections: 187 and 510, CCT: 8 and 9).<br> 
 ix. Total files uploaded (not including versions): 670 (an increment of 190 since 2024 and of 665 since 2023-0316).<br> 
-x. Total pages uploaded or linked: 24,764 (and increment 1,087 since 2024-0316 and of 24,686 since 2023-0316).<br>
+x. Total pages uploaded or linked: 25,045 (and increment 1,368 since 2024-0316 and of 24,967 since 2023-0316).<br>
 xi. Other files (originals, received, etc.) uploaded (not counting versions): 458.<br>
 xii. Other pages uploaded: 2,908 (from the 458 files, an increment of 2,908).<br>
 xiii. Files scanned and cropped by CCT: 22 (an increment of 17).<br>
