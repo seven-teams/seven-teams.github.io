@@ -1,6 +1,6 @@
 ---
 title: 'Poem &#8216;Twice Born Morning&#8217; from the 1989-0500 The Divine Cool Breeze (U.S.A.), Volume 3, Issue 5, Page 9'
-date: 1989-09-01
+date: 1989-05-01
 permalink: /folder/1989-0501-Twice-Born-Morning-1989-0500-DCB-USA-P9
 tags:
   - black @ Poetry
