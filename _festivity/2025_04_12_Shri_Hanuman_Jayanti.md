@@ -47,7 +47,7 @@ So now you are the same, you are all angels now. Only thing you are not aware th
 <font size="+0"><b>1989-0423 Śhrī Hanumāna Pūjā (St. George's Day), You Are All Angels, Cliftonville, Margate (123 kms ESE of London), Kent, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0145.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT01445.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"In the Primordial Brain it forms the Universal Mind that thinks, organizes and creates the material side of creation. Hanumāna, the Monkey Deity, moves on this channel and represents the Preconscious Mind of the Virāṭa."</b></font><br>
@@ -76,7 +76,7 @@ Without getting angry every thing works out.But people could not control their a
 <font size="+0"><b>1999-0331 Śhrī Hanumāna Pūjā (Hindi), Krishna Sundar Garden, Amit Gaikwad Mala, Erandwane, Mhatre Bridge, Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0146.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT01446.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Hanumāna is the Deity for your air</b>, for your breathing, and when you try to suffocate Hanumāna within you, you get the trouble of His disappearing from that center or you can say He sleeps and you get these two troubles: of one is asthma and also sometimes you might get choking."</font><br>
@@ -109,7 +109,7 @@ So Maria has to do quite a lot with Hanumāna all Her life. That means Maria is 
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0147.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT01447.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"I hope by today's Pūjā, that enthusiasm, that venturesome nature will vibrate your Piṅgalā, and without feeling any ego about it, in the most humble manner as Hanumāna was, you will do the jobs.<br>
