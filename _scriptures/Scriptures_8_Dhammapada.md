@@ -1830,218 +1830,181 @@ the wise are led out of the world, after beating Māra and his host.</font>
 
 <p>
 <b>179 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+tam-Buddham-anantagocharaṁ,<br>
+apadaṁ kena padena nessatha?</font>
 </p>
 
 <p>
 <b>179 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>180 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>180 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">By what earthly path could you entice the Buddha who, enjoying all, can wander through the pathles ways of the Infinite? ......</font><br>
+<font color="blue">......<br>
+How can he lose the way<br>
+Who is beyond the way?</font><br>
+<font color="Peru">......<br>
+the Buddha, whose range is endless,<br>
+by what path can you lead the pathless one?</font>
 </p>
 
 <p>
 <b>181 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Ye jhānapasutā dhīrā, nekkhammūpasame ratā,<br>
+devā pi tesaṁ pihayanti, Sambuddhānaṁ satīmataṁ.</font>
 </p>
 
 <p>
 <b>181 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Even the gods long to be like the Buddhas who are awake and watch, who find peace in contemplation and who, calm and steady, find joy in renunciation.</font><br>
+<font color="blue">The gods watch over him.<br>
+He is awake<br>
+And finds joy in the stillness of meditation<br>
+And in the sweetness of surrender.</font><br>
+<font color="Peru">Those wise ones intent on meditation, who delight in the peace of renunciation,<br>
+even the gods are envious of them, the Sambuddhas, the ones who are mindful.</font>
 </p>
 
 <p>
 <b>182 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+kicchhaṁ Saddhammasavanaṁ, kicchho Buddhānam-uppādo.</font>
 </p>
 
 <p>
 <b>182 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... It is not often he hears the doctrine of Truth; and a rare event is the arising of a Buddha.</font><br>
+<font color="blue">......<br>
+Harder still to hear of the way,<br>
+And hard to rise, follow, and awake</font><br>
+<font color="Peru">......<br>
+it is rare to hear the True Dhamma, rare the arising of Buddhas.</font>
 </p>
 
 <p>
 <b>183 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Sabbapāpassa akaraṇaṁ, kusalassa upasampadā,<br>
+sacittapariyodapanaṁ - etaṁ Buddhāna’ sāsanaṁ. </font>
 </p>
 
 <p>
 <b>183 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Do not what is evil. Do what os god. Keep your mind pure. This is the teaching of Buddha.</font><br>
+<font color="blue">Yet the reaching is simple.<br>
+Do what is right.<br>
+Be pure.</font><br>
+<font color="Peru">The non-doing of anything wicked, undertaking of what is good,<br>
+the purification of one’s mind - this is the teaching of the Buddhas.</font>
 </p>
 
 <p>
 <b>184 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Khantī paramaṁ tapo titikkhā,<br>
+Nibbānaṁ paramaṁ vadanti Buddhā,<br>
+......</font>
 </p>
 
 <p>
 <b>184 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>185 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>185 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>186 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>186 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Forbearance is the highest sacrifice. NIRVANA is the highest good. ......</font><br>
+<font color="blue">At the end of the way is freedom.<br>
+Till then, patience.</font><br>
+<font color="Peru">Enduring patience is the supreme austerity,<br>
+Nibbāna is supreme say the Buddhas,<br>
+......</font>
 </p>
 
 <p>
 <b>187 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">api dibbesu kāmesu ratiṁ so nādhigacchhati.<br>
+Taṇhakkhayarato hoti Sammāsambuddhasāvako.</font>
 </p>
 
 <p>
 <b>187 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>188 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>188 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>189 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>189 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">how could a wise man find satisfaction eve in the pleasures of the gods? When desires go, joy comes: the follower of Buddha finds this truth.</font><br>
+<font color="blue">He who wishes to awake<br>
+Consumes his desires<br>
+Joyfully.</font><br>
+<font color="Peru">does not find delight even in heavenly pleasures.<br>
+The disciple of the Perfect Sambuddha delights in craving’s destruction.</font>
 </p>
 
 <p>
 <b>190 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Yo cha Buddhañ-cha Dhammañ-cha Saṅghañ-cha saraṇaṁ gato,<br>
+cahttāri ariyasacchāni sammappaññāya passati:</font>
 </p>
 
 <p>
 <b>190 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">He who goes for refuge to Buddha, to Truth and to those whom he taught, he goes indeed to a great refuge. Then he sees the four great truths:</font><br>
+<font color="blue">He who shelters in the way<br>
+And travels with those who follow it<br>
+Comes to see the four great truths.</font><br>
+<font color="Peru">Whoever has gone for refuge to the Buddha, the Dhamma and the Saṅgha,<br>
+and who sees with right wisdom the four noble truths:</font>
 </p>
 
 <p>
 <b>191 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Dukkhaṁ dukkhasamuppādaṁ dukkhassa cha atikkamaṁ,<br>
+ariyañ-chaṭṭhaṅgikaṁ maggaṁ dukkhūpasamagāminaṁ.</font>
 </p>
 
 <p>
 <b>191 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Sorrow, the cause of sorrow, the end of sorrow, and the path of eight stages which lead to the end of sorrow.</font><br>
+<font color="blue">Concerning sorrow,<br>
+The beginning of sorrow,<br>
+The eightfold way<br>
+And the end of sorrow.</font><br>
+<font color="Peru">Suffering, arising of suffering, and the overcoming of suffering,<br>
+the eightfold noble path leading to the stilling of suffering.</font>
 </p>
 
 <p>
 <b>192 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Etaṁ kho saraṇaṁ khemaṁ, etaṁ saraṇam-uttamaṁ,<br>
+etaṁ saraṇam-āgamma sabbadukkhā pamucchati.</font>
 </p>
 
 <p>
 <b>192 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>193 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>193 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>194 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>194 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">That is the safe refuge, that is the refuge supreme. If a man goes to that refuge, he is free from sorrow.</font><br>
+<font color="blue">Then at last he is safe.<br>
+He has shaken off sorrow.<br>
+He is free.</font><br>
+<font color="Peru">That is a secure refuge, that is the refuge supreme,<br>
+that is the refuge to come to that liberates from all suffering.</font>
 </p>
 
 <p>
 <b>195 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Pūjārahe pūjayato, Buddhe yadi va sāvake,<br>
+......</font>
 </p>
 
 <p>
 <b>195 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... of the man who pays reverence to those worthy of reverence, a Buddha or his disciples, ......</font><br>
+<font color="blue">And blessed are those who revere<br>
+The man who awakes and follows the way.</font><br>
+<font color="Peru">For those who worship those worthy of worship, whether Buddhas or disciples,<br>
+......</font>
 </p>
 
 <p>
 <b>196 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+na sakkā puññaṁ saṅkhātuṁ, imettam-api kenachi.</font>
 </p>
 
 <p>
 <b>196 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Who could measure the excellence of the man who ......</font><br>
+<font color="blue">......<br>
+They have crossed over the river of sorrow.</font><br>
+<font color="Peru">......<br>
+no one is able to measure their (vast) merit, (saying:) it is as much as this.</font>
 </p>
 
 <div class="para-divider"></div>
