@@ -2017,146 +2017,162 @@ no one is able to measure their (vast) merit, (saying:) it is as much as this.</
 
 <p>
 <b>197 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+verinesu manussesu viharāma averino.</font>
 </p>
 
 <p>
 <b>197 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>198 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>198 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... Among men who hate, let us live in love.</font><br>
+<font color="Peru">......<br>
+amongst humans who have hatred let us live without hatred.</font>
 </p>
 
 <p>
 <b>199 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+ussukesu manussesu viharāma anussukā.</font>
 </p>
 
 <p>
 <b>199 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... Among men who struggle, let us live in peace.</font><br>
+<font color="blue">Live in joy,<br>
+In peace,<br>
+Even among the troubled.</font><br>
+<font color="Peru">......<br>
+amongst humans who are longing let us live without longing.</font>
 </p>
 
 <p>
 <b>200 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Susukhaṁ vata jīvāma yesaṁ no natthi kiñchanaṁ,<br>
+pītibhakkhā bhavissāma devā Ābhassarā yathā.</font>
 </p>
 
 <p>
 <b>200 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">O let us live in joy, although having nothing! in joy let us live like spirits of light!</font><br>
+<font color="blue">Live in joy,<br>
+Without possessions.</font><br>
+<font color="Peru">We live truly happily enough having no possessions ourselves<br>
+we will feed on joy like the gods of Streaming Light.</font>
 </p>
 
 <p>
 <b>201 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Jayaṁ veraṁ pasavati, dukkhaṁ seti parājito,<br>
+upasanto sukhaṁ seti, hitvā jayaparājayaṁ. </font>
 </p>
 
 <p>
 <b>201 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>202 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>202 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Victory bring hate, because the defeated man is unhappy. He who surrenders victory and defeat, this man finds joy.</font><br>
+<font color="blue">The winner sows hatred<br>
+Because the loser suffers.<br>
+Let go of winning and losing<br>
+And find joy.</font><br>
+<font color="Peru">The victor generates hatred, the defeated one finds suffering,<br>
+the one at peace lives happily, having abandoned victory and defeat.</font>
 </p>
 
 <p>
 <b>203 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+...... Nibbānaṁ paramaṁ sukhaṁ.</font>
 </p>
 
 <p>
 <b>203 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="blue">......<br>
+...... no joy like the joy of freedom.</font><br>
+<font color="Peru">......<br>
+...... (know) Nibbāna is the supreme good.</font>
 </p>
 
 <p>
 <b>204 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Ārogyaparamā lābhā, santuṭṭhi paramaṁ dhanaṁ,<br>
+vissāsā paramā ñāti, Nibbānaṁ paramaṁ sukhaṁ.</font>
 </p>
 
 <p>
 <b>204 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Health is the  greatest possession. Contentment is the greatest treasure. Confidence is the greatest friend. NIRVANA is the greatest joy.</font><br>
+<font color="blue">Health, contentment and trust<br>
+Are your greatest possessions,<br>
+And freedom your greatest joy.</font><br>
+<font color="Peru">Health is the supreme gain, content the supreme wealth,<br>
+confidence the supreme kin, Nibbāna the supreme good.</font>
 </p>
 
 <p>
 <b>205 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
+<font color="Peru">Pavivekarasaṁ pitvā, rasaṁ upasamassa cha,<br></font>
+niddaro hoti nippāpo, Dhammapītirasaṁ pivaṁ.</p>
 
 <p>
 <b>205 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">When a man knows the solitude of silence, and feels the joy of quietness, he is then free from fear and sin and he feels the joy of the DHAMMA.</font><br>
+<font color="blue">Look within.<br>
+Be still.<br>
+Free from fear and attachment,<br>
+Know the sweet joy of the way.</font><br>
+<font color="Peru">Savouring the taste of solitude, and the taste of peace,<br>
+he is fearless, faultless, savouring the joyful taste of Dhamma.</font>
 </p>
 
 <p>
 <b>206 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+adassanena bālānaṁ niccham-eva sukhī siyā.</font>
 </p>
 
 <p>
 <b>206 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">... If one were able never to see fools, then one could be for ever happy.</font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+through not meeting foolish people one will constantly be happy.</font>
 </p>
 
 <p>
 <b>207 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+dhīro ca sukhasaṁvāso ñātīnaṁ va samāgamo.</font>
 </p>
 
 <p>
 <b>207 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... the joy of being with the wise is like the joy of meeting a beloved kinsman.</font><br>
+<font color="blue">......<br>
+But whoever follows those who follow the way<br>
+Discovers his family, and is filled with joy.</font><br>
+<font color="Peru">......<br>
+the wise one dwells happily as with an assembly of kin.</font>
 </p>
 
 <p>
 <b>208 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+dhīrañ-cha paññañ-cha bahussutañ-cha,<br>
+dhorayhasīlaṁ vatavantam-ariyaṁ –<br>
+taṁ tādisaṁ sappurisaṁ sumedhaṁ<br>
+......</font>
 </p>
 
 <p>
 <b>208 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... man who is constant, awake to the inner light, learned, long-suffering, endowed with devotion - follow this good and great man ......</font><br>
+<font color="blue">Follow then the shining ones,<br>
+The wise, the awakened, the loving,<br>
+For they know how to work and forbear.<br>
+......<br></font><br>
+<font color="Peru">......<br>
+the firm, the wise and the learned,<br>
+the virtuous, dutiful and noble –<br>
+(accompany) such a true and intelligent person<br>
+......</font>
 </p>
 
 <div class="para-divider"></div>
