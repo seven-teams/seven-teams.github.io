@@ -2186,146 +2186,91 @@ the virtuous, dutiful and noble –<br>
 
 <p>
 <b>209 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Ayoge yuñjam-attānaṁ, yogasmiñ-cha ayojayaṁ,<br>
+atthaṁ hitvā piyaggāhī, pihetattānuyoginaṁ.</font>
 </p>
 
 <p>
 <b>209 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... sinks into transient pleasures - he will one day envy the man who lives in high contemplation.</font><br>
+<font color="blue">Do not let pleasure distract you<br>
+From meditation, from the way.</font><br>
 </p>
 
 <p>
 <b>210 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Mā piyehi samāgañchhī appiyehi kudāchanaṁ,<br>
+......</font>
 </p>
 
 <p>
 <b>210 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Let a man be free from pleasure and let a man be free from pain; ......</font><br>
+<font color="Peru">Do not associate at any time with those who are loved or with those unloved,<br>
+......</font>
 </p>
 
 <p>
 <b>211 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+Ganthā tesaṁ na vijjanti yesaṁ natthi piyāppiyaṁ.</font>
 </p>
 
 <p>
 <b>211 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>212 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>212 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>213 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>213 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>214 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>214 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>215 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>215 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... There are no fetters for the man who is beyond pleasure and pain.</font><br>
+<font color="Peru">......<br>
+There are no knots for those who hold nothing as loved or as unloved.</font>
 </p>
 
 <p>
 <b>216 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+taṇhāya vippamuttassa natthi soko, kuto bhayaṁ?</font>
 </p>
 
 <p>
 <b>216 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... If a man is free from craving, he is free from fear and sorrow.</font><br>
+<font color="blue">Free yourself from attachment.</font><br>
+<font color="Peru">......<br>
+for one who is free from craving there is no grief, how is there fear?</font>
 </p>
 
 <p>
 <b>217 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Sīladassanasampannaṁ, dhammaṭṭhaṁ sacchavedinaṁ,<br>
+attano kamma’ kubbānaṁ, taṁ jano kurute piyaṁ.</font>
 </p>
 
 <p>
 <b>217 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">He who has virtue and vision, who follows DHAMMA, he Path of Perfection, whose words are truth, and does the work to be done - the world loves such a man.</font><br>
+<font color="blue">He is pure, and sees.<br>
+He speaks the truth, and lives it.<br>
+He does his own work.<br>
+So he is admired and loved.</font><br>
+<font color="Peru">Endowed with virtue and insight, principled, knowing the truths,<br>
+doing the deeds that are his own, that one the people love.</font>
 </p>
 
 <p>
 <b>218 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Chhandajāto anakkhāte, manasā cha phuṭo siyā,>br>
+kāmesu cha appaṭibaddhacitto, 'uddhaṁsoto' ti vucchati.</font>
 </p>
 
 <p>
 <b>218 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>219 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>219 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>220 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>220 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">And the man whose mind, filled with determination, is longing for the infinite NIRVANA, and who is free from sensuous pleasures, is called uddham-soto, 'he who goes upstream', for against the current of passions and worldly life he is bond for the joy of the Infinite</font><br>
+<font color="blue">With a determined mind and<br>
+undesiring heart<br>
+He longs for freedom.<br>
+He is called uddhamsoto -<br>
+"He who goes upstream."</font><br>
+<font color="Peru">The one with desire arisen for the undeclared [Nibbāna], will be suffused with the (awakening) mind [will be filled and suffused with
+the three lower paths and fruits],<br>
+with a mind unconnected with sense pleasures, he is spoken of as 'one gone upstream'.</font>
 </p>
 
 <div class="para-divider"></div>
