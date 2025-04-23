@@ -2283,170 +2283,132 @@ with a mind unconnected with sense pleasures, he is spoken of as 'one gone upstr
 
 <p>
 <b>221 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+akiñchanaṁ nānupatanti dukkhā.</font>
 </p>
 
 <p>
 <b>221 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... Sorrow cannot touch the man who is not in the bondage of anything, who owns nothing.</font><br>
+<font color="blue">......<br>
+When you are bound by nothing<br>
+You go beyond sorrow.</font><br>
+<font color="Peru">......<br>
+sufferings never do befall the one having no possessions.</font>
 </p>
 
 <p>
 <b>222 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Yo ve uppatitaṁ kodhaṁ rathaṁ bhantaṁ va dhāraye,<br>
+tam-ahaṁ sārathiṁ brūmi rasmiggāho itaro jano.</font>
 </p>
 
 <p>
 <b>222 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">He who can control his rising anger as a coachman controls his carriage at full speed, this man I call a good driver: others merely hold the reins.</font><br>
+<font color="blue">Anger is like a chariot careering wildly.<br>
+He who curbs his anger is the true charioteer.<br>
+Others merely hold the reins.</font><br>
+<font color="Peru">Whoever should hold back arisen anger just like a swerving chariot,<br>
+that one I say is a charioteer, other people are just rein-holders.</font>
 </p>
 
 <p>
 <b>223 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Akkodhena jine kodhaṁ, asādhuṁ sādhunā jine,<br>
+jine kadariyaṁ dānena, sacchenālikavādinaṁ.</font>
 </p>
 
 <p>
 <b>223 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Overcome anger by peacefulness: overcome evil by good. Overcome the mean by generosity; and the man that lies by truth.</font><br>
+<font color="blue">With gentleness overcome anger.<br>
+With generosity overcome meanness.<br>
+With truth overcome deceit.</font><br>
+<font color="Peru">Through kindness one should overcome anger, through goodness one should overcome a lack of goodness,<br>
+through gifts one should overcome stinginess, through truth (one should overcome) lying speech.</font>
 </p>
 
 <p>
 <b>224 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Sacchaṁ bhaṇe, na kujjheyya, dajjāppasmim-pi yāchito,<br>
+etehi tīhi ṭhānehi gacchhe devāna' santike.</font>
 </p>
 
 <p>
 <b>224 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>225 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>225 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Speak the truth, yield not to anger, give what you can to him who asks: these three steps lead you to the gods.</font><br>
+<font color="blue">Speak the truth.<br>
+Give whenever you can,<br>
+Never be angry.<br>
+These three steps will lead you<br>
+Into the presence of the gods.</font><br>
+<font color="Peru">One should speak out the truth, one should not get angry, when requested give, if only a little,<br>
+through these three conditions one can go to the presence of the gods.</font>
 </p>
 
 <p>
 <b>226 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Sadā jāgaramānānaṁ, ahorattānusikkhinaṁ,<br>
+Nibbānaṁ adhimuttānaṁ, atthaṁ gacchhanti āsavā.</font>
 </p>
 
 <p>
 <b>226 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>227 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>227 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Those who are for ever watchful, who study themselves day and night, and who wholly strive for NIRVANA, all their passions pass away.</font><br>
+<font color="blue">Those who seek perfection<br>
+Keep watch day and night<br>
+Till all desires vanish.</font><br>
+<font color="Peru">For those who are always wakeful, who train both by day and by night,<br>
+who are intent on Nibbāna, the pollutants are laid to rest.</font>
 </p>
 
 <p>
 <b>228 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Na chāhu na cha bhavissati, na chetarahi vijjati<br>
+ekantaṁ nindito poso, ekantaṁ vā pasaṁsito.</font>
 </p>
 
 <p>
 <b>228 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>229 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>229 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">There never was, there never will be, nor is there now, a man whom men always blame, or a man whim they always praise.</font><br>
+<font color="blue">The world always finds<br>
+A way to praise and a way to blame.<br>
+It always has and it always will.</font><br>
+<font color="Peru">There was not and there will not be, and at present there is not found<br>
+a person totally blameworthy, or one totally praiseworthy.</font>
 </p>
 
 <p>
 <b>230 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">nekkhaṁ jambonadasseva, ko taṁ ninditum-arahati?<br>
+Devā pi naṁ pasaṁsanti, Brahmunā pi pasaṁsito.</font>
 </p>
 
 <p>
 <b>230 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>231 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>231 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>232 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>232 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>233 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>233 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... who is pure as a pure coin of gold of the Jambhu river? Even the gods praise that man, even Brahma the Creator praises him.</font><br>
+<font color="blue">Who shines like a coin of pure gold?<br>
+Even the gods praise him.<br>
+Even Brahma praises him.</font><br>
+<font color="Peru">one who is like a golden coin, who is there worthy to blame him?<br>
+That one is praised by the gods, and has been praised by the Brahmās too.</font>
 </p>
 
 <p>
 <b>234 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Kāyena saṁvutā dhīrā, atho vāhcāya saṁvutā,<br>
+manasā saṁvutā dhīrā, te ve suparisaṁvutā.</font>
 </p>
 
 <p>
 <b>234 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">There are men steady and wise whose body, words and mind are self-controlled. They are the men of supreme self-control.</font><br>
+<font color="blue">The wise have mastered<br>
+Body, word and mind.>br>
+They are the true masters.</font><br>
+<font color="Peru">The wise are restrained bodily, then they are restrained verbally,<br>
+the wise are restrained mentally, they are indeed very well-restrained.</font>
 </p>
 
 <div class="para-divider"></div>
