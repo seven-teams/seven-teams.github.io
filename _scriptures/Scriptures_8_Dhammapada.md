@@ -1213,8 +1213,7 @@ wherever the Arahats live, that ground is (surely) delightful.</font>
 
 <p>
 <b>99 Transliteration</b><br>
-<font color="Peru">
-Ramaṇīyāni araññāni yattha na ramatī jano,<br>
+<font color="Peru">Ramaṇīyāni araññāni yattha na ramatī jano,<br>
 vītarāgā ramissanti, na te kāmagavesino.</font>
 </p>
 
@@ -2421,255 +2420,192 @@ the wise are restrained mentally, they are indeed very well-restrained.</font>
 </p>
 
 <p>
-<b>235 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>235 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
 <b>236 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">So karohi dīpam-attano,<br>
+khippaṁ vāyama paṇḍito bhava,<br>
+niddhantamalo, anaṅgaṇo,<br>
+dibbaṁ ariyabhūmim-ehisi.</font>
 </p>
 
 <p>
 <b>236 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>237 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>237 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>238 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>238 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Make an island for yourself. Hasten and strive. be wise. With the dust of impurities blown off, and free from sinful passions, you will come unto the glorious land of the great.</font><br>
+<font color="blue">You are the lamp<br>
+To lighten the way.<br>
+Then hurry, hurry.<br>
+When your light shines<br>
+Without impurity of desire<br>
+You will come into the boundless country.</font><br>
+<font color="Peru">One should make an island for oneself,<br>
+soon the wise one should endeavor,<br>
+removing the stain, blemishless,<br>
+you will go to the divine and noble realm.</font>
 </p>
 
 <p>
 <b>239 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Anupubbena medhāvī, thokathokaṁ khaṇe khaṇe,<br>
+kammāro rajatasseva, ......</font>
 </p>
 
 <p>
 <b>239 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>240 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>240 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>241 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>241 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>242 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>242 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">Let a wise man remove impurities from himself ......: one after another, little by little, again and again.</font><br>
+<font color="blue">......<br>
+Remove your own impurities<br>
+Little by little.</font><br>
+<font color="Peru">The sage gradually, little by little, moment by moment,<br>
+should remove the stain from himself, ......</font>
 </p>
 
 <p>
 <b>243 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Tato malā malataraṁ, avijjā paramaṁ malaṁ,<br>
+etaṁ malaṁ pahatvāna, nimmalā hotha, bhikkhavo!</font>
 </p>
 
 <p>
 <b>243 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>244 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>244 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">But the greatest of all sins is indeed the sin of ignorance. Throw thin sin away, O man, and become pure from sin.</font><br>
+<font color="blue">But the greatest impurity is ignorance.<br>
+Free yourself from it.<br>
+Be pure.</font><br>
+<font color="Peru">A stain that is worse than that stain, ignorance is the supreme stain,<br>
+after abandoning that stain, be without stains, O monastics!</font>
 </p>
 
 <p>
 <b>245 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Hirīmatā cha dujjīvaṁ, nicchaṁ suchigavesinā,<br>
+alīnenāpagabbhena, suddhājīvena passatā.</font>
 </p>
 
 <p>
 <b>245 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>246 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>246 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>247 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>247 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>248 Transliteration</b><br>
-<font color="Peru"></font>
-</p>
-
-<p>
-<b>248 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">But life seems difficult for those who peacefully strive for perfection, who free from self-seeking are not self-assertive, whose life is pure, who see the light.</font><br>
+<font color="blue">But life is hard<br>
+For the man who quietly undertakes<br>
+The way of perfection,<br>
+With purity, detachment and vigor.<br>
+He sees light.</font><br>
+<font color="Peru">Life is hard when endowed with shame, for the one constantly seeking purity,<br>
+for one sincere, and not reckless, looking for purity of life.</font>
 </p>
 
 <p>
 <b>249 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Dadāti ve yathāsaddhaṁ, yathāpasādanaṁ jano,<br>
+tattha yo maṅku bhavati paresaṁ pānabhojane<br>
+na so divā vā rattiṁ vā, samādhiṁ adhigacchati.</font>
 </p>
 
 <p>
 <b>249 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">People in this world give their gifts because of inner light or selfish pleasure. If a man's thoughts are disturbed by what others give or give not, how can he by day or night achieve supreme contemplation?</font><br>
+<font color="blue">You may give in the spirit of light<br>
+Or as you please,<br>
+But if you care how another man gives<br>
+Or how he withholds,<br>
+You trouble your quietness endlessly.</font><br>
 </p>
 
 <p>
 <b>250 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Yassa chetaṁ samucchhinnaṁ, mūlaghacchaṁ samūhataṁ,<br>
+sa ve divā vā rattiṁ vā, samādhiṁ adhigacchhati.</font>
 </p>
 
 <p>
 <b>250 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="blue">These envying roots!<br>
+Destroy them<br>
+And enjoy a lasting quietness.</font><br>
+<font color="Peru">For the one in whom this (dejection) [because of food and drink (given) to others] is cut off, destroyed at the root, dug up,<br>
+does, by day and night, attain to (good) concentration.</font>
 </p>
 
 <p>
 <b>251 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Natthi rāgasamo aggi, natthi dosasamo gaho,<br>
+natthi mohasamaṁ jālaṁ, natthi taṇhāsamā nadī.</font>
 </p>
 
 <p>
 <b>251 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">There is no fire like lust, and no chains like those of hate. There is no net like illusion, and no rushing torrent like desire.</font><br>
+<font color="blue">There is no fire like passion.<br>
+There are no chains like hate.<br>
+Illusion is a net,<br>
+Desire is a rushing river.</font><br>
+<font color="Peru">There is no fire that is like passion, there is nothing that takes a hold like hatred,<br>
+there is no snare like delusion, there is no flood like craving.</font>
 </p>
 
 <p>
 <b>252 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Sudassaṁ vajjam-aññesaṁ, attano pana duddasaṁ,<br>
+......</font>
 </p>
 
 <p>
 <b>252 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">It is easy to se the faults of other, but difficult to see one's own faults. ......</font><br>
+<font color="blue">How easy it is to see your brother's faults,<br>
+How hard it is to face your own.<br>
+......</font><br>
+<font color="Peru">Easy to see are others’ fault, but one’s own is hard to see,<br>
+......</font>
 </p>
 
 <p>
 <b>253 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Paravajjānupassissa nicchaṁ ujjhānasaññino,<br>
+āsavā tassa vaḍḍhanti, ārā so āsavakkhayā.</font>
 </p>
 
 <p>
 <b>253 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">If a man sees the sins of others and for ever thinks of their faults, his own sins increase and far off is he from the end of his faults.</font><br>
+<font color="blue">Dwelling on your brother's faults<br>
+Multiplies your own.<br>
+You are far from the end of your journey.</font><br>
+<font color="Peru">The one who constantly looks for another’s fault, who is an abject complainer,<br<
+for him the pollutants increase, he is far from their destruction.</font>
 </p>
 
 <p>
 <b>254 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">......<br>
+papañchābhiratā pajā, nippapañchā Tathāgatā.</font>
 </p>
 
 <p>
 <b>254 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">...... The world likes pleasures that are obstacles on the path; but the Tathā-gatas, the 'Thus-gone', have crossed the river of time and they have overcome the world.</font><br>
+<font color="blue">......<br>
+But the tathāgatas,<br>
+"They who have gone beyond,"<br>
+Have conquered the world.<br>
+They are free.</font><br>
+<font color="Peru">......<br>
+folk greatly delight in impediments, the Realized Ones are free of impediments.</font>
 </p>
 
 <p>
 <b>255 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">Ākāse va padaṁ natthi, samaṇo natthi bāhire,<br>
+saṅkhārā sassatā natthi, natthi Buddhānam-iñjitaṁ.</font>
 </p>
 
 <p>
 <b>255 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="DarkGreen">There is no path in the sky and a monk must find the inner path. All things indeed pass away, but the Buddhas are for ever in Eternity,</font><br>
+<font color="blue">The way is not in the sky.<br>
+The way is in the heart.<br>
+All things arise and pass away.<br>
+But the awakened awake forever.</font><br>
+<font color="Peru">There is no footprint in the sky, there is no ascetic on the outside,<br>
+there are no constant conditions, there is no disturbance for the Buddhas.</font>
 </p>
 
 <div class="para-divider"></div>
@@ -2683,206 +2619,240 @@ the wise are restrained mentally, they are indeed very well-restrained.</font>
 
 <p>
 <b>256 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>256 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>257 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>257 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>258 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>258 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>259 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>259 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>260 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>260 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>261 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>261 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>262 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>262 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>263 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>263 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>264 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>264 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>265 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>265 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>266 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>266 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>267 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>267 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>268 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>268 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>269 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>269 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>270 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>270 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>271 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>271 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>272 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>272 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <div class="para-divider"></div>
@@ -2895,206 +2865,240 @@ the wise are restrained mentally, they are indeed very well-restrained.</font>
 
 <p>
 <b>273 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>273 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>274 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>274 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>275 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>275 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>276 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>276 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>277 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>277 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>278 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>278 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>279 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>279 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>280 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>280 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>281 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>281 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>282 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>282 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>283 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>283 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>284 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>284 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>285 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>285 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>286 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>286 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>287 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>287 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>288 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>288 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>289 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>289 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <div class="para-divider"></div>
@@ -3108,194 +3112,226 @@ the wise are restrained mentally, they are indeed very well-restrained.</font>
 
 <p>
 <b>290 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>290 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>291 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>291 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>292 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>292 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>293 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>293 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>294 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>294 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>295 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>295 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>296 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>296 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>297 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>297 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>298 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>298 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>299 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>299 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>300 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>300 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>301 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>301 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>302 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>302 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>303 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>303 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>304 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>304 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>305 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>305 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <div class="para-divider"></div>
@@ -3309,170 +3345,198 @@ the wise are restrained mentally, they are indeed very well-restrained.</font>
 
 <p>
 <b>306 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>306 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>307 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>307 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>308 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>308 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>309 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>309 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>310 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>310 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>311 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>311 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>312 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>312 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>313 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>313 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>314 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>314 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>315 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>315 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>316 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>316 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>317 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>317 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>318 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>318 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>319 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>319 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <div class="para-divider"></div>
@@ -3485,170 +3549,198 @@ the wise are restrained mentally, they are indeed very well-restrained.</font>
 
 <p>
 <b>320 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>320 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>321 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>321 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>322 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>322 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>323 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>323 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>324 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>324 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>325 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>325 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>326 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>326 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>327 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>327 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>328 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>328 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>329 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>329 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>330 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>330 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>331 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>331 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>332 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>332 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>333 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>333 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <div class="para-divider"></div>
@@ -3662,314 +3754,366 @@ the wise are restrained mentally, they are indeed very well-restrained.</font>
 
 <p>
 <b>334 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>334 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>335 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>335 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>336 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>336 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>337 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>337 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>338 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>338 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>339 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>339 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>340 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>340 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>341 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>341 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>342 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>342 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>343 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>343 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>344 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>344 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>345 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>345 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>346 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>346 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>347 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>347 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>348 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>348 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>349 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>349 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>350 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>350 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>351 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>351 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>352 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>352 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>353 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>353 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>354 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>354 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>355 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>355 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>356 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>356 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>357 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>357 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>358 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>358 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>359 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>359 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <div class="para-divider"></div>
@@ -3983,278 +4127,324 @@ the wise are restrained mentally, they are indeed very well-restrained.</font>
 
 <p>
 <b>360 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>360 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>361 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>361 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>362 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>362 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>363 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>363 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>364 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>364 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>365 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>365 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>366 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>366 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>367 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>367 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>368 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>368 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>369 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>369 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>370 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>370 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>371 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>371 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>372 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>372 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>373 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>373 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>374 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>374 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>375 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>375 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>376 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>376 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>377 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>377 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>378 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>378 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>379 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>379 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>380 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>380 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>381 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>381 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>382 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>382 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <div class="para-divider"></div>
@@ -4268,494 +4458,576 @@ the wise are restrained mentally, they are indeed very well-restrained.</font>
 
 <p>
 <b>383 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>383 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>384 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>384 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>385 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>385 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>386 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>386 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>387 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>387 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>388 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>388 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>389 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>389 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>390 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>390 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>391 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>391 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>392 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>392 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>393 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>393 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>394 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>394 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>395 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>395 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>396 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>396 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>397 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>397 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>398 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>398 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>399 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>399 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>400 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>400 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>401 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>401 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>402 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>402 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>403 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>403 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>404 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>404 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>405 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>405 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>406 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>406 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>407 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>407 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>408 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>408 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>409 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>409 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>410 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>410 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>411 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>411 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>412 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>412 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>413 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>413 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>414 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>414 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>415 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>415 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>416 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>416 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>417 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>417 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>418 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>418 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>419 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>419 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>420 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>420 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>421 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>421 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>422 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>422 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>423 Transliteration</b><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <p>
 <b>423 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru"></font>
+<font color="Peru">
+</font>
 </p>
 
 <div class="para-divider"></div>
