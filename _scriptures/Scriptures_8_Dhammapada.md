@@ -2255,7 +2255,7 @@ doing the deeds that are his own, that one the people love.</font>
 
 <p>
 <b>218 Transliteration</b><br>
-<font color="Peru">Chhandajāto anakkhāte, manasā cha phuṭo siyā,>br>
+<font color="Peru">Chhandajāto anakkhāte, manasā cha phuṭo siyā,<br>
 kāmesu cha appaṭibaddhacitto, 'uddhaṁsoto' ti vucchati.</font>
 </p>
 
@@ -2404,7 +2404,7 @@ manasā saṁvutā dhīrā, te ve suparisaṁvutā.</font>
 <b>234 Translations</b><br>
 <font color="DarkGreen">There are men steady and wise whose body, words and mind are self-controlled. They are the men of supreme self-control.</font><br>
 <font color="blue">The wise have mastered<br>
-Body, word and mind.>br>
+Body, word and mind.<br>
 They are the true masters.</font><br>
 <font color="Peru">The wise are restrained bodily, then they are restrained verbally,<br>
 the wise are restrained mentally, they are indeed very well-restrained.</font>
@@ -2569,7 +2569,7 @@ āsavā tassa vaḍḍhanti, ārā so āsavakkhayā.</font>
 <font color="blue">Dwelling on your brother's faults<br>
 Multiplies your own.<br>
 You are far from the end of your journey.</font><br>
-<font color="Peru">The one who constantly looks for another’s fault, who is an abject complainer,<br<
+<font color="Peru">The one who constantly looks for another’s fault, who is an abject complainer,<br>
 for him the pollutants increase, he is far from their destruction.</font>
 </p>
 
@@ -2619,240 +2619,192 @@ there are no constant conditions, there is no disturbance for the Buddhas.</font
 
 <p>
 <b>256 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+yo cha atthaṁ anatthañ-cha ubho nicchheyya paṇḍito.</font>
 </p>
 
 <p>
 <b>256 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... A wise man calmly considers what is right and waht is wrong,</font><br>
+<font color="blue">......<br>
+Quietly consider<br>
+What is right and what is wrong.</font><br>
+<font color="Peru">......<br>
+the wise one should discriminate the two: what is the case and what is not the case.</font>
 </p>
 
 <p>
 <b>257 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Asāhasena dhammena samena nayatī pare,<br>
+Dhammassa gutto medhāvī, Dhammaṭṭho ti pavucchati.</font>
 </p>
 
 <p>
 <b>257 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">and faces different opinions with truth, non-violence and peace. This man is guarded by truth and is a guardian of truth. He is righteous and he is wise.</font><br>
+<font color="blue">Receiving all opinions equally,<br>
+Without haste, wisely,<br>
+Observe the dharma.</font><br>
+<font color="Peru">The one who settles for other people without haste, justly and impartially,<br>
+the sagacious one, protecting Dhamma, is said to be one who stands by Dhamma.</font>
 </p>
 
 <p>
 <b>258 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+khemī averī abhayo, paṇḍito ti pavucchati.</font>
 </p>
 
 <p>
 <b>258 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... but if he is peaceful, loving and fearless then he is in truth called wise. </font><br>
+<font color="blue">......<br>
+Be quiet,<br>
+And loving and fearless.<br>
+</font><br>
+<font color="Peru">......<br>
+being safe, hatred-free, fearless, one is called a wise person.</font>
 </p>
 
 <p>
 <b>259 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+yo cha appam-pi sutvāna, Dhammaṁ kāyena passati,<br>
+sa ve Dhammadharo hoti, yo Dhammaṁ nappamajjati.</font>
 </p>
 
 <p>
 <b>259 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>260 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>260 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... if he forgets not the right path, if his work is rightly done, then he is a follower of righteousness.</font><br>
+<font color="Peru">......<br>
+but the one who, having heard a little, sees Dhamma for himself,<br>
+is one who bears Dhamma, the one who is not heedless regarding Dhamma.</font>
 </p>
 
 <p>
 <b>261 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yamhi sacchañ-cha Dhammo cha ahiṁsā saṁyamo damo,<br>
+sa ve vantamalo dhīro thero iti pavucchati.</font>
 </p>
 
 <p>
 <b>261 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>262 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>262 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">But a man is a venerable 'elder' if he is in truth free from sin, and if in him there is truth and righteousness, non-violence, moderation and self-control.</font><br>
+<font color="blue">The true master lives in truth,<br>
+In goodness and restraint,<br>
+Non-violence, moderation and purity.</font><br>
+<font color="Peru">In whom is truth, Dhamma, non-violence, restraint and (good) training,<br>
+the wise one who throws out the stain is (truly) called an elder.</font>
 </p>
 
 <p>
 <b>263 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">yassa chetaṁ samucchhinnaṁ, mūlaghacchaṁ samūhataṁ,<br>
+sa vantadoso medhāvī sādhurūpo ti vucchati.</font>
 </p>
 
 <p>
 <b>263 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>264 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>264 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">But he in whom these three sins are uprooted and who is wise and has love, he is truth a man of honor.</font><br>
+<font color="blue">Only when envy and selfishness<br>
+Are rooted out of him<br>
+May he grow in beauty.</font><br>
+<font color="Peru">for the one in whom this [jealousy, selfishness and deceitfulness] is cut off, destroyed at the root, dug up,<br>
+that sage who has thrown out hatred is said to be honorable.</font>
 </p>
 
 <p>
 <b>265 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yo cha sameti pāpāni, aṇuṁ-thūlāni sabbaso –<br>
+samitattā hi pāpānaṁ samaṇo ti pavucchati.</font>
 </p>
 
 <p>
 <b>265 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>266 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>266 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">But he who turns into peace all evil, whether this be great or small, he in truth is a samana [monk], because all his evil is peace.</font><br>
+<font color="blue">The true seeker<br>
+Subdues all waywardness.<br>
+He has submitted his nature to quietness.</font><br>
+<font color="Peru">The one who pacifies wicked deeds, small and great, in every way –<br>
+through the pacifying of wicked deeds he is said to be an ascetic.</font>
 </p>
 
 <p>
 <b>267 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yodha puññañ-cha pāpañ-cha bāhetvā brahmachariyavā,<br>
+saṅkhāya loke charati sa che, bhikkhū ti vucchati.</font>
 </p>
 
 <p>
 <b>267 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">But he who is above good and evil, who lives in chastity and goes through life in meditation, he in truth is called a Bhikkhu.</font><br>
+<font color="blue">.......<br>
+...... he follows the lawful way,<br>
+Holding back nothing, holding to nothing,<br>
+Beyond good and evil,<br>
+Beyond the body and beyond the mind.</font><br>
+<font color="Peru">If he is one who lives the holy life here, warding off both merit and demerit,<br>
+and wanders with discrimination in the world, that one is said to be a monastic.</font>
 </p>
 
 <p>
 <b>268 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+yo cha tulaṁ va paggayha, varam-ādāya paṇḍito.</font>
 </p>
 
 <p>
 <b>268 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... But as one who taking a pair of scales, puts in what is good and rejects what is bad,</font><br>
+<font color="blue">......<br>
+But he who weighs only purity in his scales,<br></font><br>
+<font color="Peru">......<br>
+the wise one, like one holding the balance, takes up what is noble.</font>
 </p>
 
 <p>
 <b>269 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Pāpāni parivajjeti sa munī tena so muni,<br>
+yo munāti ubho loke muni tena pavucchati.</font>
 </p>
 
 <p>
 <b>269 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">if a man considers the two worlds, then he is called a MUNI of silence, a man who considers and thinks.</font><br>
+<font color="blue">Who sees the nature of the two worlds,<br>
+He is a master.</font><br>
+<font color="Peru">The seer who rejects wicked deeds through that is (considered) a seer,<br>
+whoever understands both worlds because of that is said to be a seer.</font>
 </p>
 
 <p>
 <b>270 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+ahiṁsā sabbapāṇānaṁ ariyo ti pavucchati.</font>
 </p>
 
 <p>
 <b>270 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>271 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>271 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... but because he hurts not any living being he in truth is called a great man.</font><br>
+<font color="blue">He harms no living thing.</font><br>
+<font color="Peru">......<br>
+the one who does not hurt any breathing beings is said to be noble.</font>
 </p>
 
 <p>
 <b>272 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+bhikkhu vissāsa’ māpādi [vissāsaṁ mā āpādi] appatto āsavakkhayaṁ.</font>
 </p>
 
 <p>
 <b>272 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... Mendicant! Have not self-satisfaction, the victory has not been won.</font><br>
+<font color="blue">......<br>O seeker!<br>
+Rely on nothing<br>
+Until you want nothing.</font><br>
+<font color="Peru">......<br>
+let a monastic not be confident (as long as) the destruction of the pollutants is unattained.</font>
 </p>
 
 <div class="para-divider"></div>
