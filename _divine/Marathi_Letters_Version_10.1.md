@@ -20,6 +20,7 @@ Translations withouts original or retyped or (original) rewriting: 7.<br>
 Versions: almost 5 (increment by 1).<br>
 Figures: 86 (increment by 4).<br>
 Pages pdf file: 142 pages (increment by 7).<br>
+[Note: a new pdf file, that compressed 2 images, was uploaded on 2025-0426.]
 <br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
@@ -31,4 +32,4 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 https://www.facebook.com/sahajayogavidya (Warning: solely for communications when email is less convenient)<br> 
 </p>
 
-<iframe src="/pdf2/src/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/Marathi_Letters_from_Divine_Message_Version_10.1_2025_0323_BroWsinG-_MS.pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf2/src/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/Marathi_Letters_from_Divine_Message_Version_10.1_2025_0426_BroWsinG-_MS.pdf" width="1000px" height="1000px"></iframe>
