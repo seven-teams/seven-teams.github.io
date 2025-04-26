@@ -31,4 +31,4 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 https://www.facebook.com/sahajayogavidya (Warning: solely for communications when email is less convenient)<br> 
 </p>
 
-<iframe src="/pdf2/src/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/Marathi_Letters_from_Divine_Message_Version_10.1_2025_0323_BroWsinG_MS.pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf2/src/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/Marathi_Letters_from_Divine_Message_Version_10.1_2025_0323_BroWsinG-_MS.pdf" width="1000px" height="1000px"></iframe>
