@@ -3135,7 +3135,7 @@ yesaṁ divā cha ratto cha nicchaṁ Buddhagatā sati.</font>
 
 <p>
 <b>296 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">The followers of Buddha Gotama are awake and for ever watch; and ever by night and day they remember Buddha, their Master.</font><br>
 <font color="blue">The followers of the awakened<br>
 Awake<br>
 And day and night they watch<br>
@@ -3152,7 +3152,7 @@ yesaṁ divā ca ratto ca niccaṁ Dhammagatā sati.</font>
 
 <p>
 <b>297 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">...... by night and day they remember the Truth of the Law.</font><br>
 <font color="blue">......<br>
 They mind the dharma.</font><br>
 <font color="Peru">......<br>
@@ -3167,7 +3167,7 @@ yesaṁ divā ca ratto ca nicchaṁ Saṅghagatā sati.</font>
 
 <p>
 <b>298 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">...... by night and day they remember the holy brotherhood.</font><br>
 <font color="blue">......<br>
 They know their brothers on the way.</font><br>
 <font color="Peru">......<br>
@@ -3182,7 +3182,7 @@ yesaṁ divā ca ratto ca niccaṁ kāyagatā sati.</font>
 
 <p>
 <b>299 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">...... by night and day they remember the mystery of the body.</font><br>
 <font color="blue">.......<br>
 They understand the mystery of the body.</font><br>
 <font color="Peru">......<br>
@@ -3197,7 +3197,7 @@ yesaṁ divā ca ratto ca ahiṁsāya rato mano.</font>
 
 <p>
 <b>300 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">...... by night and day they find joy in love for all beings.</font><br>
 <font color="blue">.......<br>
 They find joy in all beings.</font><br>
 <font color="Peru">......<br>
@@ -3212,7 +3212,7 @@ yesaṁ divā ca ratto ca bhāvanāya rato mano.</font>
 
 <p>
 <b>301 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">...... by night and day they find joy in supreme contemplation.</font><br>
 <font color="blue">.......<br>
 They delight in meditation.</font><br>
 <font color="Peru">......<br>
@@ -3228,7 +3228,7 @@ tasmā na chaddhagū siyā, na cha dukkhānupatito siyā.</font>
 
 <p>
 <b>302 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen"> It is painful to leave the world; it is painful to be in the world; and it is painful to be alone amongst the many. The long road of transmigration is a road of pain for the traveller: let him rest by the road and be free.</font><br>
 <font color="blue">It is hard to live in the world<br>
 And hard to live out of it.<br>
 It is hard to be among the many.<br>
@@ -3250,7 +3250,7 @@ yaṁ yaṁ padesaṁ bhajati, tattha tattheva pūjito.</font>
 
 <p>
 <b>303 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">If a man has faith and has virtue, then he has true glory and treasure. Wherever that man may go, there he will be held in honor.</font><br>
 <font color="blue">If he is a good man,<br>
 A man of faith, honoured and prosperous,<br>
 Wherever he goes he is welcome.</font><br>
@@ -3266,7 +3266,7 @@ asantettha na dissanti, rattiṁ khittā yathā sarā.</font>
 
 <p>
 <b>304 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">The good shone from far away, like the Himalaya mountains; but the wicked are in darkness, like arrows thrown in the night.</font><br>
 <font color="blue">Like the Himalayas<br>
 Good men shine from afar.
 But bad men move unseen<br>
@@ -3283,7 +3283,7 @@ eko damayam-attānaṁ vanante ramito siyā.</font>
 
 <p>
 <b>305 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">He who can be alone and rest alone and is never weary of his great work, he can live in joy, when master of himself, by the edge of the forest of desire.</font><br>
 <font color="blue">Sit.<br>
 Rest.<br>
 Work.<br>
