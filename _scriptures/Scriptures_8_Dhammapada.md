@@ -2817,184 +2817,214 @@ let a monastic not be confident (as long as) the destruction of the pollutants i
 
 <p>
 <b>273 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Maggānaṭṭhaṅgiko seṭṭho, sacchānaṁ chaturo padā,<br>
+virāgo seṭṭho dhammānaṁ, dipadānañ-cha Chakkhumā.</font>
 </p>
 
 <p>
 <b>273 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">The best of the paths is the path of eight. the best of truths, the four sayings. The best of states, freedom from passion. The best of men, the who who sees.</font><br>
+<font color="blue">The way is eightfold.<br>
+There are four truths.<br>
+All virtue lies in detachment.<br>
+The master has an open eye.</font><br>
+<font color="Peru">The eightfold is the best of paths, four principles (the best) of truths,<br>
+passionlessness the best of states, the Visionary (the best) of men.</font>
 </p>
 
 <p>
 <b>274 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Eso va maggo natthañño, dassanassa visuddhiyā,<br>
+etaṁ hi tumhe paṭipajjatha, Mārassetaṁ pamohanaṁ.</font>
 </p>
 
 <p>
 <b>274 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">This is the path. There is no other that leads to vision. Go on this path, and you will confuse MĀRA, the devil of confusion.</font><br>
+<font color="blue">This is the only way,<br>
+The only way to the opening of the eye.<br>
+Follow it.</font><br>
+<font color="Peru">This is the path, there is no other, for insight and for purity,<br>
+you should enter upon this path, this is the confounding of Māra.</font>
 </p>
 
 <p>
 <b>275 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Etaṁ hi tumhe paṭipannā dukkhassantaṁ karissatha,<br>
+akkhāto ve mayā maggo, aññāya sallasanthanaṁ.</font>
 </p>
 
 <p>
 <b>275 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">Whoever goes on this path travels to the end of his sorrow. I showed this path to the world when I found the roots of sorrow.</font><br>
+<font color="blue">Outwit desire.<br>
+Follow it to the end of sorrow.<br>
+When I pulled out sorrow's shaft<br>
+I showed you the way.</font><br>
+<font color="Peru">Having entered upon this path you will make an end to suffering,<br>
+the path was declared by me, the removal of the dart by knowledge.</font>
 </p>
 
 <p>
 <b>276 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Tumhehi kiccaṁ ātappaṁ akkhātāro Tathāgatā,<br>
+paṭipannā pamokkhanti jhāyino Mārabandhanā.</font>
 </p>
 
 <p>
 <b>276 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen"> It is you who must make the effort. The Great of the past only show the way. Those who think and follow the path become free from the bondage of MĀRA.</font><br>
+<font color="blue">It is you who must make the effort.<br>
+The masters only point the way.<br>
+But if you meditate<br>
+And follow the dharma<br>
+You will free yourself from desire.</font><br>
+<font color="Peru">Your duty is to have ardor declare the Realized Ones,<br>
+entering this path meditators will be released from the bonds of Māra.</font>
 </p>
 
 <p>
 <b>277 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Sabbe saṅkhārā anicchā ti, yadā paññāya passati,
+atha nibbindatī dukkhe – esa maggo visuddhiyā.</font>
 </p>
 
 <p>
 <b>277 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">'All is transient.' ...... This is the clear path.</font><br>
+<font color="blue">"Everything arises and passes away."<br>
+When you see this, you are above sorrow.<br>
+......</font><br>
+<font color="Peru">All conditions are impermanent, ......<br>
+...... this is the path to purity.</font>
 </p>
 
 <p>
 <b>278 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Sabbe saṅkhārā dukkhā ti, ......</font>
 </p>
 
 <p>
 <b>278 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">'All is sorrow.' ...... </font><br>
+<font color="blue">"Existence is sorrow."<br>
+......</font><br>
+<font color="Peru">All conditions are suffering, ......</font>
 </p>
 
 <p>
 <b>279 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Sabbe dhammā anattā ti, ......</font>
 </p>
 
 <p>
 <b>279 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>280 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>280 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">'All is unreal.' ......</font><br>
+<font color="blue">"Existence is illusion."<br>
+......</font><br>
+<font color="Peru">All components (of mind and body)1 are without self, ......</font>
 </p>
 
 <p>
 <b>281 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Vāchānurakkhī manasā susaṁvuto,<br>
+kāyena cha akusalaṁ na kayirā,<br>
+ete tayo kammapathe visodhaye,<br>
+ārādhaye maggaṁ isippaveditaṁ.</font>
 </p>
 
 <p>
 <b>281 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">A man should control his words and mind and should not do any harm with his body. If these ways of action are pure he can make progress on the pass of the wise. </font><br>
+<font color="blue">Master your words.<br>
+Master your thoughts.<br>
+Never allow your body to do harm.<br>
+Follow these three roads with purity<br>
+And you will find yourself upon the one way,<br>
+The way of wisdom.</font><br>
+<font color="Peru">Verbally guarded, well-restrained in mind,<br>
+not doing a wrong deed with the body,<br>
+one should purify these three paths of action,<br>
+one should undertake the path shown by seers.</font>
 </p>
 
 <p>
 <b>282 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yogā ve jāyatī bhūri, ayogā bhūrisaṅkhayo,<br>
+etaṁ dvedhāpathaṁ ñatvā bhavāya vibhavāya cha,<br>
+tathattānaṁ niveseyya yathā bhūri pavaḍḍhati.</font>
 </p>
 
 <p>
 <b>282 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">Spiritual Yoga leads to the light: lack of Yoga to darkness. Considering the two paths, let the man walk on the path that leads to light.</font><br>
+<font color="blue">Sit in the world, sit in the dark.<br>
+Sit in meditation, sit in light.<br>
+Choose your seat.<br>
+Let wisdom grow.</font><br>
+<font color="Peru">From effort arises wisdom, without effort wisdom is destroyed,<br>
+having understood these two paths of development and decline,<br>
+one should establish oneself so that one’s wisdom increases.</font>
 </p>
 
 <p>
 <b>283 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Vanaṁ chhindatha mā rukkhaṁ, vanato jāyatī bhayaṁ,<br>
+chhetvā vanañ-ca vanathañ-cha, nibbanā hotha bhikkhavo.</font>
 </p>
 
 <p>
 <b>283 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">Cut down the forest of desires, not just a tree; for danger is in the forest. If you cut down the forest and its underground, then Bhikkhus, you will be free on the path of freedom.</font><br>
+<font color="blue">Cut down the forest.<br>
+Not the tree.<br>
+For out of the forest comes danger.<br>
+Cut down the forest.<br>
+Fell desire.<br>
+And set yourself free.</font><br>
+<font color="Peru">Cut down the forest (of defilements) not just a tree, from the forest arises a danger,<br>
+having cut down the forest and thicket, you should be without forests, monastics.</font>
 </p>
 
 <p>
 <b>284 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yāva hi vanatho na chhijjati<br>
+aṇumatto pi narassa nārisu,<br>
+paṭibaddhamano va tāva so,<br>
+......</font>
 </p>
 
 <p>
 <b>284 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">As long as lustful desire, however small, of man for women is not controlled, so long the mind of man is not free, but is bond ......</font><br>
+<font color="blue">While a man desires a woman,<br>
+His mind is bound<br>
+......</font><br>
+<font color="Peru">For as long as an atom of desire<br>
+of a man for a woman is not cut down,<br>
+for just so long is the mind in bondage,<br>
+......</font>
 </p>
 
 <p>
 <b>285 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Ucchhinda sineham-attano,<br>
+......<br>
+santimaggam-eva brūhaya<br>
+Nibbānaṁ Sugatena desitaṁ.</font>
 </p>
 
 <p>
 <b>285 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen"> Pluck off your self-love  ...... Strive on the path of peace, the path of NIRVANA shown by Buddha.</font><br>
+<font color="blue">......<br>
+Pluck the arrow of desire.<br>
+For he who is awake<br>
+Has shown you the way of peace.</font><br>
+<font color="Peru">Cut off (any) affection for one’s self,<br>
+......<br>
+develop fully the path to peace and<br>
+Nibbāna taught by the Happy One.</font>
 </p>
 
 <p>
@@ -3027,30 +3057,20 @@ let a monastic not be confident (as long as) the destruction of the pollutants i
 
 <p>
 <b>288 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Na santi puttā tāṇāya, na pitā na pi bandhavā,<br>
+Antakenādhipannassa natthi ñātisu tāṇatā.</font>
 </p>
 
 <p>
 <b>288 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>289 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>289 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">Neither father, sons nor one's relations can stop the King of Death. When he comes with all his power, a man's relations cannot save him.</font><br>
+<font color="blue">His family cannot save him,<br>
+Not his father nor his sons.<br>
+Know this.<br>
+Seek wisdom, and purity.<br>
+Quickly clear the way.</font><br>
+<font color="Peru">Children are not a refuge, nor fathers, not even kin,<br>
+for one overcome by the End-Maker there is no refuge in relatives.</font>
 </p>
 
 <div class="para-divider"></div>
@@ -3064,226 +3084,216 @@ let a monastic not be confident (as long as) the destruction of the pollutants i
 
 <p>
 <b>290 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Mattāsukhaparicchāgā, passe che vipulaṁ sukhaṁ,<br>
+chaje mattāsukhaṁ dhīro, sampassaṁ vipulaṁ sukhaṁ.</font>
 </p>
 
 <p>
 <b>290 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">If by forsaking a small pleasure one finds a great joy, he who is wise will look to the greater and leave what is less.</font><br>
+<font color="blue">There is pleasure<br>
+And there is bliss.<br>
+Forgo the first to possess the second.</font><br>
 </p>
 
 <p>
 <b>291 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Paradukkhūpadānena attano sukham-icchhati,<br>
+verasaṁsaggasaṁsaṭṭho, verā so na parimucchati.</font>
 </p>
 
 <p>
 <b>291 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>292 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>292 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>293 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>293 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen"> He who seeks happiness for himself by making others unhappy is bound in the chains of hate and from those he cannot be free.</font><br>
+<font color="blue">If you are happy<br>
+At the expense of another man's happiness,<br>
+You are forever bound.</font><br>
+<font color="Peru">One who desires happiness for oneself by causing suffering for another,<br>
+being associated thus with hatred, is not fully released from that hatred.</font>
 </p>
 
 <p>
 <b>294 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">.......<br>
+......, anīgho yāti brāhmaṇo.</font>
 </p>
 
 <p>
 <b>294 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>295 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>295 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">A saint, a Brahmin, is pure from past sins: ......</font><br>
+<font color="blue">He is without blame<br>
+......</font><br>
+<font color="Peru">......<br>
+...... the brahmin proceeds untroubled.</font>
 </p>
 
 <p>
 <b>296 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Suppabuddhaṁ pabujjhanti sadā Gotamasāvakā,<br>
+yesaṁ divā cha ratto cha nicchaṁ Buddhagatā sati.</font>
 </p>
 
 <p>
 <b>296 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="blue">The followers of the awakened<br>
+Awake<br>
+And day and night they watch<br>
+And meditate upon their master.</font><br>
+<font color="Peru">Gotama’s disciples always awake to a good wakening,<br>
+...... day and night constantly have mindfulness of the Buddha.</font>
 </p>
 
 <p>
 <b>297 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+yesaṁ divā ca ratto ca niccaṁ Dhammagatā sati.</font>
 </p>
 
 <p>
 <b>297 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="blue">......<br>
+They mind the dharma.</font><br>
+<font color="Peru">......<br>
+...... day and night constantly have mindfulness of the Dhamma.</font>
 </p>
 
 <p>
 <b>298 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+yesaṁ divā ca ratto ca nicchaṁ Saṅghagatā sati.</font>
 </p>
 
 <p>
 <b>298 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="blue">......<br>
+They know their brothers on the way.</font><br>
+<font color="Peru">......<br>
+......  day and night constantly have mindfulness of the Saṅgha.</font>
 </p>
 
 <p>
 <b>299 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+yesaṁ divā ca ratto ca niccaṁ kāyagatā sati.</font>
 </p>
 
 <p>
 <b>299 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="blue">.......<br>
+They understand the mystery of the body.</font><br>
+<font color="Peru">......<br>
+...... day and night constantly have mindfulness of the body.</font>
 </p>
 
 <p>
 <b>300 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+yesaṁ divā ca ratto ca ahiṁsāya rato mano.</font>
 </p>
 
 <p>
 <b>300 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="blue">.......<br>
+They find joy in all beings.</font><br>
+<font color="Peru">......<br>
+...... day and night have a mind that delights in non-violence.</font>
 </p>
 
 <p>
 <b>301 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+yesaṁ divā ca ratto ca bhāvanāya rato mano.</font>
 </p>
 
 <p>
 <b>301 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="blue">.......<br>
+They delight in meditation.</font><br>
+<font color="Peru">......<br>
+...... day and night have a mind that delights in cultivation.</font>
 </p>
 
 <p>
 <b>302 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Duppabbajjaṁ durabhiramaṁ, durāvāsā gharā dukhā,<br>
+dukkhosamānasaṁvāso, dukkhānupatitaddhagū,<br>
+tasmā na chaddhagū siyā, na cha dukkhānupatito siyā.</font>
 </p>
 
 <p>
 <b>302 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="blue">It is hard to live in the world<br>
+And hard to live out of it.<br>
+It is hard to be among the many.<br>
+And for the wanderer, how long is the road<br>
+Wandering through many lives!<br>
+Let him rest.<br>
+Let him not suffer<br>
+Let him not fall into suffering.</font><br>
+<font color="Peru">The going forth is hard, it is hard to find delight (therein), (but) it is (also) hard to dwell in households that are suffering,<br>
+dwelling together with those different is suffering, travellers (in the round of births) are affected by suffering,<br>
+therefore do not be a traveller, do not be affected by suffering.</font>
 </p>
 
 <p>
 <b>303 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Saddho sīlena sampanno yasobhogasamappito,<br>
+yaṁ yaṁ padesaṁ bhajati, tattha tattheva pūjito.</font>
 </p>
 
 <p>
 <b>303 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="blue">If he is a good man,<br>
+A man of faith, honoured and prosperous,<br>
+Wherever he goes he is welcome.</font><br>
+<font color="Peru">The faithful one who is endowed with virtue, and has wealth and fame<br>
+whatever district he resorts to, right there and then he is worshipped.</font>
 </p>
 
 <p>
 <b>304 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Dūre santo pakāsenti, himavanto va pabbato,<br>
+asantettha na dissanti, rattiṁ khittā yathā sarā.</font>
 </p>
 
 <p>
 <b>304 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="blue">Like the Himalayas<br>
+Good men shine from afar.
+But bad men move unseen<br>
+Like arrows in the night.</font><br>
+<font color="Peru">The good are visible from far, like a mountain covered in snow,<br>
+(but) the wicked are not seen here, just like arrows shot in the night.</font>
 </p>
 
 <p>
 <b>305 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Ekāsanaṁ ekaseyyaṁ, eko charam-atandito,<br>
+eko damayam-attānaṁ vanante ramito siyā.</font>
 </p>
 
 <p>
 <b>305 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="blue">Sit.<br>
+Rest.<br>
+Work.<br>
+Alone with yourself,<br>
+Never weary.<br>
+On the edge of the forest<br>
+Live joyfully,<br>
+Without desire.</font><br>
+<font color="Peru">Sitting alone, lying down alone, walking alone, diligent,<br>
+the solitary one who trains himself will delight in the edge of a forest.</font>
 </p>
 
 <div class="para-divider"></div>
