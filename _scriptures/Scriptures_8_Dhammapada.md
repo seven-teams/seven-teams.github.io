@@ -3477,143 +3477,158 @@ as one through training himself well, being trained by the training, goes.</font
 </p>
 
 <p>
-<b>324 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>324 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>325 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>325 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
 <b>326 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+yenicchhakaṁ yatthakāmaṁ yathāsukhaṁ,<br>
+......<br></font>
 </p>
 
 <p>
 <b>326 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... To-day this mind does not stray and is under the harmony of control ......</font><br>
+<font color="blue">......<br>
+But now I have it [mind] tamed,<br>
+I guide it,>br>
+......<br></font><br>
+<font color="Peru">......<br>
+...... today I will control it [wandering mind] wisely,<br>
+......</font>
 </p>
 
 <p>
 <b>327 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Appamādaratā hotha, sachittam-anurakkhatha,<br>
+duggā uddharathattānaṁ paṅke sanno va kuñjaro. </font>
 </p>
 
 <p>
 <b>327 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">Find joy in watchfulness; guard well your mind. Uplift yourself from your lower self, even as an elephant draws himself out of a muddy swamp. </font><br>
+<font color="blue">Awake.<br>
+Be the witness of your thoughts.<br>
+The elephant hauls himself from the mud.<br>
+In the same way drag yourself out of your sloth.</font><br>
+<font color="Peru">You should delight in heedfulness, you should always protect your mind,<br>
+you should raise yourself from this pit like the tusker sunk in the mud.</font>
 </p>
 
 <p>
 <b>328 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Sache labhetha nipakaṁ sahāyaṁ<br>
+saddhiṁcharaṁ sādhuvihāridhīraṁ,<br>
+abhibhuyya sabbāni parissayāni<br>
+chareyya tenattamano satīmā.</font>
 </p>
 
 <p>
 <b>328 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">If on the journey of life a man can find a wise and intelligent friend who is good and self-controlled, let him go with that traveller; and in joy and recollection let them overcome the dangers of the journey.</font><br>
+<font color="blue">If the traveller can find<br>
+A virtuous and wise companion<br>
+Let him go with him joyfully<br>
+And overcome the dangers of the way.</font><br>
+<font color="Peru">If you should find a prudent friend<br>
+or companion, one who lives well, a wise one,<br>
+overcoming all your troubles<br>
+you should live with that one, glad and mindful.</font>
 </p>
 
 <p>
 <b>329 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">No che labhetha nipakaṁ sahāyaṁ<br>
+saddhiṁcaraṁ sādhuvihāridhīraṁ,<br>
+rājā va raṭṭhaṁ vijitaṁ pahāya<br>
+eko chare mātaṅgaraññe va nāgo.</font>
 </p>
 
 <p>
 <b>329 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">But if on the journey of life a man cannot  find a wise and intelligent friend who is good and self-controlled, let him then travel alone, like a king who has left his country; or like a great elephant alone in the forest.</font><br>
+<font color="blue">But if you cannot find<br>
+Friend or master to go with you, Travel on alone -<br>
+Like a king who has given away his kingdom,<br>
+Like an elephant in the forest.</font><br>
+<font color="Peru">If you do not find a prudent friend<br>
+or companion, one who lives well, a wise one,<br>
+like a king who abandons his conquered kingdom<br>
+one should live alone like a solitary elephant in the forest.</font>
 </p>
 
 <p>
 <b>330 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Ekassa charitaṁ seyyo, natthi bāle sahāyatā,<br>
+eko chare na cha pāpāni kayirā,<br>
+appossukko mātaṅgaraññe va nāgo.</font>
 </p>
 
 <p>
 <b>330 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">For it is better to go alone on the path of life rather than to have a fool for a companion. With few wishes and few cares, and leaving all sins behind, let a man travel alone, like a great elephant alone in the forest.</font><br>
+<font color="blue">Travel on alone,
+Rather than with a fool for company.<br>
+Do not carry with you your mistakes.<br>
+Do not carry your cares.<br>
+Travel on alone.<br>
+Like an elephant in the forest.</font><br>
+<font color="Peru">It is better to live alone, there can be no friendship with a fool,<br>
+one should live alone and not do anything bad,<br>
+unconcerned like a solitary elephant in the forest.</font>
 </p>
 
 <p>
 <b>331 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Atthamhi jātamhi sukhā sahāyā,<br>
+tuṭṭhī sukhā yā itarītarena,<br>
+puññaṁ sukhaṁ jīvitasaṅkhayamhi,<br>
+sabbassa dukkhassa sukhaṁ pahāṇaṁ.</font>
 </p>
 
 <p>
 <b>331 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">It is sweet to have friends in need; and to share enjoyment is sweet. It is sweet to have done good before death; and to surrender all pain is sweet.</font><br>
+<font color="blue">To have friends in need is sweet<br>
+And to share happiness.<br>
+And to have done something good<br>
+Before leaving this life is sweet,<br>
+And to let go of sorrow.</font><br>
+<font color="Peru">Friends are good whenever need arises,<br>
+being content with everything is good,<br>
+at the break-up of life merit is good,<br>
+the abandoning of all suffering is good.</font>
 </p>
 
 <p>
 <b>332 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Sukhā matteyyatā loke, atho petteyyatā sukhā,<br>
+sukhā sāmaññatā loke, atho brahmaññatā sukhā.</font>
 </p>
 
 <p>
 <b>332 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">It is sweet in this world to be a mother; and to be a father is sweet. It is sweet in this world to be a monk; and to be a saintly Brahmin is sweet.</font><br>
+<font color="blue">To be a mother is sweet,<br>
+And a father.<br>
+It is sweet to live arduously,<br>
+And to master yourself.</font><br>
+<font color="Peru">Respecting one’s mother is good in the world, also respecting one’s father is good,<br>
+respecting ascetics is good in the world, also respecting (true) brahmins is good.</font>
 </p>
 
 <p>
 <b>333 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Sukhaṁ yāva jarā sīlaṁ, sukhā saddhā patiṭṭhitā,<br>
+sukho paññāya paṭilābho, pāpānaṁ akaraṇaṁ sukhaṁ.</font>
 </p>
 
 <p>
 <b>333 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">It is sweet to enjoy a lifelong virtue; and a pure firm faith is sweet. It is sweet to attain wisdom; and to be free from sin is sweet.</font><br>
+<font color="blue">O how sweet it is to enjoy life,<br>
+Living in honesty and strength!<br>
+And wisdom is sweet,<br>
+And freedom.</font><br>
+<font color="Peru">Virtuous conduct till old age is good, the establishing of faith is good,<br>
+the acquisition of wisdom is good, doing nothing wicked is good.</font>
 </p>
 
 <div class="para-divider"></div>
@@ -3626,45 +3641,19 @@ as one through training himself well, being trained by the training, goes.</font
 </p>
 
 <p>
-<b>334 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>334 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>335 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>335 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
 <b>336 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yo chetaṁ sahatī jammiṁ taṇhaṁ loke duracchayaṁ,<br>
+sokā tamhā papatanti udabindu va pokkharā.</font>
 </p>
 
 <p>
 <b>336 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">But whoever in this world overcomes his selfish carvings, his sorrows fall away from him, like drops of water  from a lotus flower.</font><br>
+<font color="blue">But if you subdue desire<br>
+Your sorrows shall fall from you<br>
+Like drops of water from a lotus flower.</font><br>
+<font color="Peru">Whoever overcomes this low craving in the world, which is difficult to get past,<br>
+griefs fall from him like a drop of water from a lotus.</font>
 </p>
 
 <p>
