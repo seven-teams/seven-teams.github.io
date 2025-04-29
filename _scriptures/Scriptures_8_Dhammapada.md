@@ -3306,199 +3306,103 @@ the solitary one who trains himself will delight in the edge of a forest.</font>
 </p>
 
 <p>
-<b>306 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>306 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>307 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>307 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>308 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>308 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>309 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>309 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>310 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>310 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
 <b>311 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+sāmaññaṁ dupparāmaṭṭhaṁ nirayāyupakaḍḍhati. </font>
 </p>
 
 <p>
 <b>311 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... the life of a monk, if imperfectly followed, will only lead him to hell.</font><br>
+<font color="blue">......<br>
+So renunciation may lead you into the dark.</font><br>
+<font color="Peru">......<br>
+so does the ascetic life, wrongly grasped, drag one down to the underworld.</font>
 </p>
 
 <p>
 <b>312 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+saṅkassaraṁ brahmachariyaṁ na taṁ hoti mahapphalaṁ.</font>
 </p>
 
 <p>
 <b>312 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... when the holy life is mot pure, no great fruit can come from such a life.</font><br>
+<font color="blue">......<br>
+If your purpose wavers,<br>
+You will not find the light.</font><br>
+<font color="Peru">......<br>
+(know that) a holy life that is doubtful does not have great fruit for that one.</font>
 </p>
 
 <p>
 <b>313 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Kayirañ-che kayirāthenaṁ, daḷham-enaṁ parakkame,<br>
+......<br></font>
 </p>
 
 <p>
 <b>313 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">When a man has something to do, let him do it with all his might. ......</font><br>
+<font color="blue">Do what you have to do<br>
+Resolutely, with all your heart.<br>
+......</font><br>
+<font color="Peru">If he would do what should be done, he should be firm in his effort,<br>
+......</font>
 </p>
 
 <p>
 <b>314 Transliteration</b><br>
 <font color="Peru">
-</font>
+Akataṁ dukkataṁ seyyo, pacchhā tapati dukkataṁ,<br>
+katañ-cha sukataṁ seyyo, yaṁ katvā nānutappati. </font>
 </p>
 
 <p>
 <b>314 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">Better to do nothing than to do what is wrong, for wrongdoing brings burning sorrow. Do therefore what is right, for good deeds never bring pain.</font><br>
+<font color="blue">It is better to do nothing<br>
+Than to do what is wrong.<br>
+For whatever you do, you do to yourself.</font><br>
+<font color="Peru">Better undone is a wrong-doing, a wrong-doing one later regrets,<br>
+better done is what is well-done, which, when done, one does not regret.</font>
 </p>
 
 <p>
 <b>315 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+evaṁ gopetha attānaṁ, khaṇo vo mā upacchagā,<br>
+khaṇātītā hi socanti nirayamhi samappitā.</font>
 </p>
 
 <p>
 <b>315 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>316 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>316 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>317 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>317 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>318 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>318 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... let a man guard himself, and let not a moment pass by in carelessness. Those who carelessly allow their life to pass by, in the end they have to suffer in hell.</font><br>
+<font color="blue">......<br>
+Guard yourself within and without.<br>
+Let not a single moment pass<br>
+Lest you fall into darkness.</font><br>
+<font color="Peru">......<br>
+so one should watch over oneself, and you should not let the moment pass,<br>
+for when the chance has passed they grieve when consigned to the underworld.</font>
 </p>
 
 <p>
 <b>319 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Vajjañ-cha vajjato ñatvā, avajjañ-cha avajjato,<br>
+sammādiṭṭhisamādānā sattā gacchhanti suggatiṁ. </font>
 </p>
 
 <p>
 <b>319 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">But those who think that wrong is wrong, and who think that right is right, they are the men of right views and they go on the upward path.</font><br>
+<font color="blue">See what is.<br>
+See what is not.<br>
+Follow the true way.<br>
+Rise.</font><br>
+<font color="Peru">Knowing blame in what is blameable, and no blame in what is blameless,<br>
+undertaking right views, beings go to a good destiny.</font>
 </p>
 
 <div class="para-divider"></div>
@@ -3511,58 +3415,65 @@ the solitary one who trains himself will delight in the edge of a forest.</font>
 
 <p>
 <b>320 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+ativākyaṁ titikkhissaṁ, dussīlo hi bahujjano.</font>
 </p>
 
 <p>
 <b>320 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">I will endure words that hurt in silent peace ......, for many people lack self-control.</font><br>
+<font color="blue">I shall endure harsh words<br>
+......</font><br>
+<font color="Peru">......<br>
+...... I endure abuse, for many people are unvirtuos.</font>
 </p>
 
 <p>
 <b>321 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+danto seṭṭho manussesu, yotivākyaṁ titikkhati.</font>
 </p>
 
 <p>
 <b>321 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... The best of men are the self-trained men, those who can endure abuse in peace.</font><br>
+<font color="blue">......<br>
+The tamed man is the master.<br>
+He can endure hard words in peace.</font><br>
+<font color="Peru">......<br>
+amongst humans one trained is best, the one who can endure abuse.</font>
 </p>
 
 <p>
 <b>322 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+...... attadanto tato varaṁ.</font>
 </p>
 
 <p>
 <b>322 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... the bets is the man who trains himself.</font><br>
+<font color="blue">......<br>
+...... the man who had mastered himself.</font><br>
+<font color="Peru">......<br>
+...... (and even) more noble than that is the one who has trained himself.</font>
 </p>
 
 <p>
 <b>323 Transliteration</b><br>
 <font color="Peru">
-</font>
+Na hi etehi yānehi gacchheyya agataṁ disaṁ,<br>
+yathattanā sudantena, danto dantena gacchhati.</font>
 </p>
 
 <p>
 <b>323 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... NIRVANA is reached by that man who wisely , heroically, trains himself.</font><br>
+<font color="blue">Not on their [horses' and elephants'] backs<br>
+Can he reach the untrodden country.<br>
+But only on his own.</font><br>
+<font color="Peru">Not by these vehicles can one go to the place beyond destinations,<br>
+as one through training himself well, being trained by the training, goes.</font>
 </p>
 
 <p>
