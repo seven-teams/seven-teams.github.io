@@ -11,7 +11,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b>You Become An Ascetic Within Yourself</b><br></font>
+<font size="+2"><b>The Most Auspicious Day To Start Anything</b><br></font>
 </p>
 
 <p>
@@ -45,7 +45,9 @@ So, today I hope, you all .. of you will pray and ask for that Eternal Love of G
 <font color="blue"><b>1998-0510 Sahasrāra Pūjā, Blessing of the Divine Pours Only if the Sahasrāra is Open (Meditation Is the Only Way You Can Enrich Yourself with the Beauty of Reality), Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
 </p>
 
-Links to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/sets/1988-0419-akshaya-tritiya-puja> NVA audio</a><br>
+Link to suggested talk: <a href="https://soundcloud.com/nirmala-vidya-portal/sets/1988-0419-akshaya-tritiya-puja"> NVA audio</a><br>
+
+Link to suggested talk: <a href="https://vimeo.com/65434993"> SL video</a><br>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
