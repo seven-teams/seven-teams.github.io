@@ -3658,324 +3658,298 @@ griefs fall from him like a drop of water from a lotus.</font>
 
 <p>
 <b>337 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Taṁ vo vadāmi: “Bhaddaṁ vo yāvantettha samāgatā”,<br>
+taṇhāya mūlaṁ khaṇatha, ......<br>
+mā vo naḷaṁ va soto va Māro ......</font>
 </p>
 
 <p>
 <b>337 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>338 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>338 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">Therefore in love I tell you, to you all who have come here: Cut off the bonds of desires ...... Be not like a reed by a stream which MARA ...... crushes again and again.</font><br>
+<font color="blue">This is good counsel<br>
+And it is for everyone:<br>
+......<br>
+Cut down desire<br>
+Lest death after death crush you<br>
+......</font><br>
+<font color="Peru">This I say to you: “Good luck to as many as have assembled here”,<br>
+dig up the root of craving, ......<br>
+do not let Māra push you down again ......</font>
 </p>
 
 <p>
 <b>339 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yassa chhattiṁsatī sotā manāpassavanā bhusā,<br>
+vāhā vahanti duddiṭṭhiṁ saṅkappā rāganissitā.</font>
 </p>
 
 <p>
 <b>339 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">When the thirty-six streams of desire than run towards pleasures are strong, their powerful waves carry away that man without vision whose imaginings are lustful desires.</font><br>
+<font color="blue">Thirty-six streams are rushing toward you!<br>
+Desire and pleasure and lust...<br>
+Play in your imagination with them<br>
+And they will sweep you away.</font><br>
+<font color="Peru">He in whom the thirty-six streams flow pleasantly and strong,<br>
+the one with wrong view is carried away by his passionate intentions.</font>
 </p>
 
 <p>
 <b>340 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+...... lataṁ jātaṁ mūlaṁ paññāya chhindatha</font>
 </p>
 
 <p>
 <b>340 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>341 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>341 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>342 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>342 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... If you see the creeper grow, cut off its roots by the power of wisdom.</font><br>
+<font color="blue">......<br>
+If you see it [strong vine] spring up,<br>
+Take care!<br>
+Pull it out by the roots.</font><br>
+<font color="Peru">.......<br>
+...... cut the creeper’s root that has arisen with wisdom.</font>
 </p>
 
 <p>
 <b>343 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+...... tasiṇaṁ vinodaye –<br>
+bhikkhu ākaṅkha’ virāgam-attano.</font>
 </p>
 
 <p>
 <b>343 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>344 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>344 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>345 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>345 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... For a monk to conquer lust he must first conquer desires.</font><br>
+<font color="blue">......<br>
+Give up desire,<br>
+Shake off your chains.</font><br>
+<font color="Peru">......<br>
+...... he should remove craving –<br>
+the monk who longs for dispassion for himself.</font>
 </p>
 
 <p>
 <b>346 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+etam-pi chhetvāna paribbajanti<br>
+anapekkhino, kāmasukhaṁ pahāya.</font>
 </p>
 
 <p>
 <b>346 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... some men cut their fetters, renounce the life of the world and start to walk on the path, leaving pleasures behind.</font><br>
+<font color="blue">......<br>
+Can you snap them [soft fetters]?
+There are those who can,<br>
+Who surrender to the world,<br>
+Forsake desire, and follow the way.</font><br>
+<font color="Peru">......<br>
+having cut this down they wander about<br>
+seeking nothing, abandoning the happiness in pleasure.</font>
 </p>
 
 <p>
 <b>347 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Ye rāgarattānupatanti sotaṁ<br>
+......<br>
+etam-pi chhetvāna vajanti dhīrā,<br>
+anapekkhino sabbadukkhaṁ pahāya.</font>
 </p>
 
 <p>
 <b>347 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... leaving sorrows behind.</font><br>
+<font color="blue">O slave of desire,<br>
+Float upon the stream.<br>
+......<br>
+Or else abandon your sorrows for the way.</font><br>
+<font color="Peru">Those who are impassioned by passion follow the stream<br>
+......<br>
+having cut this away the wise proceed,<br>
+seeking nothing, abandoning all suffering.</font>
 </p>
 
 <p>
 <b>348 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Muñcha pure, muñcha pacchhato,<br>
+majjhe muñcha, bhavassa pāragū,<br>
+sabbattha vimuttamānaso,<br>
+na punaṁ jātijaraṁ upehisi.</font>
 </p>
 
 <p>
 <b>348 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>349 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>349 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">Leave the past behind; leave the future behind; leave the present behind. Thou art then ready to go to the other shore. Never more shalt thou return to a life that ends in death.</font><br>
+<font color="blue">Abandon yesterday, and tomorrow,<br>
+And today.<br>
+Cross over to the father shore,<br>
+Beyond life and death.</font><br>
+<font color="Peru">Be free of the past, be free of the future,<br>
+be free of the present, after crossing over (all) existence,<br>
+with mind liberated in every way,<br>
+you will not return to birth and old age.</font>
 </p>
 
 <p>
 <b>350 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Vitakkupasame cha yo rato<br>
+asubhaṁ bhāvayatī sadā sato,<br>
+esa kho vyantikāhiti,<br>
+esacchhecchhati Mārabandhanaṁ.</font>
 </p>
 
 <p>
 <b>350 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">But he who enjoys peaceful thoughts, who considers the sorrows of pleasures, and who ever remembers the light of his life - he will see the end of his cravings, he will break the chains of death.</font><br>
+<font color="blue">Quieten your mind.<br>
+Reflect.<br>
+Watch.<br>
+Nothing binds you.<br>
+You are free.<br>
+You are strong.</font><br>
+<font color="Peru">Whoever has delight in the calming of thoughts,<br>
+who always mindfully cultivates what is unattractive,<br>
+will surely abolish this (craving),<br>
+he will cut off the bond of Māra.</font>
 </p>
 
 <p>
 <b>351 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Niṭṭhaṁ gato asantāsī, vītataṇho anaṅgaṇo,<br>
+acchindi bhavasallāni, antimoyaṁ samussayo.</font>
 </p>
 
 <p>
 <b>351 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">He has reached the end of his journey, he trembles not, his cravings are gone, he is free from sin, he has burnt the thorns of life: this is the last mortal body.</font><br>
+<font color="blue">You have come to the end.<br>
+Free from passion and desire,<br>
+You have stripped the thorns from the stem.<br>
+This is you last body.</font><br>
+<font color="Peru">Having gone to the end, without trembling, without craving, without impurity,<br>
+cutting off the darts of existence, this one is his final body.</font>
 </p>
 
 <p>
 <b>352 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Vītataṇho anādāno, niruttipadakovido,<br>
+akkharānaṁ sannipātaṁ jaññā pubbaparāni cha,<br>
+sa ve antimasārīro mahāpañño (mahāpuriso) ti vucchati.</font>
 </p>
 
 <p>
 <b>352 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">He is free from lust, he is free from grid, he knows the meaning of words, and the meaning of their combinations, he is a great man, a great man who sees the Light: this is the last mortal body.</font><br>
+<font color="blue">You are wise.<br>
+You are free from desire<br>
+And you understand words<br>
+And the stitching together of words.<br>
+And you want nothing.</font><br>
+<font color="Peru">Without craving, without attachment, skilled in words and their explanation,<br>
+knowing how syllables are arranged, which come before and which after,<br>
+the one in his final body is said to be (a great person), one of great wisdom.</font>
 </p>
 
 <p>
 <b>353 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Sabbābhibhū sabbavidūham-asmi,<br>
+sabbesu dhammesu anūpalitto,<br>
+sabbañjaho taṇhakkhaye vimutto,<br>
+sayaṁ abhiññāya, kam-uddiseyyaṁ.</font>
 </p>
 
 <p>
 <b>353 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">I have conquered al; I know all, and my life is pure; I have left all, and I am free from craving. I myself found the way. Whom shall I call Teacher? Whom shall I teach?</font><br>
+<font color="blue">"Victory is mine,<br>
+Knowledge is mine,<br>
+And all purity,<br>
+All surrender.<br>
+"I want nothing. I am free.<br>
+I found my way.<br>
+What shall I call Teacher?</font><br>
+<font color="Peru">All-Conquering, All-Wise am I,<br>
+undefiled regarding all things,<br>
+having given up everything, liberated through craving’s destruction,<br>
+when having deep knowledge myself, who should I point to (as Teacher)?</font>
 </p>
 
 <p>
 <b>354 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Sabbadānaṁ Dhammadānaṁ jināti,<br>
+sabbaṁ rasaṁ Dhammaraso jināti,<br>
+sabbaṁ ratiṁ Dhammaratiṁ jināti,<br>
+taṇhakkhayo sabbadukkhaṁ jināti.</font>
 </p>
 
 <p>
 <b>354 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>355 Transliteration</b><br>
-<font color="Peru">
-</font>
-</p>
-
-<p>
-<b>355 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">The gift of Truth conqueres all gifts. The taste of Truth conquers all sweetness. The Joy of Truth conquers all pleasures. The loss of desires conquers all sorrows.</font><br>
+<font color="blue">The gift of truth is beyond giving.<br>
+The taste beyond sweetness,<br>
+The joy beyond joy.<br>
+The end of desire is the end of sorrow.</font><br>
+<font color="Peru">The gift of the Dhamma surpasses all other gifts,<br>
+the taste of the Dhamma surpasses all other tastes,<br>
+the love of the Dhamma surpasses all other loves,<br>
+destruction of craving overcomes all suffering.</font>
 </p>
 
 <p>
 <b>356 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+...... hi vītarāgesu dinnaṁ hoti mahapphalaṁ. </font>
 </p>
 
 <p>
 <b>356 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... offerings given to those free from passion bring a great reward.</font><br>
+<font color="blue">......<br>
+What you give to him<br>
+Will be given back to you,<br>
+And more.</font><br>
+<font color="Peru">......<br>
+......  there is great fruit for that given to those without passion.</font>
 </p>
 
 <p>
 <b>357 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+...... hi vītadosesu dinnaṁ hoti mahapphalaṁ. </font>
 </p>
 
 <p>
 <b>357 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... offerings given to those free from hate bring a great reward.</font><br>
+<font color="Peru">......<br>
+......  there is great fruit for that given to those without hatred.</font>
 </p>
 
 <p>
 <b>358 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+...... hi vītamohesu dinnaṁ hoti mahapphalaṁ.</font>
 </p>
 
 <p>
 <b>358 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... offerings given to those free from illusion bring a great reward.</font><br>
+<font color="Peru">......<br>
+...... there is great fruit for that given to those without delusion.</font>
 </p>
 
 <p>
 <b>359 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+...... hi vigaticchhesu dinnaṁ hoti mahapphalaṁ.</font>
 </p>
 
 <p>
 <b>359 Translations</b><br>
-<font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="DarkGreen">...... offerings given to those free from desire bring a great reward.</font><br>
+<font color="Peru">......<br>
+...... there is great fruit for that given to those without desire.</font>
 </p>
 
 <div class="para-divider"></div>
