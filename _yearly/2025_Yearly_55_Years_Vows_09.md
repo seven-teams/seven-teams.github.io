@@ -1,7 +1,7 @@
 ---
 title: '2025 Celebrating 55 Years of Commitments, Decisions, Oaths, Pledges, Promises, and Vows, Post 9 on Akṣhaya Tṛitīya'
-date: 2025-04-10
-permalink: /yearly/2025/0410
+date: 2025-04-29
+permalink: /yearly/2025/0429
 tags:
   - crimson @ 55 Years of Commitments, Decisions, Oaths, Pledges, Promises, and Vows
 ---
@@ -15,7 +15,7 @@ tags:
 </p>
 
 <p>
-"Akṣhay means the thing that cannot be destroyed, can... cannot be turnished, that cannot be challenged. And that is on third day of the Moon, is Tṛitīya."<br>
+"Akṣhay means the thing that cannot be destroyed, can... cannot be tarnished, that cannot be challenged. And that is on third day of the Moon, is Tṛitīya."<br>
 <font color="blue"><b>1999-0418 Akṣhaya Tṛitīya Pūjā, Mumbai, Maharashtra, India</b></font><br>
 </p>
 
