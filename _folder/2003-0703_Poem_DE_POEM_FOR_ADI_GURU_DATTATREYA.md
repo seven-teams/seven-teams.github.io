@@ -14,7 +14,7 @@ tags:
 
 <br>
 
-<p>
+<p style="text-align:center;">
 As the wisps of smoke gently spiral upwards<br>
 To reveal the beauty hidden,<br>
 So it is that the veil of illusion<br>
