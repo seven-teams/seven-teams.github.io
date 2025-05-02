@@ -3029,30 +3029,26 @@ Nibbāna taught by the Happy One.</font>
 
 <p>
 <b>286 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru"></font>
 </p>
 
 <p>
 <b>286 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru"></font>
 </p>
 
 <p>
 <b>287 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru"></font>
 </p>
 
 <p>
 <b>287 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru"></font>
 </p>
 
 <p>
@@ -4317,562 +4313,582 @@ knowing the destruction of the conditioned, be one who knows that which is not m
 
 <p>
 <b>384 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yadā dvayesu dhammesu pāragū hoti brāhmaṇo,<br>
+athassa sabbe saṁyogā atthaṁ gacchhanti jānato. </font>
 </p>
 
 <p>
 <b>384 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
+<font color="Peru">When a brahmin has, through two things [calmness (samatha) and insight (vipassanā)], crossed over,
+then, for one who knows, all the fetters are laid to rest.
 </font>
 </p>
 
 <p>
 <b>385 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yassa pāraṁ apāraṁ vā pārāpāraṁ na vijjati,<br>
+vītaddaraṁ visaṁyuttaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>385 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">For whom the near shore, the far shore or both do not exist,<br>
+free of anxiety, being detached, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>386 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Jhāyiṁ virajam-āsīnaṁ, katakicchaṁ anāsavaṁ,<br>
+uttamatthaṁ anuppattaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>386 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">The meditator sitting down, the one who is dustless, who has done his duty, without pollutants,<br>
+who has reached the ultimate good, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>387 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Divā tapati ādiccho, rattiṁ ābhāti chandimā,<br>
+sannaddho khattiyo tapati, jhāyī tapati brāhmaṇo,<br>
+atha sabbam-ahorattiṁ Buddho tapati tejasā. </font>
 </p>
 
 <p>
 <b>387 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">The sun is radiant by day, the moon shines by night,<br>
+the accoutred noble is radiant, the meditating brahmin is radiant,<br>
+yet every day and night the Buddha is radiant through his power.</font>
 </p>
 
 <p>
 <b>388 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Bāhitapāpo ti brāhmaṇo,<br>
+samachariyā samaṇo ti vucchati,<br>
+pabbājayam-attano malaṁ<br>
+tasmā pabbajito ti vucchati.</font>
 </p>
 
 <p>
 <b>388 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Warding off wickedness one is called a brahmin,<br>
+one living austerely is said to be an ascetic,<br>
+because of driving forth (all) stain from oneself<br>
+one is said to be one who has gone forth.</font>
 </p>
 
 <p>
 <b>389 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Na brāhmaṇassa pahareyya, nāssa muñchetha brāhmaṇo,<br>
+dhī brāhmaṇassa hantāraṁ, tato: dhī yassa muñchati.</font>
 </p>
 
 <p>
 <b>389 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">A brahmin should not hit a brahmin, nor should he abandon him,<br>
+woe to the one who strikes a brahmin, further: woe to the one who abandons him.</font>
 </p>
 
 <p>
 <b>390 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Na brāhmaṇass’ etad-akiñchi seyyo:<br>
+yadā nisedho manaso piyehi,<br>
+yato yato hiṁsamano nivattati,<br>
+tato tato sammati-m-eva dukkhaṁ.</font>
 </p>
 
 <p>
 <b>390 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">It is no little good for the brahmin:<br>
+when the mind is held back from what is dear,<br>
+whenever his mind turns back from violence,<br>
+then there is a calming of suffering.</font>
 </p>
 
 <p>
 <b>391 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yassa kāyena vāchāya manasā natthi dukkataṁ,<br>
+saṁvutaṁ tīhi ṭhānehi, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>391 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">For whom there is no wrong-doing bodily, verbally or mentally,<br>
+being restrained in (these) three things, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>392 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yamhā Dhammaṁ vijāneyya Sammāsambuddhadesitaṁ,<br>
+sakkacchaṁ taṁ namasseyya, aggihuttaṁ va brāhmaṇo.</font>
 </p>
 
 <p>
 <b>392 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">That one from whom one learned Dhamma taught by the Perfect Sambuddha,<br>
+with respect bow down to him, like a brahmin (bows) at fire-sacrifice.</font>
 </p>
 
 <p>
 <b>393 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Na jaṭāhi na gottena, na jacchā hoti brāhmaṇo,<br>
+yamhi sacchañ-cha Dhammo cha, so suchī so va brāhmaṇo.</font>
 </p>
 
 <p>
 <b>393 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Not because of matted hair, family or birth is one a true brahmin,<br>
+in whom there is truth and Dhamma, that one is pure, that one is surely a brahmin.</font>
 </p>
 
 <p>
 <b>394 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Kiṁ te jaṭāhi dummedha, kiṁ te ajinasāṭiyā?<br>
+Abbhantaraṁ te gahanaṁ, bāhiraṁ parimajjasi.</font>
 </p>
 
 <p>
 <b>394 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Why do you have your hair matted, stupid one, and why your deer-skin?<br>
+Within you there is a jungle,1 you (only) polish the outside.</font>
 </p>
 
 <p>
 <b>395 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Paṁsukūladharaṁ jantuṁ, kisaṁ dhamanisanthataṁ,<br>
+ekaṁ vanasmiṁ jhāyantaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>395 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">That one who wears discarded clothes, who is lean2 with protruding veins,<br>
+who meditates alone in the forest, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>396 Transliteration</b><br>
 <font color="Peru">
-</font>
+Na chāhaṁ brāhmaṇaṁ brūmi yonijaṁ mattisambhavaṁ,<br>
+bhovādī nāma so hoti sache hoti sakiñchano;<br>
+akiñchanaṁ anādānaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>396 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">I do not call one a brahmin simply because of being born from a (certain) womb,<br>
+that one is just one who says 'bho' [addressing non-Brahmins in an inferior way] if he is attached;
+having nothing and unattached, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>397 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Sabbasaṁyojanaṁ chhetvā yo ve na paritassati,<br>
+saṅgātigaṁ visaṁyuttaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>397 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Whoever has cut off all the fetters surely does not tremble,<br>
+surmounting attachments, detached, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>398 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Chhetvā naddhiṁ varattañ-cha, sandānaṁ sahanukkamaṁ,<br>
+ukkhittapalighaṁ buddhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>398 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">(Whoever) has cut off the thong, the strap, the rope, together with the bridle,<br>
+who has thrown off the obstacle and is awakened, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>399 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Akkosaṁ vadhabandhañ-cha aduṭṭho yo titikkhati,<br>
+khantībalaṁ balānīkaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>399 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Whoever, being pure, forbears with punishment, bondage and abuse,<br>
+having the strength of endurance, having an army of strengths, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>400 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Akkodhanaṁ vatavantaṁ, sīlavantaṁ anussutaṁ,<br>
+dantaṁ antimasārīraṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>400 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">(Whoever is) controlled of mind, dutiful, virtuous, taint-free,<br>
+well-trained and in his last body, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>401 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+yo na lippati kāmesu, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>401 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+he who is unsmeared by desires, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>402 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yo dukkhassa pajānāti idheva khayam-attano,<br>
+pannabhāraṁ visaṁyuttaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>402 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Whoever knows right here the destruction of his suffering,<br>
+putting down the burden, detached, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>403 Transliteration</b><br>
 <font color="Peru">
-</font>
+Gambhīrapaññaṁ medhāviṁ, maggāmaggassa kovidaṁ,<br>
+uttamatthaṁ anuppattaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>403 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">The deeply wise sagacious one, skilled in what is path and not path,<br>
+who has reached the ultimate good, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>404 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Asaṁsaṭṭhaṁ gahaṭṭhehi anāgārehi chūbhayaṁ,<br>
+anokasāriṁ appicchhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>404 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">(Whoever) doesn’t mix with either householders or the houseless,<br>
+wandering homeless, with few desires, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>405 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Nidhāya daṇḍaṁ bhūtesu tasesu thāvaresu cha,<br>
+yo na hanti na ghāteti, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>405 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Whoever has laid down the stick (used) against fearful and fearless beings,<br>
+who neither hurts nor kills, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>406 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Aviruddhaṁ viruddhesu, attadaṇḍesu nibbutaṁ,<br>
+sādānesu anādānaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>406 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Being friendly with the hostile, calm amongst those holding a stick,<br>
+not attached amongst those attached, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>407 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yassa rāgo cha doso cha māno makkho cha pātito,<br>
+sāsapo-r-iva āraggā, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>407 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Whoever has dropped off passion and hatred, conceit and anger,<br>
+like a mustard seed from a needle, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>408 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Akakkasaṁ viññapaniṁ giraṁ sacchaṁ udīraye,<br>
+yāya nābhisaje kañchi, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>408 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">(Whoever) speaks a word of truth that is informed and is not coarse,<br>
+through which no one would be angry, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>409 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yodha dīghaṁ va rassaṁ vā aṇuṁ-thūlaṁ subhāsubhaṁ,<br>
+loke adinnaṁ nādiyati, tam-ahaṁ brūmi brāhmaṇaṁ. </font>
 </p>
 
 <p>
 <b>409 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Whoever in the world does not take what is not given, long, short,<br>
+small, large, attractive or unattractive, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>410 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Āsā yassa na vijjanti asmiṁ loke paramhi cha,<br>
+nirāsayaṁ visaṁyuttaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>410 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">For the one who has no longings in this world or in the next world,<br>
+being without longings, detached, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>411 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yassālayā na vijjanti, aññāya akathaṅkathī,<br>
+amatogadhaṁ anuppattaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>411 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">For the one who has no desires, who, through knowledge, is without doubt,<br>
+who has reached immersion in the deathless, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>412 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yodha puññañ-cha pāpañ-cha ubho saṅgaṁ upacchagā,<br>
+asokaṁ virajaṁ suddhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>412 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Whoever here has overcome clinging to both merit and demerit,<br>
+who is griefless, dustless and pure, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>413 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Chandaṁ va vimalaṁ suddhaṁ, vippasannam-anāvilaṁ,<br>
+nandībhavaparikkhīṇaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>413 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">(Whoever) just like the moon is stainless, pure, clear and undisturbed,<br>
+has destroyed joy in existence, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>414 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yo imaṁ palipathaṁ duggaṁ saṁsāraṁ moham-acchagā,<br>
+tiṇṇo pāragato jhāyī, anejo akathaṅkathī,<br>
+anupādāya nibbuto, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>414 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">He who has crossed the difficult and dangerous path through births and deaths and delusion,<br>
+
+the meditator who has crossed over to the further shore, free of lust and free of doubt,<br>
+unattached and cooled down, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>415 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yodha kāme pahatvāna anāgāro paribbaje,<br>
+kāmabhavaparikkhīṇaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>415 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Whoever, giving up sensual desires, would wander homeless here,<br>
+destroying desires and existence, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>416 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yodha taṇhaṁ pahatvāna, anāgāro paribbaje,<br>
+taṇhābhavaparikkhīṇaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>416 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Whoever, giving up craving, would wander homeless here,<br>
+destroying craving and existence, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>417 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Hitvā mānusakaṁ yogaṁ, dibbaṁ yogaṁ upacchagā,<br>
+sabbayogavisaṁyuttaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>417 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Abandoning the human yoke, overcoming the divine yoke,<br>
+being unattached to all yokes, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>418 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Hitvā ratiñ-cha aratiñ-cha, sītibhūtaṁ nirūpadhiṁ,<br>
+sabbalokābhibhuṁ vīraṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>418 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Abandoning delight and aversion, cooled off and free from cleaving,<br>
+a hero who vanquished the whole world, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>419 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Chutiṁ yo vedi sattānaṁ upapattiñ-cha sabbaso,<br>
+asattaṁ sugataṁ buddhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>419 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Whoever knows in every way beings’ passing and their rebirth,<br>
+unattached, fortunate, awake, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>420 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yassa gatiṁ na jānanti devā gandhabbamānusā –<br>
+khīṇāsavaṁ Arahantaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>420 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">For the one whose destiny is unknown to gods, gandhabbas and men –<br>
+being pollutant-free, an Arahat, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>421 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yassa pure cha pacchhā cha majjhe cha natthi kiñchanaṁ,<br>
+akiñchanaṁ anādānaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>421 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">For whom there is nothing in the past, the future or the present,<br>
+having nothing and unattached, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>422 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Usabhaṁ pavaraṁ vīraṁ, mahesiṁ vijitāvinaṁ,<br>
+anejaṁ nhātakaṁ buddhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>422 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">A noble leader, heroic, a great seer, victorious,<br>
+free of lust, cleansed and awakened, that one I say is a brahmin.</font>
 </p>
 
 <p>
 <b>423 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Pubbenivāsaṁ yo vedī, saggāpāyañ-cha passati,<br>
+atho jātikkhayaṁ patto, abhiññāvosito muni,<br>
+sabbavositavosānaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 </p>
 
 <p>
 <b>423 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Whoever knows their former lives, and sees heaven and the downfall,<br>
+and has attained birth’s destruction, the sage, accomplished in deep knowledge,<br>
+who is accomplished in all accomplishments, that one I say is a brahmin.</font>
 </p>
 
 <div class="para-divider"></div>
