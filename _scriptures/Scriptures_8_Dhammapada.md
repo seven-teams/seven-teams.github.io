@@ -343,7 +343,7 @@ delight in the domain of the Noble.</font>
 <p>
 <b>23 Transliteration</b><br>
 <font color="Peru">Te jhāyino sātatikā, niccaṁ daḷhaparakkamā,<br>
-phusanti dhīrā Nibbānaṁ, yogakkhemaṁ anuttaraṁ. </font>
+phusanti dhīrā Nibbānaṁ, yogakkhemaṁ anuttaraṁ.</font>
 </p>
 
 <p>
@@ -396,7 +396,7 @@ the sage should make an island that no flood waters can overcome.</font>
 <p>
 <b>29 Transliteration</b><br>
 <font color="Peru">Appamatto pamattesu, suttesu bahujāgaro,<br>
-abalassaṁ va sīghasso hitvā, yāti sumedhaso. </font>
+abalassaṁ va sīghasso hitvā, yāti sumedhaso.</font>
 </p>
 
 <p>
@@ -1108,7 +1108,7 @@ the wise one should purify the self of defilements of mind.</font>
 <p>
 <b>90 Transliteration</b><br>
 <font color="Peru">Gataddhino visokassa vippamuttassa sabbadhi,<br>
-sabbaganthappahīnassa, pariḷāho na vijjati. </font>
+sabbaganthappahīnassa, pariḷāho na vijjati.</font>
 </p>
 
 <p>
@@ -1672,7 +1672,7 @@ When the self is well-trained, one finds a friend that is hard to find.</font>
 <p>
 <b>163 Transliteration</b><br>
 <font color="Peru">......<br>
-yaṁ ve hitañ-cha sādhuñ-cha taṁ ve paramadukkaraṁ. </font>
+yaṁ ve hitañ-cha sādhuñ-cha taṁ ve paramadukkaraṁ.</font>
 </p>
 
 <p>
@@ -1703,7 +1703,7 @@ purity and impurity come from oneself, (for) no one can purify another.</font>
 <p>
 <b>166 Transliteration</b><br>
 <font color="Peru">Atta-d-atthaṁ paratthena bahunā pi na hāpaye;<br>
-atta-d-attham-abhiññāya sa-d-atthapasuto siyā. </font>
+atta-d-attham-abhiññāya sa-d-atthapasuto siyā.</font>
 </p>
 
 <p>
@@ -1746,7 +1746,7 @@ living by Dhamma one lives at ease in this world and the next.</font>
 <p>
 <b>170 Transliteration</b><br>
 <font color="Peru">Yathā bubbulakaṁ passe, yathā passe marīchikaṁ,<br>
-evaṁ lokaṁ avekkhantaṁ Macchurājā na passati. </font>
+evaṁ lokaṁ avekkhantaṁ Macchurājā na passati.</font>
 </p>
 
 <p>
@@ -1881,7 +1881,7 @@ it is rare to hear the True Dhamma, rare the arising of Buddhas.</font>
 <p>
 <b>183 Transliteration</b><br>
 <font color="Peru">Sabbapāpassa akaraṇaṁ, kusalassa upasampadā,<br>
-sacittapariyodapanaṁ - etaṁ Buddhāna’ sāsanaṁ. </font>
+sacittapariyodapanaṁ - etaṁ Buddhāna’ sāsanaṁ.</font>
 </p>
 
 <p>
@@ -2061,7 +2061,7 @@ we will feed on joy like the gods of Streaming Light.</font>
 <p>
 <b>201 Transliteration</b><br>
 <font color="Peru">Jayaṁ veraṁ pasavati, dukkhaṁ seti parājito,<br>
-upasanto sukhaṁ seti, hitvā jayaparājayaṁ. </font>
+upasanto sukhaṁ seti, hitvā jayaparājayaṁ.</font>
 </p>
 
 <p>
@@ -2657,7 +2657,7 @@ khemī averī abhayo, paṇḍito ti pavucchati.</font>
 
 <p>
 <b>258 Translations</b><br>
-<font color="DarkGreen">...... but if he is peaceful, loving and fearless then he is in truth called wise. </font><br>
+<font color="DarkGreen">...... but if he is peaceful, loving and fearless then he is in truth called wise.</font><br>
 <font color="blue">......<br>
 Be quiet,<br>
 And loving and fearless.<br>
@@ -2906,7 +2906,7 @@ When you see this, you are above sorrow.<br>
 
 <p>
 <b>278 Translations</b><br>
-<font color="DarkGreen">'All is sorrow.' ...... </font><br>
+<font color="DarkGreen">'All is sorrow.' ......</font><br>
 <font color="blue">"Existence is sorrow."<br>
 ......</font><br>
 <font color="Peru">All conditions are suffering, ......</font>
@@ -2935,7 +2935,7 @@ ārādhaye maggaṁ isippaveditaṁ.</font>
 
 <p>
 <b>281 Translations</b><br>
-<font color="DarkGreen">A man should control his words and mind and should not do any harm with his body. If these ways of action are pure he can make progress on the pass of the wise. </font><br>
+<font color="DarkGreen">A man should control his words and mind and should not do any harm with his body. If these ways of action are pure he can make progress on the pass of the wise.</font><br>
 <font color="blue">Master your words.<br>
 Master your thoughts.<br>
 Never allow your body to do harm.<br>
@@ -3308,7 +3308,7 @@ the solitary one who trains himself will delight in the edge of a forest.</font>
 <p>
 <b>311 Transliteration</b><br>
 <font color="Peru">......<br>
-sāmaññaṁ dupparāmaṭṭhaṁ nirayāyupakaḍḍhati. </font>
+sāmaññaṁ dupparāmaṭṭhaṁ nirayāyupakaḍḍhati.</font>
 </p>
 
 <p>
@@ -3356,7 +3356,7 @@ Resolutely, with all your heart.<br>
 <b>314 Transliteration</b><br>
 <font color="Peru">
 Akataṁ dukkataṁ seyyo, pacchhā tapati dukkataṁ,<br>
-katañ-cha sukataṁ seyyo, yaṁ katvā nānutappati. </font>
+katañ-cha sukataṁ seyyo, yaṁ katvā nānutappati.</font>
 </p>
 
 <p>
@@ -3391,7 +3391,7 @@ for when the chance has passed they grieve when consigned to the underworld.</fo
 <p>
 <b>319 Transliteration</b><br>
 <font color="Peru">Vajjañ-cha vajjato ñatvā, avajjañ-cha avajjato,<br>
-sammādiṭṭhisamādānā sattā gacchhanti suggatiṁ. </font>
+sammādiṭṭhisamādānā sattā gacchhanti suggatiṁ.</font>
 </p>
 
 <p>
@@ -3498,12 +3498,12 @@ I guide it,>br>
 <p>
 <b>327 Transliteration</b><br>
 <font color="Peru">Appamādaratā hotha, sachittam-anurakkhatha,<br>
-duggā uddharathattānaṁ paṅke sanno va kuñjaro. </font>
+duggā uddharathattānaṁ paṅke sanno va kuñjaro.</font>
 </p>
 
 <p>
 <b>327 Translations</b><br>
-<font color="DarkGreen">Find joy in watchfulness; guard well your mind. Uplift yourself from your lower self, even as an elephant draws himself out of a muddy swamp. </font><br>
+<font color="DarkGreen">Find joy in watchfulness; guard well your mind. Uplift yourself from your lower self, even as an elephant draws himself out of a muddy swamp.</font><br>
 <font color="blue">Awake.<br>
 Be the witness of your thoughts.<br>
 The elephant hauls himself from the mud.<br>
@@ -3899,7 +3899,7 @@ destruction of craving overcomes all suffering.</font>
 <p>
 <b>356 Transliteration</b><br>
 <font color="Peru">......<br>
-...... hi vītarāgesu dinnaṁ hoti mahapphalaṁ. </font>
+...... hi vītarāgesu dinnaṁ hoti mahapphalaṁ.</font>
 </p>
 
 <p>
@@ -3916,7 +3916,7 @@ And more.</font><br>
 <p>
 <b>357 Transliteration</b><br>
 <font color="Peru">......<br>
-...... hi vītadosesu dinnaṁ hoti mahapphalaṁ. </font>
+...... hi vītadosesu dinnaṁ hoti mahapphalaṁ.</font>
 </p>
 
 <p>
@@ -3963,324 +3963,333 @@ And more.</font><br>
 
 <p>
 <b>360 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Chakkhunā saṁvaro sādhu, sādhu sotena saṁvaro,
+ghāṇena saṁvaro sādhu, sādhu jivhāya saṁvaro,</font>
 </p>
 
 <p>
 <b>360 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Restraint of eye is good, restraint of ear is good,<br>
+restraint of nose is good, restraint of tongue is good,<br></font>
 </p>
 
 <p>
 <b>361 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">kāyena saṁvaro sādhu, sādhu vāchāya saṁvaro,
+manasā saṁvaro sādhu, sādhu sabbattha saṁvaro,
+sabbattha saṁvuto bhikkhu sabbadukkhā pamucchati.</font>
 </p>
 
 <p>
 <b>361 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">restraint of body is good, restraint of speech is good,<br>
+restraint of mind is good, restraint is everywhere good,<br>
+a monastic who is restrained everywhere is liberated from all suffering.</font>
 </p>
 
 <p>
 <b>362 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Hatthasaṁyatŏ pādasaṁyato,<br>
+vāchāya saṁyatŏ saṁyatuttamo,<br>
+ajjhattarato samāhito,<br>
+eko santusito: tam-āhu bhikkhuṁ.</font>
 </p>
 
 <p>
 <b>362 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">One who controls his hands, controls his feet,<br>
+controls his speech, controls the (mind) supreme,<br>
+with inner delight2 and composure,<br>
+solitary, content: that one is called a monastic.</font>
 </p>
 
 <p>
 <b>363 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yo mukhasaṁyato bhikkhu, mantabhāṇī anuddhato,<br>
+atthaṁ Dhammañ-cha dīpeti, madhuraṁ tassa bhāsitaṁ.</font>
 </p>
 
 <p>
 <b>363 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">That monastic who restrains the mouth, who speaks well, and who is modest,<br>
+who explains the meaning of the Dhamma, his speech is sweet.</font>
 </p>
 
 <p>
 <b>364 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Dhammārāmo Dhammarato, Dhammaṁ anuvicintayaṁ,<br>
+Dhammaṁ anussaraṁ bhikkhu, Saddhammā na parihāyati.</font>
 </p>
 
 <p>
 <b>364 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">The one who finds pleasure in the Dhamma, delights in Dhamma, reflects on Dhamma,<br>
+the monastic who remembers Dhamma, does not abandon the Good Dhamma.</font>
 </p>
 
 <p>
 <b>365 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Salābhaṁ nātimaññeyya, nāññesaṁ pihayaṁ chare,<br>
+aññesaṁ pihayaṁ bhikkhu samādhiṁ nādhigacchhati.</font>
 </p>
 
 <p>
 <b>365 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">One should not despise one’s own gains, one should not live envious of others,<br>
+the monastic who is envious of others does not attain concentration.</font>
 </p>
 
 <p>
 <b>366 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+taṁ ve devā pasaṁsanti suddhājīviṁ atanditaṁ.</font>
 </p>
 
 <p>
 <b>366 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+even the very gods praise the one of pure life who is diligent.</font>
 </p>
 
 <p>
 <b>367 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Sabbaso nāmarūpasmiṁ yassa natthi mamāyitaṁ,<br>
+asatā cha na sochati, sa ve bhikkhū ti vucchati.</font>
 </p>
 
 <p>
 <b>367 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">The one who does not have fondness at all for mind and body,<br>
+and who grieves not for what does not exist, is surely called a monastic.</font>
 </p>
 
 <p>
 <b>368 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Mettāvihārī yo bhikkhu, pasanno Buddhasāsane,<br>
+adhigacchhe padaṁ santaṁ, saṅkhārūpasamaṁ sukhaṁ.</font>
 </p>
 
 <p>
 <b>368 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">That monastic who dwells in loving-kindness, with faith in Buddha’s dispensation,<br>
+should attain the state of peace, the joy in stilling of (all) conditions.</font>
 </p>
 
 <p>
 <b>369 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Siñcha bhikkhu imaṁ nāvaṁ, sittā te lahum-essati,<br>
+chhetvā rāgañ-cha dosañ-cha, tato Nibbānam-ehisi.</font>
 </p>
 
 <p>
 <b>369 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Please bail out this boat, monastic, when bailed out it will go lightly,<br>
+cutting off passion and hatred, from here one will go to Nibbāna.</font>
 </p>
 
 <p>
 <b>370 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Pañcha chhinde, pañcha jahe, pañcha chuttaribhāvaye,<br>
+pañcha saṅgātigo bhikkhu oghatiṇṇo ti vucchati.</font>
 </p>
 
 <p>
 <b>370 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">One should cut off five, one should abandon five, one should cultivate five more,<br>
+the monastic who surmounts five attachments is called a flood-crosser.</font>
 </p>
 
 <p>
 <b>371 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Jhāya, bhikkhu, mā cha pāmado,<br>
+mā te kāmaguṇe bhamassu chittaṁ,</font>
 </p>
 
 <p>
 <b>371 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Meditate, monastic, do not be heedless,<br>
+do not let your mind swirl around in strands of desire,<br>
+......<br></font>
 </p>
 
 <p>
 <b>372 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+yamhi jhānañ-cha paññā cha sa ve Nibbānasantike.</font>
 </p>
 
 <p>
 <b>372 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+the one who has both concentration and wisdom is indeed in the presence of Nibbāna.</font>
 </p>
 
 <p>
 <b>373 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Suññāgāraṁ paviṭṭhassa, santachittassa bhikkhuno,<br>
+amānusī ratī hoti sammā Dhammaṁ vipassato.</font>
 </p>
 
 <p>
 <b>373 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">For the one who has entered an empty place, a monastic with a peaceful mind,<br>
+there is superhuman delight from insight into true Dhamma.</font>
 </p>
 
 <p>
 <b>374 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yato yato sammasati khandhānaṁ udayabbayaṁ<br>
+labhatī pītipāmojjaṁ, amataṁ taṁ vijānataṁ.</font>
 </p>
 
 <p>
 <b>374 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Whoever has right mindfulness regarding the rise and fall of the components (of mind and body)<br>
+gains joy and happiness, that is the deathless state for the one who knows.</font>
 </p>
 
 <p>
 <b>375 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Tatrāyam-ādi bhavati idha paññassa bhikkhuno:<br>
+indriyagutti santuṭṭhī: pātimokkhe cha saṁvaro.</font>
 </p>
 
 <p>
 <b>375 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">This is the very beginning for the wise monastic here:<br>
+contentment, guarding the senses, and restraint in the regulations.</font>
 </p>
 
 <p>
 <b>376 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Mitte bhajassu kalyāṇe suddhājīve atandite,<br>
+paṭisanthāravuttassa ācārakusalo siyā,
+......<br></font>
 </p>
 
 <p>
 <b>376 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">One should resort to spiritual friends, ones of pure life, ones who are diligent,<br>
+one should be of friendly disposition, one who will be skillful in his conduct,<br>
+......<br></font>
 </p>
 
 <p>
 <b>377 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+...... rāgañ-cha dosañ-cha vippamuñcetha bhikkhavo</font>
 </p>
 
 <p>
 <b>377 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">......<br>
+...... monastics, cast off (all) passion and hatred.</font>
 </p>
 
 <p>
 <b>378 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Santakāyo santavācho, santavā susamāhito,<br>
+vantalokāmiso bhikkhu upasanto ti vucchati.</font>
 </p>
 
 <p>
 <b>378 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Calm in body and calm in speech, having calmness and composure,<br>
+having thrown off worldly gain the monastic is called one at peace.</font>
 </p>
 
 <p>
 <b>379 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Attanā chodayattānaṁ, paṭimāsettam-attanā,<br>
+so attagutto satimā sukhaṁ bhikkhu vihāhisi.</font>
 </p>
 
 <p>
 <b>379 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">By oneself one should censure self, by oneself one should be controlled,<br>
+he who guards himself, mindful, will live happily, monastic.</font>
 </p>
 
 <p>
 <b>380 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Attā hi attano nātho, attā hi attano gati,<br>
+tasmā saṁyamayattānaṁ assaṁ ......</font>
 </p>
 
 <p>
 <b>380 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Self is the protector of self, self is the refuge of self,<br>
+therefore one should restrain oneself, ......</font>
 </p>
 
 <p>
 <b>381 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Pāmojjabahulo bhikkhu, pasanno Buddhasāsane,<br>
+adhigacchhe padaṁ santaṁ, saṅkhārūpasamaṁ sukhaṁ.</font>
 </p>
 
 <p>
 <b>381 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">The monastic, having much happiness, with faith in the dispensation of the Buddha,<br>
+could attain to the state of peace, happy in the stilling of (all) conditions.</font>
 </p>
 
 <p>
 <b>382 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Yo have daharo bhikkhu yuñjati Buddhasāsane,<br>
+sŏ imaṁ lokaṁ pabhāseti, abbhā mutto va chandimā. </font>
 </p>
 
 <p>
 <b>382 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">That young monastic who is devoted to the Buddha’s dispensation,<br>
+shines forth in this world, like the moon freed from a cloud.</font>
 </p>
 
 <div class="para-divider"></div>
@@ -4294,16 +4303,16 @@ And more.</font><br>
 
 <p>
 <b>383 Transliteration</b><br>
-<font color="Peru">
-</font>
+<font color="Peru">Chhinda sotaṁ parakkamma, kāme panuda, brāhmaṇa,<br>
+saṅkhārānaṁ khayaṁ ñatvā, akataññūsi, brāhmaṇa.</font>
 </p>
 
 <p>
 <b>383 Translations</b><br>
 <font color="DarkGreen"></font><br>
 <font color="blue"></font><br>
-<font color="Peru">
-</font>
+<font color="Peru">Strive and cut off the stream, remove desire, brahmin,<br>
+knowing the destruction of the conditioned, be one who knows that which is not made, brahmin.</font>
 </p>
 
 <p>
