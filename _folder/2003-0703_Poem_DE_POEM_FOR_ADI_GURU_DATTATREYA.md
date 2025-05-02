@@ -43,6 +43,10 @@ Tasmai Shri Guruve Namaha<br>
 
 <br>
 
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/2003-0703_POEM_FOR_ADI_GURU_DATTATREYA_by_Deborah_Eckman_Vancouver_BC.jpg" /></div>
+
+<br>
+
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 2025-0502 Author's email to CCT.</list-item>
