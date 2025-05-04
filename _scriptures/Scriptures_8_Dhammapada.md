@@ -1119,7 +1119,7 @@ The master finds freedom<br>
 From desire and sorrow -<br>
 Freedom without bounds.</font><br>
 <font color="Peru">For the one who has reached his goal, who grieves not, being released on all sides,<br>
-who has abandoned all the knots,1 no consuming fever2 is found.</font>
+who has abandoned all the knots, no consuming fever is found.</font>
 </p>
 
 <p>
@@ -2922,7 +2922,7 @@ When you see this, you are above sorrow.<br>
 <font color="DarkGreen">'All is unreal.' ......</font><br>
 <font color="blue">"Existence is illusion."<br>
 ......</font><br>
-<font color="Peru">All components (of mind and body)1 are without self, ......</font>
+<font color="Peru">All components (of mind and body) are without self, ......</font>
 </p>
 
 <p>
@@ -3966,7 +3966,9 @@ ghāṇena saṁvaro sādhu, sādhu jivhāya saṁvaro,</font>
 <p>
 <b>360 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Master your senses,<br>
+What you taste and smell,<br>
+What you see, what you hear.</font><br>
 <font color="Peru">Restraint of eye is good, restraint of ear is good,<br>
 restraint of nose is good, restraint of tongue is good,<br></font>
 </p>
@@ -3981,7 +3983,10 @@ sabbattha saṁvuto bhikkhu sabbadukkhā pamucchati.</font>
 <p>
 <b>361 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">In all things be a master<br>
+Of what you do and say and think.<br>
+Be free.<br>
+You are a seeker.</font><br>
 <font color="Peru">restraint of body is good, restraint of speech is good,<br>
 restraint of mind is good, restraint is everywhere good,<br>
 a monastic who is restrained everywhere is liberated from all suffering.</font>
@@ -3998,10 +4003,14 @@ eko santusito: tam-āhu bhikkhuṁ.</font>
 <p>
 <b>362 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Delight in the mastery<br>
+Of your hands and your feet,<br>
+Of your words and your thoughts. Delight in meditation<br>
+And in solitude.<br>
+Compose yourself, be happy.</font><br>
 <font color="Peru">One who controls his hands, controls his feet,<br>
 controls his speech, controls the (mind) supreme,<br>
-with inner delight2 and composure,<br>
+with inner delight and composure,<br>
 solitary, content: that one is called a monastic.</font>
 </p>
 
@@ -4014,7 +4023,11 @@ atthaṁ Dhammañ-cha dīpeti, madhuraṁ tassa bhāsitaṁ.</font>
 <p>
 <b>363 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">You are a seeker.<br>
+Hold your tongue.<br>
+Do not exalt yourself<br>
+But lighten the way<br>
+For your words are sweet.</font><br>
 <font color="Peru">That monastic who restrains the mouth, who speaks well, and who is modest,<br>
 who explains the meaning of the Dhamma, his speech is sweet.</font>
 </p>
@@ -4028,7 +4041,11 @@ Dhammaṁ anussaraṁ bhikkhu, Saddhammā na parihāyati.</font>
 <p>
 <b>364 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Follow the truth of the way.<br>
+Reflect upon it.<br>
+Make it your own.<br>
+Live it.<br>
+It will always sustain you.</font><br>
 <font color="Peru">The one who finds pleasure in the Dhamma, delights in Dhamma, reflects on Dhamma,<br>
 the monastic who remembers Dhamma, does not abandon the Good Dhamma.</font>
 </p>
@@ -4042,7 +4059,9 @@ aññesaṁ pihayaṁ bhikkhu samādhiṁ nādhigacchhati.</font>
 <p>
 <b>365 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Do not turn away what is given you<br>
+Not reach out for what is given to others,<br>
+Lest you disturb your quietness.</font><br>
 <font color="Peru">One should not despise one’s own gains, one should not live envious of others,<br>
 the monastic who is envious of others does not attain concentration.</font>
 </p>
@@ -4056,7 +4075,8 @@ taṁ ve devā pasaṁsanti suddhājīviṁ atanditaṁ.</font>
 <p>
 <b>366 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">......<br>
+Be pure, never falter.</font><br>
 <font color="Peru">......<br>
 even the very gods praise the one of pure life who is diligent.</font>
 </p>
@@ -4070,7 +4090,8 @@ asatā cha na sochati, sa ve bhikkhū ti vucchati.</font>
 <p>
 <b>367 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">You have no name and no form.<br>
+Why miss what you do not have? The seeker is not sorry.</font><br>
 <font color="Peru">The one who does not have fondness at all for mind and body,<br>
 and who grieves not for what does not exist, is surely called a monastic.</font>
 </p>
@@ -4084,7 +4105,9 @@ adhigacchhe padaṁ santaṁ, saṅkhārūpasamaṁ sukhaṁ.</font>
 <p>
 <b>368 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Love and joyfully<br>
+Follow the way,<br>
+The quiet way to the happy country. Seeker!</font><br>
 <font color="Peru">That monastic who dwells in loving-kindness, with faith in Buddha’s dispensation,<br>
 should attain the state of peace, the joy in stilling of (all) conditions.</font>
 </p>
@@ -4098,7 +4121,9 @@ chhetvā rāgañ-cha dosañ-cha, tato Nibbānam-ehisi.</font>
 <p>
 <b>369 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Empty the boat,<br>
+Lighten the load,<br>
+Passion and desire and hatred. And sail swiftly.</font><br>
 <font color="Peru">Please bail out this boat, monastic, when bailed out it will go lightly,<br>
 cutting off passion and hatred, from here one will go to Nibbāna.</font>
 </p>
@@ -4112,7 +4137,14 @@ pañcha saṅgātigo bhikkhu oghatiṇṇo ti vucchati.</font>
 <p>
 <b>370 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">There are five at the door<br>
+To turn away, and five more,<br>
+And there are five to welcome in.<br>
+And when five have been left<br>
+Stranded on the shore,<br>
+The seeker is called oghatinnoti -<br>
+"He who has crossed over."<br>
+Seeker!</font><br>
 <font color="Peru">One should cut off five, one should abandon five, one should cultivate five more,<br>
 the monastic who surmounts five attachments is called a flood-crosser.</font>
 </p>
@@ -4126,7 +4158,9 @@ mā te kāmaguṇe bhamassu chittaṁ,</font>
 <p>
 <b>371 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Do not be restless.<br>
+Meditate constantly.<br>
+......</font><br>
 <font color="Peru">Meditate, monastic, do not be heedless,<br>
 do not let your mind swirl around in strands of desire,<br>
 ......<br></font>
@@ -4141,7 +4175,6 @@ yamhi jhānañ-cha paññā cha sa ve Nibbānasantike.</font>
 <p>
 <b>372 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
 <font color="Peru">......<br>
 the one who has both concentration and wisdom is indeed in the presence of Nibbāna.</font>
 </p>
@@ -4155,7 +4188,9 @@ amānusī ratī hoti sammā Dhammaṁ vipassato.</font>
 <p>
 <b>373 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">With a quiet mind<br>
+Come into that empty house, your heart,<br>
+And feel the joy of the way Beyond the world.</font><br>
 <font color="Peru">For the one who has entered an empty place, a monastic with a peaceful mind,<br>
 there is superhuman delight from insight into true Dhamma.</font>
 </p>
@@ -4169,7 +4204,10 @@ labhatī pītipāmojjaṁ, amataṁ taṁ vijānataṁ.</font>
 <p>
 <b>374 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Look within -<br>
+The rising and the falling.<br>
+What happiness!<br>
+How sweet to be free!</font><br>
 <font color="Peru">Whoever has right mindfulness regarding the rise and fall of the components (of mind and body)<br>
 gains joy and happiness, that is the deathless state for the one who knows.</font>
 </p>
@@ -4183,7 +4221,8 @@ indriyagutti santuṭṭhī: pātimokkhe cha saṁvaro.</font>
 <p>
 <b>375 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">It is the beginning of life,<br>
+Of mastery and patience,</font><br>
 <font color="Peru">This is the very beginning for the wise monastic here:<br>
 contentment, guarding the senses, and restraint in the regulations.</font>
 </p>
@@ -4198,7 +4237,9 @@ paṭisanthāravuttassa ācārakusalo siyā,
 <p>
 <b>376 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Of good friends along the way,<br>
+Of a pure and active life.<br>
+......</font><br>
 <font color="Peru">One should resort to spiritual friends, ones of pure life, ones who are diligent,<br>
 one should be of friendly disposition, one who will be skillful in his conduct,<br>
 ......<br></font>
@@ -4213,7 +4254,8 @@ one should be of friendly disposition, one who will be skillful in his conduct,<
 <p>
 <b>377 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">......<br>
+Let fall wilfulness and hatred.</font><br>
 <font color="Peru">......<br>
 ...... monastics, cast off (all) passion and hatred.</font>
 </p>
@@ -4227,7 +4269,12 @@ vantalokāmiso bhikkhu upasanto ti vucchati.</font>
 <p>
 <b>378 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Are you quiet?<br>
+Quieten your body.<br>
+Quieten your mind.<br>
+You want nothing.<br>
+Your words are still.<br>
+You are still.</font><br>
 <font color="Peru">Calm in body and calm in speech, having calmness and composure,<br>
 having thrown off worldly gain the monastic is called one at peace.</font>
 </p>
@@ -4241,7 +4288,9 @@ so attagutto satimā sukhaṁ bhikkhu vihāhisi.</font>
 <p>
 <b>379 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">By your own efforts<br>
+Waken yourself, watch yourself.<br>
+And live joyfully.</font><br>
 <font color="Peru">By oneself one should censure self, by oneself one should be controlled,<br>
 he who guards himself, mindful, will live happily, monastic.</font>
 </p>
@@ -4255,7 +4304,10 @@ tasmā saṁyamayattānaṁ assaṁ ......</font>
 <p>
 <b>380 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">You are the master,
+You are the refuge.<br>
+......<br>
+Master yourself.</font><br>
 <font color="Peru">Self is the protector of self, self is the refuge of self,<br>
 therefore one should restrain oneself, ......</font>
 </p>
@@ -4269,7 +4321,11 @@ adhigacchhe padaṁ santaṁ, saṅkhārūpasamaṁ sukhaṁ.</font>
 <p>
 <b>381 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">How gladly you follow<br>
+The words of the awakened.<br>
+How quietly, how surely<br>
+You approach the happy country,<br>
+The heart of stillness.</font><br>
 <font color="Peru">The monastic, having much happiness, with faith in the dispensation of the Buddha,<br>
 could attain to the state of peace, happy in the stilling of (all) conditions.</font>
 </p>
@@ -4283,7 +4339,12 @@ sŏ imaṁ lokaṁ pabhāseti, abbhā mutto va chandimā. </font>
 <p>
 <b>382 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">However young,<br>
+The seeker who sets out upon the way<br>
+Shines bright over the world.<br>
+Like the moon,<br>
+Come out from behind the clouds!<br>
+Shine.</font><br>
 <font color="Peru">That young monastic who is devoted to the Buddha’s dispensation,<br>
 shines forth in this world, like the moon freed from a cloud.</font>
 </p>
@@ -4306,7 +4367,11 @@ saṅkhārānaṁ khayaṁ ñatvā, akataññūsi, brāhmaṇa.</font>
 <p>
 <b>383 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Wanting nothing<br>
+With all your heart<br>
+Stop the stream.<br>
+When the world dissolves<br> 
+Everything becomes clear.</font><br>
 <font color="Peru">Strive and cut off the stream, remove desire, brahmin,<br>
 knowing the destruction of the conditioned, be one who knows that which is not made, brahmin.</font>
 </p>
@@ -4320,10 +4385,13 @@ athassa sabbe saṁyogā atthaṁ gacchhanti jānato. </font>
 <p>
 <b>384 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Go beyond<br>
+This way or that way,<br>
+To the farther shore<br>
+Where the world dissolves<br>
+And everything becomes clear.</font><br>
 <font color="Peru">When a brahmin has, through two things [calmness (samatha) and insight (vipassanā)], crossed over,
-then, for one who knows, all the fetters are laid to rest.
-</font>
+then, for one who knows, all the fetters are laid to rest.</font>
 </p>
 
 <p>
@@ -4335,7 +4403,12 @@ vītaddaraṁ visaṁyuttaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>385 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Beyond this shore<br>
+And the father shore,<br>
+Beyond the beyond,<br>
+Where there is no beginning,<br>
+No end.<br>
+Without fear, go.</font><br>
 <font color="Peru">For whom the near shore, the far shore or both do not exist,<br>
 free of anxiety, being detached, that one I say is a brahmin.</font>
 </p>
@@ -4349,7 +4422,10 @@ uttamatthaṁ anuppattaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>386 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Meditate.<br>
+Live purely.<br>
+Be quiet.<br>
+Do your work, with mastery.</font><br>
 <font color="Peru">The meditator sitting down, the one who is dustless, who has done his duty, without pollutants,<br>
 who has reached the ultimate good, that one I say is a brahmin.</font>
 </p>
@@ -4364,9 +4440,15 @@ atha sabbam-ahorattiṁ Buddho tapati tejasā. </font>
 <p>
 <b>387 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">By day the sun shines,<br>
+And the warrior in his armor shines.<br> 
+By night the moon shines,<br>
+And the master shines in meditation.<br>
+But this day and night<br>
+The man who is awake<br>
+Shines in the radiance of the spirit.</font><br>
 <font color="Peru">The sun is radiant by day, the moon shines by night,<br>
-the accoutred noble is radiant, the meditating brahmin is radiant,<br>
+the accoutered noble is radiant, the meditating brahmin is radiant,<br>
 yet every day and night the Buddha is radiant through his power.</font>
 </p>
 
@@ -4381,7 +4463,12 @@ tasmā pabbajito ti vucchati.</font>
 <p>
 <b>388 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">A master gives up mischief.<br>
+He is serene.<br>
+He leaves everything behind him<br>
+He does not take offense<br>
+And he does not give it.<br>
+He never returns evil for evil.</font><br>
 <font color="Peru">Warding off wickedness one is called a brahmin,<br>
 one living austerely is said to be an ascetic,<br>
 because of driving forth (all) stain from oneself<br>
@@ -4397,7 +4484,10 @@ dhī brāhmaṇassa hantāraṁ, tato: dhī yassa muñchati.</font>
 <p>
 <b>389 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Alas for the man<br>
+Who raises his hand against another,<br>
+And even more for him<br>
+Who returns the blow.</font><br>
 <font color="Peru">A brahmin should not hit a brahmin, nor should he abandon him,<br>
 woe to the one who strikes a brahmin, further: woe to the one who abandons him.</font>
 </p>
@@ -4413,7 +4503,9 @@ tato tato sammati-m-eva dukkhaṁ.</font>
 <p>
 <b>390 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Resist the pleasures of life<br>
+And the desire to hurt -<br>
+Till sorrows vanish.</font><br>
 <font color="Peru">It is no little good for the brahmin:<br>
 when the mind is held back from what is dear,<br>
 whenever his mind turns back from violence,<br>
@@ -4429,7 +4521,8 @@ saṁvutaṁ tīhi ṭhānehi, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>391 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Never offend<br>
+By what you think or say or do.</font><br>
 <font color="Peru">For whom there is no wrong-doing bodily, verbally or mentally,<br>
 being restrained in (these) three things, that one I say is a brahmin.</font>
 </p>
@@ -4443,7 +4536,9 @@ sakkacchaṁ taṁ namasseyya, aggihuttaṁ va brāhmaṇo.</font>
 <p>
 <b>392 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Honor the man who is awake<br>
+And shows you the way.<br>
+Honor the fire of his sacrifice. </font><br>
 <font color="Peru">That one from whom one learned Dhamma taught by the Perfect Sambuddha,<br>
 with respect bow down to him, like a brahmin (bows) at fire-sacrifice.</font>
 </p>
@@ -4457,7 +4552,10 @@ yamhi sacchañ-cha Dhammo cha, so suchī so va brāhmaṇo.</font>
 <p>
 <b>393 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Matted hair or family or caste<br>
+Do not make a master<br>
+But the truth and goodness<br>
+With which he is blessed.</font><br>
 <font color="Peru">Not because of matted hair, family or birth is one a true brahmin,<br>
 in whom there is truth and Dhamma, that one is pure, that one is surely a brahmin.</font>
 </p>
@@ -4471,9 +4569,12 @@ Abbhantaraṁ te gahanaṁ, bāhiraṁ parimajjasi.</font>
 <p>
 <b>394 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Your hair is tangled<br>
+And you sit on a deerskin.<br>
+What folly!<br>
+When inside you are ragged with lust.</font><br>
 <font color="Peru">Why do you have your hair matted, stupid one, and why your deer-skin?<br>
-Within you there is a jungle,1 you (only) polish the outside.</font>
+Within you there is a jungle, you (only) polish the outside.</font>
 </p>
 
 <p>
@@ -4485,8 +4586,12 @@ ekaṁ vanasmiṁ jhāyantaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>395 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
-<font color="Peru">That one who wears discarded clothes, who is lean2 with protruding veins,<br>
+<font color="blue">The master's clothes are in tatters.<br>
+His veins stand out,<br>
+He is wasting away.<br>
+Alone in the forest<br>
+He sits and meditates.</font><br>
+<font color="Peru">That one who wears discarded clothes, who is lean with protruding veins,<br>
 who meditates alone in the forest, that one I say is a brahmin.</font>
 </p>
 
@@ -4501,7 +4606,10 @@ akiñchanaṁ anādānaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>396 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">A man is not born to mastery.<br>
+A master is never proud.<br>
+He does not talk down to others.<br>
+Owning nothing, he misses nothing.</font><br>
 <font color="Peru">I do not call one a brahmin simply because of being born from a (certain) womb,<br>
 that one is just one who says 'bho' [addressing non-Brahmins in an inferior way] if he is attached;
 having nothing and unattached, that one I say is a brahmin.</font>
@@ -4516,7 +4624,10 @@ saṅgātigaṁ visaṁyuttaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>397 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">He is not afraid.<br>
+He does not tremble.<br>
+Nothing binds him.<br>
+He is infinitely free.</font><br>
 <font color="Peru">Whoever has cut off all the fetters surely does not tremble,<br>
 surmounting attachments, detached, that one I say is a brahmin.</font>
 </p>
@@ -4530,7 +4641,11 @@ ukkhittapalighaṁ buddhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>398 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">So cut through<br>
+The strap and the thong and the rope.<br>
+Loosen the fastenings.<br>
+Unbolt the doors of sleep<br>
+And awake.</font><br>
 <font color="Peru">(Whoever) has cut off the thong, the strap, the rope, together with the bridle,<br>
 who has thrown off the obstacle and is awakened, that one I say is a brahmin.</font>
 </p>
@@ -4544,7 +4659,10 @@ khantībalaṁ balānīkaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>399 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">The master endures<br>
+Insults and ill treatment<br>
+Without reacting.<br>
+For his spirit is an army.</font><br>
 <font color="Peru">Whoever, being pure, forbears with punishment, bondage and abuse,<br>
 having the strength of endurance, having an army of strengths, that one I say is a brahmin.</font>
 </p>
@@ -4558,7 +4676,10 @@ dantaṁ antimasārīraṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>400 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">He is never angry.<br>
+He keeps his promises.<br>
+He never strays, he is determined.<br>
+This body is my last, he says!</font><br>
 <font color="Peru">(Whoever is) controlled of mind, dutiful, virtuous, taint-free,<br>
 well-trained and in his last body, that one I say is a brahmin.</font>
 </p>
@@ -4572,7 +4693,8 @@ yo na lippati kāmesu, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>401 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">......<br>
+He does not cling.</font><br>
 <font color="Peru">......<br>
 he who is unsmeared by desires, that one I say is a brahmin.</font>
 </p>
@@ -4586,7 +4708,8 @@ pannabhāraṁ visaṁyuttaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>402 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">For he has reached the end of sorrow<br>
+And has laid down his burden.</font><br>
 <font color="Peru">Whoever knows right here the destruction of his suffering,<br>
 putting down the burden, detached, that one I say is a brahmin.</font>
 </p>
@@ -4601,7 +4724,10 @@ uttamatthaṁ anuppattaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>403 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">He looks deeply into things<br>
+And sees their nature.<br>
+He discriminates<br>
+And reaches the end of the way.</font><br>
 <font color="Peru">The deeply wise sagacious one, skilled in what is path and not path,<br>
 who has reached the ultimate good, that one I say is a brahmin.</font>
 </p>
@@ -4615,7 +4741,11 @@ anokasāriṁ appicchhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>404 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">He does not linger<br>
+With those who have a home<br>
+Nor with those who stray.<br>
+Wanting nothing,<br>
+He travels on alone.</font><br>
 <font color="Peru">(Whoever) doesn’t mix with either householders or the houseless,<br>
 wandering homeless, with few desires, that one I say is a brahmin.</font>
 </p>
@@ -4629,7 +4759,8 @@ yo na hanti na ghāteti, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>405 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">He hurts nothing.<br>
+He never kills.</font><br>
 <font color="Peru">Whoever has laid down the stick (used) against fearful and fearless beings,<br>
 who neither hurts nor kills, that one I say is a brahmin.</font>
 </p>
@@ -4643,7 +4774,9 @@ sādānesu anādānaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>406 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">He moves with love among the unloving,<br>
+With peace and detachment<br>
+Among the hungry and querulous.</font><br>
 <font color="Peru">Being friendly with the hostile, calm amongst those holding a stick,<br>
 not attached amongst those attached, that one I say is a brahmin.</font>
 </p>
@@ -4657,7 +4790,9 @@ sāsapo-r-iva āraggā, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>407 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Like a mustard seed from the point of a needle<br>
+Hatred has fallen from him,<br>
+And lust, hypocrisy and pride.</font><br>
 <font color="Peru">Whoever has dropped off passion and hatred, conceit and anger,<br>
 like a mustard seed from a needle, that one I say is a brahmin.</font>
 </p>
@@ -4671,7 +4806,10 @@ yāya nābhisaje kañchi, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>408 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">He offends no one.<br>
+Yet he speaks the truth.<br>
+His words are clear<br>
+But never harsh.</font><br>
 <font color="Peru">(Whoever) speaks a word of truth that is informed and is not coarse,<br>
 through which no one would be angry, that one I say is a brahmin.</font>
 </p>
@@ -4685,7 +4823,9 @@ loke adinnaṁ nādiyati, tam-ahaṁ brūmi brāhmaṇaṁ. </font>
 <p>
 <b>409 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Whatever is not his<br>
+He refuses,<br>
+Good or bad, great or small.</font><br>
 <font color="Peru">Whoever in the world does not take what is not given, long, short,<br>
 small, large, attractive or unattractive, that one I say is a brahmin.</font>
 </p>
@@ -4699,7 +4839,9 @@ nirāsayaṁ visaṁyuttaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>410 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">He wants nothing from this world<br>
+And nothing from the next.<br>
+He is free.</font><br>
 <font color="Peru">For the one who has no longings in this world or in the next world,<br>
 being without longings, detached, that one I say is a brahmin.</font>
 </p>
@@ -4713,7 +4855,10 @@ amatogadhaṁ anuppattaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>411 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Desiring nothing, doubting nothing,<br>
+Beyond judgement and sorrow<br>
+And the pleasures of the senses,<br>
+He had moved beyond time.</font><br>
 <font color="Peru">For the one who has no desires, who, through knowledge, is without doubt,<br>
 who has reached immersion in the deathless, that one I say is a brahmin.</font>
 </p>
@@ -4727,7 +4872,8 @@ asokaṁ virajaṁ suddhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>412 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">He is pure and free.<br>
+How clear he is.</font><br>
 <font color="Peru">Whoever here has overcome clinging to both merit and demerit,<br>
 who is griefless, dustless and pure, that one I say is a brahmin.</font>
 </p>
@@ -4741,7 +4887,9 @@ nandībhavaparikkhīṇaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>413 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">He is the moon.<br>
+He is serene.<br>
+He shines.</font><br>
 <font color="Peru">(Whoever) just like the moon is stainless, pure, clear and undisturbed,<br>
 has destroyed joy in existence, that one I say is a brahmin.</font>
 </p>
@@ -4756,9 +4904,13 @@ anupādāya nibbuto, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>414 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">For he has travelled<br>
+Life after life<br>
+The muddy and treacherous road of illusion.<br>
+He does not tremble<br>
+Or grasp or hesitate.<br>
+He has found peace.</font><br>
 <font color="Peru">He who has crossed the difficult and dangerous path through births and deaths and delusion,<br>
-
 the meditator who has crossed over to the further shore, free of lust and free of doubt,<br>
 unattached and cooled down, that one I say is a brahmin.</font>
 </p>
@@ -4772,7 +4924,8 @@ kāmabhavaparikkhīṇaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>415 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Calmly<br>
+He lets go of life,</font><br>
 <font color="Peru">Whoever, giving up sensual desires, would wander homeless here,<br>
 destroying desires and existence, that one I say is a brahmin.</font>
 </p>
@@ -4786,7 +4939,7 @@ taṇhābhavaparikkhīṇaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>416 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Or home and pleasure and desire.</font><br>
 <font color="Peru">Whoever, giving up craving, would wander homeless here,<br>
 destroying craving and existence, that one I say is a brahmin.</font>
 </p>
@@ -4800,7 +4953,9 @@ sabbayogavisaṁyuttaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>417 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Nothing of men can hold him.<br>
+Nothing of the gods can hold him.<br>
+Nothing in all creation can hold him.</font><br>
 <font color="Peru">Abandoning the human yoke, overcoming the divine yoke,<br>
 being unattached to all yokes, that one I say is a brahmin.</font>
 </p>
@@ -4814,7 +4969,14 @@ sabbalokābhibhuṁ vīraṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>418 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Desire has left him,<br>
+Never to return.<br>
+Sorrow has left him,<br>
+Never to return.<br>
+He is calm.<br>
+In him the seed of renewing life<br>
+Had been consumed.<br>
+He has conquered all the inner worlds.</font><br>
 <font color="Peru">Abandoning delight and aversion, cooled off and free from cleaving,<br>
 a hero who vanquished the whole world, that one I say is a brahmin.</font>
 </p>
@@ -4828,7 +4990,12 @@ asattaṁ sugataṁ buddhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>419 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">With dispassionate eye<br>
+He sees everywhere<br>
+The falling and the uprising.<br>
+And with great gladness<br>
+He knows that he has finished.<br>
+He has woken from his sleep.</font><br>
 <font color="Peru">Whoever knows in every way beings’ passing and their rebirth,<br>
 unattached, fortunate, awake, that one I say is a brahmin.</font>
 </p>
@@ -4842,7 +5009,10 @@ khīṇāsavaṁ Arahantaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>420 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">And the way he has taken<br>
+Is hidden from men,<br>
+Even from spirits and gods,<br>
+By virtue of his purity.</font><br>
 <font color="Peru">For the one whose destiny is unknown to gods, gandhabbas and men –<br>
 being pollutant-free, an Arahat, that one I say is a brahmin.</font>
 </p>
@@ -4856,7 +5026,11 @@ akiñchanaṁ anādānaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>421 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">In him there in no yesterday,<br>
+No tomorrow,<br>
+No today.<br>
+Possessing nothing,<br>
+Wanting nothing.</font><br>
 <font color="Peru">For whom there is nothing in the past, the future or the present,<br>
 having nothing and unattached, that one I say is a brahmin.</font>
 </p>
@@ -4870,7 +5044,13 @@ anejaṁ nhātakaṁ buddhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>422 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">He is full of power.<br>
+Fearless, wise, exalted.<br>
+He has vanquished all things.<br>
+He sees by virtue of his purity.<br>
+He has come to the end of the way,<br>
+Over the river of his many lives,<br>
+His many deaths.</font><br>
 <font color="Peru">A noble leader, heroic, a great seer, victorious,<br>
 free of lust, cleansed and awakened, that one I say is a brahmin.</font>
 </p>
@@ -4885,7 +5065,12 @@ sabbavositavosānaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 <p>
 <b>423 Translations</b><br>
 <font color="DarkGreen"></font><br>
-<font color="blue"></font><br>
+<font color="blue">Beyond the sorrow of hell,<br>
+Beyond the great joy of heaven,<br>
+By virtue of his purity.<br>
+He has come to the end of the way.<br>
+All that he had to do, he has done.<br>
+And now he is one.</font><br>
 <font color="Peru">Whoever knows their former lives, and sees heaven and the downfall,<br>
 and has attained birth’s destruction, the sage, accomplished in deep knowledge,<br>
 who is accomplished in all accomplishments, that one I say is a brahmin.</font>
