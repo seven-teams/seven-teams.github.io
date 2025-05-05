@@ -4,7 +4,7 @@ date: 2003-03-03
 permalink: /folder/2003-0703-DE-Poem-For-Adi-Guru-Dattatreya
 tags:
   - black @ Poetry
-  - blue @ Deborah Eckman
+  - blue @ Deborah Eckman (London)
   - brown @ 2003
   - cornflowerblue @ Vancouver, BC
   - maroon @ Adi
