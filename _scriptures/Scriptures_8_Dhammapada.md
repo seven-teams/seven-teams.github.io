@@ -3965,7 +3965,7 @@ ghāṇena saṁvaro sādhu, sādhu jivhāya saṁvaro,</font>
 
 <p>
 <b>360 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">Good is the control of the eye, and good is the control of the ear; good is the control of smell, and good is the control of taste.</font><br>
 <font color="blue">Master your senses,<br>
 What you taste and smell,<br>
 What you see, what you hear.</font><br>
@@ -3982,7 +3982,7 @@ sabbattha saṁvuto bhikkhu sabbadukkhā pamucchati.</font>
 
 <p>
 <b>361 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">Good is the control of the body, and good is the control of words; good is the control of the mind, and good is the control of our whole inner life. When a monk has achieved perfect self-control, he leaves all sorrows behind.</font><br>
 <font color="blue">In all things be a master<br>
 Of what you do and say and think.<br>
 Be free.<br>
@@ -4002,7 +4002,7 @@ eko santusito: tam-āhu bhikkhuṁ.</font>
 
 <p>
 <b>362 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">The man whose hands are controlled, whose feet are controlled, whose words are controlled, who is self-controlled in all things, who finds the inner joy, whose mind is self-possessed, who is one and has found perfect peace — this man I call a monk.</font><br>
 <font color="blue">Delight in the mastery<br>
 Of your hands and your feet,<br>
 Of your words and your thoughts. Delight in meditation<br>
@@ -4022,7 +4022,7 @@ atthaṁ Dhammañ-cha dīpeti, madhuraṁ tassa bhāsitaṁ.</font>
 
 <p>
 <b>363 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">The monk whose words are controlled, peaceful and wise, who is humble, who throws light on the letter and the spirit of the sacred verses - sweet are his words.</font><br>
 <font color="blue">You are a seeker.<br>
 Hold your tongue.<br>
 Do not exalt yourself<br>
@@ -4040,7 +4040,7 @@ Dhammaṁ anussaraṁ bhikkhu, Saddhammā na parihāyati.</font>
 
 <p>
 <b>364 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">Who abides in the truth of DHAMMA, whose joy is in the truth of DHAMMA, who ponders on DHAMMA, and remembers the truth of DHAMMA - this monk shall never fall from DHAMMA, from Truth. </font><br>
 <font color="blue">Follow the truth of the way.<br>
 Reflect upon it.<br>
 Make it your own.<br>
@@ -4058,7 +4058,7 @@ aññesaṁ pihayaṁ bhikkhu samādhiṁ nādhigacchhati.</font>
 
 <p>
 <b>365 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">Let him not despise the offerings given to him, and let him not be jealous of others, because the monk who feels envy cannot achieve deep contemplation.</font><br>
 <font color="blue">Do not turn away what is given you<br>
 Not reach out for what is given to others,<br>
 Lest you disturb your quietness.</font><br>
@@ -4074,7 +4074,7 @@ taṁ ve devā pasaṁsanti suddhājīviṁ atanditaṁ.</font>
 
 <p>
 <b>366 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">...... even the gods praise that monk, whose life is pure and full of endeavor.</font><br>
 <font color="blue">......<br>
 Be pure, never falter.</font><br>
 <font color="Peru">......<br>
@@ -4089,7 +4089,7 @@ asatā cha na sochati, sa ve bhikkhū ti vucchati.</font>
 
 <p>
 <b>367 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">For whom 'name and form' are not real, who never feels 'this is mine', and who sorrows not for things that at are not, he in truth can be called a monk. </font><br>
 <font color="blue">You have no name and no form.<br>
 Why miss what you do not have? The seeker is not sorry.</font><br>
 <font color="Peru">The one who does not have fondness at all for mind and body,<br>
@@ -4104,7 +4104,7 @@ adhigacchhe padaṁ santaṁ, saṅkhārūpasamaṁ sukhaṁ.</font>
 
 <p>
 <b>368 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">The monk who is full of love and who fully lives in the law of Buddha, he follows the path of NIRVANA, the path of the end of all sorrow, the path of infinite joy.</font><br>
 <font color="blue">Love and joyfully<br>
 Follow the way,<br>
 The quiet way to the happy country. Seeker!</font><br>
@@ -4120,7 +4120,7 @@ chhetvā rāgañ-cha dosañ-cha, tato Nibbānam-ehisi.</font>
 
 <p>
 <b>369 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">Empty the boat of your life, 0 man; when empty it will swiftly sail. When empty of passions and harmful desires you are bound for the land of NIRVANA.</font><br>
 <font color="blue">Empty the boat,<br>
 Lighten the load,<br>
 Passion and desire and hatred. And sail swiftly.</font><br>
@@ -4136,7 +4136,7 @@ pañcha saṅgātigo bhikkhu oghatiṇṇo ti vucchati.</font>
 
 <p>
 <b>370 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">Cut off the five — selfishness, doubt, wrong austerities and rites, lust, hate; throw off the five — desire to be born with a body, or without a body, self-will, restlessness, ignorance; but cherish five - faith, watchfulness, energy, contemplation, vision. He who has broken the five fetters - lust, hate, delusion, pride, false views - is one who has crossed to the other shore.</font><br>
 <font color="blue">There are five at the door<br>
 To turn away, and five more,<br>
 And there are five to welcome in.<br>
@@ -4157,7 +4157,7 @@ mā te kāmaguṇe bhamassu chittaṁ,</font>
 
 <p>
 <b>371 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">Watch, Bhikkhu. Be in high contemplation, and think not of pleasure, so that you have not to think of pain, ......</font><br>
 <font color="blue">Do not be restless.<br>
 Meditate constantly.<br>
 ......</font><br>
@@ -4174,7 +4174,7 @@ yamhi jhānañ-cha paññā cha sa ve Nibbānasantike.</font>
 
 <p>
 <b>372 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">...... but he who has wisdom and contemplation, he is very near NIRVANA.</font><br>
 <font color="Peru">......<br>
 the one who has both concentration and wisdom is indeed in the presence of Nibbāna.</font>
 </p>
@@ -4187,7 +4187,7 @@ amānusī ratī hoti sammā Dhammaṁ vipassato.</font>
 
 <p>
 <b>373 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">When with a mind in silent peace a monk enters his empty house, then he feels the unearthly joy of beholding the light of Truth.</font><br>
 <font color="blue">With a quiet mind<br>
 Come into that empty house, your heart,<br>
 And feel the joy of the way Beyond the world.</font><br>
@@ -4203,7 +4203,7 @@ labhatī pītipāmojjaṁ, amataṁ taṁ vijānataṁ.</font>
 
 <p>
 <b>374 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">And when he sees in a clear vision the coming and going of inner events, then he feels the infinite joy of those who see the immortal THAT; the NIRVANA immortal.</font><br>
 <font color="blue">Look within -<br>
 The rising and the falling.<br>
 What happiness!<br>
@@ -4220,7 +4220,7 @@ indriyagutti santuṭṭhī: pātimokkhe cha saṁvaro.</font>
 
 <p>
 <b>375 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">This is the beginning of the life of. a wise monk; self-control of the senses, happiness, living under the moral law, and the association with good friends whose life is pure and who are ever striving.</font><br>
 <font color="blue">It is the beginning of life,<br>
 Of mastery and patience,</font><br>
 <font color="Peru">This is the very beginning for the wise monastic here:<br>
@@ -4236,7 +4236,7 @@ paṭisanthāravuttassa ācārakusalo siyā,
 
 <p>
 <b>376 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">Let him live in love. Let his work be well done. ......</font><br>
 <font color="blue">Of good friends along the way,<br>
 Of a pure and active life.<br>
 ......</font><br>
@@ -4253,7 +4253,7 @@ one should be of friendly disposition, one who will be skillful in his conduct,<
 
 <p>
 <b>377 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">...... let fall from you, O monks, all ill passions and all ill-will.</font><br>
 <font color="blue">......<br>
 Let fall wilfulness and hatred.</font><br>
 <font color="Peru">......<br>
@@ -4268,7 +4268,7 @@ vantalokāmiso bhikkhu upasanto ti vucchati.</font>
 
 <p>
 <b>378 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">The monk is said to be a Bhikkhu of peace when his body, words and mind are peaceful, when he is master of himself and when he has left behind the lower attractions of the world.</font><br>
 <font color="blue">Are you quiet?<br>
 Quieten your body.<br>
 Quieten your mind.<br>
@@ -4287,7 +4287,7 @@ so attagutto satimā sukhaṁ bhikkhu vihāhisi.</font>
 
 <p>
 <b>379 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">Arise! Rouse thyself by thy Self; train thyself by thy Self. Under the shelter of thy Self, and ever watchful, thou shalt live in supreme joy.</font><br>
 <font color="blue">By your own efforts<br>
 Waken yourself, watch yourself.<br>
 And live joyfully.</font><br>
@@ -4303,7 +4303,7 @@ tasmā saṁyamayattānaṁ assaṁ ......</font>
 
 <p>
 <b>380 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">For thy Self is the master of thyself, and thy Self is thy refuge. Train therefore thyself well, ......</font><br>
 <font color="blue">You are the master,
 You are the refuge.<br>
 ......<br>
@@ -4320,7 +4320,7 @@ adhigacchhe padaṁ santaṁ, saṅkhārūpasamaṁ sukhaṁ.</font>
 
 <p>
 <b>381 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">In a fulness of delight and of faith in the teaching of Buddha, the mendicant monk finds peace supreme and, beyond the transience of time, he will find the joy of Eternity, the joy supreme of NIRVANA.</font><br>
 <font color="blue">How gladly you follow<br>
 The words of the awakened.<br>
 How quietly, how surely<br>
@@ -4338,7 +4338,7 @@ sŏ imaṁ lokaṁ pabhāseti, abbhā mutto va chandimā. </font>
 
 <p>
 <b>382 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">When a mendicant monk, though young, follows with faith the path of Buddha, his light shines bright over the world, like the brightness of a moon free from clouds.</font><br>
 <font color="blue">However young,<br>
 The seeker who sets out upon the way<br>
 Shines bright over the world.<br>
@@ -5043,7 +5043,7 @@ anejaṁ nhātakaṁ buddhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 
 <p>
 <b>422 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">He who is powerful, noble, who lives a life of inner heroism, the all-seer, the all-conqueror, the ever-pure, who has reached the end of the journey, who like Buddha is awake - him I call a Brahmin.</font><br>
 <font color="blue">He is full of power.<br>
 Fearless, wise, exalted.<br>
 He has vanquished all things.<br>
@@ -5064,7 +5064,7 @@ sabbavositavosānaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 
 <p>
 <b>423 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">He who knows the river of his past lives and is free from life that ends in death, who knows the joys of heaven and the sorrows of hell, for he is a seer whose vision is pure, who in perfection is one with the Supreme Perfection - him I call a Brahmin.</font><br>
 <font color="blue">Beyond the sorrow of hell,<br>
 Beyond the great joy of heaven,<br>
 By virtue of his purity.<br>

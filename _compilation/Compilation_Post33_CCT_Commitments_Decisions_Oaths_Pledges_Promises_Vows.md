@@ -782,8 +782,11 @@ And the joy is what I want you to have and not self-destruction or stupid condit
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"So today, again a day of great determination, and taking a vow: that, `For us, our ascent is the only concern, is the only idea.' Nothing else! And it will work out. All the rest will be taken care of. You have all the mechanics to do that. But first, give it to the mechanics to work out. All will work in a reflex action.<br>
+Clear! Clear out your chakras! Don't say, `I have this, I have that'! Just clear out! `How dare I have all these problems? How dare I have all these chakras still lingering?' Clear out! Morning, evening, clear out!<br>
+I'm sure it will work out.<br>
+Next year, I hope I'll have some good news."</font><br>
+<font size="+0"><b>1988-0508 Sahasrāra Pūjā, How it Was Decided (Nothing Is More Important Than Your Ascent or Our Ascent Is the Only Concern, Tent, Finanziari Colonia Marina, Fregene (40 kms E of Rome), Lazio, Italy</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -856,7 +859,13 @@ This is a tremendous work we have to do. It is the evolution of the highest type
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"Sahaja Yoga is not by the way.<br>
+And it happens [that it becomes `by the way']. Like, when I went to Australia, I was surprised: that, Sahaja Yoga, which was such a prime thing frod [for] them, suddenly became by the way.<br>
+So Sahaja Yoga is a commitment. Is a commitment and complete involvement. Otherwise you are really useless for Sahaja Yoga, absolutely useless. Is better to have few people who are committed than to have thousands who are just useless.<br>
+So, let us see what you have decided for yourself and what you have decided for Sahaja Yoga. If you have decided to opt for Sahaja Yoga, then just know that this is the main thing which you have to do. The whole attention should be on that.<br>
+......<br>
+Now, for you, it is important to see that you have something so unique with you.<br>
+But only thing what you need is a courage and a complete commitment to go forward with this propagation of Sahaja Yoga, announcement of Sahaja Yoga."</font><br>
 <font size="+0"><b>1990-0506 Sahasrāra Pūjā (Twenty-first Sahasrāra Pūjā), You Have All Become Mahāyogis Now and Sahaja Yoga is a Commitment and a Complete Involvement (Now You Have to Count Your Powers and Go Full Ahead with All the Maryādās of Sahaja Yoga), Teatro Comunale, Fiuggi (87 kms E-SE of Rome), Lazio, Italy</b></font>
 </p>
 
