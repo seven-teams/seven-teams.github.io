@@ -1,10 +1,10 @@
 ---
-title: '2003-0703 Poem &#8216;POEM FOR ADI GURU DATTATREYA&#8217; by Deborah Eckman, Vancouver, BC'
+title: '2003-0703 &#8216;POEM FOR ADI GURU DATTATREYA&#8217; by Deborah Eckman, Vancouver, BC'
 date: 2003-03-03
 permalink: /folder/2003-0703-DE-Poem-For-Adi-Guru-Dattatreya
 tags:
   - black @ Poetry
-  - blue @ Deborah Eckman (London)
+  - blue @ Deborah Eckman
   - brown @ 2003
   - cornflowerblue @ Vancouver, BC
   - maroon @ Adi

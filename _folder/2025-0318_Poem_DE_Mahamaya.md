@@ -4,10 +4,10 @@ date: 2025-03-18
 permalink: /folder/2025-0325-DE-Mahamaya
 tags:
   - black @ Poetry
-  - blue @ Deborah Eckman (London)
+  - blue @ Deborah Eckman
   - brown @ 2025
   - cornflowerblue @ London, UK
-  - green @ Story of Poem Mahamaya  
+  - green @ Story of Poem Mahamaya
   - maroon @ Mahamaya
 ---
 
