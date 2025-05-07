@@ -14,7 +14,7 @@ tags:
 
 <br>
 
-<p?
+<p>
 <font color="Red">S</font>o long ago it was foretold<br>
 <font color="Red">H</font>ope would return to a disillusioned humanity,<br>
 <font color="Red">R</font>ealization to the masses<br>
@@ -70,7 +70,8 @@ tags:
 <font color="Red">A</font>ngels are awakening to their human mission.<br>
 </p>
 
-<p style="text-align:center;"><font color="Red">THANK YOU SHRI MATAJI</font>
+<p style="text-align:center;">
+<font color="Red">THANK YOU SHRI MATAJI</font>
 </p>
 
 <br>
