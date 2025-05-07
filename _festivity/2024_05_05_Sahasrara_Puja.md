@@ -151,7 +151,7 @@ By coming to Your Lotus Feet we got our realization.<br>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1991-0505 Sahasrāra Pūjā, Recognize the Mahāmāyā and Your Own Divinity through Your Heart, Sports Stadium, Island of Ischia (1 hour from Naples), Campania, Italy</b></font>
-<a href=""> video</a><br>
+<a href="https://vimeo.com/93702958"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 

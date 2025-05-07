@@ -58,7 +58,6 @@ As soon as Sahasrāra was opened, the whole atmosphere was filled with tremendou
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image695.png" /></div>
 
 <p style="text-align:center;">
-	<br>
 <font color="DarkGreen"><b>Jagat. Janani Nirmalā</b></font><br>
 Mother of the whole world, giver of birth to everybody,<br>
 <font color="DarkGreen"><b>Mulaprakriti Akhileshwar.ki</b></font><br>
