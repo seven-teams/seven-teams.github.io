@@ -46,6 +46,7 @@ dressed in Her gorgeous garment of love.<br>
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1991-1025 Sahaja Newsletter (Australia), Page 1, link <a href=""><font color="DarkGreen">To be added</font></a>.</list-item>
+  <list-item color="Lavender"  width="280"><b>S2. </b> 1991-0900 The Divine Cool Breeze, Volume 5, Issue 8, Page 18, link <a href="https://b286c762-1c9b-468d-afbf-9f039b298299.usrfiles.com/ugd/b286c7_abd1a8a7d32b4c45856d218dcf93c062.pdf"><font color="DarkGreen">1991-0900 The DCB (U.S.A.)</font></a>.</list-item>  
 </wave-list>
 
 <br>

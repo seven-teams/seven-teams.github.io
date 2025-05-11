@@ -3,6 +3,7 @@ title: 'Poem &#8216;Ode to the Conch&#8217; by Lyndal Vercoe, Perth from 2002-03
 date: 2002-03-15
 permalink: /folder/2002-0315-LV-Ode-to-the-Conch
 tags:
+  - black @ Ode
   - black @ Poetry
   - blue @ Lyndal Vercoe
   - brown @ 2002

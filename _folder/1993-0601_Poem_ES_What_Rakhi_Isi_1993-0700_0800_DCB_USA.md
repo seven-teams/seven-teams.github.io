@@ -1,13 +1,17 @@
 ---
-title: '2009-0000 Poem &#8216;What Rakhi Is&#8217; by Edward Saugstad'
-date: 2009-01-01
-permalink: /folder/2009-0101-0000-ES-What-Rakhi-Is
+title: 'Poem &#8216;What Rakhi Is&#8217; by Edward Saugstad, Vienna from the 1993-0600 The Divine Cool Breeze (U.S.A.), Volume 7, Issue 5, Page 12''
+date: 1993-06-01
+permalink: /folder/1993-0601-0000-ES-What-Rakhi-Is
 tags:
+  - black @ Ode
   - black @ Poetry
   - blue @ Edward Saugstad
-  - brown @ 2009
-  - cornflowerblue @ TBD
+  - brown @ 1993
+  - cornflowerblue @ Vienna
+  - deeppink @ 1993-0600 The Divine Cool Breeze (U.S.A.)
+  - maroon @ Is
   - maroon @ Rakhi
+  - maroon @ What
 ---
 
 <br>
@@ -53,7 +57,7 @@ Makes their hearts beat like one drum.<br>
 Someday the world will know this,<br>
 Then everyone will see<br>
 What Rakhi is and why it<br>
-Is the bond that sets us free.<br>
+Is the bond that sets us free.
 </p>
 
 <br>
@@ -61,6 +65,11 @@ Is the bond that sets us free.<br>
 <div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/2009-0000_Poem_'What_Rakhi_Is'_by_Edward_Saugstad.jpg" /></div>
 
 <br>
+
+<wave-list>
+<list-title color="DarkSeaGreen" width="40">Sources</list-title>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1993-0600 The Divine Cool Breeze, Volume 7, Issue 5, Page 12, link <a href="https://b286c762-1c9b-468d-afbf-9f039b298299.usrfiles.com/ugd/b286c7_8c73c80f65b341c49d62e5ec178bb6a0.pdf"><font color="DarkGreen">1993-0600 The DCB (U.S.A.)</font></a>.</list-item>
+</wave-list>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Links</list-title>

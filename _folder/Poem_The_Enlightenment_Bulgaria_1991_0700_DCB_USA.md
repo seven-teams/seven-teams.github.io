@@ -5,7 +5,7 @@ permalink: /folder/1991-0701-The-Enlightenment-1991-0700-DCB-USA-P10
 tags:
   - black @ Poetry
   - blue @ TBD
-  - brown @ 1992
+  - brown @ 1991
   - cornflowerblue @ Bulgaria 
   - deeppink @ 1991-0700 The Divine Cool Breeze (U.S.A.)
   - maroon @ Enlightenment   
