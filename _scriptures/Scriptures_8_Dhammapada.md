@@ -4871,7 +4871,7 @@ asokaṁ virajaṁ suddhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 
 <p>
 <b>412 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen"> He who in this world has gone beyond good and evil and both, who free from sorrows is free from passions and is pure - him I call a Brahmin.</font><br>
 <font color="blue">He is pure and free.<br>
 How clear he is.</font><br>
 <font color="Peru">Whoever here has overcome clinging to both merit and demerit,<br>
@@ -4886,7 +4886,7 @@ nandībhavaparikkhīṇaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 
 <p>
 <b>413 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">He who like the moon is pure, bright, clear and serene; whose pleasure for things that pass away is gone - him I call a Brahmin.</font><br>
 <font color="blue">He is the moon.<br>
 He is serene.<br>
 He shines.</font><br>
@@ -4903,7 +4903,7 @@ anupādāya nibbuto, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 
 <p>
 <b>414 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">He who has gone beyond the illusion of Samsara, the muddy road of transmigration so difficult to pass; who has crossed to the other shore and, free from doubts and temporal desires, has reached in his deep contemplation the joy of NIRVANA - him I call a Brahmin.</font><br>
 <font color="blue">For he has travelled<br>
 Life after life<br>
 The muddy and treacherous road of illusion.<br>
@@ -4923,7 +4923,7 @@ kāmabhavaparikkhīṇaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 
 <p>
 <b>415 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">He who wanders without a home in this world, leaving behind the desires of the world, and the desires never return - him I call a Brahmin.</font><br>
 <font color="blue">Calmly<br>
 He lets go of life,</font><br>
 <font color="Peru">Whoever, giving up sensual desires, would wander homeless here,<br>
@@ -4938,7 +4938,7 @@ taṇhābhavaparikkhīṇaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 
 <p>
 <b>416 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">He who wanders without a home in this world, leaving behind the feverish thirst for the world, and the fever never returns - him I call a Brahmin.</font><br>
 <font color="blue">Or home and pleasure and desire.</font><br>
 <font color="Peru">Whoever, giving up craving, would wander homeless here,<br>
 destroying craving and existence, that one I say is a brahmin.</font>
@@ -4952,7 +4952,7 @@ sabbayogavisaṁyuttaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 
 <p>
 <b>417 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">He who is free from the bondage of men and also from the bondage of the gods ; who is free from all things in creation - him I call a Brahmin.</font><br>
 <font color="blue">Nothing of men can hold him.<br>
 Nothing of the gods can hold him.<br>
 Nothing in all creation can hold him.</font><br>
@@ -4968,7 +4968,7 @@ sabbalokābhibhuṁ vīraṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 
 <p>
 <b>418 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">He who is free from pleasure and pain, who is calm, and whose seeds of death-in-life are burnt, whose heroism has conquered all the inner worlds - him I call a Brahmin.</font><br>
 <font color="blue">Desire has left him,<br>
 Never to return.<br>
 Sorrow has left him,<br>
@@ -4989,7 +4989,7 @@ asattaṁ sugataṁ buddhaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 
 <p>
 <b>419 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">He who knows the going and returning of beings - the birth and rebirth of life - and in joy has arrived at the end of his journey, and now he is awake and can see -him I call a Brahmin.</font><br>
 <font color="blue">With dispassionate eye<br>
 He sees everywhere<br>
 The falling and the uprising.<br>
@@ -5008,7 +5008,7 @@ khīṇāsavaṁ Arahantaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 
 <p>
 <b>420 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">He whose path is not known by men, nor by spirits or gods, who is pure from all imperfections, who is a saint, an Arahat - him I call a Brahmin.</font><br>
 <font color="blue">And the way he has taken<br>
 Is hidden from men,<br>
 Even from spirits and gods,<br>
@@ -5025,7 +5025,7 @@ akiñchanaṁ anādānaṁ, tam-ahaṁ brūmi brāhmaṇaṁ.</font>
 
 <p>
 <b>421 Translations</b><br>
-<font color="DarkGreen"></font><br>
+<font color="DarkGreen">He for whom things future or past or present are nothing, who has noihing and desires nothing - him I call a Brahmin.</font><br>
 <font color="blue">In him there in no yesterday,<br>
 No tomorrow,<br>
 No today.<br>

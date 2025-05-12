@@ -1,6 +1,6 @@
 ---
 title: 'Treatments (Collective footsoak routine as used in the International Sahaja Yoga Health Centre) from 2006-0630 The Australian Sahaja Yoga Newsletter, Page 4'
-date: 2006-06-01
+date: 2006-06-30
 permalink: /folder/Treatment-2006-0630-TASYN
 tags:
   - black @ Treatment
