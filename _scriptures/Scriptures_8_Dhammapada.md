@@ -70,6 +70,8 @@ Also if you read, say, Buddha, Dhammapad, it says the same thing. Or, these Chri
 <b>1992-0224 Public Program, Maidment Theatre, Auckland CBD, Auckland, New Zealand</b>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Chapter 1</b><br>
 <font color="DarkGreen"><b>Contrary Ways</b></font><br>
