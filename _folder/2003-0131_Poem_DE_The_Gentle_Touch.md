@@ -59,14 +59,14 @@ We learn, we grow, we love.<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 2025-0502 Author's email to CCT.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 2025-0502 and 0516 Author's emails to CCT.</list-item>
 </wave-list>
 
 <br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2025-0502 Author's .docx file attached to email to CCT:</b> "I was living in Vancouver, Canada between 2002-2003 and wanted to write a poem for Shri Mataji’s Birthday coming up in March 2003. Somehow, every year around that time, I would just have the desire to write something and then I would surrender it, not knowing when the inspiration might come, but always trusting that it would. I was living in the ashram at the time and showed my poem, ‘The Gentle Breeze’ to Richard Payment, who was the editor of the Divine Cool Breeze. He decided to include an excerpt in the next edition of the magazine and I was so happy. [Excerpt on 2003-0100 and 0200 The Divine Cool Breeze (USA), Volume 16, Issue 1, Page 48, link <a href="https://b286c762-1c9b-468d-afbf-9f039b298299.usrfiles.com/ugd/b286c7_8d7950519e574b25b0eb5099b0388472.pdf"><font color="DarkGreen">2003-0100 and 0200 DCB (USA)</font></a>.]<br>
+  <list-item color="BlanchedAlmond"  width="280"><b>2025-0502 Author's .docx file attached to an email to CCT and 2025-0516 Author's email to CCT:</b> "I was living in Vancouver, Canada between 2002-2003 and wanted to write a poem for Shri Mataji’s Birthday coming up in March 2003. Somehow, every year around that time, I would just have the desire to write something and then I would surrender it, not knowing when the inspiration might come, but always trusting that it would. I was living in the ashram at the time and showed my poem, ‘The Gentle Breeze’ to Richard Payment, who was the editor of the Divine Cool Breeze. He decided to include an excerpt in the next edition of the magazine and I was so happy. [Excerpt on 2003-0100 and 0200 The Divine Cool Breeze (USA), Volume 16, Issue 1, Page 48, link <a href="https://b286c762-1c9b-468d-afbf-9f039b298299.usrfiles.com/ugd/b286c7_8d7950519e574b25b0eb5099b0388472.pdf"><font color="DarkGreen">2003-0100 and 0200 DCB (USA)</font></a>.]<br>
 <br>
 But it was only recently that I came across this photo shown during a video I was watching... There was Shri Mataji reading that particular edition of Divine Cool Breeze...
 Thank You Holy Mother for allowing me to write this poem and to present it to You. ɝ"</list-item>
