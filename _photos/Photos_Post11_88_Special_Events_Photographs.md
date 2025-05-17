@@ -12,9 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 Photos from the special event <font color="Crimson"><b>1904-0000 Public Program (holding a candle)</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>:  1 high resolution and 1 medium resolution from the Named Collections.<br>
-The direct link to the 4 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/TBD/1904"> TBD 1904</a>.<br>
-[Note: second Photo uploaded on 2024-0105.]<br>
+We are pleased to let you know that 3 Photos from the special event <font color="Crimson"><b>1904-0000 Public Program (holding a candle)</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>:  1 high resolution and 2 medium resolution from the Named Collections.<br>
+The direct link to the 5 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/TBD/1904"> TBD 1904</a>.<br>
+[Note: second Photo uploaded on 2024-0105; third Photo uploaded on 2025-0517.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
