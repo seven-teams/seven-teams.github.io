@@ -1,6 +1,6 @@
 ---
 title: '2017-0403_Talk Performance  &#8216;Listening to the Marionette&#8217; by Bruno Jatobá Descaves at TEDxPSU'
-date: 2017-04-11
+date: 2025-05-18
 permalink: /folder/2017-0404-BJD-Listening-to-the-Marionette-TEDxPSU
 tags:
   - black @ Performance
