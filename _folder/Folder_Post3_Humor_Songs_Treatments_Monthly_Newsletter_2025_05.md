@@ -1,7 +1,7 @@
 ---
 title: 'Folder Post 2: Humor, Songs, Treatments Bimonthly Newsletter, May 2025'
-date: 2025-05-20
-permalink: /folder/2025/0520-a
+date: 2025-05-12
+permalink: /folder/2025/0512
 tags:
   - crimson @ Short Prose Monthly Newsletter
 ---
@@ -17,6 +17,7 @@ Since the July 2024 newsletter, the following 6 humor pieces, songs or treatment
 4. <a href="https://seven-teams.github.io/folder/2003-0829-Humor-SYAN> <font color="DeepPink"><b>Humor</b></font></a><br>
 5. <a href="https://seven-teams.github.io/folder/Treatment-AK-Left-Side-2007-1012-1019-TASYN"> <font color="DeepPink"><b>Left Side</b></font></a><br>
 6. <a href="https://seven-teams.github.io/folder/2017-0404-BJD-Listening-to-the-Marionette-TEDxPSU"> <font color="DeepPink"><b>Listening to the Marionette</b></font></a><br>
+[Note: items 1 and 6 were added to this monthly report only on 0520.]<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>

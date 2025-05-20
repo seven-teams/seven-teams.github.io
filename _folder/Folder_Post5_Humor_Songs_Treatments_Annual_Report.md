@@ -1,7 +1,7 @@
 ---
 title: 'Folder Post 5: First Annual Report on Humor, Songs, and Treatments (including Performances)'
 date: 2025-05-20
-permalink: /folder/2025/0520-b
+permalink: /folder/2025/0520
 tags:
   - crimson @ Humor, Songs, and Treatments Monthly Newsletter
 ---
