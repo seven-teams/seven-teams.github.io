@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Since the July 2024 newsletter, the following 4 humor pieces, songs or treatments have been uploaded this month.<br>
+Starting Step 9 of the database, the following 4 humor pieces, songs or treatments have been uploaded this month.<br>
 1. <a href="https://seven-teams.github.io/folder/2005-0422-WC-Sahaj-Humor"> <font color="DeepPink"><b>Humor</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/India-1991-1122-SNA"> <font color="DeepPink"><b>India</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/1993-1223-122x-AC-1994-0128-TASN"> <font color="DeepPink"><b>Song</b></font></a><br>
