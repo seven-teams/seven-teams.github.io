@@ -1,5 +1,5 @@
 ---
-title: 'Short Prose &#The Extra Letter&#8217; by Stephen Taylor from the 1991-1115 Sahaja Newsletter (Australia), Page 2'
+title: 'Short Prose &#8216;The Extra Letter&#8217; by Stephen Taylor from the 1991-1115 Sahaja Newsletter (Australia), Page 2'
 date: 1991-11-01
 permalink: /folder/1991-1101-ST-The-Extra-Letter-1991-1115-SNA-P3
 tags:

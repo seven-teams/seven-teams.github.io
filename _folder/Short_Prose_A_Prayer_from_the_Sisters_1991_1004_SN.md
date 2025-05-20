@@ -1,5 +1,5 @@
 ---
-title: 'Short Prose &#A Prayer from the Sisters&#8217; from the 1991-1004 Sahaja Newsletter (Australia), Page 6'
+title: 'Short Prose &#8216;A Prayer from the Sisters&#8217; from the 1991-1004 Sahaja Newsletter (Australia), Page 6'
 date: 1991-09-01
 permalink: /folder/1991-0901-1991-1004-SNA-P6
 tags:
