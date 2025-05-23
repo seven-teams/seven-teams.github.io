@@ -32,7 +32,7 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"And I'm sure a day will come when France will rise very high in spirituality. I am uh [<font color="orange">unclear</font>]  very hopeful.."</font><br>
+<font color="DarkRed">"And I'm sure a day will come when France will rise very high in spirituality. I am uh [<font color="orange">unclear</font>]  very hopeful."</font><br>
 <font size="+0"><b>1984-0215 Talk to French Sahaja Yogis, after the Marriages Ceremony, Bordi, Maharashtra, India</b></font>
 </p>
 
