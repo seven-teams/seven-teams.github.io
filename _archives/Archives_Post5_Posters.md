@@ -63,42 +63,54 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>P8.</b></font> <b>1994-0900 Poster for Public Programs on 1001 and 1003 in New York City, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+<font color="DarkGreen"><b>P8.</b></font> <b>1994-0900 Poster for Public Program on 0925, Earl Haig Secondary School, North York, ON, Canada (Jo Băjescu Collection)</b> (1 page, uploaded on 2025-0607)
+
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1994-0900_Poster_for_Public_Program_on_0925_Earl_Haig_Secondary_School_North_York_ON_Canada_(reduced_resolution)_(Jo_Bajescu_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P9.</b></font> <b>1994-0900 Poster for Public Programs on 1001 and 1003 in New York City, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
 <div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1994-0900_Poster_for_Public_Programs_on_1001_and_1003_in_New_York_City_NY_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>P9.</b></font> <b>1996-1200 Poster for Public Program on 1211 in Lucknow, UP, India (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+<font color="DarkGreen"><b>P10.</b></font> <b>1996-1200 Poster for Public Program on 1211 in Lucknow, UP, India (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
 <div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1996-1200_Poster_for_Public_Program_on_1211_in_Lucknow_UP_India_(Jo_Bajescu_Collection).jpg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>P10.</b></font> <b>1996-1200 Poster for Public Program on 1220 in Mumbai, Maharashtra, India (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+<font color="DarkGreen"><b>P11.</b></font> <b>1996-1200 Poster for Public Program on 1220 in Mumbai, Maharashtra, India (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
 <div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1996-1200_Poster_for_Public_Program_on_1220_in_Mumbai_Maharashtra_India_(Jo_Bajescu_Collection).jpeg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>P11.</b></font> <b>1997-0600 Poster for Public Program on 0610 at Cathedral of St. John the Divine, New York City, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
+<font color="DarkGreen"><b>P12.</b></font> <b>1997-0600 Poster for Public Program on 0610 at Cathedral of St. John the Divine, New York City, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227)
 
 <div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1997-0600_Poster_for_Public_Program_on_0610_at_Cathedral_of_St._John_the_Divine_New_York_City_NY_U.S.A._(Jo_Bajescu_Collection).jpeg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>P12.</b></font> <b>1997-0600 Poster for Public Program on 0618, Berkeley, CA, U.S.A. (CCT Scans Collection)</b> (1 page, uploaded on 2023-0502)
+<font color="DarkGreen"><b>P13.</b></font> <b>1997-0600 Poster for Public Program on 0618, Berkeley, CA, U.S.A. (CCT Scans Collection)</b> (1 page, uploaded on 2023-0502)
 
 <div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1997-0600_Poster_for_Public_Program_on_0618_Berkeley_CA_U.S.A._(from_tif_reduced_size)_(CCT_Scans_Collection).jpg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>P13.</b></font> <b>1997-1100 Poster for Public Program on 1118, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0502), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
+<font color="DarkGreen"><b>P14.</b></font> <b>1997-1100 Poster for Public Program on 1118, Prague, Czech Republic (David Burša Collection)</b> (1 page, uploaded on 2023-0502), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
 <div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1997-1100_Poster_for_Public_Program_on_1118_Prague_Czech_Republic_(David_Bursa_Collection).jpeg" /></div>
 
 <br>
 
-<font color="DarkGreen"><b>P14.</b></font> <b>2001-0700 Poster for Public Program on 0802 at Empire State Plaza, Albany, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227), <font color="SeaGreen"><b>
+<font color="DarkGreen"><b>P15.</b></font> <b>2000-0600 Poster for Public Program on 0620 at University of Maryland University College, 3501 University Boulevard East, Adelphi, MD, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2025-0607), <font color="SeaGreen"><b>
+
+<div style="text-align: center"><img src="https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2000-0600_Poster_for_Public_Program_on_0620_at_University_of_Maryland_University_College_Adelphi_MD_U.S.A._(reduced_resolution)_(Jo_Bajescu_Collection).jpeg" /></div>
+
+<br>
+
+<font color="DarkGreen"><b>P16.</b></font> <b>2001-0700 Poster for Public Program on 0802 at Empire State Plaza, Albany, NY, U.S.A. (Jo Băjescu Collection)</b> (1 page, uploaded on 2024-0227), <font color="SeaGreen"><b>
 
 <div style="text-align: center"><img src="https://pub-823d44bb4c8e45f198d25ae0ff8f8c77.r2.dev/2001-0700_Poster_for_Public_Program_on_0802_at_Empire_State_Plaza_Albany_NY_U.S.A._(Jo_Bajescu_Collection).jpg" /></div>

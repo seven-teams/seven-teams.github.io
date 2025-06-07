@@ -19,7 +19,7 @@ tags:
 <b>5.</b> <a href="https://seven-teams.github.io/archives/2023/0119"><font color="maroon"><b>Letters and Press Releases</b></font></a>: 5 files<br>
 <b>6.</b> <a href="https://seven-teams.github.io/archives/2023/0824-a"><font color="maroon"><b>Newsletter Australia</b></font></a>: 3 files<br>
 <b>7.</b> <a href="https://seven-teams.github.io/archives/2023/0829"><font color="maroon"><b>Official Photos with Text</b></font></a>: 1 file<br>
-<b>8.</b> <a href="https://seven-teams.github.io/archives/2023/0502"><font color="maroon"><b>Posters</b></font></a>: 14 files<br>
+<b>8.</b> <a href="https://seven-teams.github.io/archives/2023/0502"><font color="maroon"><b>Posters</b></font></a>: 16 files<br>
 <b>9.</b> <a href="https://seven-teams.github.io/archives/2023/0519"><font color="maroon"><b>Publications Related to Offerings</b></font></a>: 1 file<br>
 <b>10.</b> <a href="https://seven-teams.github.io/archives/2023/0629"><font color="maroon"><b>Sahaj Patrika (Hindi)</b></font></a>: 1 file<br>
 <b>11.</b> <b>Sahaj Yog (Marathi)</b>: Total files 4<br>
