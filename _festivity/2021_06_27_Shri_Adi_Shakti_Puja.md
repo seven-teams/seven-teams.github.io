@@ -142,7 +142,7 @@ Thank You for being our Mother.</b></font><br>
 </p>
 
 <p>
-<font color="green"><b>Tujhya pujani (2001-0707 Guru Pūjā, Cabella)</b></font><br>
+<font color="green"><b>Tujhya Pujani (2001-0707 Guru Pūjā, Cabella)</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
