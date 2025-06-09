@@ -10,9 +10,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 6 Photos of the special event <font color="Crimson"><b>1978-1015-d Departure, UK</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 medium/high resolutions and 2 low resolutions from the Named Collections.<br>
+We are pleased to let you know that 9 Photos of the special event <font color="Crimson"><b>1978-1015-d Departure, UK</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution, 4 medium/high resolutions and 4 low resolutions from the Named Collections.<br>
 The direct link to the 6 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Patricia-Proenza-Collection/1978"><font color="DarkGreen">Collection 1978</font></a>.<br>
-[Note: 1 low resolution uploaded only on 2024-0821.]<br>
+[Note: 1 Photo uploaded only on 2024-0821 and 3 Photos uploaded on 2025-0609.]<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
