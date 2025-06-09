@@ -23,7 +23,7 @@ May God bless you.</b>"</font><br>
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0149.png" /></div>
 
 <p style=" text-align:center;">
-<font color="MediumVioletRed"><b>Thank You</b> for descending from Your heavenly abode, Mātā Dvīpa, to bring light into the darkness of Kali Yuga.<br> 
+<font color="DarkGreen"><b>Thank You</b> for descending from Your heavenly abode, Mātā Dvīpa, to bring light into the darkness of Kali Yuga.<br> 
 <b>Thank You</b>, Śhrī Mātājī, again and again.<br>
 <b>Thank You</b> for delivering Sahaja Yoga to a confused and self-destructive humanity.<br>
 <b>Thank You</b> for revealing the meaning of creation and evolution to us.<br>
@@ -69,11 +69,10 @@ She is the source of love, mercy, sympathy, and forgiveness. And this Earth is t
 It produces them, nurses them, and weans them.<br>
 The trees and flowers become kind mothers of their great fruits and seeds.<br>
 And the Mother, the prototype of all existence, is the Eternal<br>
-Spirit, full of beauty and love. </font><br>
+Spirit, full of beauty and love.</font><br>
 <font size="+0"><b>('Broken Wings' by Kahlil Gibran)</b></font><br>
-<font color="DarkRed"><b>Mother, I adore You</b></font><br>
+<font color="DarkGreen"><b>Mother, I adore You</b></font><br>
 <a href="https://youtu.be/LsWaC7NktHA">video</a>
-</p>
 </p>
 
 <p style="text-align:center;">
