@@ -47,7 +47,7 @@ So, in your own way, when you are doing Sahaja Yoga, there also you have to be a
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>The most beautiful word on the lips of mankind is the word "Mother," and the most beautiful call is the call of "My mother."<br>
-It is a word full of hope and love, a sweet and kind word coming from the depths of the heart. </b><br>
+It is a word full of hope and love, a sweet and kind word coming from the depths of the heart.</b><br>
 (Kahlil Gibran)</font>
 </p>
 
