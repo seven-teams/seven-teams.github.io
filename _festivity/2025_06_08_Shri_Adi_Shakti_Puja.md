@@ -1,6 +1,6 @@
 ---
 title: '2025 Woshiping Śhrī Ādi Śhakti: "I think this is the most important Pūjā, because it is the Power of Ādi Śhakti that has given you Self-realization, that has given you the Truth, that has given you the Power of Compassion and Love." '
-date: 2025-06-00
+date: 2025-06-08
 permalink: /festivity/2025/06/08
 tags:
   - orange @ Shri Adi Shakti Puja
