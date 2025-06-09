@@ -82,7 +82,7 @@ Spirit, full of beauty and love. </font><br>
 <b>Thank You</b> for being gentle.<br>
 <b>Thank You</b> for being wonderful.<br>
 <b>Thank You</b> for being in our hearts.<br>
-<b>Thank You</b> for being our Guru.<br>
+<b>Thank You</b> for being our Guru.</b><br>
 <b>Thank You</b> for being our Mother.</b><br>
 <br>
 <b>Sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
