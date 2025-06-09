@@ -17,7 +17,7 @@ This is Her great work [done] with such love and affection, and with very great 
 <font size="+0"><b>2001-0603 Śhrī Ādi Śhakti Pūjā, The Work of Ādi Śhakti and These Are the Most Important Times (Compassion Today Is to Transform Human Beings into Sahajīs and You Are the Ones Who Have to Build Up the Destiny of Human Beings), Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0149.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0152.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Today, we are all going to worship Me, first time. It has been always the Pūjā of [an] aspect of Me or a part of Me.</b><br> 
@@ -44,7 +44,7 @@ So, sucking should be more. Sucking should be more. And just before the Pūjā y
 <font size="+0"><b>1982-0801 Śhrī Ādi Śhakti Pūjā, The Privilege of this Worship, Seminar, Day 2, Cowley Manor, Cheltenham, Gloucestershire, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0150.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0153.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Love is the Message of Ādi Śhakti.<br>
@@ -83,7 +83,7 @@ In short, we can say that She forms Three Powers of Mahākālī, Mahāsaraswatī
 <font size="+0"><b>1997-0525 Śhrī Ādi Śhakti Pūjā, You Must Give this Love to Others or Respect the Mother Earth, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0151.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0154.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Today it's a different day altogether, for all of you, because this is the Pūjā of Ādi Śhakti.<br>
@@ -98,21 +98,21 @@ Now, if you want to see it from a scientific way, then science means ... it has 
 <font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0152.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0155.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"Now, uh for us uh-uh-uh to worship Ādi Śhakti ... I don't know also because there have been no prayers or anything about Ādi Śhakti. Up to Bhagavatī they have gone, but beyond Bhagavatī they have not gone, so I do not know what sort of Pūjā we will have, but let's try something. Maybe, <b>I think the meditation is the best way we can really achieve something.</b><br>
 So we can go into meditation for about five minutes.<br>
 [Drinks water. Tries to blow into the mike but it doesn't work.] [Speaks again after 47 seconds:] Can you increase the volume?<br>
 Please close your eyes.<br>
-[Blows Cool Breeze through the microphon twelve times. Drinks water.]<br>
+[Blows Cool Breeze through the microphone twelve times. Drinks water.]<br>
 <b>Eleven Rudras are awakened and they will destroy all that is negative.<br>
 Now, ignorance is the greatest negative force and I'm sure they'll destroy this ignorance of people.<br>
 May God bless you all!</b>"</font><br>
 <font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0153.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0156.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>Dene Zeri Amuchya Shiri,</b></font><br>
@@ -144,7 +144,7 @@ Your power of Kuṇḍalinī brings freedom that is divine. It is the only true 
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Alessandria, Italy</b></font>
-<a href="https://vimeo.com/24312120"> video</a><br>
+<a href="https://vimeo.com/24312120">video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
 
