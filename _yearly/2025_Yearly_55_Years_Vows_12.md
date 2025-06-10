@@ -23,7 +23,7 @@ So, today we have to decide that, as the children of Ādi Śhakti, we have to go
 It is rather, rather difficult for Me to say something forcefully. That's not My nature, you know. Can't get into tempers, I cannot get angry. And I cannot forcefully say something to you, but, if you fail, then [the] only thing will be: that you have failed Me completely. It means that, nothing less than that.<br>
 And if you don't want to do it, then I would request all of you to take a vow today that, 'We'll spread Sahaja Yoga and we'll talk about Sahaja Yoga, know about Sahaj Yog.'<br>
 There are many who don't know anything! Also, it's very surprising: they are Sahaja Yogis, they don't know anything.<br>
-And don't create problems for Me, like marriage: 'We can't now live with the wife,' 'We can't live with the husband.' All sorts of nonsensical problems people create for Me in Sahaja Yoga. Are you here to create problems or to remove problems of people?<br>
+And don't create problems for Me, like marriage: 'We can't now live with the wife,' 'We can't live with the husband.' All sorts of nonsensical problems people create for Me in Sahaja Yoga. Are you here to create problems or to remove problems of people?"<br>
 <font color="blue"><b>1997-0525 Śhrī Ādi Śhakti Pūjā, You Must Give this Love to Others or Respect the Mother Earth, Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
 </p>
 
