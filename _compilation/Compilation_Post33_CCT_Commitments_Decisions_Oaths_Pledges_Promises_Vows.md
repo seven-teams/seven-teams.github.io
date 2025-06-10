@@ -608,6 +608,8 @@ Today, on this day you all should vow! Vow, that: 'We are on the warpath and we 
 
 <p>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">I would request [that] each one of you should rise. At your own level, rise higher and try to spread Sahaja Yoga in the proper way.<br>
+Today, you have to take a vow, because it's a new year's day, such a great day when we are here, to say that, 'Even if we have to give our lives, we give it for Sahaja Yoga because one life can save thousands!' Then why not do it?<br>
+......<br>
 So today, the first and the foremost vow is, as I told you, that we have to get cleansed up in such a way that become ... we become free of ego and superego. We should get rid of our ignorance and darkness. And the second vow, as I have said, that you have to become the light to remove the darkness and ignorance of others.<br>
 By sharing My problems, by sharing My anxieties about them -- those who are lost -- and not to be involved into your own personal anxieties and petty things. My problems should be your problems now because you all belong to Me, to My body, to My being.<br>
 And I request you to join hands with Me, with full determination and complete attention and the heart of a lion.<br>
@@ -651,8 +653,8 @@ I would suggest that: those who are elderly people should be given chairs, and t
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"We must all take a vow that we will not enter into the premises of her house, telephone to her or write letters from anywhere in the world."</font><br>
+<font size="+0"><b>1987-0101 Letter (Message) of Sahaja Yogis for J. J. Modi and for Trustees of Life Eternal Trust with Handwritten Approval, Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -782,8 +784,8 @@ And the joy is what I want you to have and not self-destruction or stupid condit
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"So today, again a day of great determination, and taking a vow: that, `For us, our ascent is the only concern, is the only idea.' Nothing else! And it will work out. All the rest will be taken care of. You have all the mechanics to do that. But first, give it to the mechanics to work out. All will work in a reflex action.<br>
-Clear! Clear out your chakras! Don't say, `I have this, I have that'! Just clear out! `How dare I have all these problems? How dare I have all these chakras still lingering?' Clear out! Morning, evening, clear out!<br>
+<font color="DarkRed">"So today, again a day of great determination, and taking a vow: that, 'For us, our ascent is the only concern, is the only idea.' Nothing else! And it will work out. All the rest will be taken care of. You have all the mechanics to do that. But first, give it to the mechanics to work out. All will work in a reflex action.<br>
+Clear! Clear out your chakras! Don't say, 'I have this, I have that'! Just clear out! 'How dare I have all these problems? How dare I have all these chakras still lingering?' Clear out! Morning, evening, clear out!<br>
 I'm sure it will work out.<br>
 Next year, I hope I'll have some good news."</font><br>
 <font size="+0"><b>1988-0508 Sahasrāra Pūjā, How it Was Decided (Nothing Is More Important Than Your Ascent or Our Ascent Is the Only Concern, Tent, Finanziari Colonia Marina, Fregene (40 kms E of Rome), Lazio, Italy</b></font>
@@ -860,7 +862,7 @@ This is a tremendous work we have to do. It is the evolution of the highest type
 
 <p>
 <font color="DarkRed">"Sahaja Yoga is not by the way.<br>
-And it happens [that it becomes `by the way']. Like, when I went to Australia, I was surprised: that, Sahaja Yoga, which was such a prime thing frod [for] them, suddenly became by the way.<br>
+And it happens [that it becomes 'by the way']. Like, when I went to Australia, I was surprised: that, Sahaja Yoga, which was such a prime thing frod [for] them, suddenly became by the way.<br>
 So Sahaja Yoga is a commitment. Is a commitment and complete involvement. Otherwise you are really useless for Sahaja Yoga, absolutely useless. Is better to have few people who are committed than to have thousands who are just useless.<br>
 So, let us see what you have decided for yourself and what you have decided for Sahaja Yoga. If you have decided to opt for Sahaja Yoga, then just know that this is the main thing which you have to do. The whole attention should be on that.<br>
 ......<br>
@@ -1158,8 +1160,14 @@ Because you do not meditate, you do not have the depth to show that you are grea
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+"So, in that reflection that you are Me, in that rekflection [reflection] that the Mother Earth is Me, in that beautiful creation within you, you have to become very sensitive to the need of the world, what is the need of the world. Today, if you fail, the whole thing will fail forever. Only very few will be there. So the need for you is: to s-spread Sahaja Yoga because this love is not only for you, is not to be enjoyed [only] by you, but is to be enjoyed by as many possible in the whole world.<br>
+So, today we have to decide that, as the children of Ādi Śhakti, we have to go all out. Everywhere, every corner, we have to shout and we have to tell loudly what is the time in which we are living and what is the responsibility that you have to fulfill as Sahaja Yogis.<br>
+......<br>
+It is rather, rather difficult for Me to say something forcefully. That's not My nature, you know. Can't get into tempers, I cannot get angry. And I cannot forcefully say something to you, but, if you fail, then [the] only thing will be: that you have failed Me completely. It means that, nothing less than that.<br>
+And if you don't want to do it, then I would request all of you to take a vow today that, 'We'll spread Sahaja Yoga and we'll talk about Sahaja Yoga, know about Sahaj Yog.'<br>
+There are many who don't know anything! Also, it's very surprising: they are Sahaja Yogis, they don't know anything.<br>
+And don't create problems for Me, like marriage: 'We can't now live with the wife,' 'We can't live with the husband.' All sorts of nonsensical problems people create for Me in Sahaja Yoga. Are you here to create problems or to remove problems of people?<br>
+<font color="blue"><b>1997-0525 Śhrī Ādi Śhakti Pūjā, You Must Give this Love to Others or Respect the Mother Earth, Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
 </p>
 
 <div class="para-divider"></div>
@@ -1226,7 +1234,7 @@ But I am requesting you: that you have to go deep down into yourself and see tha
 
 <p>
 <font color="DarkRed">"Now, you must all promise Me that you will not divide amongst yourselves, as you have done with all the others.<br>
-[Before they could wonder what She means and who those ``others" are, Śhrī Mātājī continues saying how, after the departure of each Incarnation, the followers of that Incarnation had invariably started to disagree with each other and started to create division.]<br>
+[Before they could wonder what She means and who those "others" are, Śhrī Mātājī continues saying how, after the departure of each Incarnation, the followers of that Incarnation had invariably started to disagree with each other and started to create division.]<br>
 [Śhrī Mātājī explains how at the time of Christ, they had allowed someone like Paul to take hold of the teachings, or how, almost immediately after the demise of Muhammad, human beings took over and created a division. She talks about how in many religions (Buddhism is also mentioned) human beings would change and distort the legacy of that Incarnation and create a system out of it.]<br>
 [After a while Śhrī Mātājī says:] But you must promise Me that you will not do that to Me. If I am the Ādi Śhakti, then the one thing you cannot do to Me ... is that later on you will create division amongst yourselves.<br>
 [Śhrī Mātājī is very concerned about the prospect that this could happen. She explains how the solution is in the fact that we have vibrations. If Sahaja Yogis truly are in the state in which the vibrations are guiding our thoughts and deeds, then such divisions cannot take place. She warns them that if division and discord do start to show up, it is a sign that they are not in tune with Her and the vibrations.].<br>
