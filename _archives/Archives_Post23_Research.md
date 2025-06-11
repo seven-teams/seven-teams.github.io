@@ -1,6 +1,6 @@
 ---
 title: 'Archive Post 23: Research'
-date: 2024-12-29
+date: 2025-06-11
 permalink: /archives/2025/0611
 tags:
   - darkblue @ Research
