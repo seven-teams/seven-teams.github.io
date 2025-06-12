@@ -86,13 +86,6 @@ And those gurus who know about it, they know that on our left, at the place of S
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b>1983-1020 Public Program, Day 3, The Community Church, 40 East and 35th Street, Manhattan, New York City, NY, U.S.A.</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
 <font size="+0"><b>1984-0213 Śhrī Devī Pūjā, What Is Expected of Sahaja Yogis and Where Are We, Bordi, Maharashtra, India</b></font>
 </p>
 
@@ -141,7 +134,9 @@ And those gurus who know about it, they know that on our left, at the place of S
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"There's a gentleman, a Muslim gentleman, I'm happy he asked Me a very nice question about Imam Husayn Sāhab, the son of ʿAlī. The Mother was Fāṭimah Bi. He was killed in the war, where They were absolutely correct: what They said was correct, no doubt. Both the brothers were killed. And He said: ``We have to fight our enemies."<br>
+It was all right for Them to know who was their enemy, because They were realized Souls. We are not. We do not know who are our enemies.<br>
+These are age-old things, also, we need not carry it on."</font><br>
 <font size="+0"><b>1992-0612 Public Program, Day 2, Royal Albert Hall, Kensington Gore, South Kensington, London SW7 2AP, UK</b></font>
 </p>
 
@@ -207,7 +202,9 @@ We have Hazarat ʿAlī, who was Himself, according to our Sahaja Yoga, He was an
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So, everything went upside down with this kind of thing, like Mister Paul coming in, and, for Qur'ān, there's a fellow called Mohaya who authorized Qur'ān. He killed three khalifas, He killed Hazarat ʿAlī, He killed his two sons, Hazarat ʿAlī's two sons, and his mother ate the liver of one of the khalifas.<br>
+Yet least, even Hitler never ate somebody's liver.<br>
+Such a horrible man like him has authorized the Qur'ān."</font><br>
 <font size="+0"><b>1994-0730 Public Program, Anantara Grand Hotel Krasnopolsky Amsterdam, Dam 9, 1012 JS Amsterdam, Netherlands</b></font>
 </p>
 
@@ -228,7 +225,14 @@ We have Hazarat ʿAlī, who was Himself, according to our Sahaja Yoga, He was an
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"There is a special relationship that exists between Saints, and it's very joy-giving. You feel you are not alone in this place: there are many others who have lived. But they could not do much because people were so ignorant.<br>
+Most of the Saints, even Muhammad Sāhab was tortured. Hazarat ʿAlī who, was a Great Incarnation, also was killed. He ... His two children from Fāṭimah also were killed. Horrible things happened to Them.<br>
+That does not mean that spiritual people do not have the protection of the Divine. But it was all done to show how these people could sacrifice Their life [lives] for Truth.<br>
+All this is done for us. All these sacrifices are going to help us.<br>
+Gradually we'll realize where They exist within our body. If They're enlightened within you, you get Their blessings. You have to have connection with Them.<br>
+......<br>
+He was himself a realized Soul. And he had tremendous-s-s respect for Muhammad Sāhsb, for Hazarat ʿAlī, for Fāṭimah, for Hasan, Husayn.<br>
+He told ... he told Me all about Islam or how to talk to Islamic people. Because if you tell the Truth, there will be a fatwā on Me.<br>"</font><br>
 <font size="+0"><b>1994-1112 Public Program, Day 2, Auditorium, Hotel Karim (now closed), Route Touristique Raouad, Gammarth (21 kms NE of Tunis), Tunisia</b></font>
 </p>
 
