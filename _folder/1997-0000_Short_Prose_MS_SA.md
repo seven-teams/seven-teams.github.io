@@ -6,7 +6,7 @@ tags:
   - black @ Short Prose
   - blue @ Melissa S.
   - brown @ 1997
-  - cornflowerblue @ ISPS Dharamshala
+  - cornflowerblue @ ISPS Dharamshala, Class 8
   - deeppink @ 1997-98 Sahaj Amrit
   - maroon @ Cat
   - maroon @ Dislike
