@@ -1759,6 +1759,21 @@ And then came Hazarat Muhammad, who did such a lot of work for all of us.</font>
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"Whatever Muhammad Sāhab has done is to respect women. He has written more about Christ's Mother than it is written in the Bible. ``For Her chastity, nobody should challenge," He says.<br>
+In Sahaja Yoga, you will know who They were: who was Fāṭimah, who was Hazarat ʿAlī, who was Muhammad Sāhab. You will know everything. All the subtle side of these Great Incarnations you will know, and you will get proof. It is a tangible thing, absolutely tangible."</font><br>
+<font size="+0"><b>1994-1112 Meeting (Conversation) with Seekers, On Departure after the Public Program, Hotel Karim (now closed), Route Touristique Raouad, Gammarth (21 kms NE of Tunis), Tunisia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "In every religion there is some sort of a stupid stuff pushed forward, in every. Nobody could really stop it. Because those people who are in charge of religion have no enlightenment, they have nothing to k... do with it, anywhere.<br>
 And that's how, I have seen, people, say, in Japan, they follow one religion, and in uh-uh-uh China they follow another religion, both are just the same: one is Zen, another is Tao. But the misunderstanding is that they think, 'We are ex-xu-xu-xclusive [exclusive].' They are not! None of them are exclusive!.<br>
 <font color="red">Muhammad Sāhab described all of Them: from Abraham to Moses, to Christ, to the Mother of Christ. And He said, :There have been more than one lākh Nabīs on this Earth."</font><br>

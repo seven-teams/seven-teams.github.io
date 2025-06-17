@@ -140,8 +140,8 @@ When you believe in Muhammad Sāhab also, also in Nāṇak Sāhab, and in Hazara
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font color="red">"In Sahaja Yoga, you will know who They were: who was Fāṭimah, who was Hazarat ʿAlī, who was Muhammad Sāhab. You will know everything. All the subtle side of these Great Incarnations you will know, and you will get proof. It is a tangible thing, absolutely tangible."</font><br>
+<font size="+0"><b>1994-1113 Public Talk to Tunisian Women, Hotel, Tunis, Tunisia</b></font>
 </p>
 
 <div class="para-divider"></div>

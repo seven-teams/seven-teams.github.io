@@ -35,7 +35,12 @@ Sahaja Yoga is the integration of all the Truths of Life and I can prove it to y
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"That day I did not tell this that Brahmadevjī has taken birth only one time in this world. Only one time. There was a reason for that. And you will get surprised on [My] saying this that was Hazarat ʿAlī, was the son-in-law of Muhammad Sāhab. That is the only Incarnation of Brahmadev in this world. One time only. This is a[n] amazing thing. [<b>Variant:</b> That day I told you that Śhrī Brahmadev took birth only once in this world, only once. There was a reason behind this. And you will be surprised to know that Śhrī Hazarat ʿAlī, who was the son-in-law of Prophet Muhammad, was the only Incarnation of Śhrī Brahmadev on Earth. Only once. This is remarkable.]<br>
+People will not accept this saying but you people [please] see in vibrations, then you will understand that I am not telling a lie to you. [<b>Variant:</b> People will not believe this but you can check on vibrations and you will realize that I'm telling the truth.]<br>
+Therefore those who have liver, etc. takalīph [problem, difficulty] or have the problem of diabetes because of this chakra, what I told you, due to imbalance, those who are rajoguṇīs [right-sided] people, that problems those [people] get, the treatment of all those problems is taking the name of Hazarat ʿAlī Sāhab. [<b>Variant:</b> Therefore, people who have problems with the liver or are suffering from diabetes because of imbalance, the people who are right-sided and have problems, all such problems can be cured by taking the name of Hazarat ʿAlī Sāhab.]<br>
+The problems get removed by this only. It's a matter of great surprise, but it's true [correct, right].<br>
+[If] Muslims will accept this then you will not and [if] you māniyegā [will agree (with), accept, honor] Kṛiṣhṇa, then Muslims will not accept. [We] have to be realized (pār) in the world. Though these all reside only in one body, in Virāṭ. [<b>Variant:</b> If Muslims accept this, you will not and if you accept Kṛiṣhṇa they will not. We need to ascend in this world. Although all such people are residing inside the body of Virāṭ.]<br>
+They are all connected. Because Hazarat ʿAlī was the son-in-law of Prophet Muhammad and Prophet Muhammad was the Incarnation of King Janaka. His sons Hasan and Husayn, who were killed in the battle of Karbalā, were no one else but Sītājī's sons Lav and Kuśh, who were later incarnated as Mahāvīr and Buddha."</font><br>
 <font size="+0"><b>1978-0201 Public Program (Hindi), Brahma kā Gyān (Knowledge of Brahma) or Mūlādhāra to Viśhuddhi, Āgñyā, and Sahasrāra, 9 Raisina Road, New Delhi, India</b></font>
 </p>
 
@@ -92,8 +97,10 @@ And those gurus who know about it, they know that on our left, at the place of S
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b>{1984-0507 Interview with Michel Sadashiva Cherney for the Sahaja Yoga Magazine in French L'Attention, Issue 4, Pages 32 to 37, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), Île-de-France, France</b></font>
+<font color="red">"Śhrī Brahmadeva incarnated, but only one or two times. Firstly as ʿAlī, the son-in-law of the Prophet Muhammad -- ʿAlī incarnated once also in India, but 'externally', I would say -- then a second time as a great Saint, but in general He does not. [Śhrī Brahmadeva S'est incarné, mais deux ou trois fois seulement: la première fois en tant qu' ʿAlī, le gendre du Prophète Mahomet (ʿAlī s'est incarné aussi en Inde mais 'extérieurement si Je puis dire), puis une deuxième fois comme un grand Saint. Mais généralement, Il ne le fait pas.]<br>
+......<br>
+Otherwise they incarnated as Hasan and Husayn, the sons of Fāṭimah, daughter of Muhammad and wife of ʿAlī. [Par ailleurs, Ils se sont incarnés comme Hasan and Husayn, les fils de Fāṭimah, la fille de Mahomet et l'épouse d' ʿAlī.]"</font><br>
+<font size="+0"><b>1984-0507 Interview with Michel Sadashiva Cherney for the Sahaja Yoga Magazine in French L'Attention, Issue 4, Pages 32 to 37, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), Île-de-France, France</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -164,7 +171,7 @@ These are age-old things, also, we need not carry it on."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Thank you very much for giving us such a beautiful evening, praising Allah and ʿAlī."</font><br>
 <font size="+0"><b>1993-0516 Talk to Sahaja Yogis, Evening Program, before Dinner, Mövenpick Hotel, Balmumcu, Barbaros Blv. No:165, 34349 Beşiktaş, Istanbul, Turkey</b></font>
 </p>
 
@@ -237,7 +244,7 @@ That does not mean that spiritual people do not have the protection of the Divin
 All this is done for us. All these sacrifices are going to help us.<br>
 Gradually we'll realize where They exist within our body. If They're enlightened within you, you get Their blessings. You have to have connection with Them.<br>
 ......<br>
-He was himself a realized Soul. And he had tremendous-s-s respect for Muhammad Sāhsb, for Hazarat ʿAlī, for Fāṭimah, for Hasan, Husayn.<br>
+He [Śhrī Mātājī's father] was himself a realized Soul. And he had tremendous-s-s respect for Muhammad Sāhsb, for Hazarat ʿAlī, for Fāṭimah, for Hasan, Husayn.<br>
 He told ... he told Me all about Islam or how to talk to Islamic people. Because if you tell the Truth, there will be a fatwā on Me.<br>"</font><br>
 <font size="+0"><b>1994-1112 Public Program, Day 2, Auditorium, Hotel Karim (now closed), Route Touristique Raouad, Gammarth (21 kms NE of Tunis), Tunisia</b></font>
 </p>
@@ -245,7 +252,7 @@ He told ... he told Me all about Islam or how to talk to Islamic people. Because
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"In Sahaja Yoga, you will know who They were: who was Fāṭimah, who was Hazarat ʿAlī, who was Muhammad Sāhab. You will know everything. All the subtle side of these Great Incarnations you will know, and you will get proof. It is a tangible thing, absolutely tangible."</font><br>
 <font size="+0"><b>1994-1113 Public Talk to Tunisian Women, Hotel, Tunis, Tunisia</b></font>
 </p>
 
