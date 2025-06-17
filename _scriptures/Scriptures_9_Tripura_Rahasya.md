@@ -105,12 +105,87 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 
 <p>
 <b>1.15 Translation</b><br>
+<font color="DarkGreen">That expanse of Grace called Śhiva, here incarnated as my Guru, is indeed gracious to me; ......</font>
+</p>
+
+<p>
+<b>1.16 Note</b><br>
+<font color="DarkGreen">...... Guru, being God, is mercy incarnate and requires no incentive to show grace.</font>
+</p>
+
+<p>
+<b>1.17 Translation</b><br>
 <font color="DarkGreen"></font>
 </p>
 
 <p>
-<b>1.16 Comment</b><br>
-<font color="DarkGreen"></font>
+<b>1.18 Translation</b><br>
+<font color="DarkGreen">I now desire fervently to worship Her Transcendental Majesty. ......</font>
+</p>
+
+<p>
+<b>1.23 Translation</b><br>
+<font color="DarkGreen">...... he thirsted to practice the sacred lore; he went round his master [keeping him to his right], made obeisance to him and retired to the Mahendra Hill.</font>
+</p>
+
+<p>
+<b>1.24 Translation</b><br>
+<font color="DarkGreen">There ...... he was engaged for twelve years in the worship of Tripura.</font>
+</p>
+
+<p>
+<b>1.36 Translation</b><br>
+<font color="DarkGreen">"I was different in my youth, again different in my manhood, still more so now; and in this way, my life is constantly changing."</font>
+</p>
+
+<p>
+<b>1.46 Translation</b><br>
+<font color="DarkGreen">Only those who need not engage in action, are happy; they are perfectly content, and self-satisfies, and they experience happiness which extends to all the pores of the body."</font>
+</p>
+
+<p>
+<b>1.51-52 Translation</b><br>
+<font color="DarkGreen">" ...... I too have been unwittingly imitating them like a blind man following the blind. Enough of this folly: I will at once return to that ocean of mercy - my Master."</font>
+</p>
+
+<p>
+<b>1.53 Translation</b><br>
+<font color="DarkGreen">"Learning from him what is to be known, I will cross the ocean of doubts after boarding the boat of his teachings."</font>
+</p>
+
+<p>
+<b>1.55 Translation</b><br>
+<font color="DarkGreen">Quickly reaching the Gandhmadan Mountain, he found the Guru sitting in <i>padmasana</i> posture as if illumining the whole world.</font>
+</p>
+
+<p>
+<b>1.56 Translation</b><br>
+<font color="DarkGreen">...... holding the Guru's feet with his hands, pressed them to his head.</font>
+</p>
+
+<p>
+<b>1.58 Translation</b><br>
+<font color="DarkGreen">" Child! ...... Are you in god health?"</font>
+</p>
+
+<p>
+<b>1.60 Translation</b><br>
+<font color="DarkGreen">"Śhri Guru! Ocean of Mercy! Can any one drenched with Thy kindness ever be afflicted by ailments even if destiny so decree?</font>
+</p>
+
+<p>
+<b>1.61 Translation</b><br>
+<font color="DarkGreen">"How can the burning pains of illness touch one who is abiding in the refreshing mon of Thy nectarlike kindness."</font>
+</p>
+
+<p>
+<b>1.62-64 Translation</b><br>
+<font color="DarkGreen">...... Nothing afflicts me except the desire to remain in unbroken contact with Thy holy feet. ......</font>
+</p>
+
+<p>
+<b>1.67 Translation</b><br>
+<font color="DarkGreen">"Ask at once, O Bhargava, what you so much want to know and what you have so long thinking about. ......"</font>
 </p>
 
 <div class="para-divider"></div>
@@ -118,6 +193,16 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 <p style="text-align:center;">
 <b>Chapter 2</b><br>
 <font color="DarkGreen"><b></b></font>
+</p>
+
+<p>
+<b>2.1 Translation</b><br>
+<font color="DarkGreen">...... Paraśhurāma again saluting the son of Saint Atri with humility began to ask:</font>
+</p>
+
+<p>
+<b>2.2 Translation</b><br>
+<font color="DarkGreen"></font>
 </p>
 
 <div class="para-divider"></div>

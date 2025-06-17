@@ -10,7 +10,7 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Viṣhṇu to Śhiva, in Islam from ʿAlī to Walī, in Christianity from Christ to His Mother, all have been named. We came to know all their names. Even after knowing the names of the flowers, no one knew where the honey was." [<b>Variant:</b> ``From Viṣhṇu to Śhiva, as well as from Muslims to ʿAlī to Walī, from Christians to Christ to His Mother, everyone had a genealogy. The names are all known. Even after knowing the names of the flowers, the honey was not found!"]</font><br>
+<font color="red">"Viṣhṇu to Śhiva, in Islam from ʿAlī to Walī, in Christianity from Christ to His Mother, all have been named. We came to know all their names. Even after knowing the names of the flowers, no one knew where the honey was." [<b>Variant:</b> "From Viṣhṇu to Śhiva, as well as from Muslims to ʿAlī to Walī, from Christians to Christ to His Mother, everyone had a genealogy. The names are all known. Even after knowing the names of the flowers, the honey was not found!"]</font><br>
 <font size="+0"><b>1972-0409 Public Program (Marathi), Dhule, Maharashtra, India</b></font>
 </p>
 
@@ -134,7 +134,7 @@ And those gurus who know about it, they know that on our left, at the place of S
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"There's a gentleman, a Muslim gentleman, I'm happy he asked Me a very nice question about Imam Husayn Sāhab, the son of ʿAlī. The Mother was Fāṭimah Bi. He was killed in the war, where They were absolutely correct: what They said was correct, no doubt. Both the brothers were killed. And He said: ``We have to fight our enemies."<br>
+<font color="red">"There's a gentleman, a Muslim gentleman, I'm happy he asked Me a very nice question about Imam Husayn Sāhab, the son of ʿAlī. The Mother was Fāṭimah Bi. He was killed in the war, where They were absolutely correct: what They said was correct, no doubt. Both the brothers were killed. And He said: "We have to fight our enemies."<br>
 It was all right for Them to know who was their enemy, because They were realized Souls. We are not. We do not know who are our enemies.<br>
 These are age-old things, also, we need not carry it on."</font><br>
 <font size="+0"><b>1992-0612 Public Program, Day 2, Royal Albert Hall, Kensington Gore, South Kensington, London SW7 2AP, UK</b></font>
@@ -178,7 +178,13 @@ These are age-old things, also, we need not carry it on."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"But in Turkey, thanks to Atatur [Atatürk], I think, that these prospered very well.<br>
+And they came to Me, and they just surrendered to Sahaja Yoga. They wanted their Realization, they got their Realization. When their guru came, he also got his Realization, and he said, "This is thing ... Sahaja Yoga which is going to transform the whole world."<br>
+They, of course, they are in a way Muslims, because born in Muslim families, and that they sing the praise of Muhammad, of ʿAlī, of Fāṭimah, of everyone. But they don't consider that the, "We are the only chosen ones."<br>
+Such beautiful people they were! They got their Realization, "What it is? What about Christ?"<br>
+He said, "Those who are not against Me, are with Me." Who are those, who are with Him?<br>
+He was hardly given three years to express Himself.<br>
+People were so blind at that time."</font><br>
 <font size="+0"><b>1993-0625 Public Program, Experience the Truth on Your Centers, Royal Albert Hall, Kensington Gore, South Kensington, London SW7 2AP, UK</b></font>
 </p>
 
@@ -196,7 +202,7 @@ We have Hazarat ʿAlī, who was Himself, according to our Sahaja Yoga, He was an
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b>1993-1011 Interview with Audrey Hope for the TV Talk Show `Real Women', What Is the Hope for a Stable Society, Part 1, Century Cable Studios, 513 Wilshire Blvd, Suite 336, Santa Monica, CA, U.S.A.</b></font>
+<font size="+0"><b>1993-1011 Interview with Audrey Hope for the TV Talk Show 'Real Women', What Is the Hope for a Stable Society, Part 1, Century Cable Studios, 513 Wilshire Blvd, Suite 336, Santa Monica, CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -260,7 +266,7 @@ He told ... he told Me all about Islam or how to talk to Islamic people. Because
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"The second one [caliph] was ʿAlī, Hazarat ʿAlī, whom this fellow Muʿāwiyah killed: he killed His sons!"</font><br>
 <font size="+0"><b>1995-0918 Public Program, Moscow, Russia</b></font>
 </p>
 
@@ -274,7 +280,8 @@ He told ... he told Me all about Islam or how to talk to Islamic people. Because
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"An imam is the one who is a realized Soul.<br>
+And Hazarat ʿAlī was the first who was a realized Soul, you see?"</font><br>
 <font size="+0"><b>1996-0925 Iranian Public Program, Los Angeles, CA, U.S.A.</b></font>
 </p>
 
@@ -315,7 +322,7 @@ This is the experience you must have. I have to tell you the truth. This experie
 According to Sahaj Yog, ʿAlī was an Incarnation on the second center.<br>
 ......<br>
 Hazarat ʿAlī is the One who is the Incarnation of a Creator, who created the whole universe.<br>
-N... now this truth can be proved! This truth can be proved! How? If you are a self-realized person, and your hands are speaking, then if you ask a question, `Was ʿAlī, Hazarat ʿAlī, was the One who created all this universe?', you start getting tremendous Cool Breeze.<br>
+N... now this truth can be proved! This truth can be proved! How? If you are a self-realized person, and your hands are speaking, then if you ask a question, 'Was ʿAlī, Hazarat ʿAlī, was the One who created all this universe?', you start getting tremendous Cool Breeze.<br>
 ......<br>
 But now you will know why Muhammad Sāhab and Hazarat ʿAlī came. For what purpose? To let you know what you are. "</font><br>
 <font size="+0"><b>2000-0528 Persian Public Program, Iman Cultural Center, Los Angeles, CA, U.S.A.</b></font>
