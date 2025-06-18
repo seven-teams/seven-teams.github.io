@@ -1,7 +1,7 @@
 ---
-title: 'Photos Post 38: Special Events (after 1975), Part 37'
-date: 2025-06-17
-permalink: /photos/2025/0617-c
+title: 'Photos Post 38: Special Events (after 1975), Part 38'
+date: 2025-06-18
+permalink: /photos/2025/0618-a
 tags:
   - green @ Updates
 ---
@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b> 1979-0000 Conversation with Sahaja Yogis, UK</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 medium resolution from the Named Collections.<br>
+We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b> 1979-0700 With a Seeker from TM, UK</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 medium resolution from the Named Collections.<br>
 The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Pat-Anslow-Collection/1979"><font color="DarkGreen">Collection 1979</font></a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>

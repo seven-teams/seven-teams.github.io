@@ -90,7 +90,8 @@ And those gurus who know about it, they know that on our left, at the place of S
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Dakṣha came as ʿAlī.<br> 
+[After R. D. Kulkarni say something:] He came as ʿAlī that's why you are daughter of Dakṣha."</font><br>
 <font size="+0"><b>1984-0213 Śhrī Devī Pūjā, What Is Expected of Sahaja Yogis and Where Are We, Bordi, Maharashtra, India</b></font>
 </p>
 
@@ -208,7 +209,11 @@ We have Hazarat ʿAlī, who was Himself, according to our Sahaja Yoga, He was an
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"He [Muhammad Sāhab] respected women!<br>
+Not only, He told His wife, that, "You are going to work out," ʿĀ'ishah, He told that, "you are going to work out something against the religion." And really it was wrong on her because His own daughter, as you know Her name was Fāṭimah, stood up and said that, "This, never Muhammad Sāhab has said it."<br>
+But this Abū Bakr [father-in-law, the father of ʿĀ'ishah], is a fellow who just took the platform, [laughing:] as it is, I should say, instead of His own son-in-law, Hazarata ʿAlī, who was a great realized Soul. Āṇi [and] he just completely changed uh-uh the ideas about women which Fāṭimah was going to tell.<br>
+So there were uh big wars, called Karbalāʾ, in which two children of Fāṭimah Bi were killed, Hazarata ʿAlī was also killed, and there two groups were formed, one is Shia and Sunni.<br>
+But Shias, also, don't understand that they have to respect their women, because Fāṭimah Bi Itself [Herself] was a, not only a Saint but an Incarnation, She was a Goddess."</font><br>
 <font size="+0"><b>1993-1011 Interview with Audrey Hope for the TV Talk Show 'Real Women', What Is the Hope for a Stable Society, Part 1, Century Cable Studios, 513 Wilshire Blvd, Suite 336, Santa Monica, CA, U.S.A.</b></font>
 </p>
 
@@ -259,7 +264,25 @@ He told ... he told Me all about Islam or how to talk to Islamic people. Because
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">
+<b>Version 1:</b><br>
+"No one wrote. Yes even Muhammad Sāhib did not write anything. He never knew how to read and write. He just narrated to forty people that he saw and felt all this. "I had this revelation and it was like this." They [the forty people] also did not know how to read and write.<br>
+So for forty years nothing was written.<br>
+There was a very stupid man, his name was ... whatever ... this was told to Me by My father. Now it is confirmed that it is true. That person was very devilish and he killed Hazarat ʿAlī and His sons, then he killed the caliph and his mother ate the liver of that Caliph. He was such a horrible man ... he was the enemy of women. He edited the Qur'ān.<br>
+Now you tell Me they say Qur'ān ... Qur'ān ... there is no authenticity of Qur'ān.<br>
+In Bible also Paul destroyed everything. At least Christians agree with it. They are Christians for namesake.<br>
+It is nice, because if you tell all this to some one they will run to kill us.<br>
+This is the history of Qur'ān for which they fight so much."<br>
+<br>
+<b>Version 2:</b><br>
+"Yes, Muhammad Sāhab did not write anything at all. He could not even read or write. Poor man, He told fourty people that, "This became known to Me, was a Revelation," like this and that. Those people were also illiterate.<br>
+Then for forty years nothing was written.<br>
+He was a very wicked man -- his name was Mutawaiya, or something like that. My father told Me about this and now this matter is well-known. That gentleman, a very wicked man, killed Hazarat ʿAlī. Killed His son. And then killed a calipha [caliph]. Then killed another calipha [caliph] and his mother ate his liver. This dirty man, hater of woman, he edited the Qur'ān.<br>
+Now what do you say?<br>
+They go around with this Qur'ān in their hands. This doesn't have any authenticity.<br>
+And even in the Bible, Paul has destroyed everything. At least the Christians believe this. They are Christians for namesake.<br>
+It's all right. Because there are so many funny things, if you tell someone, they will come to beat you.<br>
+This is the history of the Qur'ān for which they are fighting."</font><br>
 <font size="+0"><b>1994-1211 Śhrī Ādi Śhakti Pūjā (Hindi), Mahāmāyā, Mahākālī, Śhāradā Devī, Mahālakṣhmī, Jaipur, Rajasthan, India</b></font>
 </p>
 
@@ -280,7 +303,12 @@ He told ... he told Me all about Islam or how to talk to Islamic people. Because
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"For example, they believe in Qur'ān. Simple thing is Qur'ān was never written by Muhammad Sāhab. He never knew how to read and write. Uh ... it's a fact. For forty years it was not written.<br>
+There was a fellow called Mu'āwīyya [ibn Abī Sufyān] or something like that, who killed Hazarat ʿAlī [in 661], His sons. He was the second [fourth] calipha [of al-Rāshidūn].<br>
+The first one [Abū Bakr] died very early [in 656].<br>
+Then he killed the third one [Uthmān ibn ʿAffān (Osman) in 656] also. Then he killed the fourth one, just to become himself the calipha [caliph; first caliph of the Umayyad Caliphate].>br>
+And the liver of this fourth uh calipha [caliph; Ḥamza ibn ʿAbd al-Muṭṭalib ibn Hāshim ibn ʿAbd Manāf al-Qurashī] was eaten by the mother [Hind bint 'Utbah] of this horrible fellow [in 625 during the Battle of Uhud], who hated women.<br>
+So, he puts it down in the Qur'ān, all the things against women, and people accept it because, "It's in the Qur'ān!""</font><br>
 <font size="+0"><b>1995-1225 Christmas Pūjā, Introspection Is Very Helpful for You to Overcome These Two Hurdles (conditioning and ego) of Your Āgñyā Chakra, We Should Not React, Just Know You Are a Sahaja Yogi and a Sahaja Yoginī (The Greatest Achievement Is to Respect Your Innocence and Try to Be Simple, Innocent, Not Reacting and Keep Quiet and Peaceful), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
@@ -302,7 +330,8 @@ And Hazarat ʿAlī was the first who was a realized Soul, you see?"</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"For example, yesterday they were singing about ʿAlī: I was so very happy. Because He was an Incarnation.<br>
+And His purity people are singing now, not at that time. He was killed at that time, He was tortured. That always they do. "</font><br>
 <font size="+0"><b>1997-0321 Birthday Pūjā (Hindi + English), New Delhi, India</b></font>
 </p>
 
