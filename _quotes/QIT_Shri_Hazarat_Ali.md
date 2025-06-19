@@ -229,14 +229,16 @@ Such a horrible man like him has authorized the Qur'ān."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Whatever Haz... Hazarat ʿAlī did and His sons Hasan and Husayn have done, we have to now fulfill Their promise. And here we are with all of this from all countries, who are sitting down and who all believe in ʿAlī and also Fāṭimah, Hasan, Husayn, everyone. So now, we have to spread the news that we have all to get that Realization which They have promised."</font><br>
 <font size="+0"><b>1994-1104 Conversation with Turkish Sufi Musicians (Guḍhī Pāḍavā Day), during the Evening Program, the day before Diwālī Pūjā, Istanbul, Turkey</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"A... after coming to Sahaja Yoga, I've seen: Christians will adhere to Christ, Muslims will adhere to Muhammad Sāhab or to ʿAlī, and others will adhere to the conditionings from which they have come. But they don't adhere to Me! So they cannot see the integration of all this personality [these personalities] in one person.<br>
+Now, one has to know, on this point, that: you have got the light, you are enlightened. You are not an egg: you have become a bird. So, you have to give up all that is falsehood. If you are fully enlightened, you will give up automatically, you don't have to be told.<br>
+When the light is enlightened, it automatically feels responsible that it has to give light. Nobody has to tell, that, 'You please give light,' because it is light now. "</font><br>
 <font size="+0"><b>1994-1105 Diwālī Pūjā (Bhāūbīj Day), Lights of Pure Compassion, Istanbul, Turkey</b></font>
 </p>
 
