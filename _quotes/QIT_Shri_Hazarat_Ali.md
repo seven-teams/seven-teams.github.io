@@ -158,7 +158,12 @@ These are age-old things, also, we need not carry it on."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">
+<b>Version 1:</b><br>
+"In Sahaja Yoga we worship Śhrī Rāma, Muhammad Sāheb, ʿAlī, Fāṭimah, Lord Buddha, Lord Mahāvīra and other Incarnations because They are worshipful. We are nobody to judge who is greater or smaller."
+<br>
+<b>Version 2:</b><br>
+"We Sahaja Yogis pray to Muhammad Sāheb, ʿAlī, Fāṭimah, Lord Buddha, Lord Mahāvīra because all these are worth praying to. Who are we to call Them small or not great?"</font><br>
 <font size="+0"><b>1993-0219 Śhivarātri Pūjā (Hindi), Kyukī Mānava kā Aṃtima Lakṣhya yahī hai kī Vo Śhiva Tattwa ko Prāpta Kare (The Ultimate Aim of Human Beings Is to Attain that Śhiva Tattwa), Tent, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -179,7 +184,10 @@ These are age-old things, also, we need not carry it on."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"As you know about Her that She was the daughter of Muhammad Sāhab, and was married to ʿAlī, and She had two children, Hasan and Husayn, who were ultimately killed in Karbalāʾ by the fanatics, who were, that time, called themselves Sunnis.<br>
+......<br>
+The men, as a whole, are very different type, you must understand. They are extroverts, and whatever the women care too much for, they do not. It's all right, because-s-s women and men are complementary.<br>
+Like ʿAlī was there outside working everything out, while Fāṭimah Bi in the house, home, who never went out, but He knew His source of energy: from where it was coming. "</font><br>
 <font size="+0"><b>1993-0518 Śhrī Fāṭimah Pūjā, You Must Learn to Respect a Woman Who Is Chaste, Mövenpick Hotel, Balmumcu, Barbaros Blv. No:165, 34349 Beşiktaş, Istanbul, Turkey</b></font>
 </p>
 
