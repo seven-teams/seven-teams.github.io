@@ -1,11 +1,11 @@
 ---
-title: 'Poem (Marathi) &#8216;De āśhīrvāda āmhālā (Bless Us or Give us Your blessings)'&#8217; by Shekhar Kharde, Sangamner (Class VIII) from 1986-0400 Sahaj Yog (Marathi), Volume 1, Issues 10, Page 4, Column 2, Middle'
+title: 'Poem (Marathi) &#8216;De āśhīrvāda āmhālā (Bless Us or Give us Your blessings)'&#8217; by Shekhar Kharde, Sangamner (Class VIII) from 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 4, Column 2, Middle'
 date: 1986-03-01
 permalink: /folder/Poem-SK-1986-0400-SY(M)
 tags:
   - black @ Poetry
   - blue @ Shekhar Kharde, Sangamner (Class VIII)
-  - brown @ 1986-0301
+  - brown @ 1986
   - cornflowerblue @ Sangamner
   - deeppink @ 1986-0400 Sahaj Yog (Marathi)
   - maroon @ Bless
@@ -47,7 +47,7 @@ Salutations to you, O Shri Nirmal Mata ....
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1986-0400 Sahaj Yog (Marathi), Volume 1, Issues 10, Page 4, Column 2, Middle.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 4, Column 2, Middle.</list-item>
 </wave-list>
 
 <div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_(Marathi)_'De_ashirvada_amhala_(Bless_us)'_by_Ms._Shekhar_Kharde_Sangamner_(Class_VIII)_from_1986-0400_Sahaj_Yog_(Marathi)_Volume_1_Issue_10_Page_4_Column_2_Middle.jpg" /></div>

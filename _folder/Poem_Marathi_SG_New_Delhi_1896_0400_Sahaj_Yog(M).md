@@ -1,11 +1,11 @@
 ---
-title: 'Poem (Marathi) &#8216; Śhrī Nirmal Mā&#8217; by Sudha Girje, New Delhi from 1986-0400 Sahaj Yog (Marathi), Volume 1, Issues 10, Page 3, Column 2, Bottom'
+title: 'Poem (Marathi) &#8216; Śhrī Nirmal Mā&#8217; by Sudha Girje, New Delhi from 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 3, Column 2, Bottom'
 date: 1986-03-01
 permalink: /folder/Poem-SG-1986-0400-SY(M)
 tags:
   - black @ Poetry
   - blue @ Sudha Girje
-  - brown @ 1986-0301
+  - brown @ 1986
   - cornflowerblue @ New Delhi
   - deeppink @ 1986-0400 Sahaj Yog (Marathi)
   - maroon @ Shri Nirmal Ma
@@ -59,7 +59,7 @@ You have become Saguṇ Rup. Avataralīs Bhūvarī is Nirmala Mā
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1986-0400 Sahaj Yog (Marathi), Volume 1, Issues 10, Page 3, Column 2, Bottom.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 3, Column 2, Bottom.</list-item>
 </wave-list>
 
 <div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_(Marathi)_'Shri_Nirmal_Ma'_by_Ms._Sudha_Gijre_New_Delhi_from_1986-0400_Sahaj_Yog_(Marathi)_Volume_1_Issue_10_Page_3_Column_2_Bottom.jpg" /></div>

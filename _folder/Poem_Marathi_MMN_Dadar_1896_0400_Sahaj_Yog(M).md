@@ -5,7 +5,7 @@ permalink: /folder/Poem-MMN-1986-0400-SY(M)
 tags:
   - black @ Poetry
   - blue @ Manisha M. Nimkar
-  - brown @ 1986-0301
+  - brown @ 1986
   - cornflowerblue @ Dadar, Maharashtra
   - deeppink @ 1986-0400 Sahaj Yog (Marathi)
   - maroon @ Wake 
@@ -30,7 +30,7 @@ tags:
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1986-0400 Sahaj Yog (Marathi), Volume 1, Issues 10, Page 4, Column 2, Top.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 4, Column 2, Top.</list-item>
 </wave-list>
 
 <div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_(Marathi)_'Tu_re_jagana_(You_wake_up)'_by_Mrs._Manisha_M._Nimkar_Dadar_Maharashtra_from_1986-0400_Sahaj_Yog_(Marathi)_Volume_1_Issue_10_Page_4_Column_2_Top.jpg" /></div>
