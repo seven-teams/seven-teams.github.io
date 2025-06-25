@@ -1,7 +1,7 @@
 ---
 title: '1997-0000 Short Prose &#8216;A Story&#8217; from 1997-98 Sahaj Amrit, Page 20'
 date: 1997-12-01
-permalink: /folder/
+permalink: /folder/1997-98-A-Story-SA
 tags:
   - black @ Short Prose
   - blue @ TBD
