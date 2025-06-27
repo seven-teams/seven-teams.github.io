@@ -151,7 +151,9 @@ These are age-old things, also, we need not carry it on."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Now we have before us such a great artist. His name is-s, you know, Ustād Amjad Alī Khān Sāhab.<br>
+But have you seen the word ʿAlī there?<br>
+Perhaps, you do not know that we worship ʿAlī and Fāṭimah Bi, in a Pūjā. There's a regular Pūjā for them. Because to us They are Brahmadeva Itself [Himself]. And that's why you'll find [musicians], among these Shia people, who have got such a talent of expression."</font><br>
 <font size="+0">1992-1230 Talk to Sahaja Yogis (English + Hindi), before the Evening Program (Santūr Ustād Amjad Alī Khān and family), Kalwa, Thane, Maharashtra, India<b></b></font>
 </p>
 
@@ -170,7 +172,9 @@ These are age-old things, also, we need not carry it on."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"We do [worship] ʿAlī, Muhammad and all other great Souls. We worship and believe Them all. We worship Them, we believe Them all.<br>
+......<br>
+Look at them just by [<font color="orange">unclear</font> singing/coming here] they have become ʿAlī."</font><br>
 <font size="+0"><b>1993-0320 Meeting with Muslim Priests (Hindi), Visit, Nizamuddin Auliyā Dargah, Boali Gate Rd, Opp The Lodhi, Nizamuddin, New Delhi, India</b></font>
 </p>
 
