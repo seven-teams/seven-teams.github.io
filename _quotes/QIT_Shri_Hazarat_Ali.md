@@ -114,7 +114,8 @@ Otherwise they incarnated as Hasan and Husayn, the sons of Fāṭimah, daughter 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Diabetes is the action of the right side affected by the left side, right side being vulnerable. Firstly when you think too much, pay no attention and remain in your habits, then a fear element adds to you vulnerability. Just like a hard-working man thinks too much. All his fat cells are used for the brain. The Swādhiṣhṭhāna goes into and neglects its left counterpart. The left side gets drained. You become vulnerable. At this state if some fear comes up in you and you also start feeling guilty, then you develop Diabetes.<br>
+Correction is use Hazarat ʿAlī's mantra. Source is from Swādhiṣhṭhān and Nābhī of the left. Left Nābhī gets first effected by having fear of wife or worries for her or any other family member. In addition your vulnerability at that point brings about Diabetes. Clear it by cleaning your Āgñyā chakra. Don't think so much. Go into thoughtless awareness. Put left side to right side. Take more salt so that it neutralizes the action of sugar excretion because it has got water of crystallization. Use ice on right Swādhiṣhṭhāna and Nābhī. Avoid sugar after proper tests if necessary. "</font><br>
 <font size="+0"><b>1987-0227 Talk to Sahaja Yogis (Marathi and Hindi), From Pieces of Conversation with Dr. Talwar and other Sahaja Yogis Leaders, after the Śhivarātri Pūjā, Juhu, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -135,7 +136,10 @@ Otherwise they incarnated as Hasan and Husayn, the sons of Fāṭimah, daughter 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Then, you get this Swādhiṣhṭhāna.<br>
+Swādhiṣhṭhāna we have got Incarnations like uh ... ʿAlī.<br>
+[After Bābā Māmā says, "Yes":] Is one of them.<br>
+[After Bābā Māmā says, "The Incarnation": Or uh you can say all these Nāth Pānthis and all that. "</font><br>
 <font size="+0"><b>1991-040x Conversation (Discussion) with Bābā Māmā, during and after the Washing of the Lotus Feet, Cairns City, Queensland, Australia</b></font>
 </p>
 
