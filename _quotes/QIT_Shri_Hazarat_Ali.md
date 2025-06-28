@@ -83,7 +83,9 @@ And those gurus who know about it, they know that on our left, at the place of S
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"And the left [right] side one has incarnated only, they say, once or twice. Once, of course, as the son-in-law of Muhammad Sāhab, just to support Him also.<br>
+[After a child says, "Hazarat ʿAlī, " and a Sahaja Yogi say, "Who was ......?":] Is ʿAlī.<br>
+And His wife, that was later on, His wife was also the same Mahālakṣhmī personified: the daughter of Nārāyaṇa [Muhammad]. She incarnated also like that."</font><br>
 <font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -356,7 +358,10 @@ And His purity people are singing now, not at that time. He was killed at that t
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Uhh ... I'm very happy. The way the film was made, I'm very, very happy.<br>
+That the Muslims are, poor thing, from childhood are taught to hate everyone.<br>
+At least in Christianity they talk of love. Talk, talk, again I say. [Laughing:] Because they have had so many wars and so many nonsensical things.<br>
+Now we ... we can put forward in these films, say, for Christians we can put forward Gnostics. We can put forward in the Muslim thing how the real person was ʿAlī, how He was murdered, His wife was m..., you see, His children were murdered, and what's going on now. It's quite a bold theme which you have to put in."</font><br>
 <font size="+0"><b>1997-0822 Talk to Sahaja Yogis, after the Evening Program, the day before Śhrī Kṛiṣhṇa Pūjā, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
