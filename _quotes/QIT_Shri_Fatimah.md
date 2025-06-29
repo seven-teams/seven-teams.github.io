@@ -126,8 +126,8 @@ When you believe in Muhammad Sāhab also, also in Nāṇak Sāhab, and in Hazara
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font color="red">[Receives a card with a question.] "Now, he's asked Me a very nice question: [Reading:] "What is Your religion now?" To be very frank, My religion is a Universal Religion. This is the religion that Gāndhījī, Mahātmā Gāndhī preached. That we don't only respect, but we worship. We worship Muhammad Sāhab, Hazarat ʿAlī, Fāṭimah Bi, all of Them. Worship! Also, we worship Christ, we worship Moses. Also, we worship Śhrī Kṛiṣhṇa and Śhrī Rām. Because They are all flowers of the same Tree of Spirituality. At different times They came."</font><br>
+<font size="+0"><b>1993-1009 Iranian Public Program, 11301 Olympic Boulevard, Los Angeles, CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>

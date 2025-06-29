@@ -1744,8 +1744,29 @@ And thus you lose the barriers of fundamentalism.<br>
 And before it became Islamic, it had Zoroastrians living there, who had great philosophy also.<br>
 Then these Islamic people also took to Islam in a very serious way.<br>
 I don't know but, before Islam came, the people used to make art with human figures. And after that they started making things of this kind, where there were only flowers, or cubes, or geometrical drawings.<br>
-It happened that I went to Shiraz, and I went to Metropolis [Persepolis] also. Saw all the places: is full of Divine Vibrations. <font color="red">That means: there have been, even before Muhammad, five times Zoroaster came.<br>
-And then came Hazarat Muhammad, who did such a lot of work for all of us.</font>"<br>
+It happened that I went to Shiraz, and I went to Metropolis [Persepolis] also. Saw all the places: is full of Divine Vibrations.<br>
+<font color="red">That means: there have been, even before Muhammad, five times Zoroaster came.<br>
+And then came Hazarat Muhammad, who did such a lot of work for all of us.<br>
+Qur'ān was not written by Muhammad Sāhab, you know that, because He did not know how to read and write. So He told about it to His friends, who also did not know how to read and write. So then, He ... the children of these .. uh-uh-uh, you should say His friends, they were educated, and after forty years after the death of Hazarat Muhammad Sāhab, you can say, the Qur'ān was written.
+At that time, before that only, a big problem s-s-started.
+Because you are all Shias, I am quite happy to tell you about what happened.
+That Abu Bakr became the head of the Islam, Abu Bakr, and he was a fundamentalist. Actual... actually, it's ... it was Hazarat ʿAlī who had to become the head. ʿAlī: had to become. But somehow or other Abu Bakr managed, he was very ambitious man, to become the head of the Islam.
+Is a history, I am telling you.
+Now, when he became, he tried to uh argue with Hazarat ʿAlī. And he said that: "Whatever written in the Qur'ān is all right," and he added his own things also to it.
+Now Hazarat ʿAlī, you know, had a fight with him.
+I know the whole history about it. Because My father translated Qur'ān into Hindi language. So I've read Qur'ān also, quite nicely.
+Now what happened, it's a history where the turning point took place.
+As you know, Hazarat ʿAlī became head but later on He was killed, and His two sons were killed.
+And the [youngest] wife of Muhammad Sāhab, 'Ā'ishah [bint Abi Bakr], was told [by Him] that, "You will go and fight against the truth, and you will know it when the dogs will bark."
+So when she went on the other side, it's called as Ḥaw'ab, it happened, and dogs started barking, but still she didn't listen. And she went and told the other side of the people, that, "Whatever is Abu Bakr is saying is all right. You listen to Abu Bakr."
+So the rift started that time.
+And as you know, later on, Hasan and Husayn both were killed in Karbalāʾ.
+That's how Shia and Sunni, two parties' start is.<br>
+I must say thank God you are Shias. Because Shia believe in many things which are the truth. One, they believe that you will become a Walī. You have to become a Walī.<br>
+We have Hazarat ʿAlī, who was Himself, according to our Sahaja Yoga, He was an Incarnation as Muhammad Sāhab was. We worship Muhammad Sāheb, Hazarat ʿAlī, and Fāṭimah. For us, they are much more than you know in Qur'ān, which, later on you'll find out: how they are related to India. They are very, very great Souls who came on this Earth, and because these fanatics didn't understand Them, they killed Them.<br>
+......<br>
+<p>
+<font color="red">[Receives a card with a question.] Now, he's asked Me a very nice question: [Reading:] "What is Your religion now?" To be very frank, My religion is a Universal Religion. This is the religion that Gāndhījī, Mahātmā Gāndhī preached. That we don't only respect, but we worship. We worship Muhammad Sāhab, Hazarat ʿAlī, Fāṭimah Bi, all of Them. Worship! Also, we worship Christ, we worship Moses. Also, we worship Śhrī Kṛiṣhṇa and Śhrī Rām. Because They are all flowers of the same Tree of Spirituality. At different times They came."</font><br>
 <font size="+0"><b>1993-1009 Iranian Public Program, 11301 Olympic Boulevard, Los Angeles, CA, U.S.A.</b></font>
 </p>
 

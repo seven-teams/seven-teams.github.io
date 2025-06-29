@@ -308,6 +308,13 @@ Is governed by Ādi Śhakti (the Goddess) as Durgā or Jagadambā whose sustenan
 <div class="para-divider"></div>
 
 <p>
+<font color="red">[Receives a card with a question.] "Now, he's asked Me a very nice question: [Reading:] "What is Your religion now?" To be very frank, My religion is a Universal Religion. This is the religion that Gāndhījī, Mahātmā Gāndhī preached. That we don't only respect, but we worship. We worship Muhammad Sāhab, Hazarat ʿAlī, Fāṭimah Bi, all of Them. Worship! Also, we worship Christ, we worship Moses. Also, we worship Śhrī Kṛiṣhṇa and Śhrī Rām. Because They are all flowers of the same Tree of Spirituality. At different times They came."</font><br>
+<font size="+0"><b>1993-1009 Iranian Public Program, 11301 Olympic Boulevard, Los Angeles, CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"Later on Śhrī Rāma who was one of the Incarnations on this Earth, showed in his own life that he respected people for their aptitude. For example when Śhrī Rāma was exiled and went to a forest, he met there a poor old woman called Śhabarī who was of tribal caste. She offered some berries to Śhrī Rāma with great affection and devotion. She said: ``Please eat them because they are not at all sour. I have already tasted them." The food or fruits tasted by somebody else are not to be eaten (uttiṣhṭa). If someone has bitten off even a part of a fruit, that fruit is no longer pure and cannot be offered to another person, certainly not to an Incarnation. But Śhrī Rāma was greatly moved by the love of the old lady. He accepted the berries with much joy and ate them. He praised their taste and gave some to his wife, Sītā. His brother Lakṣhmaṇ, felt rather jealous and asked for some berries for himself. There are many incidents where Śhrī Rām gets very friendly with people who were not of very high castes. Also his own Rāmāyaṇa, his life story, was written by a fisherman who was a dacoit. This fisherman was transformed into a Saint by another heavenly minstrel called Nārada. Of course an ordinary fisherman who was also a dacoit had such respect for Śhrī Rāma that he wrote this beautiful epic, the Rāmāyaṇa."</font><br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 6: Religions</b></font>
 </p>
