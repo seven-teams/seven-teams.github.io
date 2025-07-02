@@ -1,7 +1,7 @@
 ---
 title: '2025 Celebrating 55 Years of Commitments, Decisions, Oaths, Pledges, Promises, and Vows, Post 14'
-date: 2025-07-01
-permalink: /yearly/2025/0701
+date: 2025-07-02
+permalink: /yearly/2025/0702
 tags:
   - crimson @ 55 Years of Commitments, Decisions, Oaths, Pledges, Promises, and Vows
 ---
