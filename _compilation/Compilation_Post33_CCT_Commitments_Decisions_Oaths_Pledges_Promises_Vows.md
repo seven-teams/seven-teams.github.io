@@ -134,8 +134,10 @@ Even then you are misguided. You are stooping so low for all the world's money a
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"So, today you have to take some vows. And you have to say: that, 'We are going to do these things. We are going to talk about Sahaj Yog, we are going to propagate it, we are going to spread it. And what may come, we are going to surrender ourselves to Mother. Even, if She's supposing, scolds us, or says anything it is for our good. And we are not going to get confused.' And that's how you have to absolutely vow that you are going to dedicate yourself to Sahaj Yog to help others, to e... emancipate, and to create atmosphere for the completion of this universe, of this creation, for that fruitful day when we will say: that the Kingdom of God has been brought on this Earth.<br>
-So today is not the day for Me to give, but for you. You have to announce."</font><br>
+<font color="DarkRed">"So, today you have to take some vows. And you have to say: that, 'We are going to do these things. We are going to talk about Sahaj Yog, we are going to propagate it, we are going to spread it. And what may come, we are going to surrender ourselves to Mother. Even, if She's supposing, scolds us, or says anything it is for our good. And we are not going to get confused.' And that's how you have to absolutely vow that you are going to dedicate yourself to Sahaj Yog to help others, to e... emancipate, and to create atmosphere for the completion of this universe, of this creation, for that fruitful day when we will say: that, 'The Kingdom of God has been brought on this Earth.'<br>
+So today is not the day for Me to give, but for you. You have to announce.<br>
+......<br>
+So today is a day of certain determinations, that, 'By such and such deed, or such and such time, we will have these things, and we will do these things.' This is what you have to today decide and think about it. And this is what you have to manage and this is what you have to give.<br>"</font><br>
 <font size="+0"><b>1977-0701 Guru Pūjā (Guru Pūrṇimā Day) (first more formal Pūjā in the West), Self-realization, Living Room, Gavin Brown's Geological Institute (Terrace House), 160 North Gower Street, 2nd Floor, Euston, London, UK</b></font>
 </p>
 
