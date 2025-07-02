@@ -24,7 +24,7 @@ Second: [a] promise you have to make that you will never say a harsh word to any
 Tonight, you promise Me that you will look at every Sahaja Yogi as a person in bondage in love and not in hatred.<br>
 ......<br>
 Today, you must promise Me that you will meditate. You can introspect [rather] than getting into your ego.<br>
-Thirdly, you will not criticize Sahaj Yog, that is God's own methods, at any cost! If you do not understand a part of Sahaj Yog, you can come and ask Me, but don't criticize. This is you must promise Me."<br>
+Thirdly, you will not criticize Sahaj Yog, that is God's own methods, at any cost! If you do not understand a part of Sahaj Yog, you can come and ask Me, but don't criticize. This is [what] you must promise Me."<br>
 <font color="blue"><b>1977-0701 Talk to Sahaja Yogis (Guru Pūrṇimā Day), Three Promises You Have to Make and You Have to Be Obedient to Me, after Guru Pūjā (first more formal Pūjā in the West), Living Room, Gavin Brown's Geological Institute (Terrace House), 160 North Gower Street, 2nd Floor, Euston, London, UK</b></font><br>
 </p>
 
