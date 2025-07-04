@@ -235,7 +235,7 @@ And as you know, later on, Hasan and Husayn both were killed in Karbalāʾ.<br>
 That's how Shia and Sunni, two parties' start is.<br>
 I must say thank God you are Shias. Because Shia believe in many things which are the truth. One, they believe that you will become a Walī. You have to become a Walī.<br>
 <font color="red">We have Hazarat ʿAlī, who was Himself, according to our Sahaja Yoga, He was an Incarnation as Muhammad Sāhab was. We worship Muhammad Sāheb, Hazarat ʿAlī, and Fāṭimah. For us, They are much more than you know in Qur'ān, which, later on you'll find out: how They are related to India. They are very, very great Souls who came on this Earth, and because these fanatics didn't understand Them, they killed Them.</font><br>
-......
+......<br>
 [Receives a card with a question.] Now, he's asked Me a very nice question: [Reading:] "What is Your religion now?" To be very frank, My religion is a Universal Religion. This is the religion that Gāndhījī, Mahātmā Gāndhī preached. That we don't only respect, but we worship. <font color="red">We worship Muhammad Sāhab, Hazarat ʿAlī, Fāṭimah Bi, all of Them. Worship! Also, we worship Christ, we worship Moses. Also, we worship Śhrī Kṛiṣhṇa and Śhrī Rām. Because They are all flowers of the same Tree of Spirituality. At different times They came.</font>"<br>
 <font size="+0"><b>1993-1009 Iranian Public Program, 11301 Olympic Boulevard, Los Angeles, CA, U.S.A.</b></font>
 </p>

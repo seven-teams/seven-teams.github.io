@@ -62,7 +62,7 @@ On these chakras there are two very great personalities who have been appointed.
 But if you listen to the whole history of Their lives, then these are two sons which Śhrī Sītā had as Lav and Kuśha who is completely in human form. And after They evolved to the level that They are here as Buddha and Mahāvīra. There also they thought They have reached an extreme of nonviolence because the supports of nonviolence came in and started protecting even mosquitoes and bugs.<br>
 Then They again took birth and came at the time of Muhammad. Muhammad was an Incarnation of Śhrī Janaka and His daughter Fāṭimah Bi was also Incarnation of Śhrī Sītā.<br>
 Then, as Their sons as Hasan and Husayn, They gave Their life in Karbalāʾ to prove that no kind of extreme is good.<br>
-And this thing is Truth or not you can see on your vibrations. If [one thinks that] I am lying, then through your vibrations you would know that not even one single word is a lie here that I am telling you. "</font><br>
+And this thing is Truth or not you can see on your vibrations. If [one thinks that] I am lying, then through your vibrations you would know that not even one single word is a lie here that I am telling you."</font><br>
 <font size="+0"><b>1978-0131 Public Program (Hindi), Day 2, Void, Heart, Viśhuddhi, Channels, New Delhi, India</b></font>
 </p>
 
@@ -76,8 +76,7 @@ And this thing is Truth or not you can see on your vibrations. If [one thinks th
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Although after Realization you go beyond religion, you do not have any religion left.<br>
-When you believe in Muhammad Sāhab also, also in Nāṇak Sāhab, and in Hazarat ʿAlī also, in Fāṭimah Bi also, and in Sītājī also, also in Jesus Christ, and also in Gaṇeśhjī, then how can you sit in these small compartments of religions?"</font><br>
+<font color="red">"When you believe in Muhammad Sāhab also, also in Nāṇak Sāhab, and in Hazarat ʿAlī also, in Fāṭimah Bi also, and in Sītājī also, also in Jesus Christ, and also in Gaṇeśhjī, then how can you sit in these small compartments of religions?"</font><br>
 <font size="+0"><b>1979-0318 Public Program (Hindi), Day 9, Sahasrāra Chakra, Śhāmiyānā, Garden, Pataudi House, 10 Ashoka Road, New Delhi, India</b></font>
 </p>
 
@@ -113,7 +112,57 @@ When you believe in Muhammad Sāhab also, also in Nāṇak Sāhab, and in Hazara
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1981-0324 Talk to Sahaja Yogis, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia (date not sure)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1981-1006 Public Program (8th Day of Navarātri), Day 3, The New Age Has Started (From Kṛiṣhṇa to Christ), Venue 2, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0131 Public Program, Day 2, The Nābhī Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-0821 Mother Earth and Śhrī Mahālakṣhmī Pūjā, Garden, Āśhram, 102 Ditton Road, Surbiton, London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1983-1012 Public Program (7th Day of Navarātri), Day 2, Old Cambridge Baptist Church, 1151 Massachussetts Avenue, Cambridge, MA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"So, through the eternity of time, as the Mother of the Buddha, as the wife of Hazarat ʿAlī who was the husband of Fāṭimah, She incarnated at that time to do that job of providing the sustaining force.<br>
+But now, what has happened today: is that same [<font color="orange">unclear</font>] has taken birth as a Mother, to give us what Christ promised: our Second Birth."</font><br>
+<font size="+0"><b>1983-1020 Public Program, Day 3, The Community Church, 40 East and 35th Street, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Otherwise they incarnated as Hasan and Husayn, the sons of Fāṭimah, daughter of Muhammad and wife of ʿAlī. [Par ailleurs, Ils se sont incarnés comme Hasan and Husayn, les fils de Fāṭimah, la fille de Mahomet et l'épouse d' ʿAlī.]"</font><br>
+<font size="+0"><b>1984-0507 Interview with Michel Sadashiva Cherney for the Sahaja Yoga Magazine in French L'Attention, Issue 4, Pages 32 to 37, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), Île-de-France, France</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -126,6 +175,141 @@ When you believe in Muhammad Sāhab also, also in Nāṇak Sāhab, and in Hazara
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"In no Incarnation a male has come without a female. Christ came, He had His Mother. When Śhrī Kṛiṣhṇa came, He had to have Rādhā. When Rāma came, Sītā was there. When Nāṇaka came, there had to be Nāṇakī. When Janaka came, He had to have Jānakī, as His daughter. When Muhammad Sāhab came, He had to have His daughter, Fāṭimah. They could not do without the Power because they are just the kinetic energy.<br>
+But when the Goddess came, She came alone. Because She has a Power to contain within Herself all the Powers."</font><br>
+<font size="+0"><b>1985-0601 Talk to Sahaja Yogis, The Role of Women in America, Tent, Backyard, House of Judy Gaddy, 442 Liberty Road, Englewood, NJ, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Lucerne, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1986-0106 Śhrī Mahālakṣhmī Pūjā (English + Marathi + English), Ascent Is the Main Attention, Sangli, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1987-0506 Talk to Sahaja Yogis, The Need to Go Deeper and Questions and Answers, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"......<br>
+So, we have ʿAlī and His wife Fāṭimah who incarnated on the Principle of the left Nābhī.<br>
+......<br>"</font><br>
+<font size="+0"><b>1988-0814 Śhrī Fāṭimah Pūjā, Saint-George (40 kms W of Lausanne), Vaud, Switzerland</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+[Śhrī Mātājī advices that this is the proper order to say the Deities's name in the mantras:] <font color="red"> ......"Śhrī Hazarat Fāṭimah" ......</font><br>
+<font size="+0"><b>1989-0800 Advices on Mantras (month not sure)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1990-1021 Diwālī Pūjā (4th day after Diwālī Day), Touch Your Depth, Chioggia (50 kms S of Venice), Veneto, Italy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi) (the day after Rāma Navamī Day), If You Believe in Śhrī Rāma Follow His Ideal (Our Nature Can Change because He Is Our Ideal and You All Become Ideals for this World), Kolkata, West Bengal, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1991-0428 Śhrī Haṃsa Chakra Pūjā, The Source of Discretion, Queens, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"<font color="red">There's a gentleman, a Muslim gentleman, I'm happy he asked Me a very nice question about Imam Husayn Sāhab, the son of ʿAlī.</font> The Mother was Fāṭimah Bi. He was killed in the war, where They were absolutely correct: what They said was correct, no doubt. Both the brothers were killed. And He said: "We have to fight our enemies."<br>
+It was all right for Them to know who was their enemy, because They were realized Souls. We are not. We do not know who are our enemies.<br>
+These are age-old things, also, we need not carry it on."<br>
+<font size="+0"><b>1992-0612 Public Program, Day 2, Royal Albert Hall, Kensington Gore, South Kensington, London SW7 2AP, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1992-0915 Public Talk to a Group of about 20 Iranians, Āśhram, 5206 Topeka Drive, Tarzana, CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"Now we have before us such a great artist. His name is-s, you know, Ustād Amjad Alī Khān Sāhab.<br>
+<font color="red">But have you seen the word ʿAlī there?<br>
+Perhaps, you do not know that we worship ʿAlī and Fāṭimah Bi, in a Pūjā. There's a regular Pūjā for Them. Because to us They are Brahmadeva Itself [Himself].</font> And that's why you'll find [musicians], among these Shia people, who have got such a talent of expression."<br>
+<font size="+0">1992-1230 Talk to Sahaja Yogis (English + Hindi), before the Evening Program (Santūr Ustād Amjad Alī Khān and family), Kalwa, Thane, Maharashtra, India<b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<b>Version 1:</b><br>
+<font color="red">"In Sahaja Yoga we worship Śhrī Rāma, Muhammad Sāheb, ʿAlī, Fāṭimah, Lord Buddha, Lord Mahāvīra and other Incarnations because They are worshipful. We are nobody to judge who is greater or smaller."</font>
+<br>
+<b>Version 2:</b><br>
+<font color="red">"We Sahaja Yogis pray to Muhammad Sāheb, ʿAlī, Fāṭimah, Lord Buddha, Lord Mahāvīra because all these are worth praying to. Who are we to call Them small or not great?"</font><br>
+<font size="+0"><b>1993-0219 Śhivarātri Pūjā (Hindi), Kyukī Mānava kā Aṃtima Lakṣhya yahī hai kī Vo Śhiva Tattwa ko Prāpta Kare (The Ultimate Aim of Human Beings Is to Attain that Śhiva Tattwa), Tent, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"......<br>
+The men, as a whole, are very different type, you must understand. They are extroverts, and whatever the women care too much for, they do not. It's all right, because-s-s women and men are complementary.<br>
+<font color="red">Like ʿAlī was there outside working everything out, while Fāṭimah Bi in the house, home, who never went out, but He knew His source of energy: from where it was coming.<br>
+......"</font><br>
+<font size="+0"><b>1993-0518 Śhrī Fāṭimah Pūjā, You Must Learn to Respect a Woman Who Is Chaste, Mövenpick Hotel, Balmumcu, Barbaros Blv. No:165, 34349 Beşiktaş, Istanbul, Turkey</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"But in Turkey, thanks to Atatur [Atatürk], I think, that these prospered very well.<br>
+And they came to Me, and they just surrendered to Sahaja Yoga. They wanted their Realization, they got their Realization. When their guru came, he also got his Realization, and he said, "This is thing ... Sahaja Yoga which is going to transform the whole world."<br>
+<font color="red">They, of course, they are in a way Muslims, because born in Muslim families, and that they sing the praise of Muhammad, of ʿAlī, of Fāṭimah, of everyone.</font> But they don't consider that the, "We are the only chosen ones."<br>
+Such beautiful people they were! They got their Realization, "What it is? What about Christ?"<br>
+He said, "Those who are not against Me, are with Me." Who are those, who are with Him?<br>
+He was hardly given three years to express Himself.<br>
+People were so blind at that time."<br>
+<font size="+0"><b>1993-0625 Public Program, Experience the Truth on Your Centers, Royal Albert Hall, Kensington Gore, South Kensington, London SW7 2AP, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-0715 Meeting with Ayatollah Dr. Mehdi Rouhani, Conversation and Dinner, Paris, France</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"......<br>
+We have Hazarat ʿAlī, who was Himself, according to our Sahaja Yoga, He was an Incarnation as Muhammad Sāhab was. We worship Muhammad Sāheb, Hazarat ʿAlī, and Fāṭimah. For us, They are much more than you know in Qur'ān, which, later on you'll find out: how They are related to India. They are very, very great Souls who came on this Earth, and because these fanatics didn't understand Them, they killed Them.</font><br>
+......<br>
 <font color="red">[Receives a card with a question.] "Now, he's asked Me a very nice question: [Reading:] "What is Your religion now?" To be very frank, My religion is a Universal Religion. This is the religion that Gāndhījī, Mahātmā Gāndhī preached. That we don't only respect, but we worship. We worship Muhammad Sāhab, Hazarat ʿAlī, Fāṭimah Bi, all of Them. Worship! Also, we worship Christ, we worship Moses. Also, we worship Śhrī Kṛiṣhṇa and Śhrī Rām. Because They are all flowers of the same Tree of Spirituality. At different times They came."</font><br>
 <font size="+0"><b>1993-1009 Iranian Public Program, 11301 Olympic Boulevard, Los Angeles, CA, U.S.A.</b></font>
 </p>
@@ -133,14 +317,47 @@ When you believe in Muhammad Sāhab also, also in Nāṇak Sāhab, and in Hazara
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+"He [Muhammad Sāhab] respected women!<br>
+Not only, He told His wife, that, "You are going to work out," ʿĀ'ishah, He told that, "you are going to work out something against the religion." And really it was wrong on her because His own daughter, as you know Her name was Fāṭimah, stood up and said that, "This, never Muhammad Sāhab has said it."<br>
+<font color="red">But this Abū Bakr [father-in-law, the father of ʿĀ'ishah], is a fellow who just took the platform, [laughing:] as it is, I should say, instead of His own son-in-law, Hazarata ʿAlī, who was a great realized Soul. Āṇi [and] he just completely changed uh-uh the ideas about women which Fāṭimah was going to tell.</font><br>
+So there were uh big wars, called Karbalāʾ, in which two children of Fāṭimah Bi were killed, Hazarata ʿAlī was also killed, and there two groups were formed, one is Shia and Sunni.<br>
+But Shias, also, don't understand that they have to respect their women, because Fāṭimah Bi Itself [Herself] was a, not only a Saint but an Incarnation, She was a Goddess."<br>
+<font size="+0"><b>1993-1011 Interview with Audrey Hope for the TV Talk Show 'Real Women', What Is the Hope for a Stable Society, Part 1, Century Cable Studios, 513 Wilshire Blvd, Suite 336, Santa Monica, CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"In Sahaja Yoga, you will know who They were: who was Fāṭimah, who was Hazarat ʿAlī, who was Muhammad Sāhab. You will know everything. All the subtle side of these Great Incarnations you will know, and you will get proof. It is a tangible thing, absolutely tangible."</font><br>
+<font color="red">""</font><br>
+<font size="+0"><b>1994-0410 Śhrī Mahāmāyā Pūjā, We Are All in Her Body, Marque, Āśhram, 24 Pukenui Road, Epsom, Auckland, New Zealand</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Whatever Haz... Hazarat ʿAlī did and His sons Hasan and Husayn have done, we have to now fulfill Their promise. And here we are with all of this from all countries, who are sitting down and who all believe in ʿAlī and also Fāṭimah, Hasan, Husayn, everyone. So now, we have to spread the news that we have all to get that Realization which They have promised."</font><br>
+<font size="+0"><b>1994-1104 Conversation with Turkish Sufi Musicians (Guḍhī Pāḍavā Day), during the Evening Program, the day before Diwālī Pūjā, Istanbul, Turkey</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"There is a special relationship that exists between Saints, and it's very joy-giving. You feel you are not alone in this place: there are many others who have lived. But they could not do much because people were so ignorant.<br>
+Most of the Saints, even Muhammad Sāhab was tortured. <font color="red">Hazarat ʿAlī who, was a Great Incarnation, also was killed. He ... His two children from Fāṭimah also were killed. Horrible things happened to Them.</font><br>
+That does not mean that spiritual people do not have the protection of the Divine. But it was all done to show how these people could sacrifice Their life [lives] for Truth.<br>
+All this is done for us. All these sacrifices are going to help us.<br>
+<font color="red">Gradually we'll realize where They exist within our body. If They're enlightened within you, you get Their blessings. You have to have connection with Them.</font><br>
+......<br>
+He [Śhrī Mātājī's father] was himself a realized Soul. <font color="red">And he had tremendous-s-s respect for Muhammad Sāhsb, for Hazarat ʿAlī, for Fāṭimah, for Hasan, Husayn.</font><br>
+He told ... he told Me all about Islam or how to talk to Islamic people. Because if you tell the Truth, there will be a fatwā on Me.<br>"<br>
+<font size="+0"><b>1994-1112 Public Program, Day 2, Auditorium, Hotel Karim (now closed), Route Touristique Raouad, Gammarth (21 kms NE of Tunis), Tunisia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"......<br>
+In Sahaja Yoga, you will know who They were: who was Fāṭimah, who was Hazarat ʿAlī, who was Muhammad Sāhab. You will know everything. All the subtle side of these Great Incarnations you will know, and you will get proof. It is a tangible thing, absolutely tangible."</font><br>
 <font size="+0"><b>1994-1113 Public Talk to Tunisian Women, Hotel, Tunis, Tunisia</b></font>
 </p>
 
@@ -148,55 +365,40 @@ When you believe in Muhammad Sāhab also, also in Nāṇak Sāhab, and in Hazara
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1994-1211 Śhrī Ādi Śhakti Pūjā (Hindi), Mahāmāyā, Mahākālī, Śhāradā Devī, Mahālakṣhmī, Jaipur, Rajasthan, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1995-0422 TV Broadcast (Hindi), Sahaj Yog Se Lābh (Benefits of Sahaja Yoga), Part 4, Dūradarśhan Television Network, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1996-0321 Birthday Pūjā (Hindi + English), Mind is a Myth, Scouts Camp, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
+"<font color="red">So this is stupidity, this was not told by ʿAlī, Hazarat ʿAlī, that you should hit yourself for anything.</font> This is only ritualism they have [<font color="orange">unclear</font> to tally] to make the big uh show, that's all.<br>
+[After a gentleman say, "Mh-hm":] It has no meaning. 
+But these people are [have] become Sahaja Yogis now! Have given up all that nonsense.
+<font color="red">In Sahaja Yoga you will discover who was Hazarat ʿAlī, who was Prophet Muhammad, who was Fāṭimah. They are not just like somebody coming up: They are ancient. And who They were you will discover.</font>"<br>
 <font size="+0"><b>1996-1029 Talk to Sahaja Yogis, Honesty and Money, Suite, Hotel, Cairo, Egypt</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Specially, these are the days of your marty[rdo]m. And I know about it, everything, what had happened to Hasan and Husayn. You all have done lot of penance for Them, and are still doing it. But now the time has come for all of you to know that Their sacrifice, Their kurbānī, has been completely fulfilled. After all, what did They want? They wanted whatever Their father, ʿAlī, wanted Them to do, also Their mother Fāṭimah. But we don't know, 'Who They were? What Incarnations They were? What was Their job?' "</font><br>
+"Today the way ... today the way we see Islam, we get frightened. [Gestures to start the translation.]<br>
+Specially, these are the days of your marty[rdo]m.<br>
+And I know about it, everything, what had happened to Hasan and Husayn. You all have done lot of penance for Them, and are still doing it. But now the time has come for all of you to know that Their sacrifice, Their kurbānī, has been completely fulfilled. After all, what did They want? <font color="red">They wanted whatever Their father, ʿAlī, wanted Them to do, also Their mother Fāṭimah.</font> But we don't know, 'Who They were? What Incarnations They were? What was Their job?'<br>
+......<br></font>"<br>
 <font size="+0"><b>2000-0528 Persian Public Program, Iman Cultural Center, Los Angeles, CA, U.S.A.</b></font>
 </p>
 
@@ -229,7 +431,7 @@ After Fāṭimah, the Reincarnation of Sītā, died, sectarian war broke out amo
 <font color="red">"Hussain Hasan<br>
 sons of Fatima<br>
 daughter of Moha"</font><br>
-<font size="+0"><b>The Book of Ādi Śhakti, Appendix: Additional Figures by Śhrī Mātājī, Figure 21</b></font>
+<font size="+0"><b>The Book of Ādi Śhakti, Appendix: Additional Figures by Śhrī Mātājī, Figure XXIII</b></font>
 </p>
 
 <div class="para-divider"></div>
