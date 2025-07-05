@@ -12,7 +12,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 1 jpeg of <font color="Crimson"><b>2001-0918 Note</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 low resolution from the Named Collections.<br>
-The direct link to the jpgs in the smallest gallery of handwritings: <a href="https://eternalmoments.smugmug.com/Collections/Alan-Wherry-Collection/Handwritings"> Collection Handwritings</a>.<br>
+The direct link to the jpeg in the smallest gallery of handwritings: <a href="https://eternalmoments.smugmug.com/Collections/Alan-Wherry-Collection/Handwritings"> Collection Handwritings</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

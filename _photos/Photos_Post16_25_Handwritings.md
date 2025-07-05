@@ -12,7 +12,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 2 jpgs of <font color="Crimson"><b>1902-0000 Handwritings</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 medium resolutions from the Named Collections.<br>
-The direct link to the jpgs in the smallest gallery of handwritings: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/Handwritings"> Collection Handwritings</a>.<br>
+The direct link to the 2 jpgs in the smallest gallery of handwritings: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/Handwritings"> Collection Handwritings</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
