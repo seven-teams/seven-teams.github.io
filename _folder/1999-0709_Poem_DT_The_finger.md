@@ -1,6 +1,6 @@
 ---
-title: '1999-0709 Poem &#8216;TheFinger&#8217; by Diana Rothenberg, NY'
-date: 1999-12-01
+title: '1999-0709 Poem &#8216;The Finger&#8217; by Diana Rothenberg, NY'
+date: 1999-07-09
 permalink: /folder/1999-0709-DR-The-Finger
 tags:
   - black @ Poetry
