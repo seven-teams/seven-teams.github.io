@@ -115,7 +115,7 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 
 <p>
 <b>1.17 Translation</b><br>
-<font color="DarkGreen"></font>
+<font color="DarkGreen">The Guru's grace gained, I have gained all!</font>
 </p>
 
 <p>
@@ -175,7 +175,7 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 
 <p>
 <b>1.61 Translation</b><br>
-<font color="DarkGreen">"How can the burning pains of illness touch one who is abiding in the refreshing mon of Thy nectarlike kindness."</font>
+<font color="DarkGreen">"How can the burning pains of illness touch one who is abiding in the refreshing moon of Thy nectarlike kindness."</font>
 </p>
 
 <p>
@@ -202,7 +202,147 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 
 <p>
 <b>2.2 Translation</b><br>
-<font color="DarkGreen"></font>
+<font color="DarkGreen">"...... Once before for good reason I was furious with the kingly class."</font>
+</p>
+
+<p>
+<b>2.3 Translation</b><br>
+<font color="DarkGreen">"Twenty-one times I strode the land exterminating them all, including sucking babes and those in the womb collecting their blood in a pool."</font>
+</p>
+
+<p>
+<b>2.5 Translation</b><br>
+<font color="DarkGreen">"On hearing of the renowned Rama the very incarnation of Hari in Ayodhya, my wrath was rekindled. Blinded by fury and proud of my prowess, I challenged him."</font>
+</p>
+
+<p>
+<b>2.6 Translation</b><br>
+<font color="DarkGreen">"I was defeated by that great Lord and my pride was humbled. However, out of his innate kindness he let me go with my life because I was a Brahmin."</font>
+</p>
+
+<p>
+<b>2.7 Translation</b><br>
+<font color="DarkGreen">"...... I met Samvarta, the Lord of the <i>Avadhutas</i> ......"</font>
+</p>
+
+<p>
+<b>2.10 Translation</b><br>
+<font color="DarkGreen">...... sweet nectar of Eternal Life.</font>
+</p>
+
+<p>
+<b>2.19 Translation</b><br>
+<font color="DarkGreen">"Misery is not absence of happiness, but limited happiness. For as happiness recedes misery pours in."</font>
+</p>
+
+<p>
+<b>2.25 Translation</b><br>
+<font color="DarkGreen">"I have noticed that Samvarta, the Lord, is quite happy, beingcompletely free from any sense of obligation to act and its disastrous results."</font>
+</p>
+
+<p>
+<b>2.26 Translation</b><br>
+<font color="DarkGreen">"He seems to laugh at the ways of the world, to stride  unconcerned up the road of fearlessness, ......"</font>
+</p>
+
+<p>
+<b>2.28 Translation</b><br>
+<font color="DarkGreen">"...... rescue me from the jaws of the monster of <i>Karma</i>."</font>
+</p>
+
+<p>
+<b>2.31-33 Translation</b><br>
+<font color="DarkGreen">[Śhrī Dattā:] "......most sacred heights of Self-realization. That Devi Tripura, who is the conscious core of the heart ......"</font>
+</p>
+
+<p>
+<b>2.35 Translation</b><br>
+<font color="DarkGreen">"How can a man stung by that Viper, obligation, ever be happy? ......"</font>
+</p>
+
+<p>
+<b>2.37 Translation</b><br>
+<font color="DarkGreen">"...... poison of the sense of obligation."</font>
+</p>
+
+<p>
+<b>2.50 Translation</b><br>
+<font color="DarkGreen">"...... snares of the task-master of action."</font>
+</p>
+
+<p>
+<b>2.51-52 Translation</b><br>
+<font color="DarkGreen">"...... How can one gain security, without proper investigation?"</font>
+</p>
+
+<p>
+<b>2.54 Translation</b><br>
+<font color="DarkGreen">"Indeliberation is the ever-present weakness of the Daityas and Yatudhanas [Asuras and Rakshasas]; deliberation is the characteristic of the Devas [Gods], and therefore they are always happy."</font>
+</p>
+
+<p>
+<b>2.55 Translation</b><br>
+<font color="DarkGreen">"Owing to their discrimination they depend on Vishnu and inevitably conquer their enemies. ......"</font>
+</p>
+
+<p>
+<b>2.57-58 Translation</b><br>
+<font color="DarkGreen">"...... Rama, though the most intelligent men, came to disaster for want of judgement before attempting to capture the golden deer; later with due deliberation, he spanned the crossed, crossed over to Lanka, the island of the Rakshasasa brood, and conquered it."</font>
+</p>
+
+<p>
+<b>2.59 Translation</b><br>
+<font color="DarkGreen">"You must have heard how Brahmā also becoming on an occasion infatuated, acted rashly like a fool and consequently paid the penalty with one of his five heads."</font>
+</p>
+
+<p>
+<b>2.60 Translation</b><br>
+<font color="DarkGreen">"Unthinkingly, Mahadeva conferred a boon on the Asura and was immediately obliged to flee in terror for for fear of being reduced to ashes."</font>
+</p>
+
+<p>
+<b>2.61 Translation</b><br>
+<font color="DarkGreen">"One one occasion, Hari having killed the wife of Bhrigu became the victim of a terrible curse and suffered untold miseries."</font>
+</p>
+
+<p>
+<b>2.64 Translation</b><br>
+<font color="DarkGreen">"...... they think and act, they will be free from all misery."</font>
+</p>
+
+<p>
+<b>2.66-68 Translation</b><br>
+<font color="DarkGreen">"...... Discernment is, however, gained by proper methods, the most effective of which is also the best of all, and that is the supreme grace of the Goddess who inheres as the Heart Lotus in every one. Who has ever accomplished any goos purpose, without that Grace?"</font>
+</p>
+
+<p>
+<b>2.69 Translation</b><br>
+<font color="DarkGreen">"Investigation is the Sun fr chasing away the dense darkness of indolence. It is generated by the worship of God with devotion."</font>
+</p>
+
+<p>
+<b>2.70 Translation</b><br>
+<font color="DarkGreen">"When the Supreme Devi is well pleased with the worship of the devotee, She turns into <i>vichara</i> [discrimination, investigation, deliberation, judgement]</i> in him and shines as the blazing Sun in the expanse of his Heart."</font>
+</p>
+
+<p>
+<b>2.71-72 Translation</b><br>
+<font color="DarkGreen">"Therefore that Tripura, the Supreme Force, the Being of all beings, the blessed, the highest, the one consciousness of Śhiva, who abides as the Self of self, should be worshiped sincerely, exactly as told by the Guru. ......"</font>
+</p>
+
+<p>
+<b>2.73-76 Translation</b><br>
+<font color="DarkGreen">"...... <i>Vichara</i> is the only way to attain the highest Good. ......"</font>
+</p>
+
+<p>
+<b>2.77 Translation</b><br>
+<font color="DarkGreen">"...... The only useful fruit of live is <i>vichara</i>."</font>
+</p>
+
+<p>
+<b>2.82 Translation</b><br>
+<font color="DarkGreen">"Confronting dispassion (<i>vairagya</i>) with misery, and pleasures of the world with happiness (<i>sukha</i>), a man suffers in the cycle births and deaths, ......""</font>
 </p>
 
 <div class="para-divider"></div>
@@ -210,6 +350,11 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 <p style="text-align:center;">
 <b>Chapter 3</b><br>
 <font color="DarkGreen"><b></b></font>
+</p>
+
+<p>
+<b>3.1 Translation</b><br>
+<font color="DarkGreen"></font>
 </p>
 
 <div class="para-divider"></div>

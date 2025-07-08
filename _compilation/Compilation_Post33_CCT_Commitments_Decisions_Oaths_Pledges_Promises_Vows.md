@@ -194,6 +194,14 @@ Then what do you do? If you cannot get the work done simply then you have to tur
 <div class="para-divider"></div>
 
 <p>
+"<font color="DarkRed">Rākhī Pūrṇimā is a day of great significance. On that day you should ask for perfection, make big decisions and keep attention on high ideals.</font> Sahaja Yogis should not destroy their attention on trifle issues. Lot of work has yet to be done. Those Sahaja Yogis who have progressed should get busy. New centers should be opened. People should be cured of their diseases and their attention should be drawn towards God-realization.<br>
+Please show this letter to all Sahaja Yogis."<br>
+<font size="+0"><b>1978-0817 Letter (Marathi) on Rakṣhābandhan and Pūrṇimā Day (0818), London, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b>1979-0122 Public Program (Marathi), Ātmyālā Miḍavilyāhśivāya Parameśhwar or Avadhūtas, YMCA Hall, New Link Road, D.N. Nagar, Andheri West (14 kms NW of Mumbai), Maharashtra, India</b></font>
 </p>
@@ -909,6 +917,21 @@ But only thing what you need is a courage and a complete commitment to go forwar
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"A political system that will easily secure effective participation in decision-making, not according to selfish Interest, but in accordance with the Laws of Truth."</font><br>
+<font size="+0"><b>1990-0821 Letter to President Mikhail Gorbachev (of the Soviet Union), UK from The Face of God by Yogi Mahajan, Chapter 18, Pages 109-113</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
 
 <p>
 <font color="DarkRed">""</font><br>
