@@ -283,7 +283,7 @@ I said, "Really?" He said, "Yes. I feel I am looking like Hanumānjī, You pleas
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">[Today is the day of Guru Pūjā. What gurudakṣhiṇā have you given Me? Understand that your money is not worth the dust on the Feet of your Mother Guru! You should give your hearts only clean and holy hearts. You must clean your physical beings. Do not be lazy in that. Make a vow! You must get up early in the morning and spend at least one hour on meditation and worshiping. Perform 'Āratī' and meditation in the evening.]</font><br>
+<font color="DarkRed">"Today is the day of Guru Pūjā. What gurudakṣhiṇā have you given Me? Understand that your money is not worth the dust on the Feet of your Mother Guru! You should give your hearts only clean and holy hearts. You must clean your physical beings. Do not be lazy in that. Make a vow! You must get up early in the morning and spend at least one hour on meditation and worshiping. Perform 'Āratī' and meditation in the evening."</font><br>
 <font size="+0"><b>197x-0700 Letter to Sahaja Yogis (Marathi) on Guru Pūrṇimā from Nirmala Yoga, Issue 15 (May-June 1983), Pages 12 and 13 (not later than 1979)</b></font>
 </p>
 
