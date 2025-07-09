@@ -1,5 +1,5 @@
 ---
-title: 'Poem (Marathi) &#8216;De āśhīrvāda āmhālā (Bless Us or Give us Your blessings)'&#8217; by Shekhar Kharde, Sangamner (Class VIII) from 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 4, Column 2, Middle'
+title: 'Poem (Marathi) &#8216;De āśhīrvāda āmhālā (Bless Us or Give us Your blessings)&#8217; by Shekhar Kharde, Sangamner (Class VIII) from 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 4, Column 2, Middle'
 date: 1986-03-01
 permalink: /folder/Poem-SK-1986-0400-SY(M)
 tags:

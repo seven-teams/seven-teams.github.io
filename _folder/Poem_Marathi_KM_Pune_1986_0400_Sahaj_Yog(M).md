@@ -1,5 +1,5 @@
 ---
-title: 'Poem (Marathi) &#8216;Mhaṇauni akṣhara je mhaṇije&#8217; by Shri Kishan More, Pune from 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 4, Column 1'
+title: 'Poem (Marathi) &#8216;Kṣhaṇa hā bhāgyāchā (The Moment is of Good Furtune)&#8217; by Shri Kishan More, Pune from 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 4, Column 1'
 date: 1986-03-01
 permalink: /folder/Poem-SKM-1986-0400-SY(M)
 tags:
@@ -8,7 +8,10 @@ tags:
   - brown @ 1986
   - cornflowerblue @ Pune
   - deeppink @ 1986-0400 Sahaj Yog (Marathi)
-  - green @ Story of Poem (Marathi) Mhanauni akshara je mhanije
+  - green @ Story of Poem (Marathi)
+  - maroon @ Fortune  
+  - maroon @ Good
+  - maroon @ Moment
 ---
 
 <br>
@@ -80,7 +83,7 @@ tags:
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 4, Column 1.</list-item>
 </wave-list>
 
-<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_(Marathi)_'Mhaauni_akshara_je_mhanije'_by_Shri_Kishan_More_Pune_from_1986-0400_Sahaj_Yog_(Marathi)_Volume_1_Issue_10_Page_4_Column_1.jpg" /></div>
+<div style="text-align: center"><img src="https://pub-419291371d4c44a1b438e7d5a9e4e904.r2.dev/Poem_(Marathi)_by_Shri_Kishan_More_Pune_from_1986-0400_Sahaj_Yog_(Marathi)_Volume_1_Issue_10_Page_4_Column_1.jpg" /></div>
 
 <br>
 

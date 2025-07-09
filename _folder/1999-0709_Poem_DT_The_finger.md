@@ -6,7 +6,7 @@ tags:
   - black @ Poetry
   - blue @ Diana Rothenberg
   - brown @ 1999
-  - cornflowerblue @ TBD
+  - cornflowerblue @ NY
   - maroon @ Finger
 ---
 

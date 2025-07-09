@@ -13,7 +13,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 Since the March 2025 newsletter, the following 8 extra Poems have been uploaded.<br>
 1. <a href="https://seven-teams.github.io/folder/Poem-SK-1986-0400-SY(M)"> <font color="DeepPink"><b>De āśhīrvāda āmhālā (Bless Us or Give us Your blessings)</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/2010-WL-Realizations-Fourfold-Vision"> <font color="DeepPink"><b>Fourfold Vision</b></font></a><br>
-3. <a href="https://seven-teams.github.io/folder/Poem-KM-1986-0400-SY(M)"> <font color="DeepPink"><b>Mhaṇauni akṣhara je mhaṇije</b></font></a><br>
+3. <a href="https://seven-teams.github.io/folder/Poem-KM-1986-0400-SY(M)"> <font color="DeepPink"><b>Kṣhaṇa hā bhāgyāchā</b></font></a><br>
 4. <a href="https://seven-teams.github.io/folder/Poem-SS-1985-0801-SY(M)"> <font color="DeepPink"><b>Param Pujya Shri Mataji</b></font></a><br>
 5. <a href="https://seven-teams.github.io/folder/2009-WL-B2-Society-enlightened"> <font color="DeepPink"><b>Society Enlightened</b></font></a><br>
 6. <a href="https://seven-teams.github.io/folder/Poem-SG-1986-0400-SY(M)"> <font color="DeepPink"><b>Śhrī Nirmal Mā</b></font></a><br>
