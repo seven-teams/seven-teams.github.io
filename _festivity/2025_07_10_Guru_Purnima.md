@@ -37,7 +37,7 @@ Because in those days when the gurus were self-realized, ...... when the gurus w
 <p>
 <font color="DarkGreen">"<b>The meaning of guru word is very large. This must be understood.<br>
 Today I want to talk on this issue: who is a guru and who is not.</b><br>
-The obvious meaning of guru means the one who is bigger than us, the one who is sitting at a place higher than us. As the water collected at a height spontaneously flows down, it is also eager to find a surface for itself, and to bring everyone to its surface. You keep water to a certain height; it will be willing to [{\bf{\textcolor{amber+}{unclear}}}] everyone. This is the very meaning of guru.<br>
+The obvious meaning of guru means the one who is bigger than us, the one who is sitting at a place higher than us. As the water collected at a height spontaneously flows down, it is also eager to find a surface for itself, and to bring everyone to its surface. You keep water to a certain height; it will be willing to [<font color="orange">unclear</font>] everyone. This is the very meaning of guru.<br>
 The one who is not that kind is not a guru.<br>
 He is above us in every matter, not just in one matter.<br>
 That is why we people who are wandering in street to street believing in guru should remember that the number of gurus is in thousands. The guru who talks of the Absolute Principle is a real guru. Those who talk of God and of God and who uplift you are real gurus.<br>
