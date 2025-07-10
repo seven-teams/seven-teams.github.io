@@ -24,7 +24,7 @@ Because you are human,<br>
 And we all are sons and daughters<br>
 Of one Holy Spirit;<br>
 We are equal and made of the same Earth.</font><br>
-<b>(`My Brethren' by Kahlil Gibran)</b>
+<b>('My Brethren' by Kahlil Gibran)</b>
 </p>
 
 <p>

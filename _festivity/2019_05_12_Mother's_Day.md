@@ -9,7 +9,7 @@ tags:
 ![PICTURE 1](/images/image1.png)
 
 <p>
-<font color="DarkRed">"[`Mother' is] a very special institution ...... especially in this country [Italy], they have such respect for their mothers.<br>
+<font color="DarkRed">"['Mother' is] a very special institution ...... especially in this country [Italy], they have such respect for their mothers.<br>
 <b>Mother is the Source of Love.</b> In the Qur'ān they asked Muhammad Sāhab whom should we bow after Allah? So He said "to Mother" -- "to the Mother."<br>
 Then again they asked Him, He said: "Only the Mother." Again they asked Him, He said: "Only the Mother."<br>
 I'm sure He must have said about the Divine Mother, because worldly mothers may not be complete mothers, perhaps. They are a[n] embodied, or, we can say, examples of Mother's Love, of the Divine Mother's Love, but they are human.<br>
@@ -51,7 +51,7 @@ Mother, be in my heart and in my mind.</font><br>
 
 <p>
 <font color="DarkRed">"Now, [the] Principle of Mother is in every, every Scripture, has to be there. Now the Mother’s character is that She is the One Who is the Womb, She is the One Who is the Mother Earth and She is the One Who nourishes you. She’s ... She nourishes us, you know that. And this feminine thing in a one ma... in every human being resides as this Kuṇḍalinī, as you have seen. And when She rises, She gives you this new awareness which becomes compassion, which is flowing, which becomes soothing, nourishing Energy of Love. And that’s what today people are saying feminist go this thing and all that. That’s again a pendulum – a man becoming a woman, woman becoming man – all these problem you have had because of this. But when you move spirally upward, then where do you move? You move, become a personality full of compassion, of love, of universal understanding, through Collective Consciousness. And then you rise up to a position where you become universally conscious. So that is what should happen to you. And, if that happens, then we should say that your motherly qualities within you have risen. And that’s what we have so far neglected. You do not become a woman but you become motherly. First the Father, then the Son, and now the Mother! All right?"</font><br>
-<font size="+0"><b>1983-1001 Interview with Barbara Schuler for the Program `Discovery' of Kazu Radio Station in Monterey, Seminar, Day 1, Session 3, Part 1, Kennolyn Campgrounds, 8400 Glen Haven Road, Soquel (10 kms ENE of Santa Cruz), CA, U.S.A.</b></font>
+<font size="+0"><b>1983-1001 Interview with Barbara Schuler for the Program 'Discovery' of Kazu Radio Station in Monterey, Seminar, Day 1, Session 3, Part 1, Kennolyn Campgrounds, 8400 Glen Haven Road, Soquel (10 kms ENE of Santa Cruz), CA, U.S.A.</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image100.png" /></div>
@@ -66,7 +66,7 @@ The trees and flowers become kind mothers of their great fruits and
 seeds. 
 And the Mother, the prototype of all existence, is the Eternal
 Spirit, full of beauty and love.</font><br>
-<b>(`Broken Wings' by Khalil Gibran)</b>
+<b>('Broken Wings' by Khalil Gibran)</b>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
