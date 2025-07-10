@@ -27,10 +27,11 @@ That's why <b>it was said that, "Guru is a person who makes you meet God": he ra
 Because in those days when the gurus were self-realized, ...... when the gurus were self-real... -realized, they had the authority and power of raising the Kuṇḍalinī only after they had reached a very great state of evolution: complete purification, complete detachment."</font><br>
 <font size="+0"><b>1979-0708 Guru Pūjā, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font><br>
 <br>
-<font color="DarkRed"><b>" Gurūr Brahmā Gurūr Viṣhṇu Gurūr devo Maheśhwara, Gurūr sākṣhāt Parabrahma tasmai Śhrī Guru dev namaḥ." The Guru is Brahmā [creator], Viṣhṇu [sustainer] and Maheśh [destroyer] and the Guru who is Himself God, I offer My obeisance to Him."</b></font><br>
+<font color="DarkRed"><b>"Gurūr Brahmā Gurūr Viṣhṇu Gurūr devo Maheśhwara, Gurūr sākṣhāt Parabrahma tasmai Śhrī Guru dev namaḥ." The Guru is Brahmā [creator], Viṣhṇu [sustainer] and Maheśh [destroyer] and the Guru who is Himself God, I offer My obeisance to Him."</b></font><br>
 <font size="+0"><b>1973-1209 Public Program (Hindi), Day 3, Śhrī Dattātreya Jayanti, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font><br>
+<br>
+<font size="+0"><b>Guru Vanadana</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
-<a href="">video</a>
 </p>
 
 <p>
