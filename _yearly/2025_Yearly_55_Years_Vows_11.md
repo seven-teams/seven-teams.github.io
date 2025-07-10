@@ -19,7 +19,7 @@ tags:
 <p>
 "So now you understand from there, that on this Sahasrāra Day, and you have to also demand now. Now, I want you to demand, and ask, because I have no desire. And you just go ahead! You have all the rights to demand from Me! And ask for the biggest and the highest and the most fantastic and the most dynamic that you want to do. Put up your minds and heads together, and ask for something big. 
 
-This is a very great day today, go home, think about it. Collectively also you decide, I'll go now. So then you decide, and put a demand. And it could be done! Now, `Thy will be done,' not Mine, actually."<br>
+This is a very great day today, go home, think about it. Collectively also you decide, I'll go now. So then you decide, and put a demand. And it could be done! Now, 'Thy will be done,' not Mine, actually."<br>
 <font color="blue"><b>1979-0505 Sahasrāra Pūjā, The Essence of Sahasrāra Is Integration, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font><br>
 </p>
 

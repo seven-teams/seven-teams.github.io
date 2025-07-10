@@ -10,7 +10,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkGreen">"<b>Today is a great day, for all of us, because we are celebrating the Guru Pūjā and remembering all the Great Gurus who came on Earth to teach the world about the Truth.</b>b> So many of Them were here. And They tried Their level best to explain to humanity what is spirituality.<br>
+<font color="DarkGreen">"<b>Today is a great day, for all of us, because we are celebrating the Guru Pūjā and remembering all the Great Gurus who came on Earth to teach the world about the Truth.</b> So many of Them were here. And They tried Their level best to explain to humanity what is spirituality.<br>
 But is such a disparity that people never understood that spirituality is the most important thing we need, that we have to be one with the Divine Power.<br>
 All their endeavor[s] have been in the wrong direction.<br>
 First, of course, they were very intelligent, more than animals, and started seeking, not the Truth, but some sort of a self-emancipation I should say or I don't know what to say, call it, self-progress. And in that they lost that they have to first seek spirituality, which is the most important thing."</font><br>
@@ -23,7 +23,7 @@ First, of course, they were very intelligent, more than animals, and started see
 <font color="DarkRed">"<b>Today is the day of Guru Pūrṇimā. It is a Full Moon Day. That's why ... it is called as Pūrṇimā. The guru has to be like a Full Moon. Means completely grown, completely matured.</b><br>
 ......<br>
 Any born realized Soul cannot do it on its own: it has to have authority of Me, as I am today.<br>
-That's why <b>it was said that, ``Guru is a person who makes you meet God": he raises the Kuṇḍalinī and makes you one with God.</b><br>
+That's why <b>it was said that, "Guru is a person who makes you meet God": he raises the Kuṇḍalinī and makes you one with God.</b><br>
 Because in those days when the gurus were self-realized, ...... when the gurus were self-real... -realized, they had the authority and power of raising the Kuṇḍalinī only after they had reached a very great state of evolution: complete purification, complete detachment."</font><br>
 <font size="+0"><b>1979-0708 Guru Pūjā, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font><br>
 <br>
@@ -35,7 +35,7 @@ Because in those days when the gurus were self-realized, ...... when the gurus w
 
 <p>
 <font color="DarkGreen">"<b>The meaning of guru word is very large. This must be understood.<br>
-Today I want to talk on this issue: who is a guru and who is not.</b>b><br>
+Today I want to talk on this issue: who is a guru and who is not.</b><br>
 The obvious meaning of guru means the one who is bigger than us, the one who is sitting at a place higher than us. As the water collected at a height spontaneously flows down, it is also eager to find a surface for itself, and to bring everyone to its surface. You keep water to a certain height; it will be willing to [{\bf{\textcolor{amber+}{unclear}}}] everyone. This is the very meaning of guru.<br>
 The one who is not that kind is not a guru.<br>
 He is above us in every matter, not just in one matter.<br>
@@ -50,11 +50,11 @@ Remember, today we are confronting thousands of such people who are making money
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0158.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed">"<b>Today is a day people's ... this is created by human beings and not by God, as Guru Pūrṇimā. Because, as God has created days of Their advent, human beings have created days of their surrendering. So this is the day when you have to give something to the Guru, and Guru does not have to give anything to you.</b> This is the [laughing:] time you have to say: `What you are going to give? What you are going to do for your Guru?' Because so far the Guru has been giving.<br>
-If you are in meditation, supposing you say, `We'll meditate because Guru Pūrṇimā is there,' that's not the way the Guru Pūrṇimā is to be celebrated. Because if you meditate, you are taking from Me. If you try to correct yourself, you are taking from Me. If you are going to get cured, you are taking from Me.<br>
-So now what can you do for Me? Is the point, you have to think about it. `What can you do?'<br>
-Now I have sent the same question to India, to find ... I asked them to find out: `What can you do for Me?'<br>
-You will say: `Mother, what can we do? After all, what are we?' That's a way of evading the issue.<br>
+<font color="DarkRed">"<b>Today is a day people's ... this is created by human beings and not by God, as Guru Pūrṇimā. Because, as God has created days of Their advent, human beings have created days of their surrendering. So this is the day when you have to give something to the Guru, and Guru does not have to give anything to you.</b> This is the [laughing:] time you have to say: 'What you are going to give? What you are going to do for your Guru?' Because so far the Guru has been giving.<br>
+If you are in meditation, supposing you say, 'We'll meditate because Guru Pūrṇimā is there,' that's not the way the Guru Pūrṇimā is to be celebrated. Because if you meditate, you are taking from Me. If you try to correct yourself, you are taking from Me. If you are going to get cured, you are taking from Me.<br>
+So now what can you do for Me? Is the point, you have to think about it. 'What can you do?'<br>
+Now I have sent the same question to India, to find ... I asked them to find out: 'What can you do for Me?'<br>
+You will say: 'Mother, what can we do? After all, what are we?' That's a way of evading the issue.<br>
 But if you really want to see, <b>you can do a lot! And that is what it is that: you are My witness. You are My publicity!</b>"</font><br>
 <font size="+0"><b>1977-0701 Guru Pūjā (Guru Pūrṇimā Day) (first more formal Pūjā in the West), Self-realization, Living Room, Gavin Brown's Geological Institute (Terrace House), 160 North Gower Street, 2nd Floor, Euston, London, UK</b></font><br>
 <br>
@@ -97,7 +97,7 @@ I am happy today is another day of Guru Pūrṇimā which is a very auspicious d
 <br>You have to become that, becoming is important, in Sahaja Yoga becoming is important, all other things are really of no use. You have to become.<br>
 Specially ladies are very shy I think. They can do a lot and they should work it out. They are shy for nothing at all, what is the need to be shy? They are very shy ladies and they just don't get into the whole working of Sahaja Yoga -- you should. If the ladies start talking about it, I think it will work much faster.<br>
 And I bless you all to do this work, which was left half done by the Saints, it's your duty to complete it.<br>
-May God bless you.</b></font><br>
+May God bless you.</font><br>
 <font size="+0"><b>2002-0724 Guru Pūrṇimā Pūjā, Hangar (now Nirmal Temple), Albera Ligure, Alessandria, Italy</b></font><br>
 <br>
 <font color="chocolate"><b>Gurū Param’ātmā Pareshu</b></font><br>
