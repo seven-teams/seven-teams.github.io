@@ -150,7 +150,7 @@ who checks or regulates the internal feelings)]</b></font></font><br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="blue"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
+<font color="green"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -170,7 +170,7 @@ who checks or regulates the internal feelings)]</b></font></font><br>
 </p>
 
 <p>
-<font color="Maroon"><b>Guru bin Kaun</b></font><br>
+<font color="green"><b>Guru bin Kaun</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
