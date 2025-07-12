@@ -12,7 +12,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to bring to your attention one new album of Moments of Growth:<br>
-<b>1.</b> <a href="https://imageevent.com/sahaja/momentsofgrowth/pujaseminarsbypatanslow"><font color="DarkGreen"><b>Puja Seminar by Photographer</b></font></a>.<br>
+<b>1.</b> <a href="https://imageevent.com/sahaja/momentsofgrowth/pujaseminarsbypatanslow"><font color="DarkGreen"><b>Puja Seminars by Photographer</b></font></a>.<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
