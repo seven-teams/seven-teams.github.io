@@ -1,7 +1,7 @@
 ---
-title: 'Photos Post 13: Moments of Growth, New Albums and Galleries, Part 36'
-date: 2025-07-02
-permalink: /photos/2025/0702-c
+title: 'Photos Post 13: Moments of Growth, New Albums and Galleries, Part 37'
+date: 2025-07-12
+permalink: /photos/2025/0712
 tags:
   - crimson @ Photos Moments of Growth
   - green @ Updates
@@ -12,7 +12,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to bring to your attention one new album of Moments of Growth:<br>
-<b>1.</b> <a href="https://imageevent.com/sahaja/momentsofgrowth/outdooractivitiesbypatanslow"><font color="DarkGreen"><b>Outdoor Activities by Collector/Photographer</b></font></a>.<br>
+<b>1.</b> <a href="https://imageevent.com/sahaja/momentsofgrowth/pujaseminarsbypatanslow"><font color="DarkGreen"><b>Puja Seminar by Photographer</b></font></a>.<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
