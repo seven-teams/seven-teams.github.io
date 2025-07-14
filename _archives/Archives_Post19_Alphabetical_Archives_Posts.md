@@ -24,8 +24,14 @@ tags:
 <b>10.</b> <a href="https://seven-teams.github.io/archives/2023/0519"><font color="maroon"><b>Publications Related to Offerings</b></font></a>: 1 file<br>
 <b>11.</b> <a href="https://seven-teams.github.io/archives/2023/0629"><font color="maroon"><b>Research</b></font></a>: 3 files<br>
 <b>12.</b> <a href="https://seven-teams.github.io/archives/2023/0629"><font color="maroon"><b>Sahaj Patrika (Hindi)</b></font></a>: 1 file<br>
-<b>13.</b> <b>Sahaj Yog (Marathi)</b>: Total files 4<br>
- &emsp; &emsp; &emsp;<b>11.1.</b> <a href="https://seven-teams.github.io/archives/2024/1229"><font color="maroon"><b>Sahaj Yog (Marathi), Part 2 (1986)</b></font></a>: 4 files<br>
+<b>13.</b> <b>Sahaj Yog (Marathi)</b>: Total files 46<br>
+ &emsp; &emsp; &emsp;<b>11.1.</b> <a href="https://seven-teams.github.io/archives/2024/1229"><font color="maroon"><b>Sahaj Yog (Marathi), Part 2 (1986)</b></font></a>: 10 files<br>
+ &emsp; &emsp; &emsp;<b>11.2.</b> <a href="https://seven-teams.github.io/archives/2024/1229"><font color="maroon"><b>Sahaj Yog (Marathi), Part 3 (1987)</b></font></a>: 12 files<br>
+ &emsp; &emsp; &emsp;<b>11.3.</b> <a href="https://seven-teams.github.io/archives/2024/1229"><font color="maroon"><b>Sahaj Yog (Marathi), Part 4 (1988)</b></font></a>: 11 files<br>
+ &emsp; &emsp; &emsp;<b>11.4.</b> <a href="https://seven-teams.github.io/archives/2024/1229"><font color="maroon"><b>Sahaj Yog (Marathi), Part 5 (1989)</b></font></a>: 2 files<br>
+ &emsp; &emsp; &emsp;<b>11.5.</b> <a href="https://seven-teams.github.io/archives/2024/1229"><font color="maroon"><b>Sahaj Yog (Marathi), Part 8 (1992)</b></font></a>: 5 files<br>
+ &emsp; &emsp; &emsp;<b>11.6.</b> <a href="https://seven-teams.github.io/archives/2024/1229"><font color="maroon"><b>Sahaj Yog (Marathi), Part 9 (1993)</b></font></a>: 5 files<br>
+ &emsp; &emsp; &emsp;<b>11.7.</b> <a href="https://seven-teams.github.io/archives/2024/1229"><font color="maroon"><b>Sahaj Yog (Marathi), Part 10 (1994)</b></font></a>: 1 file<br>  
 <b>14.</b> <b>Sahaja Newsletter (Australia)</b>: Total files 87<br>
  &emsp; &emsp; &emsp;<b>12.1.</b> <a href="https://seven-teams.github.io/archives/2023/0824-b"><font color="maroon"><b>Sahaja Newsletter (Australia), Part 1 (1991)</b></font></a>: 5 files<br>
  &emsp; &emsp; &emsp;<b>12.2.</b> <a href="https://seven-teams.github.io/archives/2023/0831"><font color="maroon"><b>Sahaja Newsletter (Australia), Part 2 (1992)</b></font></a>: 48 files (includes 8 supplements)<br>
