@@ -7,7 +7,7 @@ tags:
   - red @ Archive
 ---
 
-<b>POSTS:</b><br>
+<b>POSTS</b>: 730 files<br>
 <b>1.</b> <a href="https://seven-teams.github.io/archives/2024/0121"><font color="maroon"><b>Ads</b></font></a>: 2 files<br>
 <b>2.</b> <a href="https://seven-teams.github.io/archives/2023/0508"><font color="maroon"><b>Articles</b></font></a>: 28 files<br>
 <b>3.</b> <b>Australian Sahaja Newsletter</b>: Total files 100<br>
