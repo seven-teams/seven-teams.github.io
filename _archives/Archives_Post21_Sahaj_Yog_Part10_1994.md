@@ -24,4 +24,4 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>1994SAHYOG(MAR)1.</b></font> <b>1998-0800 to 1000 Sahaj Yog (Marathi) (Balwant Kumbhojkar Collection)</b> (24 pages, uploaded on 2025-0715)
 
-<iframe src="/pdf/#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1994-0800_to_1000_Sahaj_Yog_(Marathi)_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1994-0800_to_1000_Sahaj_Yog_(Marathi)_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
