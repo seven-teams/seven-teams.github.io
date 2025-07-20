@@ -76,6 +76,6 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>1986SAHYOG(MAR)10.</b></font> <b>1986-1200 Sahaj Yog (Marathi), Volume 2, Issue 5 [6] (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0717; warning: error in numbering)
+<font color="DarkGreen"><b>1986SAHYOG(MAR)10.</b></font> <b>1986-1200 Sahaj Yog (Marathi), Volume 2, Issue 5 (6) (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0717; warning: error in numbering)
 
-<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1986-1200_Sahaj_Yog_(Marathi)_Volume_2_Issue_5_[6]_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1986-1200_Sahaj_Yog_(Marathi)_Volume_2_Issue_5_(6)_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>

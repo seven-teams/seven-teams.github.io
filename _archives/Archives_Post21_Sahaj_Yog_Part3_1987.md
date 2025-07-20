@@ -22,45 +22,45 @@ sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
 
-<font color="DarkGreen"><b>1987SAHYOG(MAR)1.</b></font> <b>1987-0100 Sahaj Yog (Marathi), Volume 2, Issue 6 [7] (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
+<font color="DarkGreen"><b>1987SAHYOG(MAR)1.</b></font> <b>1987-0100 Sahaj Yog (Marathi), Volume 2, Issue 6 (7) (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
 
-<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0100_Sahaj_Yog_(Marathi)_Volume_2_Issue_6_[7]_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<br>
-
-<font color="DarkGreen"><b>1987SAHYOG(MAR)2.</b></font> <b>1987-0200 Sahaj Yog (Marathi), Volume 2, Issue 7 [8] (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
-
-<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0200_Sahaj_Yog_(Marathi)_Volume_2_Issue_7_[8]_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0100_Sahaj_Yog_(Marathi)_Volume_2_Issue_6_(7)_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1987SAHYOG(MAR)3.</b></font> <b>1987-0300 Sahaj Yog (Marathi), Volume 2, Issue 8 [9] (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
+<font color="DarkGreen"><b>1987SAHYOG(MAR)2.</b></font> <b>1987-0200 Sahaj Yog (Marathi), Volume 2, Issue 7 (8) (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
 
-<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0300_Sahaj_Yog_(Marathi)_Volume_2_Issue_8_[9]_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<br>
-
-<font color="DarkGreen"><b>1987SAHYOG(MAR)4.</b></font> <b>1987-0400 Sahaj Yog (Marathi), Volume 2, Issue 9 [10] (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
-
-<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0400_Sahaj_Yog_(Marathi)_Volume_2_Issue_9_[10]_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0200_Sahaj_Yog_(Marathi)_Volume_2_Issue_7_(8)_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1987SAHYOG(MAR)5.</b></font> <b>1987-0500 Sahaj Yog (Marathi), Volume 2, Issue 10 [11] (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
+<font color="DarkGreen"><b>1987SAHYOG(MAR)3.</b></font> <b>1987-0300 Sahaj Yog (Marathi), Volume 2, Issue 8 (9) (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
 
-<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0500_Sahaj_Yog_(Marathi)_Volume_2_Issue_10_[11]_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
-
-<br>
-
-<font color="DarkGreen"><b>1987SAHYOG(MAR)6.</b></font> <b>1987-0600 Sahaj Yog (Marathi), Volume 2, Issue 11 [12] (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
-
-<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0600_Sahaj_Yog_(Marathi)_Volume_2_Issue_11_[12]_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0300_Sahaj_Yog_(Marathi)_Volume_2_Issue_8_(9)_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1987SAHYOG(MAR)7.</b></font> <b>1987-0700 Sahaj Yog (Marathi), Volume 2, Issue 12 [13] (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
+<font color="DarkGreen"><b>1987SAHYOG(MAR)4.</b></font> <b>1987-0400 Sahaj Yog (Marathi), Volume 2, Issue 9 (10) (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
 
-<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0700_Sahaj_Yog_(Marathi)_Volume_2_Issue_12_[13]_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0400_Sahaj_Yog_(Marathi)_Volume_2_Issue_9_(10)_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
+<font color="DarkGreen"><b>1987SAHYOG(MAR)5.</b></font> <b>1987-0500 Sahaj Yog (Marathi), Volume 2, Issue 10 (11) (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
+
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0500_Sahaj_Yog_(Marathi)_Volume_2_Issue_10_(11)_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
+<font color="DarkGreen"><b>1987SAHYOG(MAR)6.</b></font> <b>1987-0600 Sahaj Yog (Marathi), Volume 2, Issue 11 (12) (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
+
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0600_Sahaj_Yog_(Marathi)_Volume_2_Issue_11_(12)_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
+<font color="DarkGreen"><b>1987SAHYOG(MAR)7.</b></font> <b>1987-0700 Sahaj Yog (Marathi), Volume 2, Issue 12 (13) (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-0720)
+
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1987-0700_Sahaj_Yog_(Marathi)_Volume_2_Issue_12_(13)_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
