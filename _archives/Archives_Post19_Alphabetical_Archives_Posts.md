@@ -26,10 +26,10 @@ tags:
 <b>12.</b> <a href="https://seven-teams.github.io/archives/2023/0629"><font color="maroon"><b>Sahaj Patrika (Hindi)</b></font></a>: 1 file<br>
 <b>13.</b> <b>Sahaj Yog (Marathi)</b>: Total files 46<br>
  &emsp; &emsp; &emsp;<b>13.1.</b> <a href="https://seven-teams.github.io/archives/2024/1229"><font color="maroon"><b>Sahaj Yog (Marathi), Part 2 (1986)</b></font></a>: 10 files<br>
- &emsp; &emsp; &emsp;<b>13.2.</b> <a href="https://seven-teams.github.io/archives/2025/0715"><font color="maroon"><b>Sahaj Yog (Marathi), Part 3 (1987)</b></font></a>: 12 files<br>
- &emsp; &emsp; &emsp;<b>13.3.</b> <a href="https://seven-teams.github.io/archives/2025/0715"><font color="maroon"><b>Sahaj Yog (Marathi), Part 4 (1988)</b></font></a>: 11 files<br>
+ &emsp; &emsp; &emsp;<b>13.2.</b> <a href="https://seven-teams.github.io/archives/2025/0720"><font color="maroon"><b>Sahaj Yog (Marathi), Part 3 (1987)</b></font></a>: 12 files<br>
+ &emsp; &emsp; &emsp;<b>13.3.</b> <a href="https://seven-teams.github.io/archives/2025/0719"><font color="maroon"><b>Sahaj Yog (Marathi), Part 4 (1988)</b></font></a>: 11 files<br>
  &emsp; &emsp; &emsp;<b>13.4.</b> <a href="https://seven-teams.github.io/archives/2025/0716"><font color="maroon"><b>Sahaj Yog (Marathi), Part 5 (1989)</b></font></a>: 2 files<br>
- &emsp; &emsp; &emsp;<b>13.5.</b> <a href="https://seven-teams.github.io/archives/2025/0715"><font color="maroon"><b>Sahaj Yog (Marathi), Part 8 (1992)</b></font></a>: 5 files<br>
+ &emsp; &emsp; &emsp;<b>13.5.</b> <a href="https://seven-teams.github.io/archives/2025/0718"><font color="maroon"><b>Sahaj Yog (Marathi), Part 8 (1992)</b></font></a>: 5 files<br>
  &emsp; &emsp; &emsp;<b>13.6.</b> <a href="https://seven-teams.github.io/archives/2025/0717"><font color="maroon"><b>Sahaj Yog (Marathi), Part 9 (1993)</b></font></a>: 5 files<br>
  &emsp; &emsp; &emsp;<b>13.7.</b> <a href="https://seven-teams.github.io/archives/2025/0715"><font color="maroon"><b>Sahaj Yog (Marathi), Part 10 (1994)</b></font></a>: 1 file<br>
 <b>14.</b> <b>Sahaja Newsletter (Australia)</b>: Total files 87<br>
