@@ -1,5 +1,5 @@
 ---
-title: 'Poem (Marathi) &#8216; Śhrī Nirmal Mā&#8217; by Sudha Girje, New Delhi from 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 3, Column 2, Bottom'
+title: 'Poem (Marathi) &#8216;Śhrī Nirmal Mā&#8217; by Sudha Girje, New Delhi from 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 3, Column 2, Bottom'
 date: 1986-03-01
 permalink: /folder/Poem-SG-1986-0400-SY(M)
 tags:

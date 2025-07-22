@@ -1,10 +1,10 @@
 ---
-title: 'Poem (Marathi) &#8216;Kṣhaṇa hā bhāgyāchā (The Moment is of Good Furtune)&#8217; by Shri Kishan More, Pune from 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 4, Column 1'
+title: 'Poem (Marathi) &#8216;Kṣhaṇa hā bhāgyāchā (The Moment is of Good Furtune)&#8217; by Kishan More, Pune from 1986-0400 Sahaj Yog (Marathi), Volume 1, Issue 10, Page 4, Column 1'
 date: 1986-03-01
-permalink: /folder/Poem-SKM-1986-0400-SY(M)
+permalink: /folder/Poem-KM-1986-0400-SY(M)
 tags:
   - black @ Poetry
-  - blue @ Shri Kishan More
+  - blue @ Kishan More
   - brown @ 1986
   - cornflowerblue @ Pune
   - deeppink @ 1986-0400 Sahaj Yog (Marathi)
