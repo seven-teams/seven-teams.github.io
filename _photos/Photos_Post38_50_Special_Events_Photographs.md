@@ -1,6 +1,6 @@
 ---
 title: 'Photos Post 38: Special Events (after 1975), Part 50'
-date: 2025-07-08
+date: 2025-07-22
 permalink: /photos/2025/0722-b
 tags:
   - green @ Updates
