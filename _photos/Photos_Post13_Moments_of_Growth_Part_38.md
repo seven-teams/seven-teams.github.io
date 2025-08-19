@@ -12,7 +12,8 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to bring to your attention one new album of Moments of Growth:<br>
-<b>1.</b> <a href="https://imageevent.com/sahaja/art/photographicartofcolinheinsen"><font color="DarkGreen"><b>Photographic Art of an Artist</b></font></a> which has two galleries.<br>
+<b>1.</b> <a href="https://imageevent.com/sahaja/art/photographicartofcolinheinsen"><font color="DarkGreen"><b>Photographic Art of an Artist</b></font></a><br>
+which has two galleries.<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
