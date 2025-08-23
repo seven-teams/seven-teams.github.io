@@ -353,8 +353,38 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 </p>
 
 <p>
-<b>3.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>3.3 Translation</b><br>
+<font color="DarkGreen">"His salvation lies in investigation (vichara) alone. ..."</font>
+</p>
+
+<p>
+<b>3.6 Translation</b><br>
+<font color="DarkGreen">...... Datta, the Ocean of Mercy, answered:</font>
+</p>
+
+<p>
+<b>3.7 Translation</b><br>
+<font color="DarkGreen">"..... the fundamental cause of salvation. <i> Association with the wise</i> is the root cause for obliterating all misery."</font>
+</p>
+
+<p>
+<b>3.8-9 Translation</b><br>
+<font color="DarkGreen">"Association with the sages is alone said to  lead to the highest good. Your contact with Samvarta has led you to this stage of enlightenment, which is the fore-runner of emancipation. ......"</font>
+</p>
+
+<p>
+<b>3.10 Translation</b><br>
+<font color="DarkGreen">"...... it is the company that determines the future of the individual."</font>
+</p>
+
+<p>
+<b>3.25 Translation</b><br>
+<font color="DarkGreen">[Hemalekha:] "Hospitality is the sacred duty of the pious. ......"</font>
+</p>
+
+<p>
+<b>3.37 Translation</b><br>
+<font color="DarkGreen">"He who offers righteous protection is said to be the father. ......"</font>
 </p>
 
 <div class="para-divider"></div>
@@ -362,6 +392,131 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 <p style="text-align:center;">
 <b>Chapter 4</b><br>
 <font color="DarkGreen"><b></b></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen">"...... I am trying to find what the greatest joy in life is which will never become distasteful. ......"</font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>4.1 Translation</b><br>
+<font color="DarkGreen"></font>
 </p>
 
 <div class="para-divider"></div>
