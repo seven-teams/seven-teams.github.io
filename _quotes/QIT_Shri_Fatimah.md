@@ -69,7 +69,12 @@ And this thing is Truth or not you can see on your vibrations. If [one thinks th
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Those who are here and Buddha and Mahāvīr are here, sitting on our foreheads. Buddha and Mahāvīr are not someone else, [but] Luv and Kuśh, whom you call, Their names are Luv and Kuśh. They are the ones who take birth in Their world multiple times. They came into the world under the names of Buddha and Mahāvīr.<br>
+Consider Them as Incarnations only. They are a special being who take incarnation from humans.<br>
+He came into the world and preached non-violence. But His non-violence was not like the Jains, who say, `Take care of the ants, take care of the mosquitoes.'<br>
+So then He said, ``Take birth again." I don't know what drama He created, so then He took birth as Hasan and Husayn.<br>
+Their mother, who was Sītājī, was also Jānakī, was also Rādhā, She is also called Fāṭimah. And Her place is in the left navel.<br>
+Hazarat ʿAlī is also a very significant figure. Without taking His name, the left navel doesn't open. Hazarat ʿAlī. He is the same incarnation of Brahma."</font><br>
 <font size="+0"><b>1979-0117 Public Program (Hindi), Day 4, Chakroṃ para Upasthita Devatā (Deities on All Chakras), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -146,7 +151,8 @@ And this thing is Truth or not you can see on your vibrations. If [one thinks th
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"You can say that at the time of Muhammad Sāhab, He didn't talk much about it, because the time was such. <font color="red">But His own daughter was an Incarnation of the Primordial Mother, whose name was Fāṭimah.<br>
+And the two sons that were born to Her are the sons who came on this Earth also as Mahāvīra and Buddha, and They were born even earlier.</font> Like that, They were born again and again, as there's [there are] two elements as the disciples, as two disciples. And you can see if you read Their life, Their character, Their behavior, you'll be surprised, how these two characters have been born again and again, in different times to suggest two personalities, of two types, who have been seeking God, and who have been trying to understand God through Their personality as disciple, and how They reached a conclusion after taking a kuh kind of a uh position in life. "<br>
 <font size="+0"><b>1983-1012 Public Program (7th Day of Navarātri), Day 2, Old Cambridge Baptist Church, 1151 Massachussetts Avenue, Cambridge, MA, U.S.A.</b></font>
 </p>
 
@@ -168,13 +174,6 @@ But now, what has happened today: is that same [<font color="orange">unclear</fo
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
 <font color="red">"In no Incarnation a male has come without a female. Christ came, He had His Mother. When Śhrī Kṛiṣhṇa came, He had to have Rādhā. When Rāma came, Sītā was there. When Nāṇaka came, there had to be Nāṇakī. When Janaka came, He had to have Jānakī, as His daughter. When Muhammad Sāhab came, He had to have His daughter, Fāṭimah. They could not do without the Power because they are just the kinetic energy.<br>
 But when the Goddess came, She came alone. Because She has a Power to contain within Herself all the Powers."</font><br>
 <font size="+0"><b>1985-0601 Talk to Sahaja Yogis, The Role of Women in America, Tent, Backyard, House of Judy Gaddy, 442 Liberty Road, Englewood, NJ, U.S.A.</b></font>
@@ -190,7 +189,7 @@ But when the Goddess came, She came alone. Because She has a Power to contain wi
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Now let us see how many Incarnations we've had of Śhrī Mahālakṣhmī. Firstly, the Principle of Śhrī Mahālakṣhmī is very close with a Guru ... a relation of plenty of love and purity. Now if we see from the beginning with all the Ādi Gurus, She was born to them as a daughter or as a sister. Like the daughter of Janaka was Śhrī Sītā: She was the form of Śhrī Mahālakṣhmī, was the Principle of Śhrī Mahālakṣhmī. Sītā was Śhrī Mahālakṣhmī, and She was the daughter of Janaka. Then the sister of Śhrī Nāṇaka, Nāṇakī, She was Śhrī Mahālakṣhmī. Her relation was of sister. In the same way, the daughter of Muhammad Sāhib, Fāṭimah, She was Śhrī Mahālakṣhmī. After Her, Rādhā: Rādhā was the form of Śhrī Mahālakṣhmī. After Her, Mary: Mary was Śhrī Mahālakṣhmī, and Her relation was of purity. She was so pure that with Her purity She gave birth to Śhrī Christ. So She was a form of complete pure Virgin. And as She was a form of Virgin, because of Her purity She got a Son pure as Christ. So She was also Śhrī Mahālakṣhmī."</font><br>
 <font size="+0"><b>1986-0106 Śhrī Mahālakṣhmī Pūjā (English + Marathi + English), Ascent Is the Main Attention, Sangli, Maharashtra, India</b></font>
 </p>
 
@@ -227,7 +226,16 @@ So, we have ʿAlī and His wife Fāṭimah who incarnated on the Principle of th
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<b>Version 1:</b><br>
+<font color="red">"We the Sahaja Yogis have our duties to bring the light of the Deities in our attention. We need to see what Śhrī Rāma did, if there were some difficulties how would Śhrī Sītā reacted, what She would have said. If we start thinking like Her all the women will be good Gṛuhalakṣhmīs.<br>
+As you know Śhrī Sītā took many forms, one of them is of Gṛuhalakṣhmī in the form of Śhrī Fāṭimah. She was in the house covered in chādar but She did all the dhārmik works.<br>
+For this you don't need to go out and start giving lectures and become big leaders, this is not necessary, staying at home also you can do the dhārmik work, take care of your children and the people around you and speak to them about Sahaja Yoga, later on it can be in your surroundings. But before that you have to imbibe the qualities of Śhrī Sītā within you."<br>
+<br>
+<b>Version 2:</b><br>
+"What is the duty of Sahaja Yogis' life? We have to bring the light of God in our attention.<br>
+We must see and behave as Śhrī Rāma. What would Śhrī Rāma or Sītā do in this situation? What would Sītājī say? How would Sītā behave?<br>
+She is also Gṛuhalakṣhmī. As you know Sītājī took many births. Gṛuhalakṣhmī was in the form of Fāṭimah Bi. She was humbly in the house but all dharma was done by Her power. Not necessary for Her to go out and give big lectures. You can do that work at home with children, relatives and friends. You can spread Sahaja Yoga at the house. After getting all of it you can go out to society.<br>
+But ladies have to have purity like Sītājī first."</font><br>
 <font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi) (the day after Rāma Navamī Day), If You Believe in Śhrī Rāma Follow His Ideal (Our Nature Can Change because He Is Our Ideal and You All Become Ideals for this World), Kolkata, West Bengal, India</b></font>
 </p>
 
@@ -250,7 +258,10 @@ These are age-old things, also, we need not carry it on."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"I hope tomorrow you will get more people from Iran.<br>
+I have this great feeling for Iran.<br>
+<font color="red">So, Fāṭimah was there, Her two children were killed there. That's a very sad story.</font><br>
+And now, despite all oil and everything, I've heard that people are getting very poor there. And even small children of twelve years or so are carrying guns in their hands. Is a mad world."<br>
 <font size="+0"><b>1992-0915 Public Talk to a Group of about 20 Iranians, Āśhram, 5206 Topeka Drive, Tarzana, CA, U.S.A.</b></font>
 </p>
 
