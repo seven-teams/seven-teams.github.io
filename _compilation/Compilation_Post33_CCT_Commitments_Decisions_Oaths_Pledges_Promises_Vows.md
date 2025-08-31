@@ -3,12 +3,12 @@ title: 'Post 33: Commitments, Decisions, Oaths, Pledges, Promises, and Vows'
 date: 2023-02-01
 permalink: /compilation/2023/0201
 tags:
-  - crimson @ Commitments
-  - crimson @ Decisions  
-  - crimson @ Oaths 
-  - crimson @ Pledges
-  - crimson @ Promises
-  - crimson @ Vows
+ - crimson @ Commitments
+ - crimson @ Decisions 
+ - crimson @ Oaths 
+ - crimson @ Pledges
+ - crimson @ Promises
+ - crimson @ Vows
 ---
 
 <div class="para-divider"></div>
@@ -572,7 +572,114 @@ Respect each and every person. N... not to what he has read or for what he has l
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Seven times, have you done it?</font><br>
+<b>Sahaja Yogi:</b> [<font color="orange">unclear</font>] .<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> [Marathi.]<br>
+<font color="DarkRed">Now, now ... now Warren just say that.</font><br>
+<b>Dr. Warren Reeves:</b> Say the mantras?<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Yes.</font><br>
+Now first the girl has to be forward, all right?<br>
+<b>Dr. Warren Reeves:</b> The girl has to be in front, please. <br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> The girl.<br>
+<b>Dr. Warren Reeves:</b> Let the girl be standing in front.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> All right.<br>
+Now, when he says one thing, then you must -- what do you say that?<br>
+<b>Sahaja Yogi:</b> No.<br>
+<b>Rājabhāī Modi:</b> When ... when ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> [<font color="orange">unclear</font>] .<br>
+<b>Rājabhāī Modi:</b> ... when Warren will say the first stanza or the first uh ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Oath, oath!</font><br>
+<b>Rājabhāī Modi:</b> ... first oath out of the seven oaths, you have ... the girl will have to touch the first mound. With the ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> [<font color="orange">unclear</font>]  ... and ... and the .. and just ...<br>
+<b>Rājabhāī Modi:</b> ... with her ... with her toe, of the foot. With her toe ...<br>
+<b>Dr. Warren Reeves:</b> The .. you do it with your toe. You, after I've said the stanza, with the toe you break with the first mound. And after the second[oath], you do it the second time.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">That is the oath you are taking, all right?</font><br>
+<font color="DarkRed">The girl is taking the oath now. Listen to the first oath.</font><br>
+<b>Dr. Warren Reeves:</b> And you put your attention to the Sahasrāra when you're saying these mound ... this ... saying these oaths. Because you're saying them, in your heart, to Śhrī Mātājī.<br>
+The bride says: "I will help to keep your Mūlādhāra chakra in order. You hand over all wealth which is in your possession. I will take care of those things. You should only eat the food that is cooked by me or your brothers and sisters, and if taken outside the home, you will vibrate it. I will be loyal to you. And you will be loyal to me."<br>
+Now you cut the first mound with your toe.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> You first cut the thing.<br>
+<b>Dr. Warren Reeves:</b> Cut with your toe.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">These are actually not the oaths but demands. [Laughter.] Is a promise as well as a demand. It's a combination.</font><br>
+<b>Dr. Warren Reeves:</b> Now the bride stays where she is and she says: " I will do ..."<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Second one.</font><br>
+<b>Dr. Warren Reeves:</b> "... all household work with my physical and spiritual powers. I will live with love and affection and will obey you. You should help me in my work and I will help you in the work of Sahaja Yoga."<br>
+You cut the second one.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> All right: that's it.<br>
+<b>Dr. Warren Reeves:</b> And now the bride says the third oath: "I will keep my Lakṣhmī chakra in order, and you will respect my Lakṣhmī Tattwa. This will keep your Lakṣhmī Tattwa in order as well. You should give account of all you bring home. Nothing will be hidden."<br>
+<b>Rājabhāī Modi:</b> The third one.<br>
+<b>Dr. Warren Reeves:</b> Now the third to be cut.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> We don't need any fire any more, all right, now.<br>
+[<font color="orange">unclear</font>] .<br>
+<b>Dr. Warren Reeves:</b> Now the boy has to say ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Boy comes forward.<br>
+<b>Dr. Warren Reeves:</b> The boy steps forward, ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Steps forward.<br>
+<b>Dr. Warren Reeves:</b> ... because this is his oath.<br>
+The groom says: "I will give you happiness and peace with love and affection. But you will also have to think about my happiness and peace. You should not go outside without my permission. And I will tell you when I go outside."<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Now the ...<br>
+<b>Dr. Warren Reeves:</b> "[<font color="orange">unclear</font>]  ... I will not discus ..."<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> ... girls should be.<br>
+Just one thing.<br>
+The girls should be on the left-hand side of the boy. They are just the other way round.<br>
+<b>Sahaja Yogi:</b> [<font color="orange">unclear</font>] .<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Yes. Just move that thing.<br>
+<font color="DarkRed">Ah now, again say it.</font><br>
+<b>Dr. Warren Reeves:</b> The groom says: "I will give you happiness and peace with love and affection."<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Yes.<br>
+<b>Dr. Warren Reeves:</b> "But you will ..."<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> To the right, to the right.<br>
+<b>Dr. Warren Reeves:</b> [Overlapping:] "... also have to think about ..."<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> [Overlapping:] Girls to be [<font color="orange">unclear</font>] . Hāṃ [yes].<br>
+<b>Dr. Warren Reeves:</b> "... my happiness and peace. You should not go outside without my permission. And I will tell you when I go outside. I will not discuss or think about the past. And you will not discuss or think about the past." <br>
+Cut it, the fourth mound.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Yes.<br>
+Now, ...<br>
+<b>Dr. Warren Reeves:</b> The groom says: "You should take care of me and my children, and you should respect and welcome other Sahaja Yoga brothers and sisters when they come to our house."<br>
+And now you cut the next one.<br>
+And now the groom says again: "If I commit any mistakes while doing Sahaja Yoga, you should excuse me, and I will excuse you."<br>
+Now you cut the sixth.<br>
+And now you both say. So you should both stand forward, together.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Together.</font><br>
+<b>Dr. Warren Reeves:</b> You both say, and I think you should say after me phrase by phrase. "Śhrī Ādi Śhakti Mātājī Nirmalā Devī ..."<br>
+<b>All brides and bridegrooms:</b>  "Śhrī Ādi Śhakti Mātājī Nirmalā Devī ..."<br>
+<b>Dr. Warren Reeves:</b> "... has put us in holy bandhan ..."<br>
+<b>All brides and bridegrooms:</b>  "... has put us in holy bandhan ..."<br>
+<b>Dr. Warren Reeves:</b> "... by our marriage ..."<br>
+<b>All brides and bridegrooms:</b>  "... by our marriage ..."<br>
+<b>Dr. Warren Reeves:</b> "... and this is a very great fortune ..."<br>
+<b>All brides and bridegrooms:</b>  "... and this is a very great fortune ..."<br>
+<b>Dr. Warren Reeves:</b> "... by this act of Śhrī Mātājī ..."<br>
+<b>All brides and bridegrooms:</b>  "... by this act of Śhrī Mātājī ..."<br>
+<b>Dr. Warren Reeves:</b> "... as Mahā Yagñya."<br>
+<b>All brides and bridegrooms:</b>  "... as Mahā Yagñya."<br>
+<b>Dr. Warren Reeves:</b> And you say after me: "We will offer everything to Her Feet, ..."<br>
+<b>All brides and bridegrooms:</b>  "We will offer everything to Her Feet, ..."<br>
+<b>Dr. Warren Reeves:</b> " ..., that is, our health, our wealth, ..."<br>
+<b>All brides and bridegrooms:</b>  " ..., that is, our health, our wealth, ..."<br>
+<b>Dr. Warren Reeves:</b> "... our mind and our heart."<br>
+<b>All brides and bridegrooms:</b>  "... our mind and our heart."<br>
+<b>Dr. Warren Reeves:</b> "We will take an oath that we will be loyal to each other."<br>
+<b>All brides and bridegrooms:</b>  "We will take an oath that we will be loyal to each other."<br>
+<b>Dr. Warren Reeves:</b> "We will work to increase Sahaja Yoga."<br>
+<b>All brides and bridegrooms:</b>  "We will work to increase Sahaja Yoga."<br>
+<b>Dr. Warren Reeves:</b> "We will bring our children up in Sahaja Yoga, and that is our duty."<br>
+<b>All brides and bridegrooms:</b>  "We will bring our children up in Sahaja Yoga, and that is our duty."<br>
+<b>Dr. Warren Reeves:</b> Jay Śhrī Mātājī!<br>
+<b>All brides and bridegrooms:</b>  Jay Śhrī Mātājī!<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> The ... now the last one you break. Both of you, now.<br>
+<b>Dr. Warren Reeves:</b> You cut the last one.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Both.</font> [Applause.]<br>
+<font color="DarkRed">Now ... now ... you all have to go round the fire, about seven times, and then you can touch My Feet and go and sit down for your food.</font><br>
+<b>Dr. Warren Reeves:</b> Seven times together.<br>
+Boy leading or girl leading, Mother?<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Hah?<br>
+<b>Dr. Warren Reeves:</b> Now the boy leads?<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Of course, ...<br>
+<b>Dr. Warren Reeves:</b> [<font color="orange">unclear</font>] .<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">... always. [Laughter.]<br>
+<b>Dr. Warren Reeves:</b> Round seven times. One by one.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Is good.<br>
 <font size="+0"><b>1985-0316 Talk to Sahaja Yogis, Marriages Ceremony, Tent, Back Garden, Āśhram, 1267 Burke Road, Kew, Melbourne, Victoria, Australia</b></font>
 </p>
 
@@ -637,7 +744,7 @@ So, now, what we are going to do: we are going to say aloud, without any shyness
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> With all our heart we should say. Strength and heart.</font><br>
 <b>Grégoire de Kalbermatten:</b> Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart ...<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> And strength.</font><br>
-<b>Grégoire de Kalbermatten:</b> <br>  ... and strength, for all our life.<br>
+<b>Grégoire de Kalbermatten:</b> <br> ... and strength, for all our life.<br>
 <b>Grégoire de Kalbermatten followed by many Sahaja Yogis:</b> Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and owe and strength unill the end of our life. Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and strength unill the end of our life. Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and strength unill the end of our life.<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> : Thank you very much.<br>
 May God bless you.</font><br>
@@ -735,7 +842,7 @@ May God bless you all!"</font><br>
 <b>Arneau de Kalbermatten:</b> ... through this coronation, is: You are the Queen. You are the Queen of the Universe. And uh we are Your devotees, we are Your disciples. So, if we are allowed to to crown You, it means that we have to have complete adherence, allegiance and surrender. Otherwise how can we crown You? Wit why not evel .. we are not even able to reach Your head because Your rea... head [as Śhrī Mātājī laughs:] is reaching the Universe. So, in our heart, we have tried the songs, little poems, it's ... we list[en] some little things, Śhrī Mātājī. And some Pictures and Photographs from You.<br>
 <font color="DarkRed">And through this, whatever may be the quality, Śhrī Mātājī, I am ss-ss-sure that all of us will be able to make this pledge of complete obedience, complete adherence, complete gratitude for You.</font><br>
 And, finally, we thought that through l-l... the image of Your Photographs, through some poems and through musics, we could express what I cannot express, our love for You, Śhrī Mātājī.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Thank you. [As appluse starts:] Thank you.
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Thank you. [As applause starts:] Thank you.
 <font size="+0"><b>1987-1004 Talk to Sahaja Yogis (Dussehra Day), before, during and after the Evening Program, after Śhrī Rāma Pūjā, Centre International, Les Avants, Vaud, Switzerland</b></font>
 </p>
 
@@ -1146,7 +1253,9 @@ Because you do not meditate, you do not have the depth to show that you are grea
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"And there are so many things one can talk about it which C.P. has kindly put it in his book also.<br>
+I know I ... I put him onto an oath that he has to write this book. Because he has written files after files up to here and there, of no use. I said, "What's the use of all these files? You ... you have to write Me a book on Shastrijī."<br>
+And I've been always insisting on him for helping Shastrijī because I knew what he was. I had the image of a man who would do such revolution in this country and bring down people to higher values in. Not money, money, money, money business, no! To the higher values. Because he was a[n] evolved soul, himself a detached man, and what a caliber of intelligence he had!"</font><br>
 <font size="+0"><b>1994-1203 Talk to Sahaja Yogis, Release of Sir C.P.'s Book Lal Bahadur Shastri A Life of Truth in Politics, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 
