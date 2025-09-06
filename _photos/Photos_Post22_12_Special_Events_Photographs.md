@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 63 Photos from the special event <font color="Crimson"><b>1984-0902 Śhrī Gaṇeśha Pūjā, Zermatt, Switzerland</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 20 high resolutions and 43 low resolutions from the Named Collections.<br>
-The direct link to the 112 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Switzerland/1984"> Switzerland 1984</a>.<br>
+We are pleased to let you know that 66 Photos from the special event <font color="Crimson"><b>1984-0902 Śhrī Gaṇeśha Pūjā, Zermatt, Switzerland</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 23 high resolutions and 43 low resolutions from the Named Collections.<br>
+The direct link to the 119 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Switzerland/1984"> Switzerland 1984</a>.<br>
+[Note: 3 Photos uploaded only on 2025-0905.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>
