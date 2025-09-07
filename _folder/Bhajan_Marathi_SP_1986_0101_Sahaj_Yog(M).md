@@ -40,23 +40,23 @@ tags:
 <br>
 
 <p>
-Let us see love. Let us surrender<br>
-Let us apply kumkum to the Mother of the World, Shri Mata.<br>
-Let us find the plate of Sahaja Yoga.<br>
-Let us find the cup of consciousness.<br>
-Let us flow the color of awareness, red, at your feet.<br>
+Let us experience [Her] love, let us surrender [to Her]<br>
+Let’s offer kumkum to Śhrī Mātā, the Mother of the Universe<br>
+Through Sahaja Yoga we found the Āratī plate<br>
+Through kukum holder we found the vibrations.<br>
+Let us offer the red color of awakening at Her Feet.<br>
 <br>
-Let us tie a garland of holy devotion.<br>
-Let us wear a garland of collective power.<br>
-Let us make a garland of surrender.<br>
-Let us take consciousness, let us give consciousness.<br>
+Let us weave the garland of holy devotion<br>
+Let us offer the garland of collective strength<br>
+through collective surrendering.<br>
+Let us take the vibrations, let us give the vibrations.<br>
 <br>
-Let us apply kumkum to Shri Mata, let us go.<br>
-May all the Suvāsinīs of the world be blessed, let us go<br>
-Let us to Shri Mata, let us go.<br>
-Let us pray for the blessings of Sahaja Yoga and good fortune.<br>
-Let us apply kumkum, let us go<br>
-Let us see love, let us surrender.<br>
+Let’s offer kumkum to Śhrī Mātā,<br>
+All the married ladies, let us come collectively,<br>
+Let us perform the Āratī of  Śhrī Mātā,<br>
+Let us ask for the blessings of Sahaja Yoga<br>
+Let us offer kumkum,<br>
+Let us experience [Her] love, let us surrender [to Her]
 </p>
 
 <br>
