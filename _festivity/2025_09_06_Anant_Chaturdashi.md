@@ -53,7 +53,7 @@ The lord of the elephants, the one with the moon on his forehead, Śhrī Gaṇe�
 </p>
 
 <p>
-<font color="DarkRed">"To manifest Śhrī Gaṇeśha, we have to do certain amount of tapasyā, penance. First we have to say, when we sit for meditation, that, <b>'I am going to be worthy of Your appreciation. Make me humble, so that I am appreciated by You, and my only desire is to please You.'</b> Then you sit down in complete preparedness, meditating over your Mūlādhāra, putting your attention to it with Absolute Purity. Now you have My Photograph before you and you tell the Photograph, <b>'Mother, You are Śhrī Gaṇeśha. You give me wisdom and discretion.'</b></font><br>
+<font color="DarkRed">"To manifest Śhrī Gaṇeśha, we have to do certain amount of tapasyā, penance. First we have to say, when we sit for meditation, that, <b>'I am going to be worthy of Your appreciation. Make me humble, so that I am appreciated by You, and my only desire is to please You.'</b> Then you sit down in complete preparedness, meditating over your Mūlādhāra, putting your attention to it with Absolute Purity. Now you have My Photograph before you and you tell the Photograph, <b>'Mother, You are Śhrī Gaṇeśha. You give me wisdom and discretion.' "</b></font><br>
 <font size="+0"><b>1983-0911 Śhrī Gaṇeśha Pūjā, Hotel ‘Lo Zodiaco’, near Tivoli (35 kms ENE of Rome), Italy</b></font>
 </p>
 
@@ -73,7 +73,7 @@ Gaṇapati Āratī in Marathi<br>
 </p>
 
 <p style=" text-align:center;">
-<font color="DarkGreen">"<b>Only in your Āratī, in Marathi</b>, of Śhrī Gaṇeśha, they say that, “At the time when I am getting my Realization you must save me.” That’s the only thing they ask, "At the time of my Resurrection you must save me." It does not say that, 'At the time of my Resurrection you protect me,' no! "You save me."<br>
+<font color="DarkRed">"<b>Only in your Āratī, in Marathi</b>, of Śhrī Gaṇeśha, they say that, “At the time when I am getting my Realization you must save me.” That’s the only thing they ask, "At the time of my Resurrection you must save me." It does not say that, 'At the time of my Resurrection you protect me,' no! "You save me."<br>
 Because He’s the one who is sitting on every chakra like a vice-chancellor of the university.<br>
 Even if you have Viṣhṇu on your side, Mahādeva on your side, but if Śhrī Gaṇeśha is there sitting and He says, ‘No, not his ascent,’ it doesn’t work out, it’s very difficult."</font><br>
 <font size="+0"><b>1997-0907 Śhrī Gaṇeśha Pūjā, Hangar, Cabella Ligure, Italy</b></font><br>
@@ -81,7 +81,6 @@ Even if you have Viṣhṇu on your side, Mahādeva on your side, but if Śhrī 
 <font color="DarkGreen"><b>Auṃ Twameva sākṣhāt Śhrī Gaṇeśha sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
 <b>O Divine Mother, You are verily Śhrī Gaṇeśha,<br>
 Salutations to You!<br>
-</p>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
