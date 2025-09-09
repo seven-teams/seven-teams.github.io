@@ -46,7 +46,16 @@ You are the light lamps of the entire world. You are brothers and sisters amongs
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"Joy is not outside. It is within. It is within you. People say you are in the form of God.<br>
+Just by talking about it, it is not going to happen. In Marathi they say, "Bolāchāch bhāta bōlāchīch kaḍhī" [Only making promises but not fulfilling them].<br>
+Whether I say that you seek the Formless or Formed, but these are only words.<br>
+Thousands of discussions have been done, crores of books have been written, how many lives were destroyed, but there is no end to a man's thinking.<br> 
+......<br>
+This is not of a question of being hopeful but a question of time. The time will come. The time of Kali Yuga is a time of a very terrific battle. It is a time of total darkness. You don't know this as you are seeing Me.<br>
+Besides yourself you are not being able to see anything else, but those who are realized know that what a pledge has been tied.<br>
+Negativity and positive forces are both tying their force. There is the full force of sympathetic and parasympathetic. The sympathetic is sucking away the parasympathetic. But no matter how much the sympathetic sucks it out, if that parasympathetic becomes one with that Ānanda then this will go on filling it up. You can go on using up the petrol but if that petrol is connected to the petrol pump and what is there to be afraid of. This is all due to the sympathetic. The active consciousness side of the sympathetic, from where you do all your work, from where you spend your energy, if that is over spent then a disease like cancer sets in. And if the superego is over used then madness comes in.<br>
+I do not cure people's diseases. To say that I cure people's diseases is a wrong concept. Because the parasympathetic system cools down the sympathetic system by which a person gets cured. If there is some madness then that too will get cured. And if within you a disease like cancer sets in, due to overactivity that too will get cured.<br>
+The cure for cancer is only Sahaja Yoga and there is no other cure in the world for it. This point will be proved. I know that this will be proved with time that many have been cured of cancer. The people who are sitting here can also tell you."</font><br>
 <font size="+0"><b>1973-0715 Guru Pūjā (Hindi) (Guru Pūrṇimā), Sahaja Yoga is a New Discovery, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -76,6 +85,12 @@ I will only give, I am not going to take anything.<br>
 <b>Version 2:</b><br> 
 <font color="DarkRed">"You should just decide that, 'From today I will not hurt anyone.' And, 'God forgive all who have hurt me and please forgive me because I have also hurt a lot of people.' "</font><br>
 <font size="+0"><b>1975-0201 Public Program (Hindi + English), Dhyāna Kyoṃ Karanā Chāhiye (Why Should One Meditate), Gurudev Cooperative Housing Society, Prabhadevi Sea Face, Mumbai, Maharashtra, India (other dates 0202 and 0209)</b></font>
+</p>
+
+<p>
+<font color="DarkRed">"Now, he's a husband, he thinks, 'She's my wife.' Meaning, 'I have a special relationship with her. There must be some connection from past lives. There must be some connection from previous births. So until my wife doesn't accept this thing, how can I accept it?' He saves money, even if he runs after another woman, there's no problem, that's OK! If he spends his money on another woman, there's no problem in that either. And he can do whatever he wants.<br>
+But when Sahaja Yoga comes, he becomes more committed to his wife, I have seen this. Because Sahaja Yoga teaches you love. So, because of teaching love, he becomes compassionate towards his wife. And he starts thinking about his wife too. And the wife, on the other hand, teaches him a lesson."</font><br>
+<font size="+0"><b>1975-0305 Public Program (Hindi), Day 3, Chitt Apanī aur Rakhiye (Keep the Attention towards Yourself), Mumbai, Maharashtra, India</b></font>
 </p>
 
 <p>
@@ -248,7 +263,7 @@ I said, "Really?" He said, "Yes. I feel I am looking like Hanumānjī, You pleas
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"Today you must promise Me that, 'Next time when I celebrate My Birthday here, you will come in huge numbers and all will take to Sahaja Yoga.'"</font><br>
 <font size="+0"><b>1979-0321 Birthday Pūjā (Hindi), Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -765,6 +780,25 @@ I would suggest that: those who are elderly people should be given chairs, and t
 <p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Nothing has been hidden. No knowledge has been hidden. Slowly have told you everything. And slowly will tell you some more.<br>
+But today, minimum of minimum, you have to decide that, 'Mother, everyday we will meditate and progress. Everyday we will meditate.' You will have to give that much time. If you give Me this promise today, then I will think that you have give Me thousands of flowers."</font><br>
+<font size="+0"><b>1986-0216 Talk to Sahaja Yogis (Hindi), Learn to Love Yourself, Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Yes, yes, it has to be experienced practically.<br>
+It can happen easily.<br>
+But we don't value our freedom because we got it easily. It's very easy to germinate, but growing a tree out of it is in your hands.<br> 
+For that you have to practice and you need to pay attention as to how to keep the Kuṇḍalinī stable. If you can learn this then you yourself will be great gurus. That much you must promise Me. I will raise you, but you have to establish yourself after that.<br>
+It will happen easily. There is no extra effort, nothing extraordinary, it's very simple but you have to be attentive."</font><br>
+<font size="+0"><b>1986-0217 Public Program (Hindi), Day 1, Kuṇḍalinī kā Jāgaraṇ Ek Jīvaṃt Kriyā Hai (Awakening of the Kuṇḍalinī Is a Living Action), Jaipur, Rajasthan, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1425,7 +1459,103 @@ I hope you believe in that promise and are joyous in the p... highest way."</fon
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"First of all, we have to take a resolution today that we have to clear our Āgñyā.<br>
+The greatest issue at the Āgñyā is that we think that we are very superior. And we start thinking that we can rule the whole world, and that we can correct the world. When you yourselves are not correct then how can you correct this world?<br>
+Now, you must have seen many people who think that they are very great, but do a lot of wrong things.<br>
+In this country people take a lot of money. Tell Me how will God forgive us for this? The greatest of all sins are stealing and corruption.<br>
+The person who commits these types of sins, whatever he may try, he may do Pūjās, chant mantras, read Namāz, call out to Allah, anything, he won't be benefited in any way.<br>
+So, today, is a New year for you, I wish you all and I want you all to make a resolution: 'From today onwards, I will not tell lies, never ever lie.'<br>
+Indians are very famous worldwide as liars. I do not know how but our country carries the stamp of being dishonest. Great Saints, Prophets have taken their birth here. How can people lie at a place where so many Sufis were born?<br>
+So today, you have to promise that you will never tell lies, whatever may be the consequences.<br>
+For that you need to have courage. Now that you are realized what more courage is needed?<br>
+As it is you can't lie at all. It's only when you become like this, the people will be able to have faith that you are really truthful people.<br>
+So, the Sahaja Yogis have to be truthful.<br>
+Whatever may be one's occupation, whatever he may do, he may be an engineer laying roads, he may be a doctor, treating everyone, if in spite of all this, if you lie then it would be Hell for you. That is because you are now transformed. You are now realized. So when realized people lie they cannot benefit from it at all.<br>
+When I go abroad, and often hear people say, that the people of our country are cheaters, liars and corrupt, I feel very sad.<br>
+Today it is very auspicious day for you. Today let us all make a resolution that, 'We will never lie, whatever it may be.'<br>
+I Myself am a woman, that too, an Indian. I have never said a lie.<br>
+By telling lies it would be a loss for you, you will be put to loss by doing wrong deeds. By doing so, you may be earning more or cheat more but you cannot go to Heaven, you will go to Hell.<br>
+One thing it is very important to know that we have a very bad reputation in the rest of the world. Why the bad reputation? Because, we are such type of people! When you come to know that someone is a liar, form an organization and make an enquiry into it.<br>
+For example, if a road has been laid which is not good enough, then enquire about the amount spent in its laying and what was its sanctioned layout cost and what is he doing [what was it spent on]? The money that is made on out of the road will only be used for drinking and liquor, which is our enemy!<br>
+Why do you want to do it? You are all very well-to-do people.<br>
+I have seen many countries where there are poor people but they are very honest.<br>
+So honesty should be the foremost quality in you.<br>
+Today, make a decision that, 'We will never be dishonest hereafter. And we will not remain in the company of dishonest people and if any one is dishonest we will expose him.'<br>
+Now it is like this, people will say, "Mother, in the Police Force, too, they are like this and in other departments too they are like that," but you are Sahaja Yogis. Those who are Sahaja Yogis, are nothing less than any policeman or any person in power. They are all-powerful.<br>
+But all the powers are of Truth. Truthfulness should be there and I am very glad that a lot of Sahaja Yogis are truthful but we still need more Sahaja Yogis who are truthful.<br>
+Truthfulness has to be there, otherwise your Āgñyā chakra will not be cleared. Āgñyā, is where the ego resides. When a person becomes egoistic, then he commits any kind of mistakes, he criticizes, harms, gets corrupt -- all such people will go to Hell.<br>
+I want to tell you very clearly, that you should not take to corruption, you are not dying, that you have got to go to that extent. What have you done by earning more? What are you doing? You must have put up a few more lights, kept a couple of more women, what more than that? Now, what will be your condition when you go to Hell?<br>
+I am discussing all this, on this day of Diwālī because Diwālī was celebrated on the occasion of Sītājī's reunion with Rāma.<br>
+We can no more be slaves once we embrace chastity. We are our own slaves and not the slaves of others. We shall not lie for any reason whatsoever.<br>
+I have lived in Delhi for a long time and am quite surprised at how much they lie. They are not afraid of lying at all. By telling lies openly they might benefit here, they might earn more money, but it is not known that they will not go to Heaven.<br>
+I want the Sahaja Yogis to promise that neither will they lie nor will they support the people who lie.<br>
+......<br>
+Today is a very auspicious day and we have to light the lamps in our heart and take up the resolution that, 'We may die but we won't lie.'<br>
+......<br>
+The people who are throwing clutter in Jamunājī [River] are fools. 'Jamunājī' goes straight down to Hell.<br>
+But you will be saved from that Hell. You are realized Souls. The one who is enlightened never falls.<br>
+But if you really want to establish Sahaja Yoga fully within yourself then you have to first of all decide never to be dishonest in any way.<br>
+Earning money is the only business left in this world! What happens with that? Nobody will even remember them.<br>
+You have to be truthful if at all you love your country. Otherwise who is going to believe in a liar's love‽<br>
+It is a very tough situation for you when you see that your neighbor is of such a type and you think that you too should become like that. On the contrary why don't you think that, 'We are like this and why not that neighbor, too, be made like us?'<br>
+First of all you should promise that you will never be dishonest nor support any dishonest doers.<br>
+It is not known, the thriving of liars is a curse of our country! There are many people who will tell at least ten lies from morning till evening, still it won't be enough for them.<br>
+Now that your poverty has perished, all is well, you have everything to eat and drink and you are not a beggar any more, then why do you have to lie?<br>
+So on this day, take this resolution: 'We are not going to lie and if anyone is a liar then we are not going to support that person, we are not going to establish any connection with him.'<br>
+There is a lot of peace and happiness in this. You know a liar will go to Hell and you too, if you support him, you will go following him.<br>
+God has given you Realization, you have been enlightened within. See, in that light, if there are other people like you, you should take a resolution that you will never tell lies. 'Let our heads be cut off, whatever it may be.'<br>
+......<br>
+So the first thing that you decide for sure is that, 'We won't do any dishonest deed at the same time if any one else does then we will get him exposed.'<br>
+......<br>
+So, today just promise, that, 'We are not going to be dishonest and if anybody is, then we all will unitedly oppose.'<br>
+Why have you been given Sahaja Yoga? Why have you been given Realization? So that you can spread light.<br>
+If you have no light internally then how can you spread light outside? And with that light you see, you are helping the dishonest?<br>
+Nothing will happen if you earn a little less or more. If you are honest then God will help you!<br>
+......<br>
+Today all of you decide in your mind and take a resolution -- it is a very auspicious day today, very auspicious day -- that, 'We won't do any dishonest deed nor will we believe in dishonesty.''<br>
+I have seen people who were neither dishonest nor did they go to the house of people who were dishonest. They had nothing to do with them because they were concerned not only about their own welfare but also the welfare of the whole country.<br>
+So you are a Sahaja Yogi, so you need to make a promise that we are not going to do any thing dishonest.<br>
+You just recognize a person who is dishonest and then tell your inner soul that, 'He is dishonest.' And, Sahaja Yogis, even if twelve Sahaja Yogis come together and if they come to know that he is dishonest then the Divine will be there to support.<br>
+This country won't benefit by a few rich people, but it will definitely benefit by honest people.<br>
+The greatest stigma that has been put on us is that we are dishonest.<br>
+Those who are Sahaja Yogis can never be dishonest. We all have to be united, leaving aside all quarrels and assumptions that we are honest people.<br>
+India's image is very much tarnished, hence take a vow today that, 'From now onwards we shall not be dishonest and if there are any dishonest people we shall all get after him.'<br>
+......<br>
+There are many such traditions in our country: they will drink liquor, drink wine. Tell Me, have you come here to become a fool?<br>
+And don't be a friend of one who does it. Don't help them.<br>
+I have seen people who go to the houses of people who drink liquor, then they too start taking liquor.<br>
+But when you know that a person is of such a character, when you know that he is dishonest, then, stop eating at his place. You have nothing to do with him.<br>
+We have to work for the well-being of our country because God has given us light. See in that light. His Power is tremendous. If you decide that, those who are dishonest to the nation will be taken care by God, then that alone is enough.<br>
+But you are turning deaf. You are not able to understand. Such a person can never do any good deed, nor can he ever give. I cannot understand how they live so shamelessly.<br>
+So, that is why today's message is that you have to take a vow that, 'We are not going to be dishonest in any way and if any one is dishonest then we are not going to support him. That is enough.'<br>
+Many more realized Souls will come to our country. But who would like to come to such a dishonest country?<br>
+So today the only message is that you have light and if you walk in that light, it will give you strength. You can do whatever you want to do.<br>
+Look, we have achieved our Swatantra. Swatantra is the mechanism of understanding one's Self.<br>
+Now I want a lot of realized children to be born, so learn that it is a very great day today, take a vow today that, 'Neither will we be dishonest nor support the dishonest.'<br>
+Not even be scared of them: God is not with them at all. God is with you. If you are good, then God is with you.<br>
+......<br>
+Decide that we should be powerful ourselves.<br>
+Today you decide, today is a very auspicious day, that neither will you be dishonest nor let others be dishonest.<br>
+Your country will then prosper a lot.<br>
+......<br>
+So, today you all decide within yourself that you are not going to believe any dishonest people.<br>
+......<br>
+So, My only request to you on this auspicious day is that we should decide, we should never be dishonest, even if we have to die.<br>
+......<br>
+So the request to you all is to firmly decide within yourself that, 'We are not going to allow any theft, robberies, and wherever we find them we will fight it.<br>
+......<br>
+I have full hope that you will heed My words.<br>
+So we should take a vow that we will not be dishonest and we would oppose the people who are dishonest.<br>
+Understand that the greatest thing that our country needs today is honesty. There is nothing greater than that. Honesty is your mother.<br>
+So what if you have one shirt in the place of ten? Tell the ladies also the same thing. It will happen. It will take place.<br>
+Today's speech is a little different, it is unique and it is very gracious of you all to have liked it." [Applause.]</font><br>
+<font size="+0"><b>2007-1110 Talk to Sahaja Yogis (Hindi) (Diwālī Pāḍavā Day), Honesty and Patriotism, Noida, Uttar Pradesh, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+"And <i>secondly</i>, it prohibits <i>that</i> few selected people do <i>not</i> obtain monopolized ownership over Self-realization by making it a buried treasure. Vibrations (Chaitanya Lhariyāṃ) increase by [through] distribution [distributing/giving]. If we don't give these vibrations to someone, then they become low [feeble]. Besides this <i>eternal [infinite] vibrations also flow from</i> the image (<i>Photo</i>) of Her Holiness Mātājī. <i>This is a huge boon [blessing] (varadān).</i> These peaceful and pain reducing [lessening] vibrations open our chakras and give boost to our own depth through being meditative, sitting in holy dedication in front of <i>Photo</i> (with open hands). <i>Do not know how many people have become disease-free through the Photo of Mātājī.</i> Few followers from us <i>first</i> enter into Sahaj Yog in <i>extremely</i> weak state [condition]. Consequently, <i>if</i> the first experience may not be [is not] strong [powerful] <i>also, even then</i> through daily meditation, the <i>desire of</i> duly [rightful] pure real truth, pure surrender <i>and</i> extraordinary feeling of self-surrender, the vibratory state expands successively (gradually) in the periphery of self-devoted awareness. <font color="DarkRed">In the process of this self-devotion we <i>need</i> enlightened expression and commitment.</font> This way <i>we can</i> dive deep in introspection [self-analysis] (ātmānusaṃdhān) after Self-realization and taking away our mind from all the subjects [topics], <i>we</i> become authority [entitled/master] (adhikārī) of achieving the highest state <i>by</i> centering in that Highest Tattwa through determination."<br>
 <font size="+0"><b>1976-0000 Chaitanya Nidhi (Hindi) Written by Mr. S. C. Rai and Mr. Mishra with Handwritten Corrections by Śhrī Mātājī Nirmalā Devī</b></font>
 </p>
 
