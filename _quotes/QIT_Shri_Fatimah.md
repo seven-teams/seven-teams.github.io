@@ -71,8 +71,8 @@ And this thing is Truth or not you can see on your vibrations. If [one thinks th
 <p>
 <font color="red">"Those who are here and Buddha and Mahāvīr are here, sitting on our foreheads. Buddha and Mahāvīr are not someone else, [but] Luv and Kuśh, whom you call, Their names are Luv and Kuśh. They are the ones who take birth in Their world multiple times. They came into the world under the names of Buddha and Mahāvīr.<br>
 Consider Them as Incarnations only. They are a special being who take incarnation from humans.<br>
-He came into the world and preached non-violence. But His non-violence was not like the Jains, who say, `Take care of the ants, take care of the mosquitoes.'<br>
-So then He said, ``Take birth again." I don't know what drama He created, so then He took birth as Hasan and Husayn.<br>
+He came into the world and preached non-violence. But His non-violence was not like the Jains, who say, 'Take care of the ants, take care of the mosquitoes.'<br>
+So then He said, "Take birth again." I don't know what drama He created, so then He took birth as Hasan and Husayn.<br>
 Their mother, who was Sītājī, was also Jānakī, was also Rādhā, She is also called Fāṭimah. And Her place is in the left navel.<br>
 Hazarat ʿAlī is also a very significant figure. Without taking His name, the left navel doesn't open. Hazarat ʿAlī. He is the same incarnation of Brahma."</font><br>
 <font size="+0"><b>1979-0117 Public Program (Hindi), Day 4, Chakroṃ para Upasthita Devatā (Deities on All Chakras), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
@@ -109,7 +109,12 @@ Hazarat ʿAlī is also a very significant figure. Without taking His name, the l
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+" 'Keep your body all right,' 'Don't overdo things,' 'Keep a moderate life,' 'Lead a normal life,' that's what Buddha has told you. There is no need to go to extremes for anything!<br>
+But even Buddhist[s], they have gone to another extreme, so He had to come on this Earth as Śhaṅkarāchārya to tell people, "What are you doing? When did I say this‽"<br>
+<font color="red">Then they were born as the sons of Fāṭimah Bi, who was Herself nothing else but Jānakī, and They were Her sons Hasan and Husayn, who had preached nonviolence and They saw that people were trying to save uh-uh-uh ... bugs and mosquitoes.</font><br>
+You know, there are some funny cults where we are so particular of bugs, mosquitoes and all the worms. We are not at all particular about human beings. They, I don't know what am I going to do with bugs? Am I going to give them Realization? Even chickens, am I going to give them Realization? I have to give Realization to human beings! What is the need to pay so much attention to these nonsensical things? To save the bugs and save the mosquitoes and make them bite a Brahmin, pay him money, because they think they have done a great kalyāṇa on the bugs. Perhaps they might have been bugs, in last lives, the way they are interested in all these mosquitoes. [Laughter.]<br>
+Now, these two were born as Hasan and Husayn and to get rid of these ideas of nonviolence, they had this Karbalāʾ, in which They fought and died like great śhūras [warriors for good, brave men].<br>
+This is the story of Great Incarnations on this Earth."<br>
 <font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
@@ -123,7 +128,10 @@ Hazarat ʿAlī is also a very significant figure. Without taking His name, the l
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Even today they don't accept Him. They are very adamant.<br>
+And the third force that he [Martin Luther] had to face was the Islam, Islamic.<br>
+<font color="red">And the Islam played down the role of a woman, though Fāṭimah, Herself, was the Holy Ghost, is the Mahākālī Power, the daughter of Muhammad.</font> But he played it down just: because the Islam had played it down he thought, gradually, as Protestants will grow up, he will start introducing the greatness of His Mother.<br>
+As it is, Jews, even today, are after the Immaculate Conception."<br>
 <font size="+0"><b>1981-1006 Public Program (8th Day of Navarātri), Day 3, The New Age Has Started (From Kṛiṣhṇa to Christ), Venue 2, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
 </p>
 
@@ -137,7 +145,13 @@ Hazarat ʿAlī is also a very significant figure. Without taking His name, the l
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"On the contrary, in the morning talk to your wife, talk to your children, look after your Gṛuhalakṣhmī Tattwa.<br>
+The wife also has to be a Gṛuhalakṣhmī as I told you.<br>
+Then you have your food properly. Sit down and eat properly.<br>
+But no! Just after that, upsetting that Nābhī, you jump into your car, taking your breakfast in your hand, eating on the way, honking at people, getting angry with them. The wife is calling, "Come along! You had no breakfast!", nothing doing! You are on your way on a special work.<br>
+You end up with leukemia, at least, minimum of minimum, if not with heart attack.<br>
+Leukemia comes from left Nābhī, when your Gṛuhalakṣhmī is ruined.<br>
+<font color="red">The Deity of Gṛuhalakṣhmī is Fāṭimah Bi, the daughter of Muhammad Sāhab.</font> While the daughter of ... the sister of Nāṇak Sāhab is on the left Nā... left Viśhuddhi. You'll see that. Nāṇakī."<br>
 <font size="+0"><b>1983-0131 Public Program, Day 2, The Nābhī Chakra, N.D.M.C. Park, Hanumān Road, New Delhi, India</b></font>
 </p>
 
@@ -182,7 +196,9 @@ But when the Goddess came, She came alone. Because She has a Power to contain wi
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So when we read about the Devī, about Her Incarnations, how She came on this Earth to save Her bhaktas, people who were trying to ascend, to cross this Bhavasāgara, how She worked hard, how She fought the devils, how She cough... She killed the demons, single-handed, She took upon Herself the responsibility of making the people cross the Bhavasāgara.<br>
+Guru gave you the strength to have dharma but She is the One who brought you out. Even those who were dhārmik could not do it because of the demonic pressure. She's the One who fought, single-handed, with Her Powers of destruction. In Her Love for you She fought. She brought you to this level.<br>
+And then She took a milder form of Incarnation. Even during the time of all the Gurus, She took the Form of, as you know: Jānakī was the daughter of Janaka, then Fāṭimah was the daughter of Muhammad Sāhab, and Nāṇakī was the sister of Nāṇaka. In those Forms, these Powers s... sustained and nourished the Guru Tattwa. And later on, or sometimes simultaneously, They incarn-nated [incarnated] in milder forms to help human beings to rise."</font><br>
 <font size="+0"><b>1985-1019 Navarātri Pūjā (cusp between the 6th Day and 7th Day), Complete Dedication, Gymnasium, Weggis (19 kms E of Luzern on Luzern Lake), Lucerne, Switzerland</b></font>
 </p>
 
@@ -339,7 +355,8 @@ But Shias, also, don't understand that they have to respect their women, because
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"Now, if I had come on a tiger wi ... with a sword in My hand, nobody would have stood near Me. [Laughs, laughter.] [Laughing:] You all would have run away from Me. In any other form, if the Goddess had come, She could not have done what She was supposed to do.<br>
+<font color="red">Moreover, only if She had come as the Mother of Christ or Śhrī Sītājī or, you can say, Fāṭimah Bi -- They all ended Their lives. They had to go away from this world, so early, I mean. They couldn't do any work whatsoever."</font><br>
 <font size="+0"><b>1994-0410 Śhrī Mahāmāyā Pūjā, We Are All in Her Body, Marque, Āśhram, 24 Pukenui Road, Epsom, Auckland, New Zealand</b></font>
 </p>
 
@@ -375,14 +392,30 @@ In Sahaja Yoga, you will know who They were: who was Fāṭimah, who was Hazarat
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<b>Version 1:</b><br>
+"Today women have gone weaker so the men have also become weak and powerless. Till the purity and loving mother like qualities develop in a woman the Gṛuhalakṣhmī Śhakti does not get awakened in her.<br>
+But she should be wise. Gṛuhalakṣhmī has to be wise and intelligent.<br>
+So we can say that when this Mahākālī Śhakti gets cool and peaceful it becomes Gṛuhalakṣhmī.<br>
+<font color="red">We believe in the Power of Fāṭimah as perfect Gṛuhalakṣhmī and she should sit on the Throne of Gṛuhalakṣhmī.</font><br>
+By this Power of Mahākālī a woman can correct her children. She keeps her character pure and we are witness that the pativrata, women's devotion towards her husband, cannot be destroyed by any thing because it is her śhakti. People and negativities are afraid of pativratā women.<br>
+Also the husbands should understand that the power within them is from the śhakti, their wife."<br>
+<br>
+<b>Version 2:</b><br>
+"This śhakti comes from the women's śhālīnatā. And as long as this śhālīnatā of the woman is not active, the Gṛuhalakṣhmī's Power does not manifest within her.<br>
+But she has to be clever. Gṛuhalakṣhmī has to be clever. Secondly she has to be understanding.<br>
+So we can say when this Mahākālī Śhakti becomes very calm, then she becomes gṛuhalakṣhmī.<br>
+<font color="red">So we believe in Fāṭimah in that She decorates the throne of Gṛuhalakṣhmī.</font><br>
+With this Power of Mahākālī, the woman keeps her children on the proper road. She keeps her character shining, and we are witnesses to the fact that the devotion and faithfulness of a devoted, faithful wife cannot be destroyed by anyone. She has her śhakti. This is Mahākālī's Śhakti: that people are afraid of a devoted wife.<br>
+And husbands should also know that the active power inside them also conies from the woman."<br>
 <font size="+0"><b>1994-1211 Śhrī Ādi Śhakti Pūjā (Hindi), Mahāmāyā, Mahākālī, Śhāradā Devī, Mahālakṣhmī, Jaipur, Rajasthan, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"And Saints have always respected other Saints.<br>
+Among Muslims, those who are Sufis: here Hazarat Muhammad, Nizamuddin Sāhab, then [Amīr] Khusro Sāhab, Moinuddin [Chisti] Sāhab. In this way, everywhere, I have seen Sufis, such as they are in Tunisia, and are in Turkey.<br>
+And in Turkey, there were some old Sufis. <font color="red">They said that, "Śhrī Mātājī's work is greater than that of Fāṭimah Bi." They recognized Me. Now they are no more in this world but his disciples recognize Me.<br></font>"<br>
 <font size="+0"><b>1995-0422 TV Broadcast (Hindi), Sahaj Yog Se Lābh (Benefits of Sahaja Yoga), Part 4, Dūradarśhan Television Network, New Delhi, India</b></font>
 </p>
 
