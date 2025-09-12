@@ -1,5 +1,5 @@
 ---
-title: 'Post 9: TRIPURĀ RAHASYA'
+title: 'Post 9: TRIPURĀ RAHASYA OR THE MISERY BEYOND THE TRINITY'
 date: 2022-07-03
 permalink: /scriptures/2022/0703
 tags:
@@ -192,7 +192,7 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 
 <p style="text-align:center;">
 <b>Chapter 2</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>Obligatory Sense Towards Action Condemned and Investigation Recommended</b></font>
 </p>
 
 <p>
@@ -349,7 +349,7 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 
 <p style="text-align:center;">
 <b>Chapter 3</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>The Antecedent Cause for Learning the Gospel: Association with the Wise Must Precede "Vichara"</b></font>
 </p>
 
 <p>
@@ -391,7 +391,7 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 
 <p style="text-align:center;">
 <b>Chapter 4</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>Disgust for Worldly Enjoyment Is Inculcated so that Dispassion Might Be Developed</b></font>
 </p>
 
 <p>
@@ -400,118 +400,93 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.15 Translation</b><br>
+<font color="DarkGreen">"...... Still again, pleasure and pain depend on circumstances."</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.19 Translation</b><br>
+<font color="DarkGreen">"That cannot be happiness, my Lord, which is tinged with misery. Misery is of two kinds, external and internal."</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.20 Translation</b><br>
+<font color="DarkGreen">"The former pertains to the body and is caused by the nerves, etc., the latter pertains to the mind and is caused by desire."</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.21 Translation</b><br>
+<font color="DarkGreen">"Mental distraction is worse than physical pain ..... Desire is the seed of the tree of misery and never fails in its fruits."</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.22 Translation</b><br>
+<font color="DarkGreen">"Overpowered by it, Indra and the Devas , ......, are still slaves to it and work day and night according to its dictates."</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.31 Translation</b><br>
+<font color="DarkGreen">"Beauty is only a mental concept, ......"</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.67 Translation</b><br>
+<font color="DarkGreen">"The fair woman that appears as the object is only the reflection of the subtle concept already in the subjective mind."</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.68-69 Translation</b><br>
+<font color="DarkGreen">"The mind draws an image of her beauty in conformity with its own conceptions. The repeatedly drawn image becomes clearer and clearer until it appears solidly as the object. An attraction springs up (and enslaves the mind) by constant mental associations."</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.70 Translation</b><br>
+<font color="DarkGreen">"The mind, becoming restless, stirs up the senses and seeks the fulfillment of its desires in the object; a composed mind is not excited even at the sight of the fairest."</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.71 Translation</b><br>
+<font color="DarkGreen">"The reason for infatuation is the oft-repeated mental picture. Neither children nor self-controlled yogis are excited in the same way (because their minds do not dwell on such things)."</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.78 Translation</b><br>
+<font color="DarkGreen">"If, on the other hand, beauty is natural to the object of love, why is it not recognized by children too, ......?</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.94 Translation</b><br>
+<font color="DarkGreen">"Then realizing the pure consciousness inhering as the Self to be that self-same Tripura, he [Hemachuda, the husband of Hemalekha] became aware of the One Self holding all, and was liberated." </font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.97 Translation</b><br>
+<font color="DarkGreen">"There was no one born in that city who remained ignorant. The city was like that of Brahma, the abode of happy, peaceful and contended people."</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.98 Translation</b><br>
+<font color="DarkGreen">"It was known as Visala and became the most renowned on Earth, where even the parrots in the cages used to repeat: 'Meditate, O Man, on the Self, the Absolute Consciousness devoted of objects! There is naught else to know besides pure consciousness; it is like a self-luminous mirror reflecting objects within.' "</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.100 Translation</b><br>
+<font color="DarkGreen">" 'That same consciousness is also the objects, that is the subject, and that is all - the mobile and the immobile; all else shine in its reflected light; it shines of itself.' "</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.101 Translation</b><br>
+<font color="DarkGreen">" 'Therefore, O Man, throw off delusion! Think of that consciousness which is alone, illuminating all and pervading all. Be of clear vision.' "</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.102-103 Translation</b><br>
+<font color="DarkGreen">"Those holy saints Vamadeva and others ...... wondered at the wisdom of even the birds of that city and named it the <i>City of Wisdom</i>.</font>
 </p>
 
 <p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>4.105 Translation</b><br>
+<font color="DarkGreen">"...... the <i>satsanga</i> [association with the wise] is alone the root cause of salvation."</font>
 </p>
 
 <p>
@@ -524,6 +499,26 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 <p style="text-align:center;">
 <b>Chapter 5</b><br>
 <font color="DarkGreen"><b></b></font>
+</p>
+
+<p>
+<b>5.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>5.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>5.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>5.1 Translation</b><br>
+<font color="DarkGreen"></font>
 </p>
 
 <div class="para-divider"></div>

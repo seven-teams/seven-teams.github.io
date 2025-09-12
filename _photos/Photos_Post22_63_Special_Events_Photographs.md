@@ -12,9 +12,10 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 Photos from the special event <font color="Crimson"><b>1989-0505 Talk to Sahaja Yogis, Italy</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
-The direct link to the 8 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Italy/1989">Italy 1989</a>.<br> 
+We are pleased to let you know that 16 Photos from the special event <font color="Crimson"><b>1989-0505 Talk to Sahaja Yogis, Italy</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 16 high resolutions from the Named Collections.<br>
+The direct link to the 21 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Italy/1989">Italy 1989</a>.<br> 
 Please kindly share the link with all our brothers and sisters.<br>
+[Note: 14 Photos uploaded only on 2025-0911.]
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
