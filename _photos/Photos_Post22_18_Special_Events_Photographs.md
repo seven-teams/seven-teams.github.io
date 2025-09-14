@@ -12,10 +12,10 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 5 Photos from the special event <font color="Crimson"><b>1979-0209 Arch into the Arabian Sea, Kerala, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 high resolutions from the Named Collections and 1 high resolution from the XYZ Known Collection.<br>
-The direct link to the 5 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1979"> India 1979</a>.<br> 
+We are pleased to let you know that 6 Photos from the special event <font color="Crimson"><b>1979-0209 Arch into the Arabian Sea, Kerala, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 5 high resolutions from the Named Collections and 1 high resolution from the XYZ Known Collection.<br>
+The direct link to the 6 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1979"> India 1979</a>.<br>
+[Note: one Photo only uploaded on 2025-0914.]<br> 
 Please kindly share the link with all our brothers and sisters.<br>
-
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
