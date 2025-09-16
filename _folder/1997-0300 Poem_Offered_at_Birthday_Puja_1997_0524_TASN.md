@@ -1,5 +1,5 @@
 ---
-title: '1997-0000 Poem Offered at Birthday Puja from 1997-0524 The Australian Sahaja Newsletter, Pages 3 and 4'
+title: '1997-0300 Poem Offered at Birthday Puja from 1997-0524 The Australian Sahaja Newsletter, Pages 3 and 4'
 date: 1997-03-01
 permalink: /folder/1997-0301-Poem-Birthday-Puja-TASN
 tags:

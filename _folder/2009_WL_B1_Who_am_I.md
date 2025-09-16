@@ -1,5 +1,5 @@
 ---
-title: '2009 Poem &#8216;&Who am I?#8217; by Walter Lerchner, U.S.A. from the Book &#8216;Poems of Love and Seeking&#8217;, Page 6'
+title: '2009 Poem &#8216;&Who am I?#8217; by Walter Lerchner, U.S.A. from the Book &#8216;Poems of Love and Seeking&#8217;, Pages 5 and 6'
 date: 2009-01-01
 permalink: /folder/2009-WL-B1-Who-am-I
 tags:
@@ -40,7 +40,7 @@ I am myself
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="285"><b> S1. Book 'Poems of Love and Seeking', Page 6.</b></list-item>
+  <list-item color="BlanchedAlmond"  width="285"><b> S1. Book 'Poems of Love and Seeking', Pages 5 and 6.</b></list-item>
 </wave-list>
 
 <br>
