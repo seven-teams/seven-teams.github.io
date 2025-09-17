@@ -10,8 +10,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b> 1915-0000 Face J (hand, smile, shawl, BW) </b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
-The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Mariane-Hufschmitt-Collection/1915"><font color="DarkGreen">Collection 1915</font></a>.<br>
+We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b> 1915-0000 Face J (hand, smile, shawl, BW) </b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
+The direct link to the 2 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/TBD/1915"><font color="DarkGreen">TVD 1915</font></a>.<br>
+[Note: 1 Photo uploaded only on 2025-0917.]<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

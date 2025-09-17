@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b> 198x-0000 Event, (likely) India </b></font> has been uploaded yesterday to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
+We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b> 198x-0000 Event, (likely) India </b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
 The direct link to the Photo in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Alessandra-Pallini-Collection/198x"><font color="DarkGreen">Collection 198x</font></a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
