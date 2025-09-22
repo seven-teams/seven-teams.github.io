@@ -9,14 +9,14 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"<b>Pray, get the strength and act. Otherwise you will end up with prayer only.</b> You get the strength and do it. Try to give away things. This you should decide because <b>Navarātri is coming now. It's a very big day and Sahaja Yogis have to be prepared for that day. It's a very big privilege for you people that Navarātri is coming and there is going to be a Pūjā of Navarātri.</b> But one thing is compulsory that you all should improve yourself and try to be there where a son of the Mother is sitting. Be mild. Be sweet. Create an atmosphere of congeniality. There should be congenial feeling, loving care for each other. "</font><br>
+<font color="DarkRed">"<b>Pray, get the strength and act. Otherwise you will end up with prayer only.</b> You get the strength and do it. Try to give away things. This you should decide because <b>Navarātri is coming now. It's a very big day and Sahaja Yogis have to be prepared for that day. It's a very big privilege for you people that Navarātri is coming and there is going to be a Pūjā of Navarātri.</b> But one thing is compulsory that you all should improve yourself and try to be there where a son of the Mother is sitting. Be mild. Be sweet. Create an atmosphere of congeniality. There should be congenial feeling, loving care for each other."</font><br>
 <font size="+0"><b>1980-0926 Talk to Sahaja Yogis, On Āśhram and Prayer, Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0164.png" /></div>
 
 <p style="text-align:center;">
-<font color="Red"><b>Namo Devyai Mahādevyai</b><br>
+<font color="DarkRed"><b>Namo Devyai Mahādevyai</b><br>
 Salutations to the Devī, to the Mahādevī,<br>
 <b>Śhivāyai satataṃ namaḥ,</b><br>
 Salutations always to Her who is ever Auspicious,<br>
