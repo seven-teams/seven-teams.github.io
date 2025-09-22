@@ -54,11 +54,11 @@ The following nine names have been told by the Great Soul Brahmadeva Himself. Du
 <b>(from the Kavach of the Devi: Navaratri Nights, Pune, October 1988)</b>
 </p>	
 
-<p style="text-align:left;">
+<p>
 On the 29th of September is the first day of Navaratri. The first day of Navaratri signifies God’s desire to create the universe which is called Ghata Sthapana (Laying of the Foundation) and Shri Ganesha is worshipped as the first creation. Ghata Sthapana also involves symbolically growing grains around the Kalash.
-</p>	
+</p>
 
-<p style="text-align:left;">
+<p>
 We share the guidelines for Ghatasthapana:
 </p>
 

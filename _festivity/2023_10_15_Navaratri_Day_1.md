@@ -53,7 +53,7 @@ Please make me innocent, so that I am in Your attention.<br>
 
 <p>
 <font color="DarkRed">In the first and the second phase of evolution matter was created. At this point, Śhrī Ādi Śhakti separated from Śhrī Sadāśhiva and She created Lord Gaṇeśha to bless Her creation with innocence and auspiciousness. Hence, <b>the first prayer to the Goddess is addressed to Lord Gaṇeśha in the first night of the nine phases of the moon in the period of worship called Navarātri or nine nights of worship. Lord Gaṇeśha's Power removes all obstacles and also purifies us for undertaking the prayers to the Goddess</b>. The Blessings of the moon which is also on the left side, also arise from the same source. This is the stage of Mūlādhāra chakra in us.</font><br>
-<font size="+0"><b>(Excerpt from the book '9 Nights of worship to the Goddess'</b></font>
+<font size="+0"><b>(Excerpt from the book '9 Nights of worship to the Goddess')</b></font>
 </p>
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image1234.png" /></div>
