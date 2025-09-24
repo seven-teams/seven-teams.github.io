@@ -23,10 +23,10 @@ tags:
 Sumanas Sumanohara Kantiyute<br>
 Shrita Rajani Rajani Rajani<br>
 Rajani Rajani Kara Vakravrute</b></font><br>
-Salutations to the Divine Mother whose beautiful mind<br>
+<b>Salutations to the Divine Mother whose beautiful mind<br>
 is united with a flower-like and charming complexion.<br>
 Whose Beautiful face shines like<br>
- that of a full moon at<br>
+ that of a full moon at</b><br>
 <font size="+0"><b>(From 'Ayi Giri Nandini', the praise of the Divine Mother by Śhrī Ādi Śhaṅkarāchārya)</b></font><br>
 <font size="+0"><b></b></font>
 </p>

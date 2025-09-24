@@ -24,7 +24,7 @@ It did not work out before."</font><br>
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0169.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"And that is why, <b>today is the day when the Virgin, Gaurī, sat down to worship Śhiva</b>. She made a Śhiva Lingua and was sitting and <b>putting Her sindūr on that: "That you look after this, which is the mark of my Union with you. I leave it to you, to look after" -- to Śhiva. "You look after me. I surrender to you." With this, that's how Gaurī your Kuṇḍalinī surrenders to the Spirit: 'Now You look after this connection.</b> I forget everything else. I leave it into Your hands. Lift Me up. You raise Me up. I forget all that was Me before. Everything I have dropped out. No other desire. But just lift Me higher and higher. Make Me Yourself. The rest of it is not important. All other manifestations of this, desires are over. Now, I am absolutely surrendered to You, My Spirit. Lift Me higher and higher. Higher and higher, away from all the things that were not the Spirit. Make Me complete Spirit, full Spirit.'</b></font><br>
+<font color="DarkRed">"And that is why, <b>today is the day when the Virgin, Gaurī, sat down to worship Śhiva</b>. She made a Śhiva Lingua and was sitting and <b>putting Her sindūr on that: "That you look after this, which is the mark of my Union with you. I leave it to you, to look after" -- to Śhiva. "You look after me. I surrender to you." With this, that's how Gaurī your Kuṇḍalinī surrenders to the Spirit: 'Now You look after this connection.</b> I forget everything else. I leave it into Your hands. Lift Me up. You raise Me up. I forget all that was Me before. Everything I have dropped out. No other desire. But just lift Me higher and higher. Make Me Yourself. The rest of it is not important. All other manifestations of this, desires are over. Now, I am absolutely surrendered to You, My Spirit. Lift Me higher and higher. Higher and higher, away from all the things that were not the Spirit. Make Me complete Spirit, full Spirit.'</font><br>
 <font size="+0"><b>1982-1017 Navarātri Pūjā (1st Day), Innocence and Virginity (Your Śhakti Is Your Kuṇḍalinī and She Is Virginity or A New Page Has Been Turn), Temple of All Faiths (now demolished, 11c Pond St), Belsize Park, Hampstead, London, UK</b></font><br>
 <br>
 <font color="DarkGreen"><b>Salutations to You O Devī Nārāyanī, 
@@ -92,9 +92,9 @@ My God himself is Truth and Love<br>
 <font size="+0"><b>1984-0930 Aṣhṭamī Pūjā (8th Day of Navarātri), Discipline Has to Be Sahaja (What We Have to Do within Ourselves), Complexe Sportif René Leduc, 12 Rue du Père Brottier, Meudon (12 kms SW of Paris), Île-de-France, France</b></font>
 </p>
 
-<p style="color:DarkRed; text-align:center;">
-<b>Yā Devī sarvabhūteśhu, Lajjā rūpeṇa saṃsthitā<br>
-Namastasyai namastasyai namastasyai namo namaḥ!</b><br>
+<p style="text-align:center;">
+<font color="DarkRed"><b>Yā Devī sarvabhūteśhu, Lajjā rūpeṇa saṃsthitā<br>
+Namastasyai namastasyai namastasyai namo namaḥ!</b></font><br>
 Salutations again and again to the Devī who abides in all beings as modesty
 </p>
 
