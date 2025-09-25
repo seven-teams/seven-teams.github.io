@@ -11,7 +11,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to bring to your attention one extra gallery of the album of Moments of Growth:<br>
+We are pleased to bring to your attention one extra gallery of the folder Art:<br>
 <b>1.</b> <a href="https://imageevent.com/sahaja/art/photographicartofcolinheinsen"><font color="DarkGreen"><b>Photographic Art of an Artist</b></font></a><br>
 at the link
 <a href="https://imageevent.com/sahaja/art/photographicartofcolinheinsen/drawpaintfromimaginationnac2019"><font color="DarkGreen"><b>Draw-Paint</b></font></a>.<br>
