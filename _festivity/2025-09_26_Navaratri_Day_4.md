@@ -3,7 +3,7 @@ title: '2025 Celebrating Navarātri: "Mother&#8217;s Love is binding. She cannot
 date: 2025-09-26
 permalink: /festivity/2025/09/26
 tags:
-  - deeppink @ Shri Skandamata
+  - deeppink @ Shri Kushmanda
   - green @ Navaratri
 ---
 
@@ -22,12 +22,12 @@ But <b>the aim of the Incarnation is to save, to protect the people who are seek
 <font size="+0"><b>1993-1024 Navarātri Pūjā (Dussehra Day), Reintrospect Yourself, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/T0177.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0177.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>She gives us the protection. She's the Protector. And She's the Mother of this world, Jagadambā.</b>"</font><br>
 <font size="+0"><b>1977-0222 Public Program, Day 1, About Different Chakras and Their Deities, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font><br>
-<font color="Indigo"><b>Today, the love of Shri Jagadamba is expressed</b></font><br>
+<b>Today, the love of Shri Jagadamba is expressed</b><br>
 <font size="-1"><b>Jay Jagadambe</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
@@ -38,7 +38,7 @@ So every time you find Her confronting people who are extremely arrogant, self-o
 <font size="+0"><b>1992-0927 Navarātri Pūjā (1st Day), 10th Position or Divine Knowledge is the Reality, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/T0178.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0178.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Today, we have gathered here to do the Navarātri Pūjā.</b><br>
@@ -46,7 +46,7 @@ There were nine times when the Major Incarnations of the Mother of this Universe
 This was a binding love. She could not escape it. Mother's Love is binding. She cannot escape it. And She has to manifest it, work it out, and give that protection to all Her children."</font><br>
 <font size="+0"><b>1991-1013 Navarātri Pūjā (6th Day), False Religion and Recognize Me, Tent, Cabella Ligure, Alessandria, Italy</b></font><br>
 <br>
-<font color="Indigo"><b>Visṛistau sṛisti-rūpā Tvam sthiti-rūpā cha pālane,<br>
+<font color="DarkSlateBlue "><b>Visṛistau sṛisti-rūpā Tvam sthiti-rūpā cha pālane,<br>
 Tathā saṁhṛiti-rūpānte jagato-'sya jagan-maye ǁ 5 ǁ</b></font><br>  
 O You, whose Form is the Universe, at the time of creation You are the Creative Force,<br>
 At the time of sustentation You are the Protective Power and at the time of the Dissolution of the World,<br>
@@ -94,7 +94,7 @@ In battle, And becomes worthy of being worshipped in the three worlds.</font></f
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0179.png" /></div>
 
 <p style="text-align:center;">
-Sahaja Yogi [reads]:<font color="DarkRed">"O Devī, we bow before You, who are yourself good fortune in the dwellings of the virtuous, and<br>
+<b>Sahaja Yogi</b> [reads]:<font color="DarkRed">"O Devī, we bow before You, who are yourself good fortune in the dwellings of the virtuous, and<br>
 ill-fortune in those of the vicious, intelligence in the hearts of the learned,<br>
 faith in the hearts of the good, and modesty in the hearts of the high-born.<br>
 May You protect the universe!”<br>
@@ -124,7 +124,7 @@ The whole universe is but your form</b></font><br>
 </p>
 
 <p>
-<font color="MediumVioletRed"><b>Ankhe band karu</b></font><br>
+<font color="Green"><b>Ankhe band karu</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 

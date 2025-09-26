@@ -83,7 +83,7 @@ And should not walk even a step without it, if one desires auspiciousness.</font
 <p style="text-align:center;">
 <font color="Indigo"><b>Nirbhayo jāyate martyaḥ, saṅgrāmeṣhv’aparājitaḥ<br>
 Trailokye tu bhavet-pūjyaḥ, kavachen'āvṛitaḥ pumān</b><br>
-<font size="+0">The person who covers himself with Kavach becomes fearless, is never defeatedbr>
+<font size="+0">The person who covers himself with Kavach becomes fearless, is never defeated<br>
 In battle, And becomes worthy of being worshipped in the three worlds.</font></font><br>
 <font size="+0"><font color="DarkGreen"><b>Devī Kavach</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html"> video</a><br>
