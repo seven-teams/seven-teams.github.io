@@ -75,7 +75,7 @@ Salutations be to You, O Kātyāyanī</font><br>
 <p style="text-align:center;">
 <font color="DarkRed">"<b>To all devotees and followers of truth, who have assembled here for the Pūjā, I offer My protection.</b><br>
 In this Kali Yug of today, when so much devotion and homage for the Mother, and so much love comes into the hearts of human beings, then we can know that Satya Yuga has begun.<br>
-This is a most fortunate and divine coincidence for Me also, that on a Ṣhaṣhṭhī Day I came to Kolkata [arrival on 196-1009]. Because, in the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day. <b>Ṣhaṣhṭhī Day is of Śhākambharī Devī</b>, and on that day the whole nature should be green and lush. "</font><br>
+This is a most fortunate and divine coincidence for Me also, that on a Ṣhaṣhṭhī Day I came to Kolkata [arrival on 196-1009]. Because, in the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day. <b>Ṣhaṣhṭhī Day is of Śhākambharī Devī</b>, and on that day the whole nature should be green and lush."</font><br>
 <font size="+0"><b>1986-1010 Navarātri Pūjā (Hindi) (7th Day), Lions Club Safari Park, Southern Avenue, Kolkata, West Bengal, India</b></font><br>
 <br>
 <font color="DarkGreen"><b>AMBE TU PĀRVATĪ PARAMEŚHWARĪ</b><br>
@@ -94,6 +94,11 @@ Victory to Jogeśhwarī (Goddess of Yoga), Victory to Maheśhwarī (Goddess of S
 
 <p>
 <font color="green"><b>Durgā Ādi Śhakti Śhrī Mātājī</b></font><br>
+<a href="https://seven-teams.github.io/Videos_Links.html">video</a>
+</p>
+
+<p>
+<font color="green"><b>Sarva Mangala</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
  

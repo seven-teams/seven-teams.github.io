@@ -40,6 +40,7 @@ This is what has happened in this area before also. They were many kings who rul
 But Mahālakṣhmī Ati Raudra Rudra Swarūpi[n] and Rudra is very necessary. Otherwise, this negativity will not go away.<br>
 This will only go away with the Rudra Form."</b></font><br>
 <font size="+0"><b>1994-1211 Śhrī Ādi Śhakti Pūjā (Hindi), Mahāmāyā, Mahākālī, Śhāradā Devī, Mahālakṣhmī, Jaipur, Rajasthan, India</b></font><br>
+<br>
 <font color="Indigo"><b>Jaya Twam Devī Chāmuṇḍe jaya bhū-tāpa-hāriṇi,<br>
 Jaya Sarva-gate Devī Kāḷarātri namostute</b><br>  
 Victory be to You, O Devī Chāmuṇḍā<br>
