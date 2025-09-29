@@ -21,7 +21,7 @@ Guru gave you the strength to have dharma but She is the One who brought you out
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0070.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"...... I must tell you that the Goddess took Her birth nine times on this Earth. And today [<font color="orange">unclear</font>] seventh, today is the seventh day of Her worship in Navarātri, Navarātri. And <b>the seventh day is ... uh ... for ... uh ... tremendous activity, tremendous ... uh ... creativity and also for prosperity".</b></font><br>
+<font color="DarkRed">"...... I must tell you that the Goddess took Her birth nine times on this Earth. And today [<font color="orange">unclear</font>] seventh, today is the seventh day of Her worship in Navarātri, Navarātri. And <b>the seventh day is ... uh ... for ... uh ... tremendous activity, tremendous ... uh ... creativity and also for prosperity."</b></font><br>
 <font size="+0"><b>1992-1004 Navarātri Pūjā (8th Day), Wood Room, Hotel, Sasaima (78 kms NW of Bogotá), Cundinamarca, Colombia</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Bhavānī Aṣhṭakam</b></font></font><br>
 <a href="https://youtu.be/JQ3ibqZWgDI">video</a>

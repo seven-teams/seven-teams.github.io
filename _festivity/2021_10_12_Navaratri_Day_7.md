@@ -21,7 +21,7 @@ Enlightenment, we have to understand that we get completely enlightened by Love.
 <p style=" text-align:center;">
 <font color="DarkRed">"I must tell you that the Goddess took Her birth nine times on this Earth.<br>
 And today [<font color="orange">unclear</font>] seventh, today is the seventh day of Her worship in Navarātri, Navarātri.<br>
-And <b>the seventh day is for tremendous activity, tremendous ... uh ... creativity and also for prosperity.</b></font><br>
+And <b>the seventh day is for tremendous activity, tremendous ... uh ... creativity and also for prosperity</b>."</font><br>
 <font size="+0"><b>1992-1004 Navarātri Pūjā (8th Day), Wood Room, Hotel, Sasaima (78 kms NW of Bogotá), Colombia</b></font><br>
 <a href="https://youtu.be/JQ3ibqZWgDI">video</a>
 </p>

@@ -1,5 +1,5 @@
 ---
-title: '2025 Celebrating Navarātri: "he seventh day is for tremendous activity, tremendous creativity, and also for prosperity" '
+title: '2025 Celebrating Navarātri: "the seventh day is for tremendous activity, tremendous creativity, and also for prosperity" '
 date: 2025-09-29
 permalink: /festivity/2025/09/29
 tags:
@@ -10,16 +10,16 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"Today, we have gathered here to do the Devī Pūjā.<br>
+<font color="DarkRed">"<b>Today, we have gathered here to do the Devī Pūjā.</b><br>
 This Pūjā was performed many a times and the Devī was requested by the Devas to save them from the tyranny of devilish people. <b>Today I feel the same way, that we are now in the grip of a funny situation; that there are people who are themselves devils, I think, -- and also [who are] mesmerized by them -- who are trying to do something which they should never have done. But they don't know that there is a climax of everything.</b> And that point has arrived where all the good people, especially the Sahaja Yogis should put all their mind to the destruction of these horrible personalities like Mahiṣhāsura.<br>
 In those days, it was very simple because devils came as devils and you could see them, that they are devils, and all their behavior proved that they were devils. Why they did it? Why were they cruel? Because so-called 'human beings' as they are -- they are not -- they are by nature devilish and they want to do something by which they can destroy human beings, and good human beings. It is evident that the time has come for them to be destroyed."</font><br>
 <font size="+0"><b>2001-1021 Navarātri Pūjā (5th Day), You Should Become Really Soldiers of Love and Peace (Overcome Hatred with Love or To Hate is a Very Bad Quality), Sportcamp, Avras, Loutraki, Greece</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0186.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0187.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"...... I must tell you that the Goddess took Her birth nine times on this Earth. And today [<font color="orange">unclear</font>] seventh, today is the seventh day of Her worship in Navarātri, Navarātri. And <b>the seventh day is ... uh ... for ... uh ... tremendous activity, tremendous ... uh ... creativity and also for prosperity".</b></font><br>
+<font color="DarkRed">"...... I must tell you that the Goddess took Her birth nine times on this Earth. And today [<font color="orange">unclear</font>] seventh, today is the seventh day of Her worship in Navarātri, Navarātri. And <b>the seventh day is ... uh ... for ... uh ... tremendous activity, tremendous ... uh ... creativity and also for prosperity</b>."</font><br>
 <font size="+0"><b>1992-1004 Navarātri Pūjā (8th Day), Wood Room, Hotel, Sasaima (78 kms NW of Bogotá), Cundinamarca, Colombia</b></font>
 </p>
 
@@ -33,19 +33,19 @@ This is what has happened in this area before also. They were many kings who rul
 <font size="+0"><b>1985-0329 Śhrī Śhailaputrī Devī Pūjā (English + Hindi) (7th Day of Chaitra Navarātri), Exhibition Hall, Basement of the Puruṣhottam Hotel, Talnoo, Naddi (11 kms NNE of Dharmaśhālā), Himachal Pradesh, India]</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0187.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0188.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"About the Devī, it is said She is Ati Raudra, Ati Saumya.<br>
+<font color="Red"><b>"About the Devī, it is said She is Ati Raudra, Ati Saumya.<br>
 But Mahālakṣhmī Ati Raudra Rudra Swarūpi[n] and Rudra is very necessary. Otherwise, this negativity will not go away.<br>
 This will only go away with the Rudra Form."</b></font><br>
 <font size="+0"><b>1994-1211 Śhrī Ādi Śhakti Pūjā (Hindi), Mahāmāyā, Mahākālī, Śhāradā Devī, Mahālakṣhmī, Jaipur, Rajasthan, India</b></font><br>
 <font color="Indigo"><b>Jaya Twam Devī Chāmuṇḍe jaya bhū-tāpa-hāriṇi,<br>
-Jaya Sarva-gate Devī Kāḷarātri namostute</b></font><br>  
+Jaya Sarva-gate Devī Kāḷarātri namostute</b><br>  
 Victory be to You, O Devī Chāmuṇḍā<br>
 Victory be to You Who destroys the suffering of all living beings.<br>
 Victory be to You, O Devī Who is present everywhere.<br>
-Salutations to You, O Kāḷarātri (the longest night)<br>
+Salutations to You, O Kāḷarātri (the longest night)</font><br>
 <font size="+0">(from Argala Strotram)</font><br>
 <br>
 <font color="Maroon"><b>Auṃ Twameva sākṣhāt Śhrī Kāḷarātri sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devyai namo namaḥ!</b></font><br>
@@ -66,7 +66,7 @@ It is this Goddess which is ruling this universe, which is in your center Heart,
 <font size="+0"><b>1995-0917 Śhrī Śhakti Devī Pūjā, Love and Joy of Collectivity, Moscow, Russia</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0188.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0189.png" /></div>
 
 <p style=" text-align:center;">
 <font color="Indigo"><b>Bhavānī dayānī, Mahābāka bānī</b><br>
@@ -78,10 +78,10 @@ Mother and Maker of this world, Destroyer of the Demon Mahisha<br>
 <b>Jwālā-mukhī chandī, Amara pada-dānī ...</b><br>
 All fired-up with flaming face, I seek refuge at Your Eternal Feet.</font><br>
 <br>
-<font color="DarkRed">""</font><br>
-<font size="+0">"<b>In this small song how much they have said, so many things. "Amara Pada dāni." That "She gives you the status, which is indestructible, the position, which cannot be destroyed" -- "Amara Pada," "the highest." That's the description of the Goddess and that's what you have got.<br>
+<font color="DarkRed"><b>"In this small song how much they have said, so many things. "Amara Pada dāni." That "She gives you the status, which is indestructible, the position, which cannot be destroyed" -- "Amara Pada," "the highest." That's the description of the Goddess and that's what you have got.<br>
 May God bless you all."</b></font><br>
-<font color="DarkGreen"><font size="+0"><b>Śhrī Mātājī's Leson on Bhavānī Dayānī</b></font></font><br>
+<font size="+0"><b>1988-0710 Talk to Sahaja Yogis, Dignity and Joy, after the Evening Program, after Śhrī Haṃsa Swāminī Pūjā, Grafenaschau, Bavaria, Germany</b></font><br>
+<font color="DarkGreen"><font size="+0"><b>Śhrī Mātājī's Lesson on Bhavānī Dayānī</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 </p>
 

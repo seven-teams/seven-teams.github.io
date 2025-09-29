@@ -1,7 +1,7 @@
 ---
 title: '2025 Celebrating Navarātri: "the Śhāstras it is written that the coming of the Mother is always on Ṣhaṣhṭhī Day. Ṣhaṣhṭhī Day is of Śhākambharī Devī" '
-date: 2025-09-26
-permalink: /festivity/2025/09/26
+date: 2025-09-28
+permalink: /festivity/2025/09/28
 tags:
   - deeppink @ Shri Katyayani
   - green @ Navaratri
@@ -15,7 +15,7 @@ Besides the thirty-three crores of Devas, there are many Śhaktis. But we can sa
 <font size="+0"><b>1988-1016 Navarātri Pūjā (Hindi) (6th Day), Hamāre Jīvana kā Lakṣhya (The Aim of Our Lives), Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0183.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0184.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Navarātri is the day to give you the balance.</b> Those whose right hand is tired will get the power in the left hand. Those who have the left hand tired will get the power on the right hand to share the load."</font><br>
@@ -29,7 +29,7 @@ And these Powers which are enlightened are absolutely filled with Love. Enlighte
 <font size="+0"><b>1993-0803 Śhrī Śhakti Pūjā, Power of Love, Camp, Shores of Volga, Togliatti, Samara Oblast, Russia</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0184.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0185.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed"><b>[Śhrī Mātājī explains that Kattyayeni (Kātyāyanī) killed the demon Kolhāsur and this is why Kolhapur is called as such].</b></font><br>
@@ -70,7 +70,7 @@ Salutations be to You, O Kātyāyanī</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0185.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0186.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>To all devotees and followers of truth, who have assembled here for the Pūjā, I offer My protection.</b><br>
