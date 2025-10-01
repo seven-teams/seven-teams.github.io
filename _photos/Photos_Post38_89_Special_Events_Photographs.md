@@ -10,8 +10,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 6 Photos of the special event <font color="Crimson"><b>1989-0720 Public Program, Germany</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 6 high resolutions from the Named Collections.<br>
-The direct link to the 6 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Germany/1989"><font color="DarkGreen">Germany 1989</font></a>.<br>
+We are pleased to let you know that 8 Photos of the special event <font color="Crimson"><b>1989-0720 Public Program, Germany</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 8 high resolutions from the Named Collections.<br>
+The direct link to the 8 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Germany/1989"><font color="DarkGreen">Germany 1989</font></a>.<br>
+[Note: 2 Photos uploaded only on 2025-1001.]<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

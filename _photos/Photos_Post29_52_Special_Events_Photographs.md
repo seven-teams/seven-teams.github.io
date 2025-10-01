@@ -12,9 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 9 Photos of the special event <font color="Crimson"><b>1989-0724 Public Program, Austria</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 8 high resolutions and 1 medium resolution from the Named Collections.<br>
-The direct link to the 5 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Austria/1989"><font color="DarkGreen">Austria 1989</font></a>.<br>
-[Note: the medium resolution and 4 high resolutions uploaded only on 2025-0928.]<br>
+We are pleased to let you know that 13 Photos of the special event <font color="Crimson"><b>1989-0724 Public Program, Austria</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 12 high resolutions and 1 medium resolution from the Named Collections.<br>
+The direct link to the 13 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Austria/1989"><font color="DarkGreen">Austria 1989</font></a>.<br>
+[Note: the medium resolution and 4 extra high resolutions uploaded only on 2025-0928 and 4 extra resolutions uploaded only on 2025-1001.]<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
