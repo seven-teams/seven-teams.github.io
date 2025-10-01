@@ -57,7 +57,7 @@ tags:
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b></b></font>
+<font size="+0"><b>1984-0930 Aṣhṭamī Pūjā (8th Day of Navarātri), Discipline Has to Be Sahaja (What We Have to Do within Ourselves), Complexe Sportif René Leduc, 12 Rue du Père Brottier, Meudon (12 kms SW of Paris), Île-de-France, France</b></font>
 <a href=""> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
