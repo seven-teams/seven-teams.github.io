@@ -20,8 +20,8 @@ Now! You hast raised our Kundalini<br>
 Now! We know that we are free ....<br>
 <br>
 <b>Chorus</b><br>
-Oh Mataji .... Nirmala Dei .....<br>
-Our Hears Love, flows out to Thee ....<br>
+Oh Mataji .... Nirmala Devi .....<br>
+Our Hears Love flows out to Thee ....<br>
 You have come from Heavens above ...<br>
 To Thee ... to Thee ...our unconditional love.<br>
 </p> 
