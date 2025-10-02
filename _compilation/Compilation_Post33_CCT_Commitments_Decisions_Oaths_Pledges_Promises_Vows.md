@@ -1289,7 +1289,7 @@ Because you do not meditate, you do not have the depth to show that you are grea
 <p>
 <font color="DarkRed">"And there are so many things one can talk about it which C.P. has kindly put it in his book also.<br>
 I know I ... I put him onto an oath that he has to write this book. Because he has written files after files up to here and there, of no use. I said, "What's the use of all these files? You ... you have to write Me a book on Shastrijī."<br>
-And I've been always insisting on him for helping Shastrijī because I knew what he was. I had the image of a man who would do such revolution in this country and bring down people to higher values in. Not money, money, money, money business, no! To the higher values. Because he was a[n] evolved soul, himself a detached man, and what a caliber of intelligence he had!"</font><br>
+And I've been always insisting on him for helping Shastrijī because I knew what he was. I had the image of a man who would do such [a] revolution in this country and bring down people to higher values in. Not money, money, money, money business, no! To the higher values. Because he was a[n] evolved soul, himself a detached man, and what a caliber of intelligence he had!"</font><br>
 <font size="+0"><b>1994-1203 Talk to Sahaja Yogis, Release of Sir C.P.'s Book Lal Bahadur Shastri A Life of Truth in Politics, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 

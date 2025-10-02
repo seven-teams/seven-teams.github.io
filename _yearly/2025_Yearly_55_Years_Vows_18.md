@@ -11,7 +11,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b>A Man Who Would Do Such Revolution In This Country</b><br></font>
+<font size="+2"><b>A Man Who Would Do Such [A] Revolution In This Country</b><br></font>
 </p>
 
 <div style="text-align: center"><img src="https://pub-bcc3cbe9b1e94ba1ac28915f7a3900fa.r2.dev/1985-0329-b_Wearing_Shawl_and_Scarf_Offered_(likely)_On_Departure_after_the_Shri_Shailaputri_Devi_Puja_Exhibition_Hall_Basement_of_the_Purushottam_Hotel_Talnoo_Naddi_Himachal_Pradesh_India_01_(Yogi_Mahajan_Collection).jpg" /></div>
@@ -26,7 +26,7 @@ I said, "Really?" He said, "Yes. I feel I am looking like Hanumānjī, You pleas
 <p>
 "And there are so many things one can talk about it which C.P. has kindly put it in his book also.<br>
 I know I ... I put him onto an oath that he has to write this book. Because he has written files after files up to here and there, of no use. I said, "What's the use of all these files? You ... you have to write Me a book on Shastrijī."<br>
-And I've been always insisting on him for helping Shastrijī because I knew what he was. I had the image of a man who would do such revolution in this country and bring down people to higher values in. Not money, money, money, money business, no! To the higher values. Because he was a[n] evolved soul, himself a detached man, and what a caliber of intelligence he had!"<br>
+And I've been always insisting on him for helping Shastrijī because I knew what he was. I had the image of a man who would do such [a] revolution in this country and bring down people to higher values in. Not money, money, money, money business, no! To the higher values. Because he was a[n] evolved soul, himself a detached man, and what a caliber of intelligence he had!"<br>
 <font color="blue"><b>1994-1203 Talk to Sahaja Yogis, Release of Sir C.P.'s Book Lal Bahadur Shastri A Life of Truth in Politics, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 
