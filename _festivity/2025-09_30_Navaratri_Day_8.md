@@ -10,8 +10,9 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"<b>But this Pūjā is to be done with full understanding, and with full recognition that it's a great fortune.</b> Even the Devas are jealous of you, all the Ṛiṣhis are jealous of you, so many people are jealous of you. The greatest advantage for you, greatest fortune. Make full use of it. And they are very simple things that can please, very simple. You know your Mother can be pleased with very, very simple things. It's like that only. It's how much heart you have put into it, is the point.<br>
+I think tomorrow we should have the Pūjā, today we have understood about it. It is more to be felt and understood and realized than to be thought about. Because you'll go into thoughtless awareness. It is more source of triggering. "</font><br>
+<font size="+0"><b>1980-0719 Talk to Sahaja Yogis, The Meaning of Pūjā, House of Pamela Bromley, 22 College Gardens, Brighton, East Sussex, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0190.png" /></div>
