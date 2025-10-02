@@ -23,8 +23,8 @@ I think tomorrow we should have the Pūjā, today we have understood about it. I
 And that compassion will bring forth the beauty of Sahaja Yoga."</font><br>
 <font size="+0"><b>1984-0930 Aṣhṭamī Pūjā (8th Day of Navarātri), Discipline Has to Be Sahaja (What We Have to Do within Ourselves), Complexe Sportif René Leduc, 12 Rue du Père Brottier, Meudon (12 kms SW of Paris), Île-de-France, France</b></font><br>
 <br>
-<font color="DarkBlue"><b>Auṃ Twameva sākṣhāt Śhrī Aneka-śhastra hasta sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
-<font size="+0">(You are the One who wields many weapons in Her hands)</font>
+<font color="DarkBlue"><b>Auṃ Twameva sākṣhāt Śhrī Aneka-śhastra hasta sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b><br>
+(You are the One who wields many weapons in Your hands)</font>
 </p>
 
 <p>

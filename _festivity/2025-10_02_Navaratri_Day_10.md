@@ -34,8 +34,7 @@ Who fulfills the desires of Her devotees.</b></font><br>
 </p>
 
 <p>
-<font color="DarkRed">"<b>Now the tenth Navarātri today is to celebrate actually the Ādi Śhakti. So today we are really going to worship the Ādi Śhakti.</b> On one side the Ādi Śhakti is Mahākālī, on the other side She is Mahāsaraswatī, in the center She is Mahālakṣhmī, and also She is the Ambā, the one who is the Kuṇḍalinī. But She’s also beyond that. She’s Parāśhakti, She’s beyond all the powers because She is the Generator of Power, so She has to be beyond all that.<br>
-<b>So today when we are worshiping Her, we have to worship Her in all these forms.</b>"</font><br>
+<font color="DarkRed">"<b>Now the tenth Navarātri today is to celebrate actually the Ādi Śhakti. So today we are really going to worship the Ādi Śhakti.</b> On one side the Ādi Śhakti is Mahākālī, on the other side She is Mahāsaraswatī, in the center She is Mahālakṣhmī, and also She is the Ambā, the one who is the Kuṇḍalinī. But She’s also beyond that. She’s Parāśhakti, She’s beyond all the powers because She is the Generator of Power, so She has to be beyond all that."</font><br>
 <font size="+0"><b>1990-0923 Navarātri Pūjā (4th Day), The Deities Are Watching You, Hall, Arzier-Le Muids, Nyon, Vaud, Switzerland</b></font>
 </p>
 

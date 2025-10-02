@@ -59,7 +59,7 @@ This is the last day, so you have to think like that, then tomorrow is the day o
 
 <p>
 <font color="DarkRed">"But it's to be seen <b>now, that if you do not value yourself as realized Souls, you cannot value My time also, or what is Myself. This Incarnation can be wasted completely because of this materialistic attitude.</b><br>
-In this modern times, I don't know what's gone wrong with human beings because the most important thing in your life is to ascend and to grow. Take a big vision of the whole thing -- why this Universe was created, why you were created as human beings, what was the need to do all these things, for what is it done. If you have a very big vision of the whole thing, then try to locate your position, 'Where am I?' And then, 'How the Divine has selected me and now I have become a Sahaja Yogi, so now, What is my responsibility?' -- that, one has to see. "</font><br>
+In this modern times, I don't know what's gone wrong with human beings because the most important thing in your life is to ascend and to grow. Take a big vision of the whole thing -- why this Universe was created, why you were created as human beings, what was the need to do all these things, for what is it done. If you have a very big vision of the whole thing, then try to locate your position, 'Where am I?' And then, 'How the Divine has selected me and now I have become a Sahaja Yogi, so now, What is my responsibility?' -- that, one has to see."</font><br>
 <font size="+0"><b>1993-1024 Navarātri Pūjā (Dussehra Day), Reintrospect Yourself, Tent, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -72,9 +72,9 @@ And ṛiddhi is by which contentment, peace, joy. Means that you grow into that,
 <font size="+0"><b>1992-1014 Talk to Sahaja Yogis, after Śhrī Mahākālī Pūjā, Salvador, Bahia, Brazil</b></font><br>
 <font color="DarkGreen"><font size="+0"><b>Viśhwa Vandita</b></font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
-<font color="Navy"><font size="+0"><b>Auṃ Twameva sākṣhāt Śhrī Siddhidatrī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ</b></font></font><br>
-<font size="+0">O Divine Mother, You are verily Siddhidatrī, the One who is the bestower of siddhis (Divine Powers)!
-Salutations to You!</font><br>
+<font color="Maroon"><b>Auṃ Twameva sākṣhāt Śhrī Siddhidatrī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ</b></font><br>
+<font color="Maroon"><font size="+0">O Divine Mother, You are verily Siddhidatrī, the One who is the bestower of siddhis (Divine Powers)!
+Salutations to You!</font></font><br>
 </p>
 
 <p style="text-align:center;">
