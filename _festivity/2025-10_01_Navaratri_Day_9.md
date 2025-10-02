@@ -34,6 +34,7 @@ Aho-mukharī-kṛita diṅmakare, Jaya jaya he ......</b></font><br>
 Giving courage, strength, boons and fearlessness to those who take refuge in You;<br>
 Your spotless Trident captures the Heads of the Rulers of the Three Worlds;<br>
 Making all directions resound with the ‘Dumi-duma’ sound of drums; Victory to You ......<br>
+<br>
 <font color="DarkGreen"><font size="+0"><b>Jai Durge Durgati Pariharini</b></font></font><br>
 <a href="https://youtu.be/4HusF88fmyo">video</a>
 </p>
@@ -51,7 +52,7 @@ Today we are not going to have any questions and solutions. We are just going to
 
 <p>
 <font color="DarkRed">"Now you have had nine Pūjās here and out of these nine Pūjās have we improved more, have we got more? Did we fill ourselves more with greater love, with greater joy, with greater understanding and with greater satisfaction?<br>
-This is the last day, so you have to think like that, then tomorrow is the day of jubilation. Because we have done what? That is what. So today you should go and make a complete picture of yourself. What have I got in these nine days? What have I got? Let us see, have I got this? Have I got that? All these things, you should just within yourself see and then enjoy that you have got all these things. It is the victory.<nr>
+This is the last day, so you have to think like that, then tomorrow is the day of jubilation. Because we have done what? That is what. So today you should go and make a complete picture of yourself. What have I got in these nine days? What have I got? Let us see, have I got this? Have I got that? All these things, you should just within yourself see and then enjoy that you have got all these things. It is the victory.<br>
 <b>Tomorrow is the day of victory. That you have become victorious about yourself and about your ignorance. You have won yourself and you've won over the ignorance, the darkness of ignorance. This is what is tomorrow's message.</b>"</font><br>
 <font size="+0"><b>1988-1019 Navarātri Pūjā (9th Day), Raise above Āgñyā (Left Āgñyā and Right Āgñyā), Pratiṣhṭhān, NDA Road, Pune, Maharashtra, India</b></font>
 </p>

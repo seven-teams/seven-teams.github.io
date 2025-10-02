@@ -45,7 +45,7 @@ One has to know that Truth is what Truth is, you cannot change it, because it is
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0191.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"And on an Aṣhṭamī, that is today, is the eighth day of the Moon, of the Moon which is increasing, Śhuklapakṣhi, that first time all the weapons of the Goddess are to be worshiped. This was a great idea because these weapons who work all the time, not only to kill the evil but to protect the good, were never worshiped before.</b>"</font><br>
+<font color="DarkRed"><b>"And on an Aṣhṭamī, that is today, is the eighth day of the Moon, of the Moon which is increasing, Śhuklapakṣhi, that first time all the weapons of the Goddess are to be worshiped.</b>"</font><br>
 <font size="+0"><b>1982-0926 Śhrī Durgā Pūjā, Mind Is just like a Donkey, House of Grégoire de Kalbermatten, Sternwartestrasse 62, Vienna, Austria</b></font>
 </p>
 
@@ -54,7 +54,8 @@ One has to know that Truth is what Truth is, you cannot change it, because it is
 <b>So first we sing the praise of the Goddess; when She destroyed every negative, satanic incarnation of Mahiṣhāsura.</b><br> 
 And when he was killed, all the Gods praised Her for saving them from the ... from the destruction, and that happened long, long time back -- it was ten thousand years back. So this is the praise of the Gods of that so that, whatever is the negativity, through those mantras will go away, because it surrounds us -- you see that, all of them have been there coming; from ten thousand years they have been coming. But this is the way you can throw them out of the present into their proper places."</font><br>
 <font size="+0"><b>1980-1012 Śhrī Gaṇeśha Pūjā (4th Day of Navarātri), Winterthurerstraße, Zürich, Switzerland</b></font><br>
-<font color="Indigo"><b>Ayi Giri Nandini Nandit. Medini</b></font><br>
+<br>
+<font color="DarkSlateBlue"><b>Ayi Giri Nandini Nandit. Medini</b></font><br>
 <font size="+0">O beloved Daughter of the mountains, the One who brings about great joy to the earth</font><br>
 <font color="Indigo"><b>Vishw. Vinodini Nandinute</b></font><br>
 <font size="+0">The One who brings joy to the whole universe, I I prostrate myselg before You Who are the form of complete bliss</font><br>
@@ -73,9 +74,9 @@ Who killed the terrible demon, Mahiṣhāsura</font><br>
 
 <p>
 <font color="DarkRed">"Because to fight negativity in modern times is a very difficult task. You cannot kill anyone: if you kill somebody, then may be that such a person is a brother or a sister or something of somebody. Or such a person would be himself or herself a seeker.<br>
-So best thing is to separate like a contagious disease, keep that person out, no sympathies. And get the person cured and enjoy the life, otherwise that person is not going to be helped.
+So best thing is to separate like a contagious disease, keep that person out, no sympathies. And get the person cured and enjoy the life, otherwise that person is not going to be helped.<br>
 ......<br>
-<b>So to help Me out, you should not take any sides with negativity. That's how you can help Me the most. <b>This is what it is the Navarātri, the Pūjā that I give you powers to fight the negativity. That's how you cure people.</b>"</font><br>
+<b>So to help Me out, you should not take any sides with negativity. That's how you can help Me the most. This is what it is the Navarātri, the Pūjā that I give you powers to fight the negativity. That's how you cure people.</b>"</font><br>
 <font size="+0"><b>1985-1009 Talk to Sahaja Yogis, Like a Drama, On Arrival before the Public Program, Flat of Ruth and Kingsley Flint, Strasbourg, Grand Est, France</b></font>
 </p>
 

@@ -20,7 +20,7 @@ May God bless you!</b>"</font><br>
 
 <p style="text-align:center;">
 <font color="DarkRed">"<b>Today to see you on this Navarātri Day, so many people sitting to worship Me. So many people are here, so many Sahaja Yogis, it’s so remarkable, it is not My achievement, I tell you. It’s your seeking.</b><br>
-Because I have been on this Earth many a times before – that you know. But we never had like this, so many came and got crucified, died, this, that – but I never had people of this caliber"</font><br>
+Because I have been on this Earth many a times before – that you know. But we never had like this, so many came and got crucified, died, this, that – but I never had people of this caliber."</font><br>
 <font size="+0"><b>1996-1020 Navarātri Pūjā (8th Day), Faith is the State of Being One with the Reality or Be Aware of Your Own State, Hangar, Cabella Ligure, Alessandria, Italy</b></font><br>
 <br>
 <font color="Navy"><b>We should devote ourselves to that Devī<br>
@@ -67,8 +67,9 @@ So this day is regarded as a very important day in India, and they make a big st
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0198.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed">"That's why I have to tell you that on this day of Dussehra, let us decide that we are going to have Rām Rāj in Sahaja Yoga, where there is benevolence, there is love, compassion, security, peace, joy, discipline among ourselves."</font><br>
+<font color="DarkRed"><b>"That's why I have to tell you that on this day of Dussehra, let us decide that we are going to have Rām Rāj in Sahaja Yoga, where there is benevolence, there is love, compassion, security, peace, joy, discipline among ourselves."</b></font><br>
 <font size="+0"><b>1987-1004 Śhrī Rāma Pūjā (Dussehra Day), Maryādā Puruṣhottama and Message of Sītā's Life (Very Great Achievement Within Ourselves), Centre International, Les Avants, Vaud, Switzerland</b></font><br>
+<br>
 <font color="Indigo"><b>Jay jay Raghuvīra Samartha</b><br>
 Victory to the all-powerful Śhrī Rāma!<br>
 <b>Auṃ Twameva sākṣhāt Śhrī Rāma sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
@@ -86,7 +87,7 @@ Take me to Your feet. Cleanse me with Thy love."</b></font><br>
 <font size="+0"><b>1975-0201 Public Program (Hindi+English), Dhyāna Kyoṃ Karanā Chāhiye (Why Should One Meditate), Prabhadevi, Mumbai, Maharashtra, India (other dates 0202 and 0209)</b></font><br>
 <br>
 <font color="Red"><b>Auṃ Twameva sākshāt Śhrī Durgā Mātā Jagadambā sākshāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ</b></font><br>
-O Divine Mother, You are verily Śhrī Durgā, the Mother of the universe. Salutations to You!<br>
+<b>O Divine Mother, You are verily Śhrī Durgā, the Mother of the universe. Salutations to You!</b><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
@@ -95,7 +96,7 @@ O Divine Mother, You are verily Śhrī Durgā, the Mother of the universe. Salut
 
 <font size="+2"><b>Bhajans:</b></font>
 
-<<p>
+<p>
 <font color="green"><b>Śhrī Gaṇeśha Atharva Śhīrṣha</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
