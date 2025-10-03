@@ -53,6 +53,18 @@ This is the Mūlādhāra itself, the first chakra, where Śhrī Gaṇeśha, the 
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">In the Purāṇas, of course, in our olden days, they have described a-eh-eh Saint called Triśhaṅku, who was punished for some little thing he did in the heavens, and he was sent down to carry a part of the country between India and Africa, ...</font><br>
+<b>Edmund Doogue:</b> Right.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">.. moving downward, and was said that, ``You will be hanging in the air." And this Triśhaṅku is, what we call, is the Southern Cross. What you call Southern Cross is the Triśhaṅku in our language.</font><br>
+<b>Edmund Doogue:</b> Right.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> All right.<br>
+<font color="DarkRed">Now, and was-s, then there is a ... if some punishment is given, also a sort of a little reward is given with that. ``That there you will develop your kingdom, and you will have a garden of innocence." [It] is said.</font> But it was not located at that time when this was written, Purāṇas were written, that it was Australia. These are olden books written meṃ [in], called Purāṇas. It's old books.<br>
+<font size="+0"><b>1987-0513 Interview with Journalist Edmund Doogue for the `The Age' Newspaper, Āśhram, 1267 Burke Road, Kew, Melbourne, Victoria, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> But uh marrying them in India is better. Is easier.<br>
 Uh we had it in uh, what you call this place?<br>
 <b>Sahaja Yogi:</b> Here.<br>
