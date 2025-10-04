@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 38: Special Events (after 1975), Part 91'
 date: 2025-10-03
-permalink: /photos/2025/1003
+permalink: /photos/2025/1003-a
 tags:
   - green @ Updates
 ---
