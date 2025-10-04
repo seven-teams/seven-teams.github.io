@@ -176,6 +176,25 @@ Now this Truth has been told by many Great Sages, by Prophets and many Incarnati
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"So that is what happened to both of Them [Śhrī Lav and Śhrī Kuśh].
+Now, They were reborn again on this Earth, later on, much later, as Buddha and Mahāvīra. Say, They are the Principle of Moon and Sun, are the Principle of Disciple. Because these two ... two centers are in the Void. So then They became Buddha and Mahāvīra. At this stage, They became Buddha and Mahāvīra.<br>
+But They found out after Their death that Buddhist[s] were another nonsense and these Jainist was another nonsense. You see, because these human beings create such problems that the same Incarnations think, `What did I tell them and what are they doing?' So [laughing:] They are born again [<font color="orange">unclear</font>].<br>
+So They came back again as the two children of Fāṭimah Bi, who was again Sītājī, of Her, as the grandchildren of Muhammad Sāhab.<br>
+And They then thought that, `You have to fight, with weapons, the evil forces!' And They died in Karbalāʾ.<br>
+So, this voilence [violence] of Buddha which was preached and ... nonviolence of Buddha and nonviolence of ... uh-uh-uh Jainas, means Mahāvīra's nonviolence, was of a such an extreme nature, that both of Them took on this Earth Their birth to prove that it is essential that you have to fight, and this is not [the] nonvoilence [nonviolence] of the weak."</font><br>
+<font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now, what people are enamored is that, if they see some people dancing madly, they feel enamored. Is a sign that you have not been able to understand.<br>
 <font color="red">We have seen Christ, we have seen Buddha, Mahāvīra, Kabīra, Nāṇaka, we had Lao Tze and so many others. Did They behave like this? Did They become mad?</font> We have got Moses, did He become mad anytime? Was He mad anytime, behaving like a mad person?<br>
 All these new theories have started, I think, fifty years back, or about sixty years back, that people believe in these new theories and they have forgotten all the kn... traditional things that have come to us, our heritage. And we depend more on these nonsensical things, which has no moorings at all! Because the people who are supposed to be the founders of all the religions, have never behave like this, and why this new type of things that has started? That people are behaving in this manner, and accepting it to be a very normal thing."<br>

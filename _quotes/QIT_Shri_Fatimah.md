@@ -138,7 +138,13 @@ As it is, Jews, even today, are after the Immaculate Conception."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">And His [Hazarat ʿAlī's] wife, that was later on, His wife was also the same Mahālakṣhmī personified: the daughter of Nārāyaṇa [Muhammad]. She incarnated also like that.</font><br>
+So the, in the main, They are worshiped as three persons in India, as I told you: as first as Sītā, and then as Rādhā, and then as Mary. In ... in India, Mary, Female, is worshiped also, three, three persons.<br>
+<font color="red">But, otherwise, She incar-nated as Fāṭimah.</font> And She also uh ... incarnated as Nāṇaka's sister, as Nāṇakī. 
+<font color="red">But because They were at a potential level, They were potential at that time, so, people do not know much about Them.</font>
+Even Mary was potential energy: She was not kinetic.<br>
+......<br>
+<font color="red">So They [Lord Buddha and Lord Mahāvīra] came back again as the two children of Fāṭimah Bi, who was again Sītājī, of Her, as the grandchildren of Muhammad Sāhab.</font>"<br>
 <font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -158,7 +164,8 @@ Leukemia comes from left Nābhī, when your Gṛuhalakṣhmī is ruined.<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"See now: in Christianity, one should understand why Christianity, even Judaism, any ... any religion, even Hinduism and all that -- but's more in Christianity, surprisingly -- they just had no place for Mary. <font color="red">And Muslims even crowned it by completely canceling Fāṭimah Bi.</font><br>
+And on top of that, you will see that, among Christians, I think that ordination, or what you call that, is not given to the lad...  to the women, while Christ was not born of a man."<br>
 <font size="+0"><b>1983-0821 Mother Earth and Śhrī Mahālakṣhmī Pūjā, Garden, Āśhram, 102 Ditton Road, Surbiton, London, UK</b></font>
 </p>
 
@@ -212,7 +219,8 @@ And then She took a milder form of Incarnation. Even during the time of all the 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"And you know that, also, that when they gave Me once a ... uh-uh-uh beautiful crown, in Switzerland, in the sky, they got the Photograph of the same. Very beautifully done, the ... uh-uh-uh crown was there, Fāṭimah's crown, My face, My eyes and everything so clearly.</font><br>
+All this is done by Viṣhṇumāyā."<br>
 <font size="+0"><b>1987-0506 Talk to Sahaja Yogis, The Need to Go Deeper and Questions and Answers, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
 </p>
 
@@ -235,7 +243,8 @@ So, we have ʿAlī and His wife Fāṭimah who incarnated on the Principle of th
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"The last Mahālakṣhmī Principle came as Fāṭimah.<br>
+Fāṭimah, the Gṛuhalakṣhmī, She stayed at home. She didn't show off. She was not the one who went out. Stayed at home, looked after household. Looked after Her children and made Them two great warriors! Her children and Her husband, They fought for the right, They fought for the truth. She was a Gṛuhalakṣhmī. "</font><br>
 <font size="+0"><b>1990-1021 Diwālī Pūjā (4th day after Diwālī Day), Touch Your Depth, Chioggia (50 kms S of Venice), Veneto, Italy</b></font>
 </p>
 
@@ -258,7 +267,9 @@ But ladies have to have purity like Sītājī first."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"<font color="red">So we have Fāṭimah, at a young age She had these two sweet children who died in the war in Karbalāʾ. But a brave woman, the way She established the Shia system! Her husband also died. And She did all that on Her own. Living behind the purdah, living behind the walls, She managed everything.</font><br>
+We have had many such queens in our country. There was a seventeen-year-old widow, who was the daughter-in-law of Śhivajī, She fought with Aurangzeb and defeated him, in our country: Tārābāī. So many of them we have!<br>
+But if you do not have the alertness, then you cannot be a Gṛuhalakṣhmī, you cannot be a good mother, you cannot be a good wife."<br>
 <font size="+0"><b>1991-0428 Śhrī Haṃsa Chakra Pūjā, The Source of Discretion, Queens, New York City, NY, U.S.A.</b></font>
 </p>
 
