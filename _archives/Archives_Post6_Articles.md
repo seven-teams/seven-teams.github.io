@@ -31,11 +31,11 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A2.</b></font> <b> 1986-1230 Article 'Sahajayoga Kuṃḍalinī Jāgṛutī mhaṇaje kāya?' published in 'Dainik Āroḷī' ('Daily Outcry'), Pages 1 and 3, Ajit Printing Press, Sangli, Maharashtra, India (Balwant Kumbhojkar Collection)</b> (4 pages, uploaded on 2025-1004)
 
-<div style="text-align: center"><img src="https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1986-1230_Article_'Sahajayoga_Kundalini_Jagruti_mhanaje_kaya%3F'_published_in_'Dainik_Aroli'_('Daily_Outcry')_Pages_1_and_3_Ajit_Printing_Press_Sangli_Maharashtra_India_V1_(Balwant_Kumbhojkar_Collection).pdf" /></div>
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1986-1230_Article_'Sahajayoga_Kundalini_Jagruti_mhanaje_kaya%3F'_published_in_'Dainik_Aroli'_('Daily_Outcry')_Pages_1_and_3_Ajit_Printing_Press_Sangli_Maharashtra_India_V1_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
-<div style="text-align: center"><img src="https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1986-1230_Article_'Sahajayoga_Kundalini_Jagruti_mhanaje_kaya%3F'_published_in_'Dainik_Aroli'_('Daily_Outcry')_Pages_1_and_3_Ajit_Printing_Press_Sangli_Maharashtra_India_V2_(Balwant_Kumbhojkar_Collection).pdf" /></div>
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1986-1230_Article_'Sahajayoga_Kundalini_Jagruti_mhanaje_kaya%3F'_published_in_'Dainik_Aroli'_('Daily_Outcry')_Pages_1_and_3_Ajit_Printing_Press_Sangli_Maharashtra_India_V2_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
-<div style="text-align: center"><img src="https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1986-1230_Article_'Sahajayoga_Kundalini_Jagruti_mhanaje_kaya%3F'_published_in_'Dainik_Aroli'_('Daily_Outcry')_Pages_1_and_3_Ajit_Printing_Press_Sangli_Maharashtra_India_V3_(Balwant_Kumbhojkar_Collection).pdf" /></div>
+<iframe src="/pdf/#https://pub-0acf3a4aadfd401894e2ec0ae0b5eaf3.r2.dev/1986-1230_Article_'Sahajayoga_Kundalini_Jagruti_mhanaje_kaya%3F'_published_in_'Dainik_Aroli'_('Daily_Outcry')_Pages_1_and_3_Ajit_Printing_Press_Sangli_Maharashtra_India_V3_(Balwant_Kumbhojkar_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
