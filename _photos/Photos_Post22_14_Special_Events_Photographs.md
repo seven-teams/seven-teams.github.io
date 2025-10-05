@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo from the special event <font color="Crimson"><b>1986-1014 Interview, Kolkata, West Bengal, India</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
-The direct link to the 6 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1986/"> Collection 1986</a>.<br> 
+We are pleased to let you know that 2 Photos from the special event <font color="Crimson"><b>1986-1014 Interview, Kolkata, West Bengal, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
+The direct link to the 2 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Yogi-Mahajan-Collection/1986/"> Collection 1986</a>.<br>
+[Note: 1 Photo uploaded only on 1986-1014.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 
 <br>
