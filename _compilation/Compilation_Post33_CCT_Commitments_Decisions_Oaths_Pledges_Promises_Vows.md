@@ -492,6 +492,13 @@ So don't account for each paisā and reduce stinginess. This is the fourth vow."
 
 <p>
 <font color="DarkRed">""</font><br>
+<font size="+0"><b>1982-0411 Easter Pūjā, How Christ Was Created, Resurrection of Christ, and Collective Resurrection (Mahāviṣhṇu State, Easter Is the Most Important Happening, You are a Collective Being and Collectivity Is the Nature of a Sahaja Yogi), Nirmala Palace Āśhram, 99 Nightingale Lane, Balham, London SW12 8LZ, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
 <font size="+0"><b>1982-0414 Public Program, What Is the Need for Sahaja Yoga (Integration and Collective Consciousness), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
@@ -543,7 +550,7 @@ We should not get involved into, it's nothing important."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed"><b>Dr. Warren Reeves:</b> This is to Śhrī Mātājī Nirmalā Devī. [Reads the telegram:] "Śhrī Mātājī, on the most auspicious occasion of Your sixtieth birthday, we respectfully bow at Your Lotus Feet and wishing You a very long life, full of excellent health, happiness and prosperity! We Sahaja Yogis of Bombay [Mumbai] pledge on this momentous occasion to rededicate ourself to Your most holy cause. With love from the Bombay [Mumbai] Sahaja Yogis."</font><br>
 <font size="+0"><b>1983-0321 Conversations with Sahaja Yogis, Songs and Felicitations after Birthday Pūjā, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
 </p>
 
@@ -761,7 +768,7 @@ So, now, what we are going to do: we are going to say aloud, without any shyness
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> And strength.</font><br>
 <b>Grégoire de Kalbermatten:</b> <br> ... and strength, for all our life.<br>
 <b>Grégoire de Kalbermatten followed by many Sahaja Yogis:</b> Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and owe and strength unill the end of our life. Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and strength unill the end of our life. Śhrī Mātājī, we take the vow to become the light of Sahaja Yoga and to spread the light of Sahaja Yoga with all our heart and strength unill the end of our life.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed"> : Thank you very much.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">Thank you very much.<br>
 May God bless you.</font><br>
 [After two Jay jayakāras:] <font color="DarkRed">May God bless you all. May God bless you all. May God bless you all.<br>
 I would suggest that: those who are elderly people should be given chairs, and those who are younger people should come down - is not proper for the elder people to be standing uh-uh ... s... sitting on the ground. Please take your seat.</font><br>
@@ -778,7 +785,19 @@ I would suggest that: those who are elderly people should be given chairs, and t
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<b>Gavin Brown:</b>  While we were preparing the program of Blake's Birthday Festival, Mother, we found out there was an Exhibition of Blake's work in London in one of the galleries. And we very much wanted to give You something that was made by His own Hands.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> So why [].<br>
+<b>Gavin Brown:</b>  And with the good wishes of all the Sahaja Yogis of England, ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Oh, that's too much!<br>
+<b>Gavin Brown:</b>  ... we've been able to do it for You.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> That's too much Gavin.<br>
+<b>Gavin Brown:</b>  No, it's ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> That's too much!<br>
+<b>Gavin Brown:</b>  ... it's something special, Mother.<br>
+We hope that it will be our pledge to try to do [as Śhrī Mātājī gets hold of the wrapped frame:] some justice to You as You've tried to do some justice to ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī [laughing]:</b></font> So, Blake.<br>
+<b>Gavin Brown:</b>  ... Blake.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> I'm so proud of Him, really! <br>
 <font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
 </p>
 
@@ -806,6 +825,13 @@ It will happen easily. There is no extra effort, nothing extraordinary, it's ver
 <p>
 <font color="DarkRed">"We must all take a vow that we will not enter into the premises of her house, telephone to her or write letters from anywhere in the world."</font><br>
 <font size="+0"><b>1987-0101 Letter (Message) of Sahaja Yogis for J. J. Modi and for Trustees of Life Eternal Trust with Handwritten Approval, Gaṇapatīpuḷe, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Grapes remind Me of My mother. She was a great freedom fighter. She took a pledge not to eat grapes till India got her independence and the common people would be able to afford them."</font><br>
+<font size="+0"><b>1987-010x Comments, Hosting 300 Sahaja Yogis for the Day, Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1213,6 +1239,14 @@ This is how we enjoy the real spiritual life of the Kingdom of God.</font><br>
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"Hello? Now please listen carefully!<br>
+Accepting the Vishwa Nirmala Dharma is the first biding. All brides and bridegrooms should take the following pledge in their heart: "We all accept the Dharma of Sahaja Yoga, that is Vishwa Nirmala Dharma. We do not accept only one religion. But we accept all the religions, their bindings, and we do not believe [only] in one religion." That is what is Vishwa Nirmala Dharma."<br>
+<font size="+0"><b>1991-1227 Talk to Sahaja Yogis, Marriages Ceremony, Gaṇapatīpuḷe, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b>1992-0211 Talk to Sahaja Yogis, We Are So Powerful, in Transit, Airport, Sydney, New South Wales, Australia</b></font>
 </p>
@@ -1341,7 +1375,8 @@ And don't create problems for Me, like marriage: 'We can't now live with the wif
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed"><b>Grégoire de Kalbermatten:</b> [Laughing:] So, Śhrī Mātājī, we ... we offer you for your birthday, this pilgrimage from darkness towards light, from enslavement towards freedom.<br>
+We pledge that we will do some justice to Your message, that we will improve ourselves.</font><br>
 <font size="+0"><b>1998-0320 Talk to Sahaja Yogis, 75th Birthday Felicitations Program, Put Your Attention to Your Spirit, Bharat Scouts Ground and Guides Marg, Nizamuddin, National Zoological Park, Sundar Nagar, New Delhi, India</b></font>
 </p>
 

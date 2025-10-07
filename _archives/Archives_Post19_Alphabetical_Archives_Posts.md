@@ -7,9 +7,9 @@ tags:
   - red @ Archive
 ---
 
-<b>POSTS</b>: 732 files<br>
-<b>1.</b> <a href="https://seven-teams.github.io/archives/2024/0121"><font color="maroon"><b>Ads</b></font></a>: 2 files<br>
-<b>2.</b> <a href="https://seven-teams.github.io/archives/2023/0508"><font color="maroon"><b>Articles</b></font></a>: 30 files<br>
+<b>POSTS</b>: 734 files<br>
+<b>1.</b> <a href="https://seven-teams.github.io/archives/2024/0121"><font color="maroon"><b>Ads</b></font></a>: 3 files<br>
+<b>2.</b> <a href="https://seven-teams.github.io/archives/2023/0508"><font color="maroon"><b>Articles</b></font></a>: 31 files<br>
 <b>3.</b> <b>Australian Sahaja Newsletter</b>: Total files 100<br>
  &emsp; &emsp; &emsp;<b>3.1.</b> <a href="https://seven-teams.github.io/archives/2023/1214"><font color="maroon"><b>Australian Sahaja Newsletter, Part 1 (1997)</b></font></a>: 8 files<br>
  &emsp; &emsp; &emsp;<b>3.2.</b> <a href="https://seven-teams.github.io/archives/2023/1215"><font color="maroon"><b>Australian Sahaja Newsletter, Part 2 (1998)</b></font></a>: 48 files (includes 3 supplements)<br>
