@@ -39,7 +39,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>A2.</b></font> <b> 1986-1230 Article 'Sahajayoga Sādhanā' published in 'Dainik Āroḷī' ('Daily Outcry'), Page 2, Column 1, Ajit Printing Press, Sangli, Maharashtra, India (Balwant Kumbhojkar Collection)</b> (1 page, uploaded on 2025-1006)
+<font color="DarkGreen"><b>A3.</b></font> <b> 1986-1230 Article 'Sahajayoga Sādhanā' published in 'Dainik Āroḷī' ('Daily Outcry'), Page 2, Column 1, Ajit Printing Press, Sangli, Maharashtra, India (Balwant Kumbhojkar Collection)</b> (1 page, uploaded on 2025-1006)
 
 <div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-1230_Article_'Sahajayoga_Sadhana'_published_in_'Dainik_Aroli'_('Daily_Outcry')_Page_2_Column_1_Ajit_Printing_Press_Sangli_Maharashtra_India_V1_(Balwant_Kumbhojkar_Collection).jpg" /></div>
 
