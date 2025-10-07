@@ -28,11 +28,11 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>Ad2.</b></font> <b> 1986-1230 Ad for same day Public Program published in 'Dainik Āroḷī' ('Daily Outcry'), Page 1, Columns 2 and 3, Ajit Printing Press, Sangli, Maharashtra, India (Balwant Kumbhojkar Collection)</b> (1 page, uploaded on 2025-1006)
 
-<iframe src="/pdf/#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-1230_Ad_for_the_same_day_Public_Program_published_in_'Dainik_Aroli'_('Daily_Outcry')_Page_1_Columns_2_and_3_Ajit_Printing_Press_Sangli_Maharashtra_India_V1_(Balwant_Kumbhojkar_Collection).jpg" width="1000px" height="1000px"></iframe>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-1230_Ad_for_the_same_day_Public_Program_published_in_'Dainik_Aroli'_('Daily_Outcry')_Page_1_Columns_2_and_3_Ajit_Printing_Press_Sangli_Maharashtra_India_V1_(Balwant_Kumbhojkar_Collection).jpg" /></div>
 
-<iframe src="/pdf/#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-1230_Ad_for_the_same_day_Public_Program_published_in_'Dainik_Aroli'_('Daily_Outcry')_Page_1_Columns_2_and_3_Ajit_Printing_Press_Sangli_Maharashtra_India_V2_(Balwant_Kumbhojkar_Collection).jpg" width="1000px" height="1000px"></iframe>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-1230_Ad_for_the_same_day_Public_Program_published_in_'Dainik_Aroli'_('Daily_Outcry')_Page_1_Columns_2_and_3_Ajit_Printing_Press_Sangli_Maharashtra_India_V2_(Balwant_Kumbhojkar_Collection).jpg" /></div>
 
-<iframe src="/pdf/#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-1230_Ad_for_the_same_day_Public_Program_published_in_'Dainik_Aroli'_('Daily_Outcry')_Page_1_Columns_2_and_3_Ajit_Printing_Press_Sangli_Maharashtra_India_V3_(Balwant_Kumbhojkar_Collection).jpg" width="1000px" height="1000px"></iframe>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1986-1230_Ad_for_the_same_day_Public_Program_published_in_'Dainik_Aroli'_('Daily_Outcry')_Page_1_Columns_2_and_3_Ajit_Printing_Press_Sangli_Maharashtra_India_V3_(Balwant_Kumbhojkar_Collection).jpg" /></div>
 
 <br>
 
