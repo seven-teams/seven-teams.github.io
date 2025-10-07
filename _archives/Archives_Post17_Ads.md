@@ -21,10 +21,7 @@ sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
 </p>
 
-<br>
-
-<font color="DarkGreen"><b>Ad1.</b></font> <b>1973-0300 Ad 'Sahaja Yoga (Meditation) with Madhu Dave' on April 3 at World Yoga Society published in the 1973-0329 The Village Voice, NYC, U.S.A., Page 2 (Sahaja Library Flickr Collection)</b> (1 external link added on 2025-0624)
-
+<font color="DarkGreen"><b>Ad1.</b></font> <b>1973-0300 Ad 'Sahaja Yoga (Meditation) with Madhu Dave' on April 3 at World Yoga Society published in the 1973-0329 The Village Voice, NYC, U.S.A., Page 2 (Sahaja Library Flickr Collection)</b> (1 external link added on 2025-0624)<br>
 <a href="https://www.flickr.com/photos/sahajhist/54599186963/">Sahaja Library Flickr Link</a>
 
 <br>
