@@ -55,11 +55,11 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>A5.</b></font> <b>1987-1011 Article 'Sunflower Seeds' published in 'Maharashtra Times' on 1987-1019, Pune, Maharashtra, India (Balwant Kumbhojkar Collection)</b> (1 page, uploaded on 2025-1007)
+<font color="DarkGreen"><b>A5.</b></font> <b>1987-1011 Article 'Variety of sunflowers which gives double yield' reported from Pune and published in 'Maharashtra Times' on 1987-1012, Maharashtra, India (Balwant Kumbhojkar Collection)</b> (1 page, uploaded on 2025-1007)
 
-<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1987-1011_Article_'Sunflower_Seeds'_published_in_'Maharashtra_Times'_on_1987-1019_Pune_Maharashtra_India_(Balwant_Kumbhojkar_Collection).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1987-1011_Article_'Variety_of_sunflowers_which_gives_double_yield'_reported_from_Pune_and_published_in_'Maharashtra_Times'_on_1987-1012_Maharashtra_India_(Balwant_Kumbhojkar_Collection).jpg" /></div>
 
-<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1987-1011_Article_'Sunflower_Seeds'_published_in_'Maharashtra_Times'_on_1987-1019_Pune_Maharashtra_India_(enlarged)_(Balwant_Kumbhojkar_Collection).jpg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1987-1011_Article_'Variety_of_sunflowers_which_gives_double_yield'_reported_from_Pune_and_published_in_'Maharashtra_Times'_on_1987-1012_Maharashtra_India_(enlarged)_(Balwant_Kumbhojkar_Collection)." /></div>
 
 <br>
 
