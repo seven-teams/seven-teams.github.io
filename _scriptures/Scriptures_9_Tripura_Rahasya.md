@@ -489,11 +489,6 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 <font color="DarkGreen">"...... the <i>satsanga</i> [association with the wise] is alone the root cause of salvation."</font>
 </p>
 
-<p>
-<b>4.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
@@ -502,23 +497,53 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 </p>
 
 <p>
-<b>5.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>5.2 Translation</b><br>
+<font color="DarkGreen">[Śhri Paraśhurāma:] "You have truly said, O Lord [Dattātreya], that <i>satsanga</i> is the harbinger of all that is worthy, ......"</font>
 </p>
 
 <p>
-<b>5.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>5.3 Translation</b><br>
+<font color="DarkGreen">"One's enjoyments are determined by the quality of one's company. ......"</font>
 </p>
 
 <p>
-<b>5.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>5.17 Translation</b><br>
+<font color="DarkGreen">[Śhri Dattātreya narrates what Hemalekha told Hemachuda:] ......diseases are due to loss of harmony in the three tempers of the body."</font>
 </p>
 
 <p>
-<b>5.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>5.20 Translation</b><br>
+<font color="DarkGreen">"Being inescapable, the dislocation of tempers need not claim one's constant attention. There are remedies prescribed for diseases arising from it."</font>
+</p>
+
+<p>
+<b>5.27 Translation</b><br>
+<font color="DarkGreen">[Śhri Dattātreya narrates what Hemalekha things:] "There is the seed of the highest good in that field where such symptoms appear. Had my well-calculated words not produced even the slightest turn in this direction, there would be no hope of emancipating him. This state of dispassion only arises in one with whose continues devotion Tripura inherent in the Heart as Self, is well pleased."</font>
+</p>
+
+<p>
+<b>5.96-107 Translation</b><br>
+<font color="DarkGreen">[Śhri Dattātreya continues the narration of what Hemalekha words:] "...... Because of my company, teh common people always misjudged me for a strumpet, whereas discriminating men could see that I have always remain pure."</font>
+</p>
+
+<p>
+<b>5.108-111 Translation</b><br>
+<font color="DarkGreen"> "For that Supreme One, my mother, is ever pure and clear, more extensive than space and subtler than the subtlest; she is omniscient, yet of limited knowledge; she works all, yet remains inactive; she holds all, herself being unsupported; al depend on her, and she is independent; all forms are her, but she is formless; all belong to her, but she is unattached; though illuminating all, she is not known to anyone under any circumstances; she is Bliss, yet not blissful; she has no father nor mother; ......"</font>
+</p>
+
+<p>
+<b>5.112-113 Translation</b><br>
+<font color="DarkGreen">"...... Though sharing the lives of my friends, I am in possession of the most potent spell, by virtue of which i am also exactly like my mother in nature."</font>
+</p>
+
+<p>
+<b>5.137 Translation</b><br>
+<font color="DarkGreen">"Who can hope for even the least happiness in bad company? One may as well seek to queench one's thirst by drinking water from a mirage."</font>
+</p>
+
+<p>
+<b>5.142 Translation</b><br>
+<font color="DarkGreen">"Then, my Lord, atain the mother and gain eternal happiness. ......"</font>
 </p>
 
 <div class="para-divider"></div>
@@ -526,6 +551,11 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 <p style="text-align:center;">
 <b>Chapter 6</b><br>
 <font color="DarkGreen"><b></b></font>
+</p>
+
+<p>
+<b>6.1 Translation</b><br>
+<font color="DarkGreen"></font>
 </p>
 
 <div class="para-divider"></div>
