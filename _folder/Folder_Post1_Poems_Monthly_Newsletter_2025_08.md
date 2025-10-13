@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Since the March 2025 newsletter, the following 8 extra Poems have been uploaded.<br>
+Since the July 2025 newsletter, the following 8 extra Poems have been uploaded.<br>
 1. <a href="https://seven-teams.github.io/folder/2001-JK-Dont-dance-so-fast-SA"> <font color="DeepPink"><b>Don't Dance So Fast</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/2001-P-Mother-Kundalini-SA"> <font color="DeepPink"><b>Mother Kundalini</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/2001-K-I-often-hear-a-voice-SA"> <font color="DeepPink"><b>I Often Hear A Voice</b></font></a><br>

@@ -7,7 +7,7 @@ tags:
   - red @ Archive
 ---
 
-<b>POSTS</b>: 735 files<br>
+<b>POSTS</b>: 736 files<br>
 <b>1.</b> <a href="https://seven-teams.github.io/archives/2024/0121"><font color="maroon"><b>Ads</b></font></a>: 3 files<br>
 <b>2.</b> <a href="https://seven-teams.github.io/archives/2023/0508"><font color="maroon"><b>Articles</b></font></a>: 32 files<br>
 <b>3.</b> <b>Australian Sahaja Newsletter</b>: Total files 100<br>
@@ -17,7 +17,7 @@ tags:
  &emsp; &emsp; &emsp;<b>3.4.</b> <a href="https://seven-teams.github.io/archives/2023/1217"><font color="maroon"><b>Australian Sahaja Newsletter Part 4 (2000)</b></font></a>: 1 file<br>
 <b>4.</b> <a href="https://seven-teams.github.io/archives/2022/0818"><font color="maroon"><b>Divine Cool Breeze (USA)</b></font></a>: 2 files<br>
 <b>5.</b> <a href="https://seven-teams.github.io/archives/2022/0818"><font color="maroon"><b>Fliers</b></font></a>: 1 file<br>
-<b>6.</b> <a href="https://seven-teams.github.io/archives/2023/0119"><font color="maroon"><b>Letters and Press Releases</b></font></a>: 5 files<br>
+<b>6.</b> <a href="https://seven-teams.github.io/archives/2023/0119"><font color="maroon"><b>Letters and Press Releases</b></font></a>: 6 files<br>
 <b>7.</b> <a href="https://seven-teams.github.io/archives/2023/0824-a"><font color="maroon"><b>Newsletter Australia</b></font></a>: 3 files<br>
 <b>8.</b> <a href="https://seven-teams.github.io/archives/2023/0829"><font color="maroon"><b>Official Photos with Text</b></font></a>: 1 file<br>
 <b>9.</b> <a href="https://seven-teams.github.io/archives/2023/0502"><font color="maroon"><b>Posters</b></font></a>: 17 files<br>

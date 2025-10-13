@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Since the July 2024 newsletter, the following 4 humor pieces, songs or treatments have been uploaded this month.<br>
+Since the July 2025 newsletter, the following 4 humor pieces, songs or treatments have been uploaded this month.<br>
 1. <a href="https://seven-teams.github.io/folder/Lord-Mahadeva-1998-0606-ASN"> <font color="DeepPink"><b>Lord Mahadeva</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/1987-0000-JMW-Mother-Mine"> <font color="DeepPink"><b>Mother Mine</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/Song-to-the-Devi-1997-1018-ASN"> <font color="DeepPink"><b>Song to the Devi</b></font></a><br>

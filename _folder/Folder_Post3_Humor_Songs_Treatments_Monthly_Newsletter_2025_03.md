@@ -1,5 +1,5 @@
 ---
-title: 'Folder Post 2: Humor, Songs, Treatments Bimonthly Newsletter, 2025'
+title: 'Folder Post 2: Humor, Songs, Treatments Bimonthly Newsletter, March 2025'
 date: 2025-03-27
 permalink: /folder/2025/0327
 tags:

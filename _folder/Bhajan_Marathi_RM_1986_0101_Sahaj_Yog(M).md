@@ -41,25 +41,25 @@ tags:
 <br>
 
 <p>
-Let it happen, let Sahaja Yoga happen, let it happen now.<br>
-Let the Kundalini ascend high.<br>
-Jai Jai Adi Shakti Nirmal Nām remembering<br>
-We do not believe in caste distinctions<br>
-We know no difference of religion<br>
-Our tej [glow/light] in the middle Sahsatrār<br>
-Let it fall on our face.<br>
+Let Sahaja Yoga establish [grow] now.<br>
+Let the Kundalini rise higher and higher.<br>
+Let us remember the victory of Adi Shakti Nirmala.<br>
+We don't believe in differences in Castes<br>
+We don't recognize the differences in religion<br>
+Let the glow of our Sahastrara<br>
+Shine in our faces.<br>
 <br>
-We will remove the poor from here.<br>
-Let Sahaja Yoga convince the whole world.<br>
-Let the brave fight against ignorance.<br>
+We will remove poverty from here.<br>
+We will explain Sahaja Yoga to the entire world.<br>
+Let these brave wrists [hands] fight against ignorance.<br>
 <br>
-Our devotion to Shri Mataji<br>
-Consciousness is our strength<br>
-These are all the children of Shri Mataji<br>
-Let me fly fearlessly.<br>
+We have immense devotion towards Shri Mataji<br>
+Vibrations are our strength<br>
+Let us all the children of Shri Mataji<br>
+Go all out without any fear.<br>
 <br>
-Let Sahaja Yoga happen now.<br>
-Let the Kundalini ascend high.
+Let Sahaja Yoga establish [grow] now.<br>
+Let the Kundalini rise higher and higher.<br>
 </p>
 
 <br>

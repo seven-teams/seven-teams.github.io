@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Since the March 2025 newsletter, the following 8 extra Poems have been uploaded.<br>
+Since the August 2025 newsletter, the following 8 extra Poems have been uploaded.<br>
 1. <a href="https://seven-teams.github.io/folder/1997-98-ST-Childrens-Day"> <font color="DeepPink"><b>Children's Day</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/1984-0900-AP-In-Your-Presence"> <font color="DeepPink"><b>In Your Presence</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/1997-98-MP-Ocean"> <font color="DeepPink"><b>Ocean</b></font></a><br>

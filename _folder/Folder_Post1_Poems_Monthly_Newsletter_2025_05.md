@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Since the March 2025 newsletter, the following 8 extra Poems have been uploaded.<br>
+Since the April 2025 newsletter, the following 8 extra Poems have been uploaded.<br>
 1. <a href="https://seven-teams.github.io/folder/1992-0901-ST-A-Helping-Hand-1992-0900-1000-DCB-USA-P20"> <font color="DeepPink"><b>A Helping Hand </b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/1999-0701-AS-Bringers-of-The-Dawn"> <font color="DeepPink"><b>Bringers of The-Dawn</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/1991-0201-AW-Furnice-of-Burning-Gold-1991-0200-DCB-USA-P17"> <font color="DeepPink"><b>Furnace of Burning Gold</b></font></a><br>

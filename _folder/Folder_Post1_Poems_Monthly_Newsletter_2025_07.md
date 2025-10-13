@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Since the March 2025 newsletter, the following 8 extra Poems have been uploaded.<br>
+Since the June 2025 newsletter, the following 8 extra Poems have been uploaded.<br>
 1. <a href="https://seven-teams.github.io/folder/1999-0709-BC"> <font color="DeepPink"><b>about Heart</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/1997-98-ST-Nature"> <font color="DeepPink"><b>Nature</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/1999-0709-DR-The-Finger"> <font color="DeepPink"><b>The Finger</b></font></a><br>

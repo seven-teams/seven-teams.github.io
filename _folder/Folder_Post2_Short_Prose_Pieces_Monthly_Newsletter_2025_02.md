@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Since the July 2024 newsletter, the following 4 short prose pieces have been uploaded this month.<br>
+Since the December 2024 newsletter, the following 4 short prose pieces have been uploaded this month.<br>
 1. <a href="https://seven-teams.github.io/folder/1997-98-PN-SA"> <font color="DeepPink"><b>Gandhiji</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/1997-98-SS-SA"> <font color="DeepPink"><b>In the world of dreams</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/1997-98-MA-SA"> <font color="DeepPink"><b>Our jungle friends</b></font></a><br>

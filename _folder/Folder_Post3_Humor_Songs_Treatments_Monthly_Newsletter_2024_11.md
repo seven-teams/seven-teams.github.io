@@ -1,5 +1,5 @@
 ---
-title: 'Folder Post 3: Humor, Songs, Treatments Bimonthly Newsletter, 2024'
+title: 'Folder Post 3: Humor, Songs, Treatments Bimonthly Newsletter, November 2024'
 date: 2024-11-30
 permalink: /folder/2024/1130
 tags:

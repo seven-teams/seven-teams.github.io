@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Since the July 2024 newsletter, the following 8 short prose pieces have been uploaded this month.<br>
+Since the February 2025 newsletter, the following 8 short prose pieces have been uploaded this month.<br>
 1. <a href="https://seven-teams.github.io/folder/1997-98-GE-SA"> <font color="DeepPink"><b>A Sweet Experience</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/1997-98-RD-SA"> <font color="DeepPink"><b>Miracles of Love</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/1997-98-BW-SA"> <font color="DeepPink"><b>Our School</b></font></a><br>

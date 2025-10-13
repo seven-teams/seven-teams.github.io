@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-Since the March 2025 newsletter, the following 8 extra Poems have been uploaded.<br>
+Since the May 2025 newsletter, the following 8 extra Poems have been uploaded.<br>
 1. <a href="https://seven-teams.github.io/folder/Poem-SK-1986-0400-SY(M)"> <font color="DeepPink"><b>De āśhīrvāda āmhālā (Bless Us or Give us Your blessings)</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/2010-WL-Realizations-Fourfold-Vision"> <font color="DeepPink"><b>Fourfold Vision</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/Poem-KM-1986-0400-SY(M)"> <font color="DeepPink"><b>Kṣhaṇa hā bhāgyāchā</b></font></a><br>
