@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8216;The Gift of Love&#8217; by David Paul Dunphy, San Diego from the 1989-0400 and 500 The Divine Cool Breeze (U.S.A.), Volume 3, Issue 4, Page 10'
+title: 'Poem &#8216;The Gift of Love&#8217; by David Paul Dunphy, San Diego from the 1989-0400 and 0500 The Divine Cool Breeze (U.S.A.), Volume 3, Issue 4, Page 10'
 date: 1989-04-01
 permalink: /folder/1989-0401-DPD-The-Gift-of-Love-1989-0400-0500-DCB-USA-P10
 tags:

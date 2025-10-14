@@ -14,7 +14,7 @@ Since the July 2025 newsletter, the following 4 humor pieces, songs or treatment
 1. <a href="https://seven-teams.github.io/folder/Lord-Mahadeva-1998-0606-ASN"> <font color="DeepPink"><b>Lord Mahadeva</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/1987-0000-JMW-Mother-Mine"> <font color="DeepPink"><b>Mother Mine</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/Song-to-the-Devi-1997-1018-ASN"> <font color="DeepPink"><b>Song to the Devi</b></font></a><br>
-4. <a href="https://seven-teams.github.io/folder/1988-0000-GB-The-Chakras-1988-0700-DCB-USA-P19"> <font color="DeepPink"><b>The Chakras</b></font></a><br>
+4. <a href="https://seven-teams.github.io/folder/1988-0000-GB-The-Chakras-1988-0700-DCB-USA-P20"> <font color="DeepPink"><b>The Chakras</b></font></a><br>
 Please kindly share the news and the links.<br>
 <br>
 Jay Śhrī Mātājī!<br>

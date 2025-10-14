@@ -1,7 +1,7 @@
 ---
 title: 'Song &#8216;The Chakras&#8217; by Gellina Binelli, New York from the 1988-0700 The Divine Cool Breeze (U.S.A.), Volume 2, Issue 6, Page 20'
 date: 1988-07-01
-permalink: /folder/1988-0000-GB-The-Chakras-1988-0700-DCB-USA-P19
+permalink: /folder/1988-0000-GB-The-Chakras-1988-0700-DCB-USA-P20
 tags:
   - black @ Song
   - blue @ Gellina Binelli

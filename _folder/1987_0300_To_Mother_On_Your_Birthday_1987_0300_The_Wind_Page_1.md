@@ -1,7 +1,7 @@
 ---
-title: '1987-0000 Poem &#8216;To Mother, On Your Birthday&#8217;s Source&#8217; from the 1987-0300 The Wind, Volume 1, Issue 6, Page 1'
+title: '1987-0300 Poem &#8216;To Mother, On Your Birthday&#8217; from the 1987-0300 The Wind, Volume 1, Issue 6, Page 1'
 date: 1987-03-01
-permalink: /folder/1987-0300-To-Mother-On-Your-Birthday-1988-0300-The-Wind-P1
+permalink: /folder/1987-0300-To-Mother-On-Your-Birthday-1987-0300-The-Wind-P1
 tags:
   - black @ Poetry
   - blue @ TBD
