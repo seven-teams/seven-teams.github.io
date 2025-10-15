@@ -50,5 +50,5 @@ To love myself, forgive myself and search for joy<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction of the poem</b> "Meditation generates a tremendous amount of love in my heart. I am still learning to share this love with others."</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem</b> "Meditation generates a tremendous amount of love in my heart. I am still learning to share this love with others."</list-item>
 </wave-list>

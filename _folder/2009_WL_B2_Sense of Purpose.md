@@ -68,12 +68,12 @@ Within
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="285"><b> S1. Book 'Society Enlightened', Pages 1 and 2.</b></list-item>
+  <list-item color="BlanchedAlmond"  width="285"><b> S1. Book 'Society Enlightened', Pages 3 to 5.</b></list-item>
 </wave-list>
 
 <br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction of the poem</b> "Imagine the world as a large family."</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem</b> "Imagine the world as a large family."</list-item>
 </wave-list>

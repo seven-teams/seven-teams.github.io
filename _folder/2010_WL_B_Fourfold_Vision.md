@@ -53,7 +53,7 @@ with disregard to wisdom, disregard to an awakened mind
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction of the poem</b> "Inspired by a poem of William Blake<br>
+  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem</b> "Inspired by a poem of William Blake<br>
 "<i>Now I a fourfold vision see,</i><br>
 <i>And a fourfold vision is given to me,</i><br>
 <br>

@@ -56,5 +56,5 @@ The Mother is a power free to share with all<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction of the poem</b> "The Divine as a Mother - a power without the need to rule."</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem</b> "The Divine as a Mother - a power without the need to rule."</list-item>
 </wave-list>

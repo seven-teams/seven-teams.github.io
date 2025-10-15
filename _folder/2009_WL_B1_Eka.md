@@ -39,5 +39,5 @@ The reflection of the mountain unimaginably pure<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction of the poem</b> "A meditation on the silence of the self."</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem</b> "A meditation on the silence of the self."</list-item>
 </wave-list>

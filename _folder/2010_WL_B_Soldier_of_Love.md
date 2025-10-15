@@ -56,5 +56,5 @@ Courage to speak the truth<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction of the poem</b> "A meditation on a kind of soldier who fights a war with weapons, which build instead of destroying. Weapons, which bring benevolence instead of harm."</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem</b> "A meditation on a kind of soldier who fights a war with weapons, which build instead of destroying. Weapons, which bring benevolence instead of harm."</list-item>
 </wave-list>

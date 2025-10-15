@@ -40,5 +40,5 @@ I am complete
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction of the poem</b> "The joy of feeling the connection to the source of knowledge and inspiration in the collective consciousness"</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>Author's introductionto the poem</b> "The joy of feeling the connection to the source of knowledge and inspiration in the collective consciousness"</list-item>
 </wave-list>
