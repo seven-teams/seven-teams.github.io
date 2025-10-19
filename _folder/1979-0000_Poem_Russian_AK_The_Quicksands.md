@@ -1,10 +1,10 @@
 ---
-title: '1979-0000 Poem in Russian &#8216;The Quicksands&#8217; by Alla Levitan, Russia'
+title: '1979-0000 Poem in Russian &#8216;The Quicksands&#8217; by Alla Levitan (Kulkarni), Russia'
 date: 1979-01-01
-permalink: /folder/1979-AL-The-Quicksands
+permalink: /folder/1979-AK-The-Quicksands
 tags:
   - black @ Poetry
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ 1979
   - cornflowerblue @ Russia
   - green @ Story of Poem The Quicksands

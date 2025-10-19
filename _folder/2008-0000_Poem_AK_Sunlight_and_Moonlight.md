@@ -1,10 +1,10 @@
 ---
-title: '2008-0000 Poem &#8216;Sunlight and Moonlight&#8217; by Alla Levitan offered to Shri Mataji by San Francisco Bay Area Collective in 2008'
+title: '2008-0000 Poem &#8216;Sunlight and Moonlight&#8217; by Alla Kulkarni offered to Shri Mataji by San Francisco Bay Area Collective in 2008'
 date: 2008-01-01
-permalink: /folder/2008-AL-Sunlight-and-Moonlight
+permalink: /folder/2008-AK-Sunlight-and-Moonlight
 tags:
   - black @ Poetry
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ 2008
   - cornflowerblue @ TBD
   - maroon @ Moonlight

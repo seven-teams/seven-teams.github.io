@@ -1,10 +1,10 @@
 ---
-title: '2005-0000 Poem &#8216;Eternal Darshan&#8217; by Alla Levitan'
+title: '2005-0000 Poem &#8216;Eternal Darshan&#8217; by Alla Kulkarni'
 date: 2005-01-01
-permalink: /folder/2005-AL-Eternal-Darshan
+permalink: /folder/2005-AK-Eternal-Darshan
 tags:
   - black @ Poetry
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ 2005
   - cornflowerblue @ TBD
   - maroon @ Darshan

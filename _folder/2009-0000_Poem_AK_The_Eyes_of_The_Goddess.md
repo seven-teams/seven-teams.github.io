@@ -1,10 +1,10 @@
 ---
-title: '2009-0000 Poem &#8216;The Eyes of The Goddess&#8217; by Alla Levitan'
+title: '2009-0000 Poem &#8216;The Eyes of The Goddess&#8217; by Alla Kulkarni'
 date: 2009-01-01
-permalink: /folder/2009-AL-The-Eyes-of-The-Goddess
+permalink: /folder/2009-AK-The-Eyes-of-The-Goddess
 tags:
   - black @ Poetry
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ 2009
   - cornflowerblue @ TBD
   - green @ Story of Poem The Eyes of The Goddess

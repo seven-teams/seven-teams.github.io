@@ -1,10 +1,10 @@
 ---
-title: '1997-0000 Poem &#8216;To a Seeker&#8217; by Alla Levitan'
+title: '1997-0000 Poem &#8216;To a Seeker&#8217; by Alla Kulkarni'
 date: 1997-01-01
-permalink: /folder/1997-AL-To-a-Seeker
+permalink: /folder/1997-AK-To-a-Seeker
 tags:
   - black @ Poetry
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ 1997
   - cornflowerblue @ TBD
   - green @ Story of Poem To a Seeker

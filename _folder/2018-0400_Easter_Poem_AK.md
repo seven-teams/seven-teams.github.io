@@ -1,10 +1,10 @@
 ---
-title: '2018-0400 Easter Poem by Alla Levitan'
+title: '2018-0400 Easter Poem by Alla Kulkarni'
 date: 2018-04-01
-permalink: /folder/2018-04-AL-Easter-Poem
+permalink: /folder/2018-04-AK-Easter-Poem
 tags:
   - black @ Poetry
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ 2018
   - cornflowerblue @ TBD
   - green @ Story of Easter Poem

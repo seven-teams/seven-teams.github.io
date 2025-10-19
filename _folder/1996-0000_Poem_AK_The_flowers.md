@@ -1,10 +1,10 @@
 ---
-title: '1996-0000 Poem &#8216;The Flowers&#8217; by Alla Levitan'
+title: '1996-0000 Poem &#8216;The Flowers&#8217; by Alla Kulkarni'
 date: 1996-01-01
-permalink: /folder/1996-AL-The-Flowers
+permalink: /folder/1996-AK-The-Flowers
 tags:
   - black @ Poetry
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ 1996
   - cornflowerblue @ TBD
   - maroon @ Flowers

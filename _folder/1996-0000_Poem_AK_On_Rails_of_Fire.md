@@ -1,10 +1,10 @@
 ---
-title: '1996-0000 Poem &#8216;On Rails of Fire (INSPIRED BY THE LIFE OF LAL BAHADUR SHASTRI)&#8217; by Alla Levitan'
+title: '1996-0000 Poem &#8216;On Rails of Fire (INSPIRED BY THE LIFE OF LAL BAHADUR SHASTRI)&#8217; by Alla Kulkarni'
 date: 1996-01-01
-permalink: /folder/1996-AL-On-Rails-of-Fire
+permalink: /folder/1996-AK-On-Rails-of-Fire
 tags:
   - black @ Poetry
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ 1996
   - cornflowerblue @ TBD
   - green @ Story of Poem On Rails of Fire
@@ -24,7 +24,7 @@ Where joys and worries are asleep<br>
 And then in evening’s humble verse<br>
 You’ll hear the pulse of the Universe<br>
 The pulse of Love inside your being<br>
-The flow of Love the heart would bring
+The flow of Love the heart would bring<br>
 &emsp;&emsp;&emsp;Across the night,<br>
 &emsp;&emsp;&emsp;Across the day,<br>
 &emsp;&emsp;&emsp;Beyond the Time<br>

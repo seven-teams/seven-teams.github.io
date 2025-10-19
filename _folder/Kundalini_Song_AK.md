@@ -1,10 +1,10 @@
 ---
-title: 'Kundalini Song by Alla Levitan'
+title: 'Kundalini Song by Alla Kulkarni'
 date: 1999-01-01
-permalink: /folder/Kundalini-Song-AL
+permalink: /folder/Kundalini-Song-AK
 tags:
   - black @ Song
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ TBD
   - cornflowerblue @ TBD
   - maroon @ Kundalini

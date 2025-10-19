@@ -1,10 +1,10 @@
 ---
-title: '2010-0000 Poem &#8216;The Will of God&#8217; by Alla Levitan'
+title: '2010-0000 Poem &#8216;The Will of God&#8217; by Alla Kulkarni'
 date: 2010-01-01
-permalink: /folder/2010-AL-The-Will-of-God
+permalink: /folder/2010-AK-The-Will-of-God
 tags:
   - black @ Poetry
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ 2010
   - cornflowerblue @ TBD
   - green @ Story of Poem The Will of God

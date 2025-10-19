@@ -1,10 +1,10 @@
 ---
-title: '2005-0800 Poem &#8216;The Truth Is Young&#8217; by Alla Levitan'
+title: '2005-0800 Poem &#8216;The Truth Is Young&#8217; by Alla Kulkarni'
 date: 2005-08-01
-permalink: /folder/2005-08-AL-The-Truth-Is-Young
+permalink: /folder/2005-08-AK-The-Truth-Is-Young
 tags:
   - black @ Poetry
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ 2005
   - cornflowerblue @ TBD
   - maroon @ Is

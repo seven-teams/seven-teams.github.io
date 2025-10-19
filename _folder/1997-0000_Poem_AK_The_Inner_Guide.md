@@ -1,10 +1,10 @@
 ---
-title: '1997-0000 Poem &#8216;The Inner Guide&#8217; by Alla Levitan'
+title: '1997-0000 Poem &#8216;The Inner Guide&#8217; by Alla Kulkarni'
 date: 1997-01-01
-permalink: /folder/1997-AL-The-Inner-Guide
+permalink: /folder/1997-AK-The-Inner-Guide
 tags:
   - black @ Poetry
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ 1997
   - cornflowerblue @ TBD
   - green @ Story of Poem Inner Guide

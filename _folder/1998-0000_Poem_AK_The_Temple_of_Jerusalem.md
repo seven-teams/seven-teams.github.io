@@ -1,10 +1,10 @@
 ---
-title: '1998-0000 Poem &#8216;The Temple of Jerusalem (WHY FIGHT FOR SHRINES?)&#8217; by Alla Levitan'
+title: '1998-0000 Poem &#8216;The Temple of Jerusalem (WHY FIGHT FOR SHRINES?)&#8217; by Alla Kulkarni'
 date: 1998-01-01
-permalink: /folder/1998-AL-The-Temple-of-Jerusalem
+permalink: /folder/1998-AK-The-Temple-of-Jerusalem
 tags:
   - black @ Poetry
-  - blue @ Alla Levitan
+  - blue @ Alla Kulkarni
   - brown @ 1998
   - cornflowerblue @ TBD
   - maroon @ Jerusalem
