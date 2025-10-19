@@ -8,7 +8,7 @@ tags:
   - brown @ 1998
   - cornflowerblue @ TBD
   - maroon @ Call
-  - maroon @ Love  
+  - maroon @ Love
 ---
 
 <br>

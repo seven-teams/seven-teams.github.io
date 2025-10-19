@@ -8,7 +8,7 @@ tags:
   - brown @ 2005
   - cornflowerblue @ TBD
   - maroon @ Darshan
-  - maroon @ Eternal  
+  - maroon @ Eternal
 ---
 
 <br>

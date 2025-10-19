@@ -1,7 +1,7 @@
 ---
 title: '2005-0800 Poem &#8216;The Truth Is Young&#8217; by Alla Levitan'
 date: 2005-08-01
-permalink: /folder/2005-0800-AL-The-Truth-Is-Young
+permalink: /folder/2005-08-AL-The-Truth-Is-Young
 tags:
   - black @ Poetry
   - blue @ Alla Levitan
@@ -9,7 +9,7 @@ tags:
   - cornflowerblue @ TBD
   - maroon @ Is
   - maroon @ Truth
-  - maroon @ Young   
+  - maroon @ Young
 ---
 
 <br>

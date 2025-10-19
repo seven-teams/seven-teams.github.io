@@ -1,11 +1,11 @@
 ---
 title: '2004-0800 Poem &#8216;Hate and Love&#8217; by Alla Levitan'
 date: 2004-08-01
-permalink: /folder/2004-0800-AL-Hate-and-Love
+permalink: /folder/2004-08-AL-Hate-and-Love
 tags:
   - black @ Poetry
   - blue @ Alla Levitan
-  - brown @2004
+  - brown @ 2004
   - cornflowerblue @ TBD
   - maroon @ Hate
   - maroon @ Love  

@@ -8,7 +8,7 @@ tags:
   - brown @ 1997
   - cornflowerblue @ TBD
   - maroon @ Truth
-  - maroon @ Wish  
+  - maroon @ Wish
 ---
 
 <br>

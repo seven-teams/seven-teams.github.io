@@ -7,7 +7,7 @@ tags:
   - blue @ Alla Levitan
   - brown @ 1997
   - cornflowerblue @ TBD
-  - green @ Story of Poem To a Seeker 
+  - green @ Story of Poem To a Seeker
   - maroon @ Seeker
 ---
 
