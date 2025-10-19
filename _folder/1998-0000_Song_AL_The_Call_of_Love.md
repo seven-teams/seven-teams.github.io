@@ -1,11 +1,11 @@
 ---
-title: '1999-0709 Poem &#8216;The Call of Love&#8217; by Alla Levitan'
-date: 1999-10-05
-permalink: /folder/1999-1005-AL-The-Call-of-Love
+title: '1998-0000 Song &#8216;The Call of Love&#8217; by Alla Levitan'
+date: 1998-01-01
+permalink: /folder/1998-AL-The-Call-of-Love
 tags:
   - black @ Song
   - blue @ Alla Levitan
-  - brown @ 1999
+  - brown @ 1998
   - cornflowerblue @ TBD
   - maroon @ Call
   - maroon @ Love  
@@ -68,4 +68,5 @@ It is thine, this gift of Divine!<br>
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1999-1005 Author's Email sent out on Sahaja Yoga News on 1999-1019.</list-item>
+  <list-item color="Lavender" width="280"><b>S2. </b> 2025-1018 Author's email to CCT.</list-item>    
 </wave-list>
