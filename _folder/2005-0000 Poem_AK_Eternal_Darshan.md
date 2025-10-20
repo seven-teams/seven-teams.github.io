@@ -17,7 +17,7 @@ tags:
 <b>(To Shri Mataji, the Divine Guru)</b><br>
 <br>
 Through many lives<br>
-&emsp; whatever the mind embraces<br>
+&emsp;&ensp; whatever the mind embraces<br>
 It fades away, it leaves without a trace,<br>
 <br>
 And we forgot all people, names and places,<br>

@@ -7,7 +7,7 @@ tags:
   - blue @ Dr. Rustom Burjorjee
   - brown @ 1984
   - cornflowerblue @ TBD
-  - deeppink @ 1984-0100 and 0200 Nirmala Yoga, Page 22
+  - deeppink @ 1984-0100 and 0200 Nirmala Yoga
   - maroon @ Mother
 ---
 

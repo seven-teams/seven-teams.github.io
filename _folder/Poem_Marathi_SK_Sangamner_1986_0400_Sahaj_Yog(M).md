@@ -4,9 +4,9 @@ date: 1986-03-01
 permalink: /folder/Poem-SK-1986-0400-SY(M)
 tags:
   - black @ Poetry
-  - blue @ Shekhar Kharde, Sangamner (Class VIII)
+  - blue @ Shekhar Kharde
   - brown @ 1986
-  - cornflowerblue @ Sangamner
+  - cornflowerblue @ Sangamner (Class VIII)
   - deeppink @ 1986-0400 Sahaj Yog (Marathi)
   - maroon @ Bless
   - maroon @ Blessings

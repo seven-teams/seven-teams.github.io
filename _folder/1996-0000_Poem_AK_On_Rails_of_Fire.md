@@ -25,12 +25,12 @@ And then in evening’s humble verse<br>
 You’ll hear the pulse of the Universe<br>
 The pulse of Love inside your being<br>
 The flow of Love the heart would bring<br>
-&emsp;&emsp;&emsp;Across the night,<br>
-&emsp;&emsp;&emsp;Across the day,<br>
-&emsp;&emsp;&emsp;Beyond the Time<br>
-&emsp;&emsp;&emsp;That flies away,<br>
-&emsp;&emsp;&emsp;And all the wars and troubles you cross<br>
-&emsp;&emsp;&emsp;To pour Love on the Universe. . .<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Across the night,<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Across the day,<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Beyond the Time<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;That flies away,<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And all the wars and troubles you cross<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;To pour Love on the Universe. . .<br>
 <br> 
 The night is dark<br>
 When only Star of hatred<br>
@@ -41,12 +41,12 @@ Let your Spirit shine across<br>
 The battlefields of the Universe:<br>
 There is no force that is stronger than Love<br>
 All the weapons melt in the Fire of Love . . .<br>
-&emsp;&emsp;&emsp;Across the night,<br>
-&emsp;&emsp;&emsp;Across the day,<br>
-&emsp;&emsp;&emsp;Beyond the Time<br>
-&emsp;&emsp;&emsp;That flies away,<br>
-&emsp;&emsp;&emsp;And all the wars and troubles you cross<br>
-&emsp;&emsp;&emsp;To bring Peace to the Universe.<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Across the night,<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Across the day,<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Beyond the Time<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;That flies away,<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And all the wars and troubles you cross<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;To bring Peace to the Universe.<br>
 <br> 
 The winds of hatred, the snow and rain<br>
 They cannot stop or slow your Train<br>
@@ -56,13 +56,13 @@ And if you want to help the world<br>
 Become a flute in the hands of God<br>
 And let the melody of Grace<br>
 Just flow freely through the space<br>
-&emsp;&emsp;&emsp;Across the night,<br>
-&emsp;&emsp;&emsp;Across the day,<br>
-&emsp;&emsp;&emsp;Beyond the Time<br>
-&emsp;&emsp;&emsp;That flies away,<br>
-&emsp;&emsp;&emsp;Beyond empires that fall and rise<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Across the night,<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Across the day,<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Beyond the Time<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;That flies away,<br>
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Beyond empires that fall and rise<br>
 <br>
-&emsp;&emsp;&emsp;TO TURN THE EARTH INTO PARADISE . . .
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;TO TURN THE EARTH INTO PARADISE . . .
 </p>
 
 <br>
