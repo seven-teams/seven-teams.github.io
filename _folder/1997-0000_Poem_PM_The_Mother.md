@@ -3,7 +3,7 @@ title: '1997-0000 Poem &#8216;The Mother&#8217; by Pragya Pradhan, ISPS Dharamsh
 date: 1997-12-01
 permalink: /folder/1997-98-PM-The-Mother
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Pragya Mahajan
   - brown @ 1997
   - cornflowerblue @ ISPS Dharamshala, Class 10

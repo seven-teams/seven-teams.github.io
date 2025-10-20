@@ -3,7 +3,7 @@ title: '1997-0000 Poem &#8216;The Circus&#8217; by Nirmal Frankcombe, ISPS Dhara
 date: 1997-12-01
 permalink: /folder/1997-98-NF-The-Circus
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Nirmal Frankcombe
   - brown @ 1997
   - cornflowerblue @ ISPS Dharamshala, Class 5

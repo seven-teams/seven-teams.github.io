@@ -3,7 +3,7 @@ title: '1997-0000 Poem &#8216;Children&#8217;s Day&#8217; by Saptashri Tollis, I
 date: 1997-12-01
 permalink: /folder/1997-98-ST-Childrens-Day
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Saptashri Tollis
   - brown @ 1997
   - cornflowerblue @ ISPS Dharamshala, Class 8

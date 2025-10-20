@@ -3,7 +3,7 @@ title: '1997-0000 Poem &#8216;A Tree&#8217; by Madhuri Pearce, ISPS Dharamshala,
 date: 1997-12-01
 permalink: /folder/1997-98-MP-A-Tree
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Saptashri Tollis
   - brown @ 1997
   - cornflowerblue @ ISPS Dharamshala, Class 8

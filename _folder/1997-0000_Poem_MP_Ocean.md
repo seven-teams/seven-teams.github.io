@@ -3,7 +3,7 @@ title: '1997-0000 Poem &#8216;Ocean&#8217; by Minakshi Pearce, ISPS Dharamshala,
 date: 1997-12-01
 permalink: /folder/1997-98-MP-Ocean
 tags:
-  - black @ Poem
+  - black @ Poetry
   - blue @ Minakshi Pearce
   - brown @ 1997
   - cornflowerblue @ ISPS Dharamshala, Class 9
