@@ -1,5 +1,5 @@
 ---
-title: '1979-0000 Poem in Russian &#8216;The Quicksands&#8217; by Alla Levitan (Kulkarni), Russia'
+title: '1979-0000 Poem &#8216;The Quicksands (translation from Russian original)&#8217; by Alla Kulkarni, Russia'
 date: 1979-01-01
 permalink: /folder/1979-AK-The-Quicksands
 tags:
