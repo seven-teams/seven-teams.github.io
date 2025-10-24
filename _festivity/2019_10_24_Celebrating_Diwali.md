@@ -32,7 +32,8 @@ Victory, Victory to You, the dear consort of Madhusūdana.<br>
 </p>
 
 <p>
-<font color="DarkRed">"The significance of Diwālī is spread out in about five days.
+<font color="DarkRed">"The significance of Diwālī is spread out in about five days.<br>
+......<br>
 And they are all together somehow, these five days are all put together. So they have different aspects, but in every aspect there’s one common point is that the Goddess plays the main role."</font><br>
 <font size="+0"><b>1992-1025 Diwālī Pūjā, Sala Olimpia (Olympia Sports Hall), Timişoara, Romania</b></font>
 </p>
