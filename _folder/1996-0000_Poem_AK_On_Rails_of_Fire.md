@@ -76,7 +76,7 @@ Just flow freely through the space<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2025-1018 Author's email to to CCT:</b> "I presented this poem to Shri Mataji in Calcutta [during the 1996-0414 Easter Pūjā] and Shri Mataji said these words had very important meaning:<br>
+  <list-item color="BlanchedAlmond"  width="280"><b>2025-1018 Author's email to to CCT:</b> "I presented this poem to Shri Mataji in Calcutta [right after the 1996-0414 Easter Pūjā] and Shri Mataji said these words had very important meaning:<br>
 "The night is dark<br>
 When only Star of hatred<br>
 Lies on its Altar<br>

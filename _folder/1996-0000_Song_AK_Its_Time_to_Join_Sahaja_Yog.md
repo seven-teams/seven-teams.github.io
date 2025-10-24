@@ -1,5 +1,5 @@
 ---
-title: '1996-0000 Song &#8216;It’s Time to Join Sahaja Yog (song for Satya Marg&#92;True Way Indian Party Campaign 1996)&#8217; by Alla Kulkarni'
+title: '1996-0000 Song &#8216;It’s Time to Join Sahaja Yog (song for Satya Marg&#47;True Way Indian Party Campaign 1996)&#8217; by Alla Kulkarni'
 date: 1996-01-01
 permalink: /folder/1996-AK-Its-Time-to-Join-Sahaja-Yog
 tags:

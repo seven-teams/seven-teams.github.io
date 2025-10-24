@@ -30,6 +30,7 @@ God's Grace is beyond the creed and race,<br>
 God's Love wants the whole World embrace:<br>
 On your palms feel the cool breeze:<br>
 It is thine, this gift of Divine!<br>
+<br>
 <b>Repeat:</b><br>
 Believe your heart, believe your soul -<br>
 The Truth is one, the World is whole!<br>
@@ -54,6 +55,7 @@ God's Grace is beyond the creed and race,<br>
 God's Love wants the whole World embrace:<br>
 On your palms feel the cool breeze:<br>
 It is thine, this gift of Divine!<br>
+<br>
 <b>Repeat:</b><br>
 Believe your heart, believe your soul -<br>
 The Truth is one, the World is whole!<br>
