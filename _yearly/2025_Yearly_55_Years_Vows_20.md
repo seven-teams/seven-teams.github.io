@@ -9,7 +9,7 @@ tags:
 <br>
 <div style="text-align: center"><img src="https://pub-b6058b8fc5314638989cdd5e49178be6.r2.dev/2025_55_Years.png" /></div>
 
-<div style="text-align: center"><img src="" /></div>
+<div style="text-align: center"><img src="https://pub-bcc3cbe9b1e94ba1ac28915f7a3900fa.r2.dev/1977-0000_At_Home_2_Parklands_Ice_House_Wood_Hurst_Green_Oxted_Surrey_UK_(other_years_76_75_74)_01_(Asha_and_Peter_Brownscombe_Collection).png" /></div>
 
 <br>
 <p style="color:DarkGreen; text-align:center">
