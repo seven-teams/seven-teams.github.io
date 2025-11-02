@@ -101,11 +101,49 @@ But when Sahaja Yoga comes, he becomes more committed to his wife, I have seen t
 <div class="para-divider"></div>
 
 <p>
-<b>Version 1:</b><br> 
-<font color="DarkRed">"[You] promise today that, 'By next Mahāśhivarātri there will be a big celebration, He will be praised.' "<br>
+<font color="DarkRed">"I got your very loving letter. You and Rāja Kuṃwar [Raul] did an amazing work. Not only did you put in your mind and body but also your life for the work. Śharayū [Gaḍakarī] is also an amazing girl. I am not sure what shall I say to you all. Forgive me if you felt insulted at my house. But how come I troubled you this much, I am unable to understand. Even sākṣhāt Chaṇḍikā would not have done anything this bad. Sometimes I feel so bad that I have troubled My loving daughters so much. Only I get appreciated as a Mother, but who will look after you people? Until the last moment you all were peacefully busy with the work. I couldn't find even a little bit of time to hug you and ask you about your well-being. We found the land which is a gift from you all to Sahaja Yoga. No matter how skilled the captain is, the boat should be strong. In this work we witnessed the power of the Virāṭa. From this one can conclude that if Sahaja Yogis decide to do something, nothing is impossible. "</font><br>
+<font size="+0"><b>1975-0508 Letter to Nirmalā (sister of Rājabhāī Modi) (Marathi), 2, Parklands, Ice House Wood, Hurst Green, Oxted, Surrey, UK}</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">
+<b>Version 1:</b><br>
+"The one who has to achieve, the one who has to get should individually come, not as a group, individually. And when individually you will get inside it, then you will become like a drop when becomes [the] ocean.<br>
+Otherwise you will carry the dirt of everyone along with you.<br>
+You must decide that, `Except Sahaja Yoga I will not talk anything else with anyone, no discussions, arguments, etc.'<br>
+You are so many! I never got so many people in any Incarnation as many as you all are. So many!<br>
+And with their help the boat will go across.<br>
+So, it's My prayer and request to you, that if really I have loved you and have given love to you, then when the fruit is to come then you won't have to do any stupidity, of any kind. You must get maturity. Don't act childish.<br>
+And those who talk childish, you must say, `Keep quiet,' and don't listen to them.<br>
+Talk like matured elders. You have become matured fruits. Be silent within and enjoy!<br>
+Break all illusions and differences and the blood of life will start flowing within you and will fill you with joy, peace and bliss!"<br>
 <br>
 <b>Version 2:</b><br>
-"You must promise Me today that the next Śhivarātri will be a huge celebration. He will be praised."</font><br>
+"Now one drop becomes an ocean. If you don't come that way, then you will carry everyone's dirt or problems.<br>
+In that there is no discussion, talk. `I will not talk other than Sahaja Yoga.' That you decide.<br>
+You all are very much in a big group. I did not get so many people in any lifetime. As you are in a big number, with your help Boat will be sailed.<br>
+So I have a request: `If I have loved you, then there should be no mistake in time to sow the fruit.'<br>
+Maturity has to come. To become bighearted, don't act like a child. Keep quiet. If someone talks childish, don't listen to them. Talk like elderly people. They become fruit.<br>
+You keep the peace, stay calm, and enjoy. Break all conditionings. Within you live blood will flow with joy and happiness."</font><br>
+<font size="+0"><b>1975-1221 Talk to Sahaja Yogis (Hindi), Apanī aur Dṛuṣhṭi Rakhe (Keep the Attention on Yourself), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<b>Version 1:</b><br> 
+<font color="DarkRed">"[You] promise today that, 'By next Mahāśhivarātri there will be a big celebration, He will be praised.'<br>
+......<br> 
+I do not force on you, but try to do it. You should determine now that you will not do fast at all on Mahāśhivarātri and see how tremendously vibrations come [flow].<br>
+And ask for forgiveness."<br>
+<br>
+<b>Version 2:</b><br>
+"You must promise Me today that the next Śhivarātri will be a huge celebration. He will be praised.<br>
+......<br>
+I can't force you, but you should try it out. You should decide that at the next Mahāśhivarātri, we will not fast and see how strongly the vibrations flow.<br>
+And ask for forgiveness."</font><br>
 <font size="+0"><b>1976-0229 Śhivarātri Pūjā (Hindi), Utpatti -- Ādi Śhakti aur Śhiva ka Swarūp (Genesis -- Ādi Śhakti and Śhiva in Form), Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -121,6 +159,17 @@ Even then you are misguided. You are stooping so low for all the world's money a
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"Now these are excellent fruits grown in Kali Yuga. You only decide.<br>
+Now Sahaja Yoga.<br>
+In this situation had I put you in spirituality, then would anyone of you stayed back? Think about it. In that people hit you on the head by tongs, then they hang you upside down, then they smoke you up from below. And if you survive this ordeal, this is the state? I do not wish this.<br>
+......<br>
+Unless everyone starts questioning this way, this movement will not commence. In your home, to people in your neighborhood you must say clearly, `Listen, we are your relatives and we will not let you get into filth. We will not let you be destroyed.' Each individual must decide and tell others because you have experience and you are knowledgeable."</font><br>
+<font size="+0"><b>1976-0527 Talk to Sahaja Yogis (Marathi), Sahaja Yoga Baddal Sarvānna Sangaychee Hi Sahajayogyānchi Jababdari Āhe (Responsibility of Sahaja Yoga), Dadar, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b></b></font>
 </p>
@@ -128,7 +177,10 @@ Even then you are misguided. You are stooping so low for all the world's money a
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"I am with you at every step, at every place. Everywhere. Wherever you are, at whichever place you are, I am with you, completely, in person, by My Spirit and by My word completely. This is My promise to you."</font><br>
+<font color="DarkRed">"Nobody should think that he is left with very few years in life and it is difficult to achieve it now. You shall not die. When you die you are then reborn and this goes on. The why not come out of this cycle [of births and deaths] in a year's time and if you wish you can do that in a week's time.<br>
+You only have to decide once, just once. You can be immensely benefited by Sahaja Yoga just by deciding once like this. You should be surrendered completely. It is not necessary that you touch My Feet but should be surrendered to Me from your heart. Some people touch My Feet but are not surrendered in their heart. One has to be completely surrendered to Me from within. If you are completely surrendered from within then your Kuṇḍalinī remains established on your Ātmā Tattwa, just like the flame of a lamp, without any flickering. But one must remain surrendered for that. In the surrendered state one experiences joy, bliss and God-realization.<br>
+......<br>
+I am with you at every step, at every place. Everywhere. Wherever you are, at whichever place you are, I am with you, completely, in person, by My Spirit and by My word completely. This is My promise to you."</font><br>
 <font size="+0"><b>1976-0529 Talk to Sahaja Yogis (Hindi), Dhyān Kaise Karein (How to Meditate), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -173,6 +225,16 @@ Thirdly, you will not criticize Sahaj Yog, that is God's own methods, at any cos
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"In the chakra it is decided: what is to be stored there, what is to be done. All the decisions take place in the chakras.<br>
+Now, who takes the decisions? Is the Deity there.<br>
+......<br>
+Only thing you people, all of you, should decide about yourself, to make yourself strong [<font color="orange">unclear</font> as I said]. Each one of you. Don't depend on others. Yourself. On no one. And then it will work out."</font><br>
+<font size="+0"><b>1977-1030 Talk to Sahaja Yogis, Mind and It's Relationship to Kuṇḍalinī, Āśhram, 234A Regent's Park Road, Finchley, London, UK (date and location to be confirmed)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "So, that Anna Mahārāj had come somewhere so I said that, "If he is seen somewhere call Me also." He was told that, "Mātājī is coming."<br>
 I went. He was smoking a cigarette in front of Me and was talking in his Hyderabadi language something with these four or five women. Very comfortably he is [was] sitting. I went. I said, "How are you?" He said, "My gurujī left his throne to meet You in Bombay [Mumbai]." I said, "Why not? After all, I'm his Mother and he came to meet Me. Do you have any objection?" He said, "He should not have done that. He is this and he is that. He is gone case and so forth." I said, "Now see My way. He just broke your legs." So, I put kumkum to him and then as I was leaving I asked him to put kumkum to My forehead. Just as he put on My Āgñyā chakra I just pulled him inside. He just started shaking, "Mother, Mother, save me! Leave me!" <font color="DarkRed">I said, "First you tell Me that you will not criticize your guru." "No, I will not criticize my guru. Leave me!" "And secondly, you drop your habit of smoking." "Yes. Leave me! Leave me!" I said, "Thirdly you should leave the company of women and go and sit in a jungle." When he promised all three things only then I left his hands. Else he was almost fully sucked and he couldn't move his fingers from there.</font><br>
 That drama was seen by all of them for a whole five minutes.<br>
@@ -182,13 +244,6 @@ Then I came to know that he was asking people to give him gold rings, of one and
 By God's blessing, he had a theft at his place and all his gold was stolen.<br>
 So, he said, "This is Mother's work." I said, "Mine? But I did not get that gold‽"<br>
 Then what do you do? If you cannot get the work done simply then you have to turn to diplomacy."<br>
-<font size="+0"><b>1977-1030 Talk to Sahaja Yogis, Mind and It's Relationship to Kuṇḍalinī, Āśhram, 234A Regent's Park Road, Finchley, London, UK (date and location to be confirmed)</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="DarkRed">""</font><br>
 <font size="+0"><b>1978-0201 Public Program (Hindi), Brahma kā Gyān (Knowledge of Brahma) or Mūlādhāra to Viśhuddhi, Āgñyā, and Sahasrāra, 9 Raisina Road, New Delhi, India</b></font>
 </p>
 
