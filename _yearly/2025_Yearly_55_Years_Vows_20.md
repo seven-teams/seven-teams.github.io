@@ -20,7 +20,7 @@ tags:
 "In the chakra it is decided: what is to be stored there, what is to be done. All the decisions take place in the chakras.<br>
 Now, who takes the decisions? Is the Deity there.<br>
 ......<br>
-Only thing you people, all of you, should decide about yourself, to make yourself strong [<font color="orange">unclear</font> as I said]. Each one of you. Don't depend on others. Yourself. On no one. And then it will work out."<br>
+Only thing you people, all of you, should decide about yourself to make yourself strong[<font color="orange">unclear</font> the rest/best]. Each one of you. Don't depend on others! Yourself. On no [one]. And then it will work out."<br>
 <font color="blue"><b>1977-1030 Talk to Sahaja Yogis, Mind and It's Relationship to Kuṇḍalinī, Āśhram, 234A Regent's Park Road, Finchley, London, UK (date and location to be confirmed)</b></font><br>
 </p>
 
