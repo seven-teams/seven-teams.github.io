@@ -31,16 +31,16 @@ tags:
 </p>
 
 <p>
-Salutations to you, O Shri Nirmal Mata<br>
-Give us your blessings<br>
-O Shri Nirmal Dharini. Chaitanya Bahini<br>
-Light a pure lamp. May darkness be removed<br>
-Sing praises with your mouth. Sing every day.<br>
-Salutations to you, O Shri Nirmal Mata ...<br>
-O Shri Nirmal Buddhi. Matthi Vilas<br>
-O Shri Nirmal Aikya Bhavanes<br>
-Message of happiness and peace. The hope of the mind<br>
-Salutations to you, O Shri Nirmal Mata ....
+Salutations to you, O Nirmal Mata<br>
+Give us Your blessings<br>
+The One who is the Embodiment of Purity, Param Chaitanya flows through You<br>
+May the Nirmal lamp be lit, Let the darkness completely disappear.<br>
+We sing the song of Your praise everyday<br>
+Salutations to You, O Nirmal Mata ...<br>
+May Nirmal Intelligence enlighten the wisdom<br>
+With the sense of Nirmal oneness<br>
+May the message of joy and peace, satisfy the desire of the heart<br>
+Salutations to you, O Nirmal Mata ....
 </p>
 
 <br>
