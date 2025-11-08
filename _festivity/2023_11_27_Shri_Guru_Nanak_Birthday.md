@@ -58,8 +58,7 @@ He never talked of rituals."</font><br>
 </p>
 
 <p>
-<font color="DarkGreen">"You have to educate yourself spiritually. 
-
+<font color="DarkGreen">"You have to educate yourself spiritually.<br>
 And Guru Nāṇaka prophesized, just like William Blake, that, "The Men of God are going to come during Kali Yuga, and there will be many Prophets who will be transforming Prophets, who will be transforming people into Prophet State," He had prophesized.<br>
 They have all prophesized about you! Now you have to prophesize about those who are going to be Prophets.<br>
 ......<br>

@@ -43,7 +43,7 @@ To love myself, forgive myself and search for joy<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="285"><b> S1. Book 'Realizations', Pages 2 and 3.</b></list-item>
+  <list-item color="BlanchedAlmond"  width="285"><b> S1. Book 'Realizations', Chapter One (Meditation on the Nature Within), Pages 2 and 3.</b></list-item>
 </wave-list>
 
 <br>

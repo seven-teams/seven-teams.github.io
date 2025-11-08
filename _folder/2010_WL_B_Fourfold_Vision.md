@@ -46,7 +46,7 @@ with disregard to wisdom, disregard to an awakened mind
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="285"><b> S1. Book 'Realizations', Pages 4 and 5.</b></list-item>
+  <list-item color="BlanchedAlmond"  width="285"><b> S1. Book 'Realizations', Chapter One (Meditation on the Nature Within), Pages 4 and 5.</b></list-item>
 </wave-list>
 
 <br>

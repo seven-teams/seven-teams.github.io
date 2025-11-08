@@ -33,7 +33,7 @@ I am complete
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="285"><b> S1. Book 'Realizations', Pages 6 and 7.</b></list-item>
+  <list-item color="BlanchedAlmond"  width="285"><b> S1. Book 'Realizations', Chapter One (Meditation on the Nature Within), Pages 6 and 7.</b></list-item>
 </wave-list>
 
 <br>
