@@ -12,6 +12,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 8 Photos of the special event <font color="Crimson"><b>1995-0413 Talk to Sahaja Yogis, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 8 high resolutions from the Named Collections.<br>
 The direct link to the 22 Photos of the event [including two other lower quality replaced today] in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Kolkata-Collection/1995"> Collection 1995</a>.<br>
+The event has as well 8 photos Moments of Joy (uploaded today) which can be seen in the smallest gallery at the link <a href="https://eternalmoments.smugmug.com/Collections/Kolkata-Collection/Moments-of-Joy-2001/"> Collection Moments of Joy 2001</a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
