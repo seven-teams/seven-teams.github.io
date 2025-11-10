@@ -554,8 +554,53 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 </p>
 
 <p>
-<b>6.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>6.15 Translation</b><br>
+<font color="DarkGreen">[Hemalekha:] "Moreover, one who entertains an earnest seeker with hollow or false words, will not prosper in this world nor advance in the next."</font>
+</p>
+
+<p>
+<b>6.18-19 Translation</b><br>
+<font color="DarkGreen">...... Is not an intelligent man accustomed to judge big things in the world by verifying a few details in them? ......</font>
+</p>
+
+<p>
+<b>6.22 Translation</b><br>
+<font color="DarkGreen">"ListeN to me, King, with an unsophisticated and clear intellect. Mistrust in a well wisher's words is the surest way to ruin.'</font>
+</p>
+
+<p>
+<b>6.23 Translation</b><br>
+<font color="DarkGreen">"Faith is like a fond mother who can never fail to save her trusting son from dangerous situations. ......"</font>
+</p>
+
+<p>
+<b>6.25 Translation</b><br>
+<font color="DarkGreen">"Confidence holds the world and nourishes all. ......"</font>
+</p>
+
+<p>
+<b>6.28 Translation</b><br>
+<font color="DarkGreen">"How can humanity exist without universal confidence? ......"</font>
+</p>
+
+<p>
+<b>6.34-35 Translation</b><br>
+<font color="DarkGreen">[Hemachuda:] "...... Therefore, faith can only be put in the worthy and not in the unworthy."</font>
+</p>
+
+<p>
+<b>6.41 Translation</b><br>
+<font color="DarkGreen">[Hemalekha:] "...... Therefore the life moves by faith only."</font>
+</p>
+
+<p>
+<b>6.42-45 Translation</b><br>
+<font color="DarkGreen">"...... People will not gain anything, either during their life-time or after death, by endless discussions or blind acceptance. Of the two, however, there is hope for the latter and there is none for the former."</font>
+</p>
+
+<p>
+<b>6.57-60 Translation</b><br>
+<font color="DarkGreen">"They got lost in the maze of their philosophy. The discriminating ones among the hearers placed Soonga's argumentsbefore their master and were enlightened by him. ....... Therefore, beware of arid polemics parading as logic. Use it the manner the holy books have done. That way lies the salvation."</font>
 </p>
 
 <div class="para-divider"></div>
@@ -563,6 +608,11 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 <p style="text-align:center;">
 <b>Chapter 7</b><br>
 <font color="DarkGreen"><b></b></font>
+</p>
+
+<p>
+<b>7.1 Translation</b><br>
+<font color="DarkGreen"></font>
 </p>
 
 <div class="para-divider"></div>
