@@ -600,7 +600,7 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 
 <p>
 <b>6.57-60 Translation</b><br>
-<font color="DarkGreen">"They got lost in the maze of their philosophy. The discriminating ones among the hearers placed Soonga's argumentsbefore their master and were enlightened by him. ....... Therefore, beware of arid polemics parading as logic. Use it the manner the holy books have done. That way lies the salvation."</font>
+<font color="DarkGreen">"They got lost in the maze of their philosophy. The discriminating ones among the hearers placed Soonga's arguments before their master and were enlightened by him. ....... Therefore, beware of arid polemics parading as logic. Use it the manner the holy books have done. That way lies the salvation."</font>
 </p>
 
 <div class="para-divider"></div>
@@ -611,8 +611,127 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 </p>
 
 <p>
-<b>7.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>7.2-5 Translation</b><br>
+<font color="DarkGreen">[Hemalekha:] "...... What is known as the mind is, after all, always like a restless monkey. ...... Hearing with a distracted mind is as good as not hearing, ......"</font>
+</p>
+
+<p>
+<b>7.7 Translation</b><br>
+<font color="DarkGreen">"...... man profits according to the zeal accompanying his efforts."</font>
+</p>
+
+<p>
+<b>7.9 Translation</b><br>
+<font color="DarkGreen">"Discriminating zeal ......"</font>
+</p>
+
+<p>
+<b>7.12 Translation</b><br>
+<font color="DarkGreen">" ......; will sustained effort ever fail in its purpose?"</font>
+</p>
+
+<p>
+<b>7.16 Translation</b><br>
+<font color="DarkGreen">"Guided by proper deliberation, accompanied by zeal and engaged in individual efforts, one must take one's own unfailing way to emancipation."</font>
+</p>
+
+<p>
+<b>7.17 Translation</b><br>
+<font color="DarkGreen">"there are said to be many ways to that end. Choose the one among them which is the surest."</font>
+</p>
+
+<p>
+<b>7.19 Translation</b><br>
+<font color="DarkGreen">"That is best which does not again yoke you to suffering. ......"</font>
+</p>
+
+<p>
+<b>7.24 Translation</b><br>
+<font color="DarkGreen">"The Master Wizard is Maheśhwara. He being the creator of the universe, all are deluded by Him."</font>
+</p>
+
+<p>
+<b>7.25-30 Translation</b><br>
+<font color="DarkGreen">"...... man can learn to overcome the universal <i>Maya</i> (illusion) if only the Lord is gracious to them. They cam never escape from Maya, without His grace."</font>
+</p>
+
+<p>
+<b>7.31 Translation</b><br>
+<font color="DarkGreen">" He with whom God is graciously pleased is endowed with <i>Mahavidya</i>, the supreme knowledge ......"</font>
+</p>
+
+<p>
+<b>7.33 Translation</b><br>
+<font color="DarkGreen">"Therefore worship the Primal Cause of the universe as the starting point; be devoted to Hi; He will soon enable you to succeed in your attempts to destroy the illusion."</font>
+</p>
+
+<p>
+<b>7.35 Translation</b><br>
+<font color="DarkGreen">" ...... investigate the cause from the visible effect and be guided by the holy scriptures; ...... Scriptures also say that the Primal Cause is an intelligent principle, and we know that cation always originates from an intelligent source alone.""</font>
+</p>
+
+<p>
+<b>7.38-40 Translation</b><br>
+<font color="DarkGreen">"...... because action implies intelligence ......"</font>
+</p>
+
+<p>
+<b>7.41-43 Translation</b><br>
+<font color="DarkGreen">"The world is thus traced to its Creator ......, His power must be immeasurable ...... Such a one must also be able to protect and elevate His own creatures. Surrender therefore universally unto Him."</font>
+</p>
+
+<p>
+<b>7.44-50 Translation</b><br>
+<font color="DarkGreen">"...... a chief, if pleased, even though his means are limited, always ensures the prospects of the man who is sincerely devoted to him.<br>
+If the Lord of the world be pleased, will anything be withheld from the devotee? ...... He is the only Solace of the devotee ...... Therefore this Lord of mercy is well established and also rightly famed.<br>
+Surrender yourself directly and unhesitatingly to Him. He will ordain the best for you and you need not ask for it."</font>
+</p>
+
+<p>
+<b>7.51-59 Translation</b><br>
+<font color="DarkGreen">"...... (3) loving dedication of oneself. The last one is the best and surest in its results.<br>
+......; whereas for the selfless devotee, God, the Lord and the sole Refuge, is all in all and takes care of him without reference to the devotee's predestiny or His own ordained laws. He compensates the devotee quickly, and that is because He is supreme and self-constant without depending on anything else.""</font>
+</p>
+
+<p>
+<b>7.60-61 Translation</b><br>
+<font color="DarkGreen">"Predestiny or divine will is powerless before Him. Every one knows how He set aside predestiny and divine laws in the case of His famous devotee Markandeya. ......"</font>
+</p>
+
+<p>
+<b>7.62 Translation</b><br>
+<font color="DarkGreen">"The current notion that one cannot escape one's destiny is applicable only to weak-minded and senseless wastrels."</font>
+</p>
+
+<p>
+<b>7.64-66 Translation</b><br>
+<font color="DarkGreen">"...... His purpose is always sure and cannot be prevented. Its edge can, however, be blunted by devotion to Him ......"</font>
+</p>
+
+<p>
+<b>7.67 Translation</b><br>
+<font color="DarkGreen">"...... He will spontaneously take you to the Highest State."</font>
+</p>
+
+<p>
+<b>7.68 Translation</b><br>
+<font color="DarkGreen">"This is the first ring in the ladder to the pedestal of Bliss. Nothing else is worth while."</font>
+</p>
+
+<p>
+<b>7.71-72 Translation</b><br>
+<font color="DarkGreen">[Hemachuda:] "Some say He is Viṣhṇu, others Śhiva, Gaṇeśha, the Sun, Narasiṃha or similar other avatars; others say Buddha or Arhat; still others Vasudeva, the life-principle, the Moon, Fire, <i>Karma</i>, Nature, primordial nature and what not."</font>
+</p>
+
+<p>
+<b>7.6-78 Translation</b><br>
+<font color="DarkGreen">[Hemalekha:] "God is All-Seer who generates, permeates, sustains and destroys the universe. ...... nor any other exclusively."</font>
+</p>
+
+<p>
+<b>7.79-93 Translation</b><br>
+<font color="DarkGreen">"...... if devotees worship and contemplate Him with a body according to their own inclinations, He shows them Grace, assuming such a body. For He is unique ND FULFILS THE DESIRES OF HIS DEVOTEES.<BR>
+...... He is pure intelligence, and His consciousness is absolute and transcendental. Such is the consciousness-intelligence in purity, Absolute Being, the One Queen, Parameśhwarī (Transcendental Goddess), overwhelming the three states and hence called <i>Tripura</i>. Though She is undivided whole the universe manifests in all its variety in Her, ...... be wise, and worship the one pure, unblemished Transcendence."</font>
 </p>
 
 <div class="para-divider"></div>
@@ -623,6 +742,11 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<b>8.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
 
 <p style="text-align:center;">
 <b>Chapter 9</b><br>
