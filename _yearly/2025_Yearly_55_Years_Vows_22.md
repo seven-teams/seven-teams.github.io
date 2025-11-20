@@ -19,13 +19,13 @@ tags:
 <p>
 "So today, you have to promise that you will never tell lies, whatever may be the consequences.<br>
 ......<br>
-Today, make a decision that, `We will never be dishonest hereafter. And we will not remain in the company of dishonest people and if any one is dishonest we will expose him.'<br>
+Today, make a decision that, 'We will never be dishonest hereafter. And we will not remain in the company of dishonest people and if any one is dishonest we will expose him.'<br>
 ......<br>
 I want the Sahaja Yogis to promise that neither will they lie nor will they support the people who lie.<br>
 ......<br>
-Today all of you decide in your mind and take a resolution -- it is a very auspicious day today, very auspicious day -- that, `We won't do any dishonest deed nor will we believe in dishonesty.'<br>
+Today all of you decide in your mind and take a resolution -- it is a very auspicious day today, very auspicious day -- that, 'We won't do any dishonest deed nor will we believe in dishonesty.'<br>
 ......<br>
-India's image is very much tarnished, hence take a vow today that, `From now onwards we shall not be dishonest and if there are any dishonest people we shall all get after him.'<br>
+India's image is very much tarnished, hence take a vow today that, 'From now onwards we shall not be dishonest and if there are any dishonest people we shall all get after him.'<br>
 ......<br>
 So we should take a vow that we will not be dishonest and we would oppose the people who are dishonest."<br>
 <font color="blue"><b>2007-1110 Talk to Sahaja Yogis (Hindi) (Diwālī Pāḍavā Day), Honesty and Patriotism, Noida, Uttar Pradesh, India</b></font><br>
