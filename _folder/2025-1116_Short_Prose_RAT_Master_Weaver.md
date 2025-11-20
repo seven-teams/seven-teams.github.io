@@ -1,12 +1,12 @@
 ---
-title: '2025-1118 Short Prose &#8216;Master Weaver&#8217; by Rosalyn Anne Tildesley, UK'
-date: 2025-11-18
-permalink: /folder/2025-1118-RAT-Master-Weaver
+title: '2025-1116 Short Prose &#8216;Master Weaver&#8217; by Rosalyn Anne Tildesley, Cheshire, England'
+date: 2025-11-16
+permalink: /folder/2025-1116-RAT-Master-Weaver
 tags:
   - black @ Short Prose
   - blue @ Rosalyn Anne Tildesley
   - brown @ 2025
-  - cornflowerblue @ UK
+  - cornflowerblue @ Cheshire, England
   - green @ Story of Short Prose
   - maroon @ Master
   - maroon @ Weaver
