@@ -23,10 +23,3 @@ One day in the journey of our lives we are ready to say 'Now I need to know the 
 Every tiny detail is woven with the most delicate attention. And yet, the most powerful action. More than any other truth, we are in Her hands.<br>
 After desire, comes surrender. So She can continue Her work, through the intricate pattern of our lives.
 </p>
-
-<br>
-
-<wave-list>
-<list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2025-01118 WhatsApp message to CCT:</b> "It was written in the camp at Yamunanagar. Around 8th/9th December 1994."</list-item>
-</wave-list>
