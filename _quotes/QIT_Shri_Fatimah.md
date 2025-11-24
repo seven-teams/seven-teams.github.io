@@ -290,7 +290,7 @@ For this you don't need to go out and start giving lectures and become big leade
 We must see and behave as Śhrī Rāma. What would Śhrī Rāma or Sītā do in this situation? What would Sītājī say? How would Sītā behave?<br>
 She is also Gṛuhalakṣhmī. As you know Sītājī took many births. <font color="red">Gṛuhalakṣhmī was in the form of Fāṭimah Bi. She was humbly in the house but all dharma was done by Her power. Not necessary for Her to go out and give big lectures.</font><br>
 You can do that work at home with children, relatives and friends. You can spread Sahaja Yoga at the house. After getting all of it you can go out to society.<br>
-But ladies have to have purity like Sītājī first."</font><br>
+But ladies have to have purity like Sītājī first."<br>
 <font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi) (the day after Rāma Navamī Day), If You Believe in Śhrī Rāma Follow His Ideal (Our Nature Can Change because He Is Our Ideal and You All Become Ideals for this World), Kolkata, West Bengal, India</b></font>
 </p>
 
@@ -441,7 +441,7 @@ But Shias, also, don't understand that they have to respect their women, because
 
 <p>
 "There is a special relationship that exists between Saints, and it's very joy-giving. You feel you are not alone in this place: there are many others who have lived. But they could not do much because people were so ignorant.<br>
-Most of the Saints, even Muhammad Sāhab was tortured. <font color="red">Hazarat ʿAlī who, was a Great Incarnation, also was killed. <font color="red">He ... His two children from Fāṭimah also were killed. Horrible things happened to Them.</font><br>
+Most of the Saints, even Muhammad Sāhab was tortured. Hazarat ʿAlī who, was a Great Incarnation, also was killed. <font color="red">He ... His two children from Fāṭimah also were killed. Horrible things happened to Them.</font><br>
 That does not mean that spiritual people do not have the protection of the Divine. <font color="red">But it was all done to show how these people could sacrifice Their life [lives] for Truth.</font><br>
 All this is done for us. All these sacrifices are going to help us.<br>
 <font color="red">Gradually we'll realize where They exist within our body. If They're enlightened within you, you get Their blessings. You have to have connection with Them.</font><br>
