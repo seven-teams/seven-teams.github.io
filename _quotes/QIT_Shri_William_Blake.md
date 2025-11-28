@@ -166,7 +166,7 @@ And that Jerusalem is going to be in England, not in India. And you are the peop
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"It is such a pleasure today, and great fortune too, that here, where William Blake lived, and He sang those songs of greatness, of the greatness of this country, the future that it has to be, the dreams He saw, have now come to shape: that we are here to celebrate His anniversary. Things go beyond words and you cannot express yourself.>br>
+<font color="red">"It is such a pleasure today, and great fortune too, that here, where William Blake lived, and He sang those songs of greatness, of the greatness of this country, the future that it has to be, the dreams He saw, have now come to shape: that we are here to celebrate His anniversary. Things go beyond words and you cannot express yourself.<br>
 Many people do not understand Him because He wrote it, according to them, in abstract language, or in the language that He understood. But I am happy that Sahaja Yogis understand Him so well.<br>
 And the prophesies that He made about England, people used to riducule [ridicule], ridicule it. Even today they can't believe that Jerusalem can be built in England. They cannot believe that people who have been all their lives, for ages together, thought of nothing but materialism, can take to spirituality to this extent that it becomes Jerusalem, and that the whole world comes to pay homage to this Holy Land: that this becomes the Holy Land. Is a fact! He dreamt, He wished it. Because He knew the value of this land.<br>
 ......<br>
@@ -253,24 +253,36 @@ But where are those English? I have still to meet many."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"It is such a[n] honor for all of us to pay this homage to the great poet, printer and a Prophet that was William Blake.<br>
-When I first came to England, they have been telling Me that: ``England is a place of scholarship, and You can see lots of museums and exhibitions." And suddenly I told the Sahaja Yogis, that I would like to go and see Tate Gallery for William Blake's paintings. They were surprised because I seldom go to any one of them, specially the libraries and the books.<br>
-And when I went there, I saw this great poet, this great personality, pouring out His heart, with such concern, with such honesty, with such understanding and perception of the Divine, to the people of England, to understand the Great Powers of Divinity. But to My surprise, there were some sph-funny people: they had brought some magnifying glasses, and they were looking at the drawings, and were watching the private parts of people. I said, ``Look at these wretched, absolutely baser people, who cannot see the sublime, the highest, which He wanted to paint!" And they were taking photographs. I was surprised the way people reacted.<br>
-And then I realized: `How tormented He must have been in His lifetime to live with such people, who have no sense of Divine! He must have cried in the wilderness, He must have wept.' He could not have been accepted! It's impossible! Such low-level minds cannot accept something that's sublime and great!<br>
-And My heart bled with pain. `Oh God! Why did He take His birth in a place like this? To torment here's ... Himself, to torture Himself, saying something which cannot be accepted.'<br>
-But's not so! I knew who He was, what He is doing, why He was here.<br>
-We do not know about Him much, because from the books you can't understand who He could have been.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="red">It is such a[n] honor for all of us to pay this homage to the great poet, printer and a Prophet that was William Blake.</font><br>
+When I first came to England, they have been telling Me that: ``England is a place of scholarship, and You can see lots of museums and exhibitions." <font color="red">And suddenly I told the Sahaja Yogis, that I would like to go and see Tate Gallery for William Blake's paintings.</font> They were surprised because I seldom go to any one of them, specially the libraries and the books.<br>
+<font color="red">And when I went there, I saw this great poet, this great personality, pouring out His heart, with such concern, with such honesty, with such understanding and perception of the Divine, to the people of England, to understand the Great Powers of Divinity.</font> But to My surprise, there were some sph-funny people: they had brought some magnifying glasses, and they were looking at the drawings, and were watching the private parts of people. <font color="red">I said, ``Look at these wretched, absolutely baser people, who cannot see the sublime, the highest, which He wanted to paint!"</font> And they were taking photographs. I was surprised the way people reacted.<br>
+<font color="red">And then I realized: `How tormented He must have been in His lifetime to live with such people, who have no sense of Divine! He must have cried in the wilderness, He must have wept.' He could not have been accepted!</font> It's impossible! Such low-level minds cannot accept something that's sublime and great!<br>
+And My heart bled with pain. <font color="red">`Oh God! Why did He take His birth in a place like this? To torment here's ... Himself, to torture Himself, saying something which cannot be accepted.'</font><br>
+But's not so! <font color="red">I knew who He was, what He is doing, why He was here.</font><br>
+<font color="red">We do not know about Him much, because from the books you can't understand who He could have been.<br>
 He was an Incarnation, of Bhairavanāth. That's whom you call the Saint Michael, or Saint George, who is, as you know, the Saint ... Angel of England. That's why He had to incarnate! And for Him, this was His role, to talk about Divine in a[n] open, fearless manner.<br>
 He had to use symbolic ... symbolic language. He had to use!<br>
-Is not difficult to understand Him, at all. If you are a realized Soul, you'll read through it, sometimes laughing, sometimes weeping, enjoying the whole drama, what He has tried to express. <br>
-When I read Him, I am amazed at His s-s-sense of humor: how He openly comes out with such remarks. I feel He is like Mārkaṇḍeya in India, or Kabīr Dās in India, who slashed the whole society with their sword all the time to see that they are brought to the proper shape, without fear. But so gentle. If you read the song of the '[Book of] Thel' [by Śhrī William Blake], is so gentle.<br>
-And all of them, who were Him perhaps or are of the same style, [were] extremely open, straightforward, you can say even blatant and extremely gentle.br>
+Is not difficult to understand Him, at all. If you are a realized Soul, you'll read through it, sometimes laughing, sometimes weeping, enjoying the whole drama, what He has tried to express.</font><br>
+<font color="red">When I read Him, I am amazed at His s-s-sense of humor: how He openly comes out with such remarks. I feel He is like Mārkaṇḍeya in India, or Kabīr Dās in India, who slashed the whole society with their sword all the time to see that they are brought to the proper shape, without fear. But so gentle. If you read the song of the '[Book of] Thel' [by Śhrī William Blake], is so gentle.<br>
+And all of them, who were Him perhaps or are of the same style, [were] extremely open, straightforward, you can say even blatant and extremely gentle.</font><br>
 ......<br>
 Traditionally we have known for thousands of years!<br>
-I talk of Mārkaṇḍeya, who was there twelve thousand years back! Who incarnated here as William Blake. Twelve thousand years back He said the same thing which is said in England after twelve thousand years, because that time I don't know what was here! Maybe only jungles, I think.<br>
-And that is also waste! Isn't it? Tell Me, isn't it?"<br>
-......<br></font><br>
-<font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
+<font color="red">I talk of Mārkaṇḍeya, who was there twelve thousand years back! Who incarnated here as William Blake. Twelve thousand years back He said the same thing which is said in England after twelve thousand years, because that time I don't know what was here!</font> Maybe only jungles, I think.<br>
+And that is also waste! Isn't it? Tell Me, isn't it?<br>
+......<br>
+<b>Gavin Brown:</b>  While we were preparing the program of Blake's Birthday Festival, Mother, we found out there was an Exhibition of Blake's work in London in one of the galleries. And we very much wanted to give You something that was made by His own Hands.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> So why [].<br>
+<b>Gavin Brown:</b>  And with the good wishes of all the Sahaja Yogis of England, ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> Oh, that's too much!<br>
+<b>Gavin Brown:</b>  ... we've been able to do it for You.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> That's too much, Gavin.<br>
+<b>Gavin Brown:</b>  No, it's ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> That's too much!<br>
+<b>Gavin Brown:</b>  ... it's something special, Mother.<br>
+We hope that it will be our pledge to try to do [as Śhrī Mātājī gets hold of the wrapped frame:] some justice to You as You've tried to do some justice to ...<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> [Laughing:] <font color="DarkRed">So, Blake.</font><br>
+<b>Gavin Brown:</b>  ... Blake.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">I'm so proud of Him, really!</font><br><font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
 </p>
 
 <div class="para-divider"></div>

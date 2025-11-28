@@ -845,14 +845,14 @@ I would suggest that: those who are elderly people should be given chairs, and t
 <b>Gavin Brown:</b>  And with the good wishes of all the Sahaja Yogis of England, ...<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> Oh, that's too much!<br>
 <b>Gavin Brown:</b>  ... we've been able to do it for You.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> That's too much Gavin.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> That's too much, Gavin.<br>
 <b>Gavin Brown:</b>  No, it's ...<br>
 <font color="DarkRed"><b>Śhrī Mātājī:</b></font> That's too much!<br>
 <b>Gavin Brown:</b>  ... it's something special, Mother.<br>
 We hope that it will be our pledge to try to do [as Śhrī Mātājī gets hold of the wrapped frame:] some justice to You as You've tried to do some justice to ...<br>
-<font color="DarkRed"><b>Śhrī Mātājī [laughing]:</b></font> So, Blake.<br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> [Laughing:] So, Blake.<br>
 <b>Gavin Brown:</b>  ... Blake.<br>
-<font color="DarkRed"><b>Śhrī Mātājī:</b></font> I'm so proud of Him, really! <br>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> I'm so proud of Him, really!<br>
 <font size="+0"><b>1985-1128 Public Program (Śhrī William Blake's Birthday), Building the New Jerusalem, Hammersmith Town Hall, 1 Riverside Gardens, Hammersmith, London W6 9LE, UK</b></font>
 </p>
 
