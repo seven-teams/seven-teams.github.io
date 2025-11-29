@@ -35,7 +35,7 @@ So on this auspicious day take an oath and decide that, 'I am a Sahaja Yogi and 
 <font color="blue"><b>1989-1230 Pūjā (English+Marathi), In Ten Years We Can Change the World and Purity Is the Main Point, Brahmapuri, Maharashtra, India</b></font><br>
 </p>
 
-Links to suggested talks: <a href="https://www.youtube.com/watch?v=4ZgPSvyDDS8&pp=ygUJMTk4NS0xMTI4"> video1</a> and <a href="https://soundcloud.com/nirmala-vidya-portal/1989-1230-1-brahmapuri_puja-2"> audio1</a> <a href="https://vimeo.com/766241565"> video2</a> and <a href="https://soundcloud.com/nirmala-vidya-portal/1985-1128-public-program-on-1"> audio2</a><br>
+Links to suggested talks: <a href="https://www.youtube.com/watch?v=4ZgPSvyDDS8&pp=ygUJMTk4NS0xMTI4"> video1</a> and <a href="https://soundcloud.com/nirmala-vidya-portal/1989-1230-1-brahmapuri_puja-2"> audio1</a> and <a href="https://vimeo.com/766241565"> video2</a> and <a href="https://soundcloud.com/nirmala-vidya-portal/1985-1128-public-program-on-1"> audio2</a><br>
 
 <p style="color:red;">Jay Śhrī Mātājī!<br></p>
 
