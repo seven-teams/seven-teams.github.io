@@ -29,9 +29,9 @@ We hope that it will be our pledge to try to do [as Śhrī Mātājī gets hold o
 <div style="text-align: center"><img src="https://pub-b6058b8fc5314638989cdd5e49178be6.r2.dev/1989-1230_Puja_(English-Marathi)_In_Ten_Years_We_Can_Change_the_World_and_Purity_Is_the_Main_Point_Brahmapuri_Maharashtra_India_75_(Photo_credit_Colin_Heinsen).png" /></div>
 
 <p>
-"So everybody should take an oath that, `We will marry in any caste, creed, religion, country, nation.' There is no reason to outcast you as they are not your relatives and you have seen how they behave.<br>
+"So everybody should take an oath that, 'We will marry in any caste, creed, religion, country, nation.' There is no reason to outcast you as they are not your relatives and you have seen how they behave.<br>
 ......<br>
-So on this auspicious day take an oath and decide that, `I am a Sahaja Yogi and till death I will remain a Sahaja Yogi. After death also I will remain a Sahaja Yogi. We have earned this from infinity.' "<br>
+So on this auspicious day take an oath and decide that, 'I am a Sahaja Yogi and till death I will remain a Sahaja Yogi. After death also I will remain a Sahaja Yogi. We have earned this from infinity.' "<br>
 <font color="blue"><b>1989-1230 Pūjā (English+Marathi), In Ten Years We Can Change the World and Purity Is the Main Point, Brahmapuri, Maharashtra, India</b></font><br>
 </p>
 
