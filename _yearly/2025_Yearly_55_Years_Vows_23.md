@@ -9,8 +9,6 @@ tags:
 <br>
 <div style="text-align: center"><img src="https://pub-b6058b8fc5314638989cdd5e49178be6.r2.dev/2025_55_Years.png" /></div>
 
-
-
 <br>
 <p style="color:DarkGreen; text-align:center">
 <font size="+2"><b>After Death Also I Will Remain A Sahaja Yogi</b><br></font>

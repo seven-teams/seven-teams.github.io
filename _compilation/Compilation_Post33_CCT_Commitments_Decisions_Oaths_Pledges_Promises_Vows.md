@@ -411,8 +411,17 @@ Then this correction portion starts. You start thinking about yourself more than
 <div class="para-divider"></div>
 
 <p>
+"If you just decide on this point that `I'm going to face myself, let me see who I am,' all these defects will run away. But you do not want to face it!<br>
+......<br>
+So you have to decide whether you are going to be just a load on Mātājī, that, ``We've come here ... My father is ill, my mother is ill, my brother is ill." Or, ``Get me a job and do this and do that. I must have ..." All these things are just good for nothing, useless. To My mind, it is absolutely useless. They have no meaning, I just do not think much of them."<br>
+<font color="blue"><b>1979-1202 Talk to Sahaja Yogis, before and during a Meal after Guru Pūjā, Living Room, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font><br>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">""</font><br>
-<font size="+0"><b>1979-1202 Talk to Sahaja Yogis, before and during a Meal after Guru Pūjā, Living Room, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
+<font size="+0"><b>1979-1203 Public Program, Session 1 (morning), Realization Is Not of the Intellect, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1477,9 +1486,18 @@ But I am requesting you: that you have to go deep down into yourself and see tha
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b>2000-1203 Talk to Sahaja Yogis, You Must Realize Your Own Personal Responsibility, Āśhram, 4950 Read Road, Moorpark (48 miles from Los Angeles), CA, U.S.A.</b></font>
+<font color="DarkRed"><b>Śhrī Mātājī:</b></font> <font color="DarkRed">So now you to ... just now promise within yourself: that you will attend Santa Monica, or any one center that you have.</font> Is [a] simple thing to understand that: if you have to dig the well, you don't go on putting holes everywhere. But in one place only you make a big ... uh-uh-uh-uh effort. And there is a center which everyone knows. They all come there, and you meet there.<br>
+But you have to be extremely positive, extremely positive with the new people. <br>
+......<br>
+<b>Karan Khurana [reads]:</b> Divorce is allowed in Sahaja Yoga, since both the parties are adult and have full freedom to make their own decisions.<br>
+......<br>
+We, as Sahaja Yogis, have full faith that Śhrī Mātājī is the promised Mother and the Holy Spirich [Spirit] which She ... which Christ has declared.<br>
+......<br>
+<b>David Paul Dunphy:</b> I would just like to make a commitment, on behalf of all of us, that we will do everything that we can, and in our power, to become Your hands [Śhrī Mātājī smiles], to fulfill Your vision and Your dreams for us, as seekers and as Yogis, to fulfill and reach our purpose and Your vision of us. We will make every effort to reach the people of this place and to show them the beauty and vastness of Your vision, and to bring them to Your Feet, Śhrī Mātājī.<br>
+Please give us Your blessings and Your ... Your attention so that we can go forth and carry Your vision to the people, and fulfill it in the future. <br>
+<font color="blue"><b>2000-1203 Talk to Sahaja Yogis, You Must Realize Your Own Personal Responsibility, Āśhram, 4950 Read Road, Moorpark (48 miles from Los Angeles), CA, U.S.A.</b></font><br>
 </p>
+
 
 <div class="para-divider"></div>
 
