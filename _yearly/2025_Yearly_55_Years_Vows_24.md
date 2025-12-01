@@ -17,9 +17,9 @@ tags:
 </p>
 
 <p>
-"If you just decide on this point that `I'm going to face myself, let me see who I am,' all these defects will run away. But you do not want to face it!<br>
+"If you just decide on this point that 'I'm going to face myself, let me see who I am,' all these defects will run away. But you do not want to face it!<br>
 ......<br>
-So you have to decide whether you are going to be just a load on Mātājī, that, ``We've come here ... My father is ill, my mother is ill, my brother is ill." Or, ``Get me a job and do this and do that. I must have ..." All these things are just good for nothing, useless. To My mind, it is absolutely useless. They have no meaning, I just do not think much of them."<br>
+So you have to decide whether you are going to be just a load on Mātājī, that, "We've come here ... My father is ill, my mother is ill, my brother is ill." Or, "Get me a job and do this and do that. I must have ..." All these things are just good for nothing, useless. To My mind, it is absolutely useless. They have no meaning, I just do not think much of them."<br>
 <font color="blue"><b>1979-1202 Talk to Sahaja Yogis, before and during a Meal after Guru Pūjā, Living Room, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font><br>
 </p>
 
