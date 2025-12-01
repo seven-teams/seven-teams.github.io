@@ -13,7 +13,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b>I'm Going To Face Myself,</b><br></font>
+<font size="+2"><b>I'm Going To Face Myself</b><br></font>
 </p>
 
 <p>
