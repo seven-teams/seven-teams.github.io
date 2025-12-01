@@ -112,19 +112,19 @@ But when Sahaja Yoga comes, he becomes more committed to his wife, I have seen t
 <b>Version 1:</b><br>
 "The one who has to achieve, the one who has to get should individually come, not as a group, individually. And when individually you will get inside it, then you will become like a drop when becomes [the] ocean.<br>
 Otherwise you will carry the dirt of everyone along with you.<br>
-You must decide that, `Except Sahaja Yoga I will not talk anything else with anyone, no discussions, arguments, etc.'<br>
+You must decide that, 'Except Sahaja Yoga I will not talk anything else with anyone, no discussions, arguments, etc.'<br>
 You are so many! I never got so many people in any Incarnation as many as you all are. So many!<br>
 And with their help the boat will go across.<br>
 So, it's My prayer and request to you, that if really I have loved you and have given love to you, then when the fruit is to come then you won't have to do any stupidity, of any kind. You must get maturity. Don't act childish.<br>
-And those who talk childish, you must say, `Keep quiet,' and don't listen to them.<br>
+And those who talk childish, you must say, 'Keep quiet,' and don't listen to them.<br>
 Talk like matured elders. You have become matured fruits. Be silent within and enjoy!<br>
 Break all illusions and differences and the blood of life will start flowing within you and will fill you with joy, peace and bliss!"<br>
 <br>
 <b>Version 2:</b><br>
 "Now one drop becomes an ocean. If you don't come that way, then you will carry everyone's dirt or problems.<br>
-In that there is no discussion, talk. `I will not talk other than Sahaja Yoga.' That you decide.<br>
+In that there is no discussion, talk. 'I will not talk other than Sahaja Yoga.' That you decide.<br>
 You all are very much in a big group. I did not get so many people in any lifetime. As you are in a big number, with your help Boat will be sailed.<br>
-So I have a request: `If I have loved you, then there should be no mistake in time to sow the fruit.'<br>
+So I have a request: 'If I have loved you, then there should be no mistake in time to sow the fruit.'<br>
 Maturity has to come. To become bighearted, don't act like a child. Keep quiet. If someone talks childish, don't listen to them. Talk like elderly people. They become fruit.<br>
 You keep the peace, stay calm, and enjoy. Break all conditionings. Within you live blood will flow with joy and happiness."</font><br>
 <font size="+0"><b>1975-1221 Talk to Sahaja Yogis (Hindi), Apanī aur Dṛuṣhṭi Rakhe (Keep the Attention on Yourself), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
@@ -163,7 +163,7 @@ Even then you are misguided. You are stooping so low for all the world's money a
 Now Sahaja Yoga.<br>
 In this situation had I put you in spirituality, then would anyone of you stayed back? Think about it. In that people hit you on the head by tongs, then they hang you upside down, then they smoke you up from below. And if you survive this ordeal, this is the state? I do not wish this.<br>
 ......<br>
-Unless everyone starts questioning this way, this movement will not commence. In your home, to people in your neighborhood you must say clearly, `Listen, we are your relatives and we will not let you get into filth. We will not let you be destroyed.' Each individual must decide and tell others because you have experience and you are knowledgeable."</font><br>
+Unless everyone starts questioning this way, this movement will not commence. In your home, to people in your neighborhood you must say clearly, 'Listen, we are your relatives and we will not let you get into filth. We will not let you be destroyed.' Each individual must decide and tell others because you have experience and you are knowledgeable."</font><br>
 <font size="+0"><b>1976-0527 Talk to Sahaja Yogis (Marathi), Sahaja Yoga Baddal Sarvānna Sangaychee Hi Sahajayogyānchi Jababdari Āhe (Responsibility of Sahaja Yoga), Dadar, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -411,9 +411,9 @@ Then this correction portion starts. You start thinking about yourself more than
 <div class="para-divider"></div>
 
 <p>
-"If you just decide on this point that `I'm going to face myself, let me see who I am,' all these defects will run away. But you do not want to face it!<br>
+"If you just decide on this point that 'I'm going to face myself, let me see who I am,' all these defects will run away. But you do not want to face it!<br>
 ......<br>
-So you have to decide whether you are going to be just a load on Mātājī, that, ``We've come here ... My father is ill, my mother is ill, my brother is ill." Or, ``Get me a job and do this and do that. I must have ..." All these things are just good for nothing, useless. To My mind, it is absolutely useless. They have no meaning, I just do not think much of them."<br>
+So you have to decide whether you are going to be just a load on Mātājī, that, "We've come here ... My father is ill, my mother is ill, my brother is ill." Or, "Get me a job and do this and do that. I must have ..." All these things are just good for nothing, useless. To My mind, it is absolutely useless. They have no meaning, I just do not think much of them."<br>
 <font color="blue"><b>1979-1202 Talk to Sahaja Yogis, before and during a Meal after Guru Pūjā, Living Room, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font><br>
 </p>
 
