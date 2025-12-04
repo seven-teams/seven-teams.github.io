@@ -1,5 +1,5 @@
 ---
-title: 'Post 33: Commitments, Decisions, Oaths, Pledges, Promises, and Vows'
+title: 'Post 33: Commitments, Decisions, Oaths, Pledges, Promises, Resolutions, Saṅkalpas, and Vows'
 date: 2023-02-01
 permalink: /compilation/2023/0201
 tags:
@@ -8,6 +8,8 @@ tags:
  - crimson @ Oaths 
  - crimson @ Pledges
  - crimson @ Promises
+ - crimson @ Resolution
+ - crimson @ Sankalpas 
  - crimson @ Vows
 ---
 
@@ -318,6 +320,14 @@ I said, "Really?" He said, "Yes. I feel I am looking like Hanumānjī, You pleas
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"Now all of you make a resolution within yourself too. My resolve has been fulfilled. Today you also have to resolve that, 'Whatever happens, we will keep our Kuṇḍalinī all right. Whatever we have to leave, we have to leave the gurus, we have to leave anything that Mother asked [us] to leave. We will keep our Kuṇḍalinī awakened, and we will keep ourselves all right.' "</font><br>
+<font size="+0"><b>1979-0318 Public Program (Hindi), Day 9, Sahasrāra Chakra, Śhāmiyānā, Garden, Pataudi House, 10 Ashoka Road, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+
+<p>
 <font color="DarkRed">"Today you must promise Me that, 'Next time when I celebrate My Birthday here, you will come in huge numbers and all will take to Sahaja Yoga.'"</font><br>
 <font size="+0"><b>1979-0321 Birthday Pūjā (Hindi), Mumbai, Maharashtra, India</b></font>
 </p>
@@ -492,7 +502,9 @@ So we should take a vow that, 'We will not speak lies.' The second vow that we s
 This is the third vow that you should take. 'Don't pay attention to trivial matters!'<br>
 Whether to give two paise to the rikśhā person or three paise, well, pay three paise, does not matter. He brought you breathlessly puffing. Why do you further take away his breath? What will you lose if you pay him three paise?<br>
 Learn to give. Don't calculate too much. Otherwise you will suffer. People who inordinately run after money also suffer inordinately from it.<br>
-So don't account for each paisā and reduce stinginess. This is the fourth vow."</font><br>
+So don't account for each paisā and reduce stinginess. This is the fourth vow.<br>
+......<br>
+The next stage should be that of resolution. Just make a resolution: 'The awakening must take place. This power must be achieved.' "</font><br>
 <font size="+0"><b>1980-1209 Talk to Sahaja Yogis (Marathi), Day 1, Sane Gurujī Vidyālaya (English Medium) School, Bhikoba Waman Pathare Mārg, Near Dadar Catering College, Shivaji Park, West Dadar, Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -616,6 +628,13 @@ We should not get involved into, it's nothing important."<br>
 <p>
 <font color="DarkRed"><b>Dr. Warren Reeves:</b> This is to Śhrī Mātājī Nirmalā Devī. [Reads the telegram:] "Śhrī Mātājī, on the most auspicious occasion of Your sixtieth birthday, we respectfully bow at Your Lotus Feet and wishing You a very long life, full of excellent health, happiness and prosperity! We Sahaja Yogis of Bombay [Mumbai] pledge on this momentous occasion to rededicate ourself to Your most holy cause. With love from the Bombay [Mumbai] Sahaja Yogis."</font><br>
 <font size="+0"><b>1983-0321 Conversations with Sahaja Yogis, Songs and Felicitations after Birthday Pūjā, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1983-1105 Talk to Sahaja Yogis (Diwālī Pāḍavā), Money, Sleep, Bhūts, Lethargy, Bonfire Night and Sitar Recital by Debu Chaudhuri, Āśhram, 102 Ditton Road, Surbiton, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -780,6 +799,20 @@ Now the third thing is that with all these things we are doing, we must promise 
 ......<br>
 Have all the strength, have all the courage, and go ahead with this promise onward, because I think now Sahaja Yoga is going to take a new turn. Definitely it is going to take. We are going to come up to a stage where thousands and thousands will join Sahaj Yog."</font><br>
 <font color="blue"><b>1985-0321 Birthday Pūjā (Marathi + English), Completely Surrender Our Lives to Sahaja Yoga and People Should See through You the Greatness of Sahaja Yoga (We Have Started Vishwa Nirmala Dharma and the Great Religion of Realized Souls), Mumbai, Maharashtra, India</b></font><br>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"In every birthday, we make a new resolution. Now I understand that I should also make a new resolution. And the new resolution is that the Vishwa Dharma that we've made and established and we all follow if anyone doesn't follow its maryādā, such a person should not have a right to be called a Sahaja Yogi. This is what I thought we should all resolve. Anyone who follows its maryādā, only he can be its follower. Any follower of Vishwa Dharma, who doesn't live by it, then we can't accept him as a Sahaja Yogi.<br>
+For example, if a person takes dowry, believes in the caste system, class system, then he can't be a Sahaja Yogi.<br>
+So I have decided today that anyone who calls themselves a Sahaja Yogi, they should not just have a complete understanding of Vishwa Dharma but if it doesn't reflect in their behavior, then they have no right to be in Sahaja Yoga. They should be told that they should atone for their mistakes and correct themselves as part of their atonement before they come back to Sahaja Yoga.<br>
+......<br>
+Tell your neighbors about it and say that, 'We believe in Universal Religion and not in any other religion.' If Yogis don't say that, then we can't accept them as Yogis. Sahaja Yoga is not for people who are scared to tell people in their society that they are followers of Vishwa Nirmala Dharma or those who are scared to tell others that they are Sahaja Yogis. You will have to fully follow the Maryādā of Sahaja Yoga.<br>
+Some people tell Me that, "Mother, we sometimes drink a little alcohol, smoke a little, consume tobacco," then you are not a Sahaja Yogi. If a person doesn't follow the Maryādā of Sahaja Yoga, then he cannot follow a Universal Religion.<br>
+And this Universal Religion of ours, we must keep completely pure as it's not just a Universal Religion, but Vishwa Nirmala Dharma. We can't allow any impurity to creep in, that's why anyone impure, can't come into it. Only those people who have fully accepted this Universal Religion and ensure that their behavior is within the maryādā can stay in it.<br>
+This is the resolution I have made for My Birthday and I hope you will accept it with love."</font><br>
+<font size="+0"><b>1985-0326 Birthday Pūjā (Hindi), Vishwa Nirmala Dharma and Maryādā of Sahaja Yoga, Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -987,6 +1020,21 @@ And, finally, we thought that through l-l... the image of Your Photographs, thro
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"And we have become Saints, 'We are Saints, we, all this is an obstacle, all these are blemishes, all these we will break, overcome, caste, creed, all this we will forget!'<br>
+Until you make this resolution, you will not gain anything in Sahaja Yoga."</font><br>
+<font size="+0"><b>1987-1213 Pūjā (English + Marathi + Hindi), Welcome to the India Tour or Announcing the New Age, Alibag (100 kms S of Mumbai), Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b>1987-1214 Talk to Sahaja Yogis, before Musical Program, Alibag (100 kms S of Mumbai), Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b></b></font>
 </p>
@@ -1042,6 +1090,14 @@ Next year, I hope I'll have some good news."</font><br>
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"You all need to take on this responsibility. You have all the blessings but are you ready to shoulder some responsibility for Sahaja Yoga? Or am I supposed to do everything?<br>
+As you all are sitting here, in meditation, all the Indian Sahaja Yogis should make a resolution and pray, 'Mātājī give us the power to take on the responsibility.' "</font><br>
+<font size="+0"><b>1988-1211 Śhrī Ādi Śhakti Pūjā (English + Marathi + English), Detachment, House of Madhukar Bhikobā Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">"I request all to pledge with feeling of humility and devotion that, 'I have gain nothing at all till now, I have yet to grow and progress, when I enlighten others it is I who is more enlightened.' You have to enlighten others."</font><br>
 <font size="+0"><b>1989-0303 Talk to Sahaja Yogis (Marathi), Unconditional Love, Nagpur, Maharashtra, India</b></font>
 </p>
@@ -1081,6 +1137,16 @@ Next year, I hope I'll have some good news."</font><br>
 ......<br>
 So on this auspicious day take an oath and decide that, 'I am a Sahaja Yogi and till death I will remain a Sahaja Yogi. After death also I will remain a Sahaja Yogi. We have earned this from infinity.' "</font><br>
 <font size="+0"><b>1989-1230 Pūjā (English+Marathi), In Ten Years We Can Change the World and Purity Is the Main Point, Brahmapuri, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"So today I have shared with you My opinion. But I want that you should also take a resolution in your heart.<br>
+What I am saying appears to be very simple, but the temperaments and activities of human beings are so strange that I am also not able to understand them. They say ``If you can understand Him, then how can He be God?" but I say ``If you can understand him, then how can he be human?" Because human beings are so complicated, so complicated, that to understand them is very difficult.<br>
+I request all of you that if you have to achieve divinity, the complicated nature should be completely reprimanded, and it should be renounced to. And you should say that you want to achieve that divinity by which anything that you touch gets nourished, vibrated and beautiful.<br>
+Your life will also become very beautiful very ideal, very joy-giving, full of love, and of a very high level."</font><br>
+<font size="+0"><b>1990-0114 Makar Saṅkrānti Pūjā (Hindi + English), We Have to Take a Very High Flight and The Sun of Sahaja Yoga Has Risen to the Zenith (Give Up All the Burdens within Us and a new flight we have to take Fully Dedicate Yourself to Meditation and Surrender Yourself to Collectivity), Mukand Steel Works, Kalwa, Thane, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1165,8 +1231,18 @@ But only thing what you need is a courage and a complete commitment to go forwar
 
 
 <p>
-<font color="DarkRed">""</font><br>
+<font color="DarkRed">"......<br>
+We are always deceiving ourselves. We should make a resolution that, `No, we are not going to indulge into this deception any more. We are going to give up all this, and go into Sahaja Yoga, and go deep.' Only then will you benefit from it."</font><br>
 <font size="+0"><b>1990-1225 Christmas Pūjā (English + Hindi), Gaṇapatīpuḷe, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Up to now I have not put any compulsion or bandhan on you. No restrictions. Only love, love, and more love that I have been showering on you. And you lived in comfort and joy.<br>
+But today, when you are talking of celebrating My birthday, a new dimension should come into our lives, and awaken us to make new resolutions. Resolutions that will make us proud. And as you are Sahaja Yogis, all your pure desires and resolutions will come true.<br>
+I have no desires and no resolutions. But you have to make the pure desires. And it can all be worked out successfully."</font><br>
+<font size="+0"><b>1991-0310 Birthday Pūjā (Hindi), Pray for Improvement and Transformation of the Conditions in Our Country and We Have to Improve the Condition and Situation in the Country, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1373,6 +1449,15 @@ Because you do not meditate, you do not have the depth to show that you are grea
 <p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b>1993-1015 Public Program (1st Day of Navarātri and the birthday of William Penn, City's Founding Father), Harrison Auditorium, University Museum, University of Pennsylvania, 33rd and Spruce Streets, Philadelphia, PA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"We should also strive to become like this [like Īsā Masīh]. That we will keep ourselves clean and pure, and spotless.<br>
+But when doing this we should not use our intelligence, because then it will appear like a very difficult task.<br>
+Actually it is very simple. Just relax. Leave everything. Just tell yourself, your attention, not to focus on wrong things. If you make a firm resolution that, `We are not going to do any wrong and sinful deeds, anything that is dirty and filthy,' then no power on earth can shake you from this resolve."</font><br>
+<font size="+0"><b>1993-1205 Śhrī Gaṇeśha Pūjā (Hindi), New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
