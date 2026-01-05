@@ -1,5 +1,5 @@
 ---
-title: 'Poem (Marathi) &#8216;Param Pujya Shri Mataji&#8217; by SubhashSuravkar from 1985-0801 Sahaj Yog (Marathi), Volume 1, Issue 2, Page 4, Column 3 Bottom'
+title: 'Poem (Marathi) &#8216;Param Pujya Shri Mataji&#8217; by Subhash Suravkar from 1985-0801 Sahaj Yog (Marathi), Volume 1, Issue 2, Page 4, Column 3 Bottom'
 date: 1985-08-01
 permalink: /folder/Poem-SS-1985-0801-SY(M)
 tags:
@@ -14,13 +14,13 @@ tags:
 
 <p>
 अनुभवाविषयी वाचले होते<br>
-आपल्या कृपेत आज 'अनुभव' झालोय<br>
+आपल्या कृपेत आज 'अनुभव' झालोय .....<br>
 ध्यानाबद्दल पंडिती ग्रंथ वाचले होते<br>
-आपल्या कृपेत आज 'ध्यान' झालोय<br>
+आपल्या कृपेत आज 'ध्यान' झालोय ...<br>
 प्रेमावरचं वाङमय ओठावर होते<br>
-आपल्या कृपेत आज 'प्रेम' झालोय<br>
+आपल्या कृपेत आज 'प्रेम' झालोय .....<br>
 पूजा अर्चा, मंत्र, ग्रंथ, देव पूजित होतो<br>
-' सत्या 'वर अनुभवाशिवाय बोलत होतो.<br>
+' सत्या 'वर अनुभवाशिवाय बोलत होतो ......<br>
 अहंकाराचा फुगा फुगवत होतो<br>
 संतवाङमय वरवर वाचत होतो ......<br>
 निर्मल मातृ प्रेमाने आज विरघळलोय<br>
@@ -32,22 +32,22 @@ tags:
 </p>
 
 <p>
-I had read about experience
-By your grace, today I have had an 'experience'
-I had read scholarly books about meditation
-By your grace, today I have had 'meditation'
-Literature on love was on my lips
-By your grace, today I have had 'love'
-Puja, mantra, scripture, God was worshipped
-I was talking about 'truth' without experience.
-I was inflating the balloon of ego
-I was reading the literature of saints superficially ......
-Today I have dissolved with pure maternal love
-Whether it is water or ice, I am knowing ......
-A doll of salt has sunk in the ocean
-A statue of gold, I have brought gold ......
-'I am also searching for my 'I' within me
-The golden cup of natural love is blooming with consciousness inside ......
+I had read about the experience<br>
+By Your grace today I have become the 'experience'<br>
+I had read scholarly books about meditation<br>
+By Your grace today I have become the 'meditation'<br>
+Literature of love was on my lips<br>
+By Your grace I have become the 'love'<br>
+I was performing Pūjā, chanting mantras, reading scriptures and worshipping God<br>
+I was talking about 'Truth' without experience<br>
+I was blowing the balloon of ego<br>
+I was reading the saintly literature superficially<br>
+Today I have been dissolving in Nirmal Motherly love<br>
+I have been experiencing the difference between water or ice<br>
+The doll of salt has sunk in the ocean<br>
+A statue of gold, I have become the gold<br>
+I am searching for myself within me<br>
+A Sahaj Love is blossoming like a "Sonachāphā" [a yellow/golden color magnolia flower] within me with vibrations.<br>
 </p>
 
 <br>
