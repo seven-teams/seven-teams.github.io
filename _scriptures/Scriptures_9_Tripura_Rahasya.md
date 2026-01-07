@@ -493,7 +493,7 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 
 <p style="text-align:center;">
 <b>Chapter 5</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>On Bondage and Release</b></font>
 </p>
 
 <p>
@@ -550,7 +550,7 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 
 <p style="text-align:center;">
 <b>Chapter 6</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>On the Merits of Faith for Gaining the Goal and on the Harmfulness of Dry Polemics</b></font>
 </p>
 
 <p>
@@ -607,7 +607,7 @@ Jamadagni is one of the Saptarṣhi [Seven Sages].
 
 <p style="text-align:center;">
 <b>Chapter 7</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>That the Goal is Gained Only after Ascertaining Good by Faith, Effort and Approved Logic, And Devotion to him</b></font>
 </p>
 
 <p>
@@ -738,75 +738,90 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 
 <p style="text-align:center;">
 <b>Chapter 8</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>Key to the Parable of Chapter 5</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<b>8.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>8.4 Translation</b><br>
+<font color="DarkGreen">"The Supreme Mother's grace  descended on him [Hemachida] ......"</font>
+</p>
+
+<p>
+<b>8.15-17 Translation</b><br>
+<font color="DarkGreen">"...... You [Hemalekha] are a sage and uperturbed." ......"</font>
+</p>
+
+<p>
+<b>8.24-25 Translation</b><br>
+<font color="DarkGreen">"Dispassion cannot arise otherwise. It is the criterion of God's Grace that the mind should be rapt in the quest for truth, after becoming detached from sensual pleasures. ......"</font>
+</p>
+
+<p>
+<b>8.28-33 Translation</b><br>
+<font color="DarkGreen">"...... {\it Madam Vorax} is desire; her sons are {\it anger} and {\it greed}; their city is {\it the body}. What was said to be my most potent talisman is {\it Realization} of the Self. ...... The consummation of the discerning faculty is {\it Samadhi}. My admission into my mother's chamber is {\it final emancipation."</font>
 </p>
 
 <p style="text-align:center;">
 <b>Chapter 9</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>How that Hemachuda Realized the Self after Analyzing His Own Mind and Plunging Within</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 10</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>On Further Instructions by His Beloved He Got Samadhi in Spite of His External Activities and Remained in the State of Emencipation Even When Alive</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 11</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>That the Cosmos Is Not Other Than Intelligence</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 12</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>The Appearance of teh Reality of the Universe Depends on the Strength of Will of Creation </b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 13</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>How Wakefulness and Dream Are Similar in Nature and Objects Are Only Mental Images</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 14</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>How the Universe is Mere Imagination; How to Gain that Strong Will which Can Create It; and the Highest Truth</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 15</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>On what Need Be Known and Need Not Be Known and on the Nature of the Self</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 16</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>On Consciousness; Control of Mind; and Sleep</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 17</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>On the Uselessness of Fleeting Samadhi and the Way to Wisdom</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -827,21 +842,21 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 
 <p style="text-align:center;">
 <b>Chapter 20</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>Vidya Gita</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 21</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>On the accomplishment of Wisdom, Its Nature and Scriptural Lore</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 22</b><br>
-<font color="DarkGreen"><b></b></font>
+<font color="DarkGreen"><b>The Conclusion</b></font>
 </p>
 
 <div class="para-divider"></div>
