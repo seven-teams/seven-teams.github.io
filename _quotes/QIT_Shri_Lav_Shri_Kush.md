@@ -76,126 +76,147 @@ This I am telling you the subtle side of it, you may check this when your Kuṇ�
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1981-0330 Public Program, Cycle 1, Day 4, Anāhata, Śhrī Lalitā, Śhrī Chakra, Maccabean Hall (now Sydney Jewish Museum), 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1981-1014 Public Program, Day 3, John Muir Elementary School, 1721 Ocean Park Boulevard, Santa Monica (23 kms W of Los Angeles), CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1981-1125 Comments, Visit, Florence, Tuscany, Italy</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1981-1126 Public Program, Surrey Hall, Lansdowne Way, Stockwell, Lambeth, London SW8 2DG, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1984-0507 Interview with Michel Sadashiva Cherney for the Sahaja Yoga Magazine in French L'Attention, Issue 4, Pages 32 to 37, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), Île-de-France, France</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1985-0528 Talk to Sahaja Yogis, Style of Our Existence (or Sahaj Behavior), Los Angeles, CA, U.S.A. (other dates 0529 and 0530 and place San Diego)</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1986-1201 Public Program (Hindi), Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"In your town the progress in Self-realization is due to the blessings of Sage Agastya, as well as the childhood spent by Lav and Kuśh here, and the desire of Śhrī Sītā."</font><br>
+<font size="+0"><b>1987-1223 Public Program (Marathi), Akole (24 kms WSW of Sangamner), Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"The great seer Valmiki who wrote the Ramayana, himself came from a low caste <i>of a fisherman -- was himself a decoit.</i> He was transformed into a great saint by Narada. Shri Sita, Luv<i>,<\i> and Kush were looked after by him in his Ashram. Can there be a greater example to show how Shri Sita never considered the existence of caste and bestowed Divine rights on the people irrespective of ant caste<i>?</i> It seems Shri Rama and Shri Sita deliberately created situations to <i>put</i> down the horrible caste system which had become the cancer of the Indian society. <i>It is so evident how they respected a Saint like ValmiKi despite his very low birth according to this curse of the caste system.</i>"</font><br>
+<font size="+0"><b>1988-0000 Essay 'Riddles of Dr. Ambedkar' by a Sahaja Yogi with Handwritten Corrections and Additions, Follow on to the 1988-0126 Interview with Foreign Correspondents, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1988-0609 Talk to Sahaja Yogis, Giving Names and the Story of Mārkaṇḍeya, Āśhram, Josef Melichar Gasse 20, Vienna, Austria</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1989-0804 Meeting with Officials, Conference Room, Ministry of Healthcare, Moscow, Russia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1989-0818 Quote on Ukrainians, Meeting with Ukrainian Sahaja Yogis, Saint Petersburg, Leningrad Oblast, Russia (date not sure)</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1989-1219 Pūjā (English + Marathi), Aurangabad Has a Special significance in My own life (Vālmīki and the Story of this Place), Aurangabad, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1990-0616 Śhrī Mahāvīra Pūjā, Touch Your Depth and Complete Kevalagyān (There Is Hell and You Must Learn to Have Self-discipline), Ca'n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1990-0629 Interview with a Lady Journalist Speaking in Russian, Lobby, Hotel, Kiev, Ukraine</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi) (the day after Rāma Navamī Day), If You Believe in Śhrī Rāma Follow His Ideal (Our Nature Can Change because He Is Our Ideal and You All Become Ideals for this World), Kolkata, West Bengal, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1992-0915 Public Talk to a Group of about 20 Iranians, Āśhram, 5206 Topeka Drive, Tarzana, CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
 <font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font size="+0"><b>1993-0803 Śhrī Śhakti Pūjā, Power of Love, Camp, Shores of Volga, Togliatti, Samara Oblast, Russia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b>1993-1113 Interview with Prof. Yuriy A. Voronov, Moscow, Russia</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -215,7 +236,9 @@ This I am telling you the subtle side of it, you may check this when your Kuṇ�
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Hussain Hasan<br>
+<font color="red">"Lava--Kusha<br>
+......<br>
+Hussain Hasan<br>
 sons of Fatima<br>
 daughter of Moha"</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Appendix: Additional Figures by Śhrī Mātājī, Figure 21</b></font>

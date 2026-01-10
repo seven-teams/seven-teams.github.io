@@ -138,8 +138,8 @@ To recognize Them, you should have a love for yourself."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b></b></font>
+<font color="red">"The great seer Valmiki who wrote the Ramayana, himself came from a low caste <i>of a fisherman -- was himself a decoit.</i> He was transformed into a great saint by Narada. Shri Sita, Luv<i>,<\i> and Kush were looked after by him in his Ashram. Can there be a greater example to show how Shri Sita never considered the existence of caste and bestowed Divine rights on the people irrespective of ant caste<i>?</i> It seems Shri Rama and Shri Sita deliberately created situations to <i>put</i> down the horrible caste system which had become the cancer of the Indian society. <i>It is so evident how they respected a Saint like ValmiKi despite his very low birth according to this curse of the caste system.</i>"</font><br>
+<font size="+0"><b>1988-0000 Essay 'Riddles of Dr. Ambedkar' by a Sahaja Yogi with Handwritten Corrections and Additions, Follow on to the 1988-0126 Interview with Foreign Correspondents, India</b></font>
 </p>
 
 <div class="para-divider"></div>
