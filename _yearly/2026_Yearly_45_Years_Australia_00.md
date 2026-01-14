@@ -9,9 +9,12 @@ tags:
 <br>
 <div style="text-align: center"><img src="https://pub-b6058b8fc5314638989cdd5e49178be6.r2.dev/2025_45_Australia.png" /></div>
 
+<br>
+
 <div style="text-align: center"><img src="https://pub-bcc3cbe9b1e94ba1ac28915f7a3900fa.r2.dev/1992-0229_Shivaratri_Puja_We_Have_Become_so_Beautiful_Glenrock_Lagoon_Newcastle_(160_kms_N_of_Sydney)_New_South_Wales_Australia_01_(Balwant_Kumbhojkar_Collection).jpg" /></div>
 
 <br>
+
 <p style="color:DarkGreen; text-align:center">
 <font size="+2"><b>Say Sweet Things Where The Children Understand It</b><br></font>
 </p>
