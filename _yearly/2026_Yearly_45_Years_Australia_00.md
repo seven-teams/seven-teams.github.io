@@ -1,6 +1,6 @@
 ---
-title: '2025 Celebrating 45 Years of Sahaja Yoga in Australia, Post 00'
-date: 2025-01-13
+title: '2026 Celebrating 45 Years of Sahaja Yoga in Australia, Post 00'
+date: 2026-01-13
 permalink: /yearly/2026/0113
 tags:
   - crimson @ 45 Years of Sahaja Yoga in Australia
