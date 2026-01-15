@@ -32,7 +32,7 @@ And today is a special day but this day being decided by the Sun is a fixed day,
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0226.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b>"<b>Warmth of the Sun represents the warmth of God's Love. This is the reason why we celebrate this festival by giving you some sort of a sweet made out of sesame seeds.</b> Sesame seeds are given because they are also heat-giving and now as we are coming from the cold, we come to the hot season in a way, hotter season, so to prepare you with that warmth of the Sun these special things are made out of the seed of sesame to represent the oncoming warmth and the warm of the Sun. "</b></font><br>
+<font color="DarkRed"><b>"<b>Warmth of the Sun represents the warmth of God's Love. This is the reason why we celebrate this festival by giving you some sort of a sweet made out of sesame seeds.</b> Sesame seeds are given because they are also heat-giving and now as we are coming from the cold, we come to the hot season in a way, hotter season, so to prepare you with that warmth of the Sun these special things are made out of the seed of sesame to represent the oncoming warmth and the warm of the Sun."</b></font><br>
 <font size="+0"><b>1987-0114 Makar Saṅkrānti Pūjā (English + Marathi), Carry the Sun with You, House of Madhukar Bhikobā Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font><br>
 </p>
 
@@ -43,7 +43,7 @@ Today the Sun left its place and, in its northward movement, came towards us. At
 <font size="+0"><b>2008-0117 Makar Saṅkrānti Pūjā (Hindi), Hall, Pratiṣhṭhān, NDA Road, Warje, Pune, Maharashtra, India</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT02257.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0227.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed"><b>"So today is a great day. This saṅkramaṇa that has started requires serious effort. We cannot play about with that. It's very great emergency. I can feel in the atmosphere the emergency. All the Gods and Goddesses are there to help you to work it out. You are in ... on the stage and you have to create that great drama of revolution.<br>
@@ -104,7 +104,7 @@ May God bless you all."</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<p style="text-align:center;">
+<p>
 <font color="Chocolate"><font size="+0"><b>Wishing you all a very Happy Makar Saṅkrānti!</b></font></font><br>  
 <b>Tīḷ-guḷ ghyā āṇi goḍ goḍ bola.</b><br>
 <font size="+0">(eat sesame and jaggery and speak sweetly)</font>
