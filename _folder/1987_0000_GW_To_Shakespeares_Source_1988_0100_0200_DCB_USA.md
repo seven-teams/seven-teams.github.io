@@ -1,6 +1,6 @@
 ---
 title: '1987-0000 Poem &#8216;To Shakespeare&#8217;s Source&#8217; by Greg Wolfe, Santa Cruz from the 1988-0100 and 0200 The Divine Cool Breeze (U.S.A.), Volume 2, Issue 1, Page 12'
-date: 1987-02-01
+date: 1987-12-01
 permalink: /folder/1987-0000-GW-To-Shakespeares-Source-1988-0100-0200-DCB-USA-P12
 tags:
   - black @ Poetry
