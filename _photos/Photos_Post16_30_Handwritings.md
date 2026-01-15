@@ -11,7 +11,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 jpgs of <font color="Crimson"><b>1987-0400 Conversation with Sahaja Yogis, Italy (DRawings)</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 low resolutions from the Named Collections.<br>
+We are pleased to let you know that 2 jpgs of <font color="Crimson"><b>1987-0400 Conversation with Sahaja Yogis, Italy (Drawings)</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 low resolutions from the Named Collections.<br>
 The direct link to the jpeg in the smallest gallery of handwritings: <a href="https://eternalmoments.smugmug.com/Collections/Alessandra-Pallini-Collection/Handwritings"> Collection Handwritings</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
