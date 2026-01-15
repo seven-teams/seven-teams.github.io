@@ -23,7 +23,7 @@ It's all for you, for your joy and happiness. <b>The whole festival system is fo
 
 <p>
 <font color="DarkRed">"But <b>today is a special day: is the day when the Sun changes from the Tropic of Capricorn, comes from the Tropic of Capricorn, to the Tropic of Cancer. And for us it is a summer.</b><br> 
-Sounds a very good thing for us to have a summer here, and we call it a thing of transformation. But is a <b>Tropic of Cancer, Cancer as you know is a sign of the Mother</b>. So this is the day they celebrate suddenly coming out of the cold to the heat, they eat something called `til gur' [ladū] that is the sesame and the jaggery mixed together. And they tell people, ``Eat this sweet and speak sweetly." The reason is: when the heat comes up too much the mind can go off and one can become harsh. So they say now, ``Eat this and speak sweetly." Now the hot thing, it's a hot thing to eat sesame and the jaggery but why it is given that is the end of it now. You have it and slowly come to normal. So it is given like that to show that now is the end of it, you take it and now you come to the end of it.<br>
+Sounds a very good thing for us to have a summer here, and we call it a thing of transformation. But is a <b>Tropic of Cancer, Cancer as you know is a sign of the Mother</b>. So this is the day they celebrate suddenly coming out of the cold to the heat, they eat something called 'til gur' [ladū] that is the sesame and the jaggery mixed together. And they tell people, "Eat this sweet and speak sweetly." The reason is: when the heat comes up too much the mind can go off and one can become harsh. So they say now, "Eat this and speak sweetly." Now the hot thing, it's a hot thing to eat sesame and the jaggery but why it is given that is the end of it now. You have it and slowly come to normal. So it is given like that to show that now is the end of it, you take it and now you come to the end of it.<br>
 ......<br>
 And today is a special day but this day being decided by the Sun is a fixed day, is fourteenth, fourteenth of this month. So this is called as a Saṅkrānti Day. So it doesn't change, all other things can change because they depend on the Moon but this is the only solar, you can say, only solar festival we have."</font><br>
 <font size="+0"><b>1986-0114 Makar Saṅkrānti Pūjā (English + Marathi), Advice about the Growth within, House of Madhukar Bhikobā Dhumāḷ, near Railway Station, Rāhurī, Maharashtra, India</b></font>
@@ -69,7 +69,7 @@ You must have introspection, ask questions to yourself, 'What I have done for Sa
 <p style="text-align:center;">
 <font color="DarkRed"><b>"So, today's special day, a very great day, let us ask that, when you are doing this Pūjā, ask: for new religions within you, 'to be enshrined, to be sustained within ourselves.' And try to imbibe them. They will be permeating but you have to accept them.<br>
 And [you] should know it's a big fight. And it's a very different type of a fight: of peace and love.<br>
-That's why they say: `Speak sweetly, be sweet to each other.'<br>
+That's why they say: 'Speak sweetly, be sweet to each other.'<br>
 Not to be sarcastic by any chance, nor to be harsh, but be sweetch [sweet]. Sweetness which is genuine: not outward and showy and formal, but genuine sweetness.<br>
 May God bless you all."</b></font><br>
 <font size="+0"><b>1981-0114 Makar Saṅkrānti Pūjā (Marathi + English), Ahitagni Rajwade Maṅgal Karyalaya, 840 Sadashiv Peth, Pune, Maharashtra, India</b></font><br>
