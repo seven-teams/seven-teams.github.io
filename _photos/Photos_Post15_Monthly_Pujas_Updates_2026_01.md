@@ -20,6 +20,7 @@ This month 19 new Photos were uploaded to 8 Pūjas as follows (8 high resolution
 (vi) 1993-0518 Śhrī Fāṭimah Pūjā: 2 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Turkey/1993"> <font color="DarkGreen"><b>Turkey 1993</b></font></a>.<br>
 (vii)  1994-0314 Śhivarātri Pūjā: 2 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1994"> <font color="DarkGreen"><b>India 1994</b></font></a>.<br>
 (viii) 1999-0425 Easter Pūjā: 5 low resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Turkey/1999"> <font color="DarkGreen"><b>Turkey 1999</b></font></a>.<br>
+[Note: (vii) uploaded only on 2026-0127.]<br>
 Please kindly share the news and the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
