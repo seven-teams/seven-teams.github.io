@@ -41,15 +41,16 @@ was all contained in Her eyes.
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> Author's email to CCT dated 2025-1018.</list-item>
+  <list-item color="Lavender"  width="280"><b>S2.</b> Author's email to CCT dated 2026-0126.</list-item>  
 </wave-list>
 
 <br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2025-1018 Author's email to to CCT:</b> "Inspired by Bala Kanayson's memory of his experience at a Public Program in the presence of Shri Mataji."<br>
+  <list-item color="BlanchedAlmond"  width="280"><b>2025-1018 Author's email to CCT:</b> "Inspired by Bala Kanayson's memory of his experience at a Public Program in the presence of Shri Mataji."<br>
 <b>From Bala Kanayson's memory:</b> "She just gazed at me and I felt as though I was being pulled into Her eyes.<br>
 The next thing I knew, [...] I distinctly saw/heard/smelt/felt certain objects like a sabre-tooth tiger, the universe, planets, etc., until it came back to "the beginning."<br>
-And then there was nothing, just nothing. And, in the middle of this nothing was Shri Mataji."<br> 
-  </list-item>
+And then there was nothing, just nothing. And, in the middle of this nothing was Shri Mataji."</list-item>
+   <list-item color="Lavender" width="280"><b>S2.</b> 2026-0126 Author's email to CCT:</b> "Bala's recollection I read in a forwarded email first, later on it was also published in one of the books of Eternal recollections."</list-item> 
 </wave-list>

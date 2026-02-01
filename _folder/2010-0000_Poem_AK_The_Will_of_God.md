@@ -26,12 +26,14 @@ So, life is following the tune, the tune of the Divine.
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> Author's email to CCT dated 2025-1018.</list-item>
+  <list-item color="Lavender"  width="280"><b>S2.</b> Author's email to CCT dated 2026-0126.</list-item>  
 </wave-list>
 
 <br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2025-1018 Author's email to to CCT:</b> "Vaikuntha - The celestial abode/world where God resides according to Indian Philosophy. Vaikuntha is often regarded more broadly as the spiritual world or a form of heaven."</list-item>
-  <list-item color="Lavender"  width="280"><b>2025-1018 Author's email to to CCT:</b> "The poem was inspired by a visit to Himalayan mountains and observing their unique beautiful floating clouds in between the peaks."</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>2025-1018 Author's email to CCT:</b> "Vaikuntha - The celestial abode/world where God resides according to Indian Philosophy. Vaikuntha is often regarded more broadly as the spiritual world or a form of heaven."</list-item>
+  <list-item color="Lavender"  width="280"><b>2025-1018 Author's email to CCT:</b> "The poem was inspired by a visit to Himalayan mountains and observing their unique beautiful floating clouds in between the peaks."</list-item>
+  <list-item color="Lavender"  width="280"><b>S2.</b> 2026-0126 Author's email to CCT:</b> "2009 and 2010 I visited [the Himalayas]."</list-item>  
 </wave-list>

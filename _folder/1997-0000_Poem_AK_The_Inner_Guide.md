@@ -57,14 +57,16 @@ That you can attain!<br>
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> Author's email to CCT dated 2025-1018.</list-item>
+  <list-item color="Lavender"  width="280"><b>S2.</b> Author's email to CCT dated 2026-0126.</list-item>  
 </wave-list>
 
 <br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2025-1018 Author's email to to CCT:</b> "I presented this poem to Shri Mataji in Berkeley, CA [in June 1997] and She especially liked this verse [stanza 2]: "A beast has a forest, a fish has a sea,<br>
+  <list-item color="BlanchedAlmond"  width="280"><b>2025-1018 Author's email to CCT:</b> "I presented this poem to Shri Mataji in Berkeley, CA [in June 1997at Claremont Hotel] and She especially liked this verse [stanza 2]: "A beast has a forest, a fish has a sea,<br>
 And a bird has the bottomless sky<br>
 But what makes you wander? what prompts you to seek<br>
 Hidden quest you cannot satisfy?" "</list-item>
+  <list-item color="Lavender"  width="280"><b>S2.</b> 2026-0126 Author's email to CCT:</b> "At the Claremont hotel."</list-item>
 </wave-list>

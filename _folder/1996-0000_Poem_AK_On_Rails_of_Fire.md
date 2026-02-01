@@ -69,14 +69,14 @@ Just flow freely through the space<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> Author's email to CCT dated 2025-1018.</list-item>
-</wave-list>
-
+  <list-item color="BlanchedAlmond" width="280"><b>S1. </b> Author's email to CCT dated 2025-1018.</list-item>
+  <list-item color="Lavender" width="280"><b>S2.</b> Author's email to CCT dated 2026-0126.</list-item> 
+</wave-list>  
 <br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2025-1018 Author's email to to CCT:</b> "I presented this poem to Shri Mataji in Calcutta [right after the 1996-0414 Easter Pūjā] and Shri Mataji said these words had very important meaning:<br>
+  <list-item color="BlanchedAlmond"  width="280"><b>2025-1018 Author's email to CCT:</b> "I presented this poem to Shri Mataji in Calcutta [on 1996-0415] and Shri Mataji said these words had very important meaning:<br>
 "The night is dark<br>
 When only Star of hatred<br>
 Lies on its Altar<br>
@@ -85,4 +85,5 @@ It’ll bring the world Another Light"<br>
 and<br>
 "There is no force that is stronger than Love<br>
 All the weapons melt in the Fire of Love" "</list-item>
+  <list-item color="Lavender" width="280"><b>2026-0126 Author's email to CCT:</b> "On Rails of Fire poem was offered at the Calcutta (now Kolkata) airport after the Easter Puja of 1996, when Shri Mataji was leaving Calcutta [on 1996-0415]."</list-item>
 </wave-list>

@@ -33,6 +33,6 @@ By those who don't deserve the Crown of Thorns
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>2025-1018 Author's email to to CCT:</b> "Christ is the one who prayed to God to take away the Cup from Him and then He was given crown of thorns but as mortals we don't deserve that crown which is interesting though because the crown is given to Christ.<br>
+  <list-item color="BlanchedAlmond"  width="280"><b>2025-1018 Author's email to CCT:</b> "Christ is the one who prayed to God to take away the Cup from Him and then He was given crown of thorns but as mortals we don't deserve that crown which is interesting though because the crown is given to Christ.<br>
 So escaping the fame and any noise or any artificial great destination it is best to just wander collecting flowers those simple flowers of virtues and simple joys that we collect becomes our garland not the crown of thorns which we don't deserve."</list-item>
 </wave-list>
