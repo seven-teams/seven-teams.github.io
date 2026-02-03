@@ -36,8 +36,6 @@ And raise the banner of Love!
 
 <br>
 
-<br>
-
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> Author's email to CCT dated 2025-1018.</list-item>
