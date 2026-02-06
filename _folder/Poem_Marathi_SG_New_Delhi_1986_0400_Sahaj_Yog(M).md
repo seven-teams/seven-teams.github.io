@@ -35,24 +35,23 @@ tags:
 </p>
 
 <p>
-Namo Ādi Śhakti Śhrī Nirmalā Mā<br>
+Salutations to Ādi Śhakti Śhrī Nirmalā Mā<br>
+The Giver of Joy, the Reliever from Sorrow<br>
+You are the Nirmal Mā of the world<br>
 <br>
-Sukhadāyinī । Duḥkhahāriṇī<br>
-Nirmalā Mātā you live<br>
+The Giver of Sahaja Yoga, the Giver of liberation<br>
+You are the mother of the world.<br>
 <br>
-Sahaja Yoga Dayini. Mokshapradayini<br>
-You are the Mother of the world<br>
+Let Sahaja Yoga establish Sahaj way, may we get Self-realization<br>
+This is the internal desire, O Nirmalā Mā!<br>
 <br>
-Sahaja Yoga should be easy and Self-realization.<br>
-This is the inner desire. Hey Nirmalā Mā<br>
+Mother give the blessings, give us the blessings<br>
+Let Your Holy Feet be worshipped forever<br>
+Let us always be in a meditative state enjoying the sweet nectar.<br>
+We are surrendered to Your Lotus Feet, please give us blessings!<br>
 <br>
-Mother give me a boon. Give us a boon<br>
-The daily service of Tava Charaṇ [the Lotus Feet]<br>
-Be constantly meditative and speak new nectar<br>
-Surrender Tava Charaṇī, Deī Kṛipā Āśhirvādā<br>
-<br>
-Nirguna is your form, for the salvation of the fairy world<br>
-You have become Saguṇ Rup. Avataralīs Bhūvarī is Nirmala Mā
+You are formless, but for the emancipation of the world<br>
+You have now taken form and appeared on mother earth O Nirmalā Mā!
 </p>
 
 <br>
