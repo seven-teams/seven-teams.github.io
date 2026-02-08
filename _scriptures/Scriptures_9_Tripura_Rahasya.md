@@ -760,7 +760,7 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 
 <p>
 <b>8.28-33 Translation</b><br>
-<font color="DarkGreen">"...... {\it Madam Vorax} is desire; her sons are {\it anger} and {\it greed}; their city is {\it the body}. What was said to be my most potent talisman is {\it Realization} of the Self. ...... The consummation of the discerning faculty is {\it Samadhi}. My admission into my mother's chamber is {\it final emancipation."</font>
+<font color="DarkGreen">"...... <i>Madam Vorax</i> is desire; her sons are <i>anger</i> and <i>greed</i>; their city is <i>the body</i>. What was said to be my most potent talisman is <i>Realization</i> of the Self. ...... The consummation of the discerning faculty is <i>Samadhi</i>. My admission into my mother's chamber is <i>final emancipation</i>."</font>
 </p>
 
 <p style="text-align:center;">
@@ -769,6 +769,106 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<b>9.6 Translation</b><br>
+<font color="DarkGreen">[Hemalekha:] "...... Investigate the nature of the Self with intellect made transparently clear."</font>
+</p>
+
+<p>
+<b>9.7 Translation</b><br>
+<font color="DarkGreen">"...... You know the Mother only if you know the Self."</font>
+</p>
+
+<p>
+<b>9.8 Translation</b><br>
+<font color="DarkGreen">"The Self does not admit of specification, and therefore no teacher can teach it. However, realise the Self within you, for it abides in unblemished intellect."</font>
+</p>
+
+<p>
+<b>9.9 Translation</b><br>
+<font color="DarkGreen">"It pervades all, beginning from the personal God to the amoeba; but it is not cognisable by the mind or senses; being itself unillumined by external agencies, it illumines all, everywhere and always. It surpasses demonstration or discussion."</font>
+</p>
+
+<p>
+<b>9.11-12 Translation</b><br>
+<font color="DarkGreen">"...... He can at best guide you towards it and nothing more. I shall also explain to you the means to realization. ......</font>
+</p>
+
+<p>
+<b>9.13 Translation</b><br>
+<font color="DarkGreen">"As long as you are contaminated with notions of <i>me</i> or <i>mine</i> ......, the Self will not be found, ......</font>
+</p>
+
+<p>
+<b>9.16 Translation</b><br>
+<font color="DarkGreen">"Analyze everything in this way and discard it. What remains over, transcending it all, beyond conception, appropriation, or relinquishment — know That to be the Self. That knowledge is final emancipation."</font>
+</p>
+
+<p>
+<b>9.67-69 Translation</b><br>
+<font color="DarkGreen">[Hemalekha:] "What you have now done to restrain thoughts with the mind turned inward (vichara) is a good beginning and praised by the worthy as the best way. Without it, no one has ever been successful anywhere. However, it does not produce Self-realization, for the Self remains realized at all times.".</font>
+</p>
+
+<p>
+<b>9.77 Translation</b><br>
+<font color="DarkGreen">"...... In the short interval before its appearance and after the control of mind, there remains a state free from the effort to control and the perception of darkness."</font>
+</p>
+
+<p>
+<b>9.78 Translation</b><br>
+<font color="DarkGreen">"Always remember that state as the one of perfect and transcendental happiness. ......"</font>
+</p>
+
+<p>
+<b>9.81 Translation</b><br>
+<font color="DarkGreen">"...... Realization is not attained by going far, but only by staying still; not by thought (intellection), but by cessation of thought."</font>
+</p>
+
+<p>
+<b>9.83-85 Translation</b><br>
+<font color="DarkGreen">"Effort towards Realization is like the attempt to stamp with one’s foot on the shadow cast by one’s head. Effort will always make it recede."</font>
+</p>
+
+<p>
+<b>9.86-88 Translation</b><br>
+<font color="DarkGreen">"......; knowledge is self-evident; there is no world in the absence of knowledge. ......That which is self-evident without the necessity to be proved, is alone real; not so other things."</font>
+</p>
+
+<p>
+<b>9.92 Translation</b><br>
+<font color="DarkGreen">"...... your own true nature which is the one pure, undivided Consciousness underlying the restless mind which is composed of the whole Universe in all its diversity."</font>
+</p>
+
+<p>
+<b>9.93 Translation</b><br>
+<font color="DarkGreen">"If one is fixed in that fundamental basis of the Universe (i.e., the Self), one becomes the All-doer. ......"</font>
+</p>
+
+<p>
+<b>9.94 Translation</b><br>
+<font color="DarkGreen">"Realize with a still mind the state between sleep and wakefulness, the interval between the recognition of one object after another or the gap between two perceptions."</font>
+</p>
+
+<p>
+<b>9.96-97 Translation</b><br>
+<font color="DarkGreen">"...... none of these finds place in that Transcendence which is the support of all there is, and which is the being in all, but is bereft of everything (does not contain anything). That is the Supreme Lord, the Creator, the Supporter and the Destroyer of the Universe and the Eternal Being."</font>
+</p>
+
+<p>
+<b>9.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>9.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>9.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
 
 <p style="text-align:center;">
 <b>Chapter 10</b><br>
@@ -786,7 +886,7 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 
 <p style="text-align:center;">
 <b>Chapter 12</b><br>
-<font color="DarkGreen"><b>The Appearance of teh Reality of the Universe Depends on the Strength of Will of Creation </b></font>
+<font color="DarkGreen"><b>The Appearance of the Reality of the Universe Depends on the Strength of Will of Creation </b></font>
 </p>
 
 <div class="para-divider"></div>
