@@ -96,7 +96,7 @@ This I am telling you the subtle side of it, you may check this when your Kuṇ�
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">[About the statue David by Michelangelo:] "It is the representation of Lav and Kuśh."</font><br>
 <font size="+0"><b>1981-1125 Comments, Visit, Florence, Tuscany, Italy</b></font>
 </p>
 
@@ -117,7 +117,13 @@ This I am telling you the subtle side of it, you may check this when your Kuṇ�
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So, all those Personalities were absolutely divine, but one day Śhrī Rāma, who was an Incarnation of Śhrī Viṣhṇu, and Śhrī Sītā, who was Incarnation of Śhrī Mahālakṣhmī, gave birth, while they were on this Earth, to two children, of whom we can say that they had a Divine Nature as well as human. So, They had special powers, special helps, so that They could become leaders, leaders for human beings. They were named Lava and Kuśha. Lava, after Śhrī Rāma's death, left towards Caucasus, and this is the reason why the population in Russia are called Slavs; Kuśha went to China, and the people around there are called Kuṣhāṇs. [Or tous ceux-là sont des personnalités absolument divines, mais un jour, Śhrī Rāma, qui était une Incarnation de Śhrī Viṣhṇu, et Śhrī Sītā, qui était une Incarnation de Śhrī Mahālakṣhmī, mirent au monde, alors qu'ils étaient sur cette terre, deux enfants, dont nous pouvons dire qu'ils étaient de nature divine autant qu'humaine. En effet, ils avaient des pouvoirs, des aides spéciales, de telle façon qu'ils pouvaient devenir des leaders, des chefs pour les êtres humains. Ces deux enfants furent nommés Lāva et Kuśha. Lava partit après la mort de Śhrī Rāma, vers la Caucase, et c'est pourquoi les peuples de Russie se nomment les Slaves; et Kuśha alla vers la Chine, et le gens ce pays s'appelèrent Kouchanes.]<br>
+Those two Incarnations, we will call them Principle of the Disciple. Not the Guru Principle, which also incarnates, but that one is fully of Divine Nature. So, these two incarnate as Disciple Principle. [Ces deux Incarnations, nous Les nommerons Le Principe du Disciple, pas de Principe du Gourou, lequel s'incarne aussi, mais celui-ci est entièrement de Nature Divine. Donc, ceux-là s'incarnent sur cette terre comme Principes du Disciple.]<br>
+First, they incarnated, as we say, as Lava and Kuśha, each one being specially assisted by Saint Gabriel and Saint Michel. [Tout d'abord ils s'incarnèrent, nous dirons, comme Lava and Kuśha, chacun est spécialement assisté par Saint Gabriel et Saint Michel.]<br>
+These two Incarnations incarnated later as Buddha and Mahāvīra, who came once again as Śhaṅkara [who had been Buddha] and Kabīr [who had been Mahāvīra]. Kahlil Gibran is part of their Incarnations. So was Mārkaṇḍeya, and we can say that our William Blake is part of it. [Ces deux Incarnations s'incarnèrent plus tard comme Bouddha et Mahāvīra, lesquels revinrent à nouveau au sixième siècle de notre èrecomme Śhankara [c'était Bouddha], puis [c'était Mahāvīra]. Kahlil Gilran fait partie de Leurs Incarnations. Mārkaṇḍeya aussi, et on peut dire que notre Mister Blake en fait partie.]<br>
+So, they came back as poets, as devotees of God, with an astounding capacity to create songs, music, and to talk about God. [Ainsi Ils sont venus comme poètes, comme dépôts de Dieu, avec une étonnante capacité de créer des chants, de la musique, de parler de Dieu.]<br>
+Otherwise they incarnated as Hasan and Husayn, the sons of Fāṭimah, daughter of Muhammad and wife of ʿAlī. [Par ailleurs, Ils se sont incarnés comme Hasan and Husayn, les fils de Fāṭimah, la fille de Mahomet et l'épouse d' ʿAlī.]<br>
+So they incarnated so many times on this Earth, those who correspond to the Principle of the Disciple. [Ainsi se sont incarnés tant de fois sur cette terre ceux qui correspondaient au Principe du Disciple.]"</font><br>
 <font size="+0"><b>1984-0507 Interview with Michel Sadashiva Cherney for the Sahaja Yoga Magazine in French L'Attention, Issue 4, Pages 32 to 37, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), Île-de-France, France</b></font>
 </p>
 
@@ -131,7 +137,7 @@ This I am telling you the subtle side of it, you may check this when your Kuṇ�
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"There is such a close relationship between Muhammad Sāheb and Nāṇak Sāheb. Nāṇak Sāheb and Śhrī Sītā had a close relationship and this Śhrī Mahāvīr and Śhrī Buddha are closely related. Both were twin brothers, who were the sons of Śhrī Rāma, Lav and Kuśh. Both were born again and again as Hasan, Husayn and came into this world."</font><br>
 <font size="+0"><b>1986-1201 Public Program (Hindi), Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -152,21 +158,26 @@ This I am telling you the subtle side of it, you may check this when your Kuṇ�
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So that's the great part of Mārkaṇḍeya.<br>
+He took His birth later on as Buddha, then He took His birth as Ādi Śhaṅkarāchārya, it's the same personality.<br>
+But He was actually the son of Rāma, to begin with. He was Lav and He went to Russia and that is why they are called as Slavs. He ruled in Russia, that's why they are called as Slavs.<br>
+Another son was Kuśh, who went to China, that is why they are called as Kuṣhāṇ.<br>
+Then They incarnated again and again, also as Hasan and Husayn, as Mahāvīra and Buddha, as Ādi Śhaṅkarāchārya and Gyāneśhwara, like that. <br>
+See, it is so peaceful. Cool Breeze."</font><br>
 <font size="+0"><b>1988-0609 Talk to Sahaja Yogis, Giving Names and the Story of Mārkaṇḍeya, Āśhram, Josef Melichar Gasse 20, Vienna, Austria</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">[Soviet Union is the first country of the world to recognize the greatness of this Mahā Yoga. The Soviets are truly Her children being the descendants of Lav. Because of their pure intelligence they could easily recognize this Ultimate Truth.]</font><br>
 <font size="+0"><b>1989-0804 Meeting with Officials, Conference Room, Ministry of Healthcare, Moscow, Russia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"The Ukraine people were the descendants of Lav, the son of Śhrī Rām and Sītā and that's why they have such deep feelings for Me."</font><br>
 <font size="+0"><b>1989-0818 Quote on Ukrainians, Meeting with Ukrainian Sahaja Yogis, Saint Petersburg, Leningrad Oblast, Russia (date not sure)</b></font>
 </p>
 
@@ -194,7 +205,15 @@ This I am telling you the subtle side of it, you may check this when your Kuṇ�
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">
+<b>Version 1:</b><br>
+"When we look into Their life, They were both devoted to each other but when Śhrī Rāma sacrificed Śhrī Sītā, She never spoke ill about Him, She felt it was His duties to do so. With all easiness She took care and grew up the two sons of Śhrī Rāma, Lav and Kuśh. They both showed us the qualities of disciple: They showed how we have to dedicate to our Guru. At very small age They knew the art of bow and arrow, also They knew Rāmāyaṇa and other epics very well."<br>
+<br>
+<b>Version 2:</b>
+"You see how Śhrī Sītā and Rāma have good attitude and are faithful [to] each other.<br>
+Even if She was left, Sītā thought it Her duty. She never complained or talked ill of Him. And effortlessly She has raised Her children. Śhrī Rāma's children are called Lav and Kuśh. They came as devotees and we can see Them as disciples. They represent śhiṣhya [disciples], the Power of Śhiṣhya.<br>
+So we can be disciple of someone.<br>
+As disciples They learned archery when they were small. And learned Rāmāyaṇa and got proficiency in the music showing the disciples must surrender completely to the guru."<br></font><br>
 <font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi) (the day after Rāma Navamī Day), If You Believe in Śhrī Rāma Follow His Ideal (Our Nature Can Change because He Is Our Ideal and You All Become Ideals for this World), Kolkata, West Bengal, India</b></font>
 </p>
 
