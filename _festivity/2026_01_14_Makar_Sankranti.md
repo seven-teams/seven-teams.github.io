@@ -3,7 +3,7 @@ title: '2026 Celebrating Makar Saṅkrānti: "today is a special day: is the day
 date: 2026-01-14
 permalink: /festivity/2026/01/14
 tags:
-
+  - maroon @ Makar Sankranti
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

@@ -3,7 +3,8 @@ title: '2026 Celebrating Vasant Pañchamī: Worshiping Śhrī Mahāsaraswatī'
 date: 2026-01-23
 permalink: /festivity/2026/01/23
 tags:
-
+  - maroon @ Vasant Panchami
+  - orange @ Shri Mahasaraswati Puja
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
