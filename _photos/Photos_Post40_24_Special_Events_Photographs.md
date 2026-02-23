@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1988-0807 Conversation, Italy</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 low resolutions from the Name Collections.<br>
+We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1988-0807 Conversation, Italy</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 low resolutions from the Named Collections.<br>
 The direct link to the 9 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Italy/1988"> Italy 1988</a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
