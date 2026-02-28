@@ -13,8 +13,8 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to let you know that 3 Photos from the special event <font color="Crimson"><b>1915-0000 Open Hands Upward</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 high resolutions from the Named Collections.<br>
-The direct link to the Photo of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/TBD/1915"> TBD 1915</a>.<br>
-[Note: one Photo uploaded only on 2024:0502.]
+The direct link to the Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/TBD/1915"> TBD 1915</a>.<br>
+[Note: one Photo uploaded only on 2024-0502.]
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
