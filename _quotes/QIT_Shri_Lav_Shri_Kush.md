@@ -103,7 +103,11 @@ This I am telling you the subtle side of it, you may check this when your Kuṇ�
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"What is important is to cross even this is. So you reach a stage now, after this, you reach a stage where there's ... you knew on Incarnations.<br>
+Incarnations are always above this gap.<br>
+This gap has been crossed only by two people, Buddha and Mahāvīra, who become Hasan and Husayn. They were the only who could cross, but They were born of Incarnations: They were the children of Incarnations.<br>
+They were human beings! Just see it: if God wants, He can do anything He likes. So He created two Incarnations of Lav and Kuśh, from ... They were the children of Rāma and Sītā. Then They were born as Buddha and Mahāvīra, and then Hasan and Husayn.<br>
+So this is the only two human beings, actually who were the children of an Incarnation, became Incarnations, and They are placed in the body of's the ... Virāṭa, in the center point here, helping with Realization and Salvation."</font><br>
 <font size="+0"><b>1981-1126 Public Program, Surrey Hall, Lansdowne Way, Stockwell, Lambeth, London SW8 2DG, UK</b></font>
 </p>
 
@@ -130,7 +134,27 @@ So they incarnated so many times on this Earth, those who correspond to the Prin
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Simple thing is: "Don't fight."<br>
+<b>Sahaja Yogi:</b> That's right.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Russians and Americans, there is no need for them to fight at all! I mean ...<br>
+<b>Sahaja Yogi:</b> ......<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> This is a Kṛiṣhṇa Bhūmi. It's Rāma only, isn't it? <font color="red">And ... uh-uh ... Russia was made by Lav, and the China was made by Kuśh.</font> So they are fighting against their Father!<br>
+<b>Sahaja Yogi:</b> ...... Russia just Lao Tz[e].<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Slavs.<br>
+<b>Sahaja Yogi:</b> ......<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> ......<br>
+<b>Sahaja Yogi:</b> No, ......<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">...... Kuṣhāṇ, the country is called as Kuṣhāṇ.</font><br>
+<b>Sahaja Yogi:</b> Acchā.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Kuṣhāṇ country.</font><br>
+Kuṣhāṇ ......<br> 
+<b>Sahaja Yogi:</b> ......<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> We have got lots of proofs. Already there were some families, Indian families, called as Lav, were staying there, in, in Caucasus. They came down.<br>
+<b>Sahaja Yogi:</b> ......<br> 
+<font color="red"><b>Śhrī Mātājī:</b></font> .......<br>
+There's a-eh ... temple of the Goddess of Hindolika [Devī], there [in Iran], ...<br>
+<b>Sahaja Yogi:</b> I see.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> ... in uh ... on their way to Caucasus.<br>
 <font size="+0"><b>1985-0528 Talk to Sahaja Yogis, Style of Our Existence (or Sahaj Behavior), Los Angeles, CA, U.S.A. (other dates 0529 and 0530 and place San Diego)</b></font>
 </p>
 
@@ -184,14 +208,22 @@ See, it is so peaceful. Cool Breeze."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Aurangabad has a special uh ... significance-s-s in My own life because My forefathers came from a place very near from here, called as Paiṭhaṇ, but originally known as Pratiṣhṭhān.<br>
+I think about two years back we were there.<br>
+And this is the place where Vālmīki, who wrote the great epic of Rāmāyaṇa, lived here, and when Sītā came ... was uh-uh ... taken away uh-uh-uh from Her house and when She was pregnant, there was another āśhram of his in Nepal where She stayed. And then She was brought here.<br>
+That's why you see a kind of a-eh-eh ... culture of Maharashtra ah-ah-ah going to the hills and also to Nepal through Her and Her children, who went down: one to Russia and another to China.<br>
+One, the name of one who went to Russia was Lav, and the one who went to China was Kuśh. So, they are called as Slavs, they're was mostly called as Lev[s]. And those who went to China are called as Kuśhan[s].<br>
+So They lived here from Their birth, till They became about, say, twelve years of age, when Vālmīki composed Rāmāyaṇa, and taught Them how to sing that song, of Rāmāyaṇa.<br>
+So, then They went to Ayodhyā, and there They started singing the song. With that singing, Śhrī Rāma was very much touched. They challenged Him in a way that, `There's a lady [Śhrī Sītā] who was such a chaste person who was driven out of,' [but] They didn't know that was, Rāma was Their father.<br>
+[Breathing out:] Hah-hah then They came back and stayed here for some time and then went to, again to Nepal, because Sh-She was a Nepali lady.<br>
+So I think Her father must have arranged something for Her to stay in Nepal in that Vālmīki āśhram, which is ... which can be only approached from Bihar, which I've seen Myself. "</font><br>
 <font size="+0"><b>1989-1219 Pūjā (English + Marathi), Aurangabad Has a Special significance in My own life (Vālmīki and the Story of this Place), Aurangabad, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"After Śhrī Kṛiṣhṇa, these two persons, Buddha and Mahāvīra, both of Them incarnated in India. As you know, Their history is very far out because They were the children of Rāma and They were two twins called as uh Lav and Kuśh."</font><br>
 <font size="+0"><b>1990-0616 Śhrī Mahāvīra Pūjā, Touch Your Depth and Complete Kevalagyān (There Is Hell and You Must Learn to Have Self-discipline), Ca'n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b></font>
 </p>
 

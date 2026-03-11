@@ -74,6 +74,22 @@ Now today they are like Incarnations. Incarnations are beyond but maybe the gap 
 <font size="+0"><b></b></font>
 </p>
 
+ <p>
+<font color="red">"What is important is to cross even this is. So you reach a stage now, after this, you reach a stage where there's ... you knew on Incarnations.<br>
+Incarnations are always above this gap.<br>
+This gap has been crossed only by two people, Buddha and Mahāvīra, who become Hasan and Husayn. They were the only who could cross, but They were born of Incarnations: They were the children of Incarnations.<br>
+They were human beings! Just see it: if God wants, He can do anything He likes. So He created two Incarnations of Lav and Kuśh, from ... They were the children of Rāma and Sītā. Then They were born as Buddha and Mahāvīra, and then Hasan and Husayn.<br>
+So this is the only two human beings, actually who were the children of an Incarnation, became Incarnations, and They are placed in the body of's the ... Virāṭa, in the center point here, helping with Realization and Salvation."</font><br>
+<font size="+0"><b>1981-1126 Public Program, Surrey Hall, Lansdowne Way, Stockwell, Lambeth, London SW8 2DG, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
 <div class="para-divider"></div>
 
 <p>

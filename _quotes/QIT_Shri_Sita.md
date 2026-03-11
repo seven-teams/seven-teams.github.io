@@ -151,6 +151,23 @@ To recognize Them, you should have a love for yourself."</font><br>
 
 <div class="para-divider"></div>
 
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"Aurangabad has a special uh ... significance-s-s in My own life because My forefathers came from a place very near from here, called as Paiṭhaṇ, but originally known as Pratiṣhṭhān.<br>
+I think about two years back we were there.<br>
+And this is the place where Vālmīki, who wrote the great epic of Rāmāyaṇa, lived here, and when Sītā came ... was uh-uh ... taken away uh-uh-uh from Her house and when She was pregnant, there was another āśhram of his in Nepal where She stayed. And then She was brought here.<br>
+That's why you see a kind of a-eh-eh ... culture of Maharashtra ah-ah-ah going to the hills and also to Nepal through Her and Her children, who went down: one to Russia and another to China.<br>
+One, the name of one who went to Russia was Lav, and the one who went to China was Kuśh. So, they are called as Slavs, they're was mostly called as Lev[s]. And those who went to China are called as Kuśhan[s].<br>
+So They lived here from Their birth, till They became about, say, twelve years of age, when Vālmīki composed Rāmāyaṇa, and taught Them how to sing that song, of Rāmāyaṇa.<br>
+So, then They went to Ayodhyā, and there They started singing the song. With that singing, Śhrī Rāma was very much touched. They challenged Him in a way that, `There's a lady [Śhrī Sītā] who was such a chaste person who was driven out of,' [but] They didn't know that was, Rāma was Their father.<br>
+[Breathing out:] Hah-hah then They came back and stayed here for some time and then went to, again to Nepal, because Sh-She was a Nepali lady.<br>
+So I think Her father must have arranged something for Her to stay in Nepal in that Vālmīki āśhram, which is ... which can be only approached from Bihar, which I've seen Myself. "</font><br>
+<font size="+0"><b>1989-1219 Pūjā (English + Marathi), Aurangabad Has a Special significance in My own life (Vālmīki and the Story of this Place), Aurangabad, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
 <p>
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>

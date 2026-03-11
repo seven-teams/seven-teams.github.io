@@ -192,6 +192,39 @@ So the aiśhwarya, the king-ness, has to be there. Has to be a royal family. Has
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"Aurangabad has a special uh ... significance-s-s in My own life because My forefathers came from a place very near from here, called as Paiṭhaṇ, but originally known as Pratiṣhṭhān.<br>
+I think about two years back we were there.<br>
+And this is the place where Vālmīki, who wrote the great epic of Rāmāyaṇa, lived here, and when Sītā came ... was uh-uh ... taken away uh-uh-uh from Her house and when She was pregnant, there was another āśhram of his in Nepal where She stayed. And then She was brought here.<br>
+That's why you see a kind of a-eh-eh ... culture of Maharashtra ah-ah-ah going to the hills and also to Nepal through Her and Her children, who went down: one to Russia and another to China.<br>
+One, the name of one who went to Russia was Lav, and the one who went to China was Kuśh. So, they are called as Slavs, they're was mostly called as Lev[s]. And those who went to China are called as Kuśhan[s].<br>
+So They lived here from Their birth, till They became about, say, twelve years of age, when Vālmīki composed Rāmāyaṇa, and taught Them how to sing that song, of Rāmāyaṇa.<br>
+So, then They went to Ayodhyā, and there They started singing the song. With that singing, Śhrī Rāma was very much touched. They challenged Him in a way that, `There's a lady [Śhrī Sītā] who was such a chaste person who was driven out of,' [but] They didn't know that was, Rāma was Their father.<br>
+[Breathing out:] Hah-hah then They came back and stayed here for some time and then went to, again to Nepal, because Sh-She was a Nepali lady.<br>
+So I think Her father must have arranged something for Her to stay in Nepal in that Vālmīki āśhram, which is ... which can be only approached from Bihar, which I've seen Myself. "</font><br>
+<font size="+0"><b>1989-1219 Pūjā (English + Marathi), Aurangabad Has a Special significance in My own life (Vālmīki and the Story of this Place), Aurangabad, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"After Śhrī Kṛiṣhṇa, these two persons, Buddha and Mahāvīra, both of Them incarnated in India. As you know, Their history is very far out because They were the children of Rāma and They were two twins called as uh Lav and Kuśh.<br>
+So Rāma led a life of a very great uh-uh-uh king, benevolent king, and of lots of limitations: Maryādā Puruṣhottama. Because of that, people became extremely serious and also uh very uh-uh closed, because of Rāma's following.<br>
+Of course, after every Incarnation, as they do not get their Realization, they get deviated and start uh-uh-uh going to the extremes of everything.<br>
+So, uh they went to the extremes and became very-very mhh much, sort of uh, quiet people, wouldn't talk to anyone, would be very formal sort of people, because that was the life Rāma had to live ... lead.<br>
+And because Rāma left His wife, many people at that time felt that wife is not uh to be paid so much attention to."</font><br>
+<font size="+0"><b>1990-0616 Śhrī Mahāvīra Pūjā, Touch Your Depth and Complete Kevalagyān (There Is Hell and You Must Learn to Have Self-discipline), Ca'n Bosc (House of the Woods) (1 hour North of Barcelona), Spain</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>
