@@ -855,27 +855,48 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 <font color="DarkGreen">"...... none of these finds place in that Transcendence which is the support of all there is, and which is the being in all, but is bereft of everything (does not contain anything). That is the Supreme Lord, the Creator, the Supporter and the Destroyer of the Universe and the Eternal Being."</font>
 </p>
 
-<p>
-<b>9.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>9.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>9.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
 <p style="text-align:center;">
 <b>Chapter 10</b><br>
-<font color="DarkGreen"><b>On Further Instructions by His Beloved He Got Samadhi in Spite of His External Activities and Remained in the State of Emencipation Even When Alive</b></font>
+<font color="DarkGreen"><b>On Further Instructions by His Beloved, He Got Samadhi in Spite of His External Activities and Remained in the State of Emancipation Even When Alive</b></font>
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<b>10.7-14 Translation</b><br>
+<font color="DarkGreen">[Hemachuda to Hemalekha:] "...... I have found pure untainted happiness. ...... What a pity that such people should be to this day unaware of the bliss of their own Self! ......"</font>
+</p>
+
+<p>
+<b>10.15-27 Translation</b><br>
+<font color="DarkGreen">[Hemalekha to Hemachuda:] "My lord, you do not know the highest state of sanctity ...... Your small measure of wisdom is as good aa no wisdom, because it is not unconditional, ...... Perfection cannot depend on activity or the reverse, on effort or no effort. ...... As long as these knots are not cut asunder so long will bliss not be found ...... These knots are millions in number and are created by the bond of delusion which is no other than ignorance of Self. These knots give rise to mistaken ideas, the chief of which is the identification of the body with the Self, ...... The second knot is the differentiation of the world from the Self ...... Similarly with the other knots including the differentiation of beings among themselves and from the universal Self. ......"</font>
+</p>
+
+<p>
+<b>10.28-38 Translation</b><br>
+<font color="DarkGreen">"...... Even what may be surmised to be in another place and at a different time, is also within your consciousness. ...... There cannot be anything that is not held by consciousness ...... it cannot be the perfect state if it can be attained. ...... the fire of realisation will burn away all your sense of duty so that there will be nothing left for you to do. Be strong, root out your thoughts and cut off the deep-rooted knots from your heart, namely, 'I will see’, 'I am not this’, 'This is non-Self ’, and such like. ...... Find wherever you turn the one, undivided, eternal blissful Self; also watch the whole Universe reflected, as in a mirror in the Self, as it arises and subsides in It. ......"</font>
+</p>
+
+<p>
+<b>10.39-42 Translation</b><br>
+<font color="DarkGreen"> ...... perfect Self bereft of any distinction of within and without. ...... reigned over his kingdom and made it prosperous, engaged his enemies in war and conquered them, studied the scriptures and taught them to others, filled his treasury, performed the sacrifices pertaining to royalty ......</font>
+</p>
+
+<p>
+<b>10.43-61 Translation</b><br>
+<font color="DarkGreen"> ...... he treated friend and foe alike; that he was indifferent to loss or gain; that he engaged in royal duties like an actor in a play; that he seemed like a man always intoxicated with wine; and that he did his duty well, notwithstanding his absent-minded or other-worldly look. ...... All of them gained the <i>summum bonum</i> (highest good) of life and transcended desire, anger, lust, etc. ...... lullabies expressive of the highest Truth; a master and his servants dealt with one another in the Light of that Truth; players entertained the audience with plays depicting Truth; singers sang only songs on Truth; the court fools caricatured ignorance as ludicrous; the academy only taught lessons on God-knowledge. ...... They never cared to recapitulate the past or speculate on the future with a view to gain pleasure or avoid pain, but acted for the time being, laughing, rejoicing, crying or shouting like drunkards, thus dissipating all their latent tendencies.</font>
+</p>
+
+<p>
+<b>10.62 Translation</b><br>
+<font color="DarkGreen">The Rishis, Sanaka and others, called it the Renowned City of Wisdom when they visited it.</font>
+</p>
+
+<p>
+<b>10.63-68 Translation</b><br>
+<font color="DarkGreen">Even parrots and cockatoos in their cages spoke words of wisdom. For example: ‘Consider the Self as pure intelligence bereft of objective knowledge. ...... [Śhri Dattātreya:] ...... "Therefore let those sensible people who are desirous of chit –'Pure intelligence' turn away from illusory knowledge and contemplate their own Self — the absolute consciousness —  which illumines all the rest, and which is their being too."</font>
+</p>
+
 
 <p style="text-align:center;">
 <b>Chapter 11</b><br>
@@ -883,6 +904,31 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<b>11.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>11.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>11.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>11.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>11.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
 
 <p style="text-align:center;">
 <b>Chapter 12</b><br>
