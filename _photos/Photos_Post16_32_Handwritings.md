@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 16: Handwritings, Part 32'
 date: 2026-01-15
-permalink: /photos/2025/0115
+permalink: /photos/2026/0115
 tags:
   - blue @ Handwritings
   - green @ Updates

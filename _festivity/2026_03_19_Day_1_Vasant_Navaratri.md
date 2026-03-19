@@ -18,12 +18,10 @@ The reason is: man has these old ways of great ignorance."</font><br>
 <font size="+0"><b>1978-0408 Public Program (Guḍhī Pāḍavā Day), Satya Yuga, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
-<div style="text-align: center"><img src="/images/image.png" /></div>
-
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0245.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen">"<b>Chaitra is the month.</b> And this is the time when -- ...... -- <b>Gaurī is the Chaitra. So the establishment of the Gaurī is taken place during these nine days.</b> But Gaṇeśha has to be established before anything else. Though first Gaurī had to come, you can see that. Gaurī had to come first to establish Gaṇeśha. But Gaṇeśha is always put before even Gaurī. Before the Pūjana of the, worship of the Gaṇeśha, nothing starts; because He's the one who takes out all the obstacles, all the negativities, all the hurdles that are going to come up, all the attentions that are here and there. So that's why we first worship Gaṇeśha, just to ask Him to protect us. "</font><br>
+<font color="DarkGreen">"<b>Chaitra is the month.</b> And this is the time when -- ...... -- <b>Gaurī is the Chaitra. So the establishment of the Gaurī is taken place during these nine days.</b> But Gaṇeśha has to be established before anything else. Though first Gaurī had to come, you can see that. Gaurī had to come first to establish Gaṇeśha. But Gaṇeśha is always put before even Gaurī. Before the Pūjana of the, worship of the Gaṇeśha, nothing starts; because He's the one who takes out all the obstacles, all the negativities, all the hurdles that are going to come up, all the attentions that are here and there. So that's why we first worship Gaṇeśha, just to ask Him to protect us."</font><br>
 <font size="+0"><b>1981-0404 Śhrī Gaṇeśha Gaurī Pūjā, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font>
 </p>
 
@@ -31,7 +29,7 @@ The reason is: man has these old ways of great ignorance."</font><br>
 <font color="DarkRed">"<b>Kuṇḍalinī is Gaurī, today is Gaurī Pūjan, Gaurī Pūjan in the month of Chaitra is special. Means before installation of Gaṇapati we have installed Gaurī in the month of Chaitra. Gaurī who created Gaṇapati is the Gaurī from Chaitra and we all believe that.<br>
 In the same way our Śhālivāhans have given it so much importance that Guḍhī Pāḍavā starts on the first day of Chaitra month, because Gaurī first is Śhakti, who started the work, to start any work first we worship Gaṇeśha, this is also done by Gaurī.</b><br>
 Gaurī has put Gaṇeśh in the temporal world or universe so that the innocence which Gaṇeśh has should spread in the whole world. And before anyone else, She established Chaitanya in the form of Gaṇeśh for the whole world and spread it everywhere. Then we will do whatever is required but first is the Spirit, the Chaitanya. The world's Kuṇḍalinī, Mother Gaurī has done this work.<br>
-The importance of this day is that this is the beginning, creating Śhrī Gaṇeśh on Her on own, no contribution from Sadāśhiv, She has not yet met Sadāśhiv, so the Virgin Gaurī, She created Gaṇapati from Her Powers, because She is Śhakti Swarūpa, She can do anything. And that Gaṇapati is pure, holy, which is in the form of Chaitanya, was made"</font><br>
+The importance of this day is that this is the beginning, creating Śhrī Gaṇeśh on Her on own, no contribution from Sadāśhiv, She has not yet met Sadāśhiv, so the Virgin Gaurī, She created Gaṇapati from Her Powers, because She is Śhakti Swarūpa, She can do anything. And that Gaṇapati is pure, holy, which is in the form of Chaitanya, was made."</font><br>
 <font size="+0"><b>1985-0321 Birthday Pūjā (Marathi + English), Completely Surrender Our Lives to Sahaja Yoga and People Should See through You the Greatness of Sahaja Yoga (We Have Started Vishwa Nirmala Dharma and the Great Religion of Realized Souls), Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -98,7 +96,6 @@ The water that washes your feet is the celestial river Ganga in the matted hair 
 The lustre of the lac dye used on your Feet imparts red colour to the ruby that glorifies the diadem of Śhrī Hari.<br>
 O Mother, please place them on my head too, taking mercy on me<br>
 (Śhrī Ādi Śhaṅkarāchārya)</b></font><br>
-</p>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
