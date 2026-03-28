@@ -1,7 +1,7 @@
 ---
 title: 'Folder Post 1: Poems Monthly Newsletter, March 2026'
 date: 2026-03-28
-permalink: /folder/2026/0328
+permalink: /folder/2026/0328-a
 tags:
   - crimson @ Poems Monthly Newsletter
 ---
