@@ -16,15 +16,15 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"The river has to meet the Ocean, this is My promise."</font><br>
-<font size="+0"><b>1900-0000 Quote on a Promise from the book Insights, Inspirations and Eternal Moments, Chapter 29, Page 85 by Yogi Mahajan</b></font>
+<font color="DarkRed">"If you make a firm decision that, 'We have to face ourselves,' that, 'Who are we?' ['who am I? what am I?'], then all the bad qualities and faults will go away."</font><br>
+<font size="+0"><b>1900-0000 Two Quotes from Nirmala Yoga (Hindi), Issue 20 (July-August 1985), Page 28</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"Where is your attention? Where is your will? Why are you so worried? Did I not promise I will fulfill every wish?"</font><br>
-<font size="+0"><b>1900-0000 Two Quotes from the book Insights, Inspirations and Eternal Moments, Chapter 40, Page 127 by Yogi Mahajan</b></font>
+<font color="DarkRed">"The river has to meet the Ocean, this is My promise."</font><br>
+<font size="+0"><b>1900-0000 Quote on a Promise from the book Insights, Inspirations and Eternal Moments, Chapter 29, Page 85 by Yogi Mahajan</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -36,6 +36,13 @@ You should take a vow today, introspect your own shortcomings and be surrendered
 I have dedicated My life for you and all My puṇya is at your disposal for the betterment [upliftment] of you. But you should also gather some puṇya on your own, isn't it?<br>
 You are the light lamps of the entire world. You are brothers and sisters amongst yourself so be one, be submerged and be awakened."</font><br>
 <font size="+0"><b>1901-0000 Letter on Navarātri Day (Marathi)</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"...... to decide wheather [whether] it is Parasympathetic of symphethetic [sympathetic] activity."</font><br>
+<font size="+0"><b>1902-0000 Handwritten Line Changes</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -81,6 +88,15 @@ I will only give, I am not going to take anything.<br>
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"Now this question arises many times in administration. Such a question arises that, 'What should we do? Is this correct or not?'<br>
+But this is so easy, so easy that before taking any decision go into thoughtlessness. Whatever decision comes in front do that. That can never be wrong. But the decision will be spontaneous in thoughtlessness. And if you took that decision in thought, then it will be biased because your ego and superego both will work in that. Whatever are your saṃskāras, or worldly things you have earned will be standing behind you. But if you do it in thoughtlessness, then it will be an abhinav, divine, a miracle."</font><br>
+<font size="+0"><b>1975-0120 Talk to Sahaja Yogis (Hindi), Day 1, Session 2 (evening), Kṣham Ki Śhakti Ka Mahatav (Power of Forgiveness) or Dharm va Adharm (Dharma and Adharma), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+
+<p>
 <b>Version 1:</b><br> 
 <font color="DarkRed">"First tell yourself that, 'I have decided not to hurt anyone today onward. O Divine, forgive everyone, all those who have hurt me and also forgive me because I have also hurt many people.' "</font><br>
 <br>
@@ -89,11 +105,15 @@ I will only give, I am not going to take anything.<br>
 <font size="+0"><b>1975-0201 Public Program (Hindi + English), Dhyāna Kyoṃ Karanā Chāhiye (Why Should One Meditate), Gurudev Cooperative Housing Society, Prabhadevi Sea Face, Mumbai, Maharashtra, India (other dates 0202 and 0209)</b></font>
 </p>
 
+<div class="para-divider"></div>
+
 <p>
 <font color="DarkRed">"Now, he's a husband, he thinks, 'She's my wife.' Meaning, 'I have a special relationship with her. There must be some connection from past lives. There must be some connection from previous births. So until my wife doesn't accept this thing, how can I accept it?' He saves money, even if he runs after another woman, there's no problem, that's OK! If he spends his money on another woman, there's no problem in that either. And he can do whatever he wants.<br>
 But when Sahaja Yoga comes, he becomes more committed to his wife, I have seen this. Because Sahaja Yoga teaches you love. So, because of teaching love, he becomes compassionate towards his wife. And he starts thinking about his wife too. And the wife, on the other hand, teaches him a lesson."</font><br>
 <font size="+0"><b>1975-0305 Public Program (Hindi), Day 3, Chitt Apanī aur Rakhiye (Keep the Attention towards Yourself), Mumbai, Maharashtra, India</b></font>
 </p>
+
+<div class="para-divider"></div>
 
 <p>
 <font color="DarkRed">"Thoughtlessness, it is a reality, it is the Truth that is why I do not give you false promise. I have no false recommendation to you. In this I cannot give you false statement."</font><br>
@@ -237,6 +257,16 @@ Only thing you people, all of you, should decide about yourself, to make yoursel
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"Scolding, for instance, some may say that it is wrong, not dhārmik. But if you do that for the betterment of others and yourself, it is the best.<br>
+Just to bear it all upon yourself is no sign of wisdom. A lot of people tell Me about how they bore so much aggression from other and the way they took the sufferings all upon themselves. Why? Who told you to do that? This too is a sign of tamoguṇa.<br>
+On the flip side, attacking others is rajoguṇī.<br>
+But to witness everything and taking a decision by staying in the middle is sattvaguṇī. It is actually easier done than said. To be sattvaguṇī is the easiest."</font><br>
+<font size="+0"><b>1977-1218 Talk to Sahaja Yogis (Marathi), Chitta and Ātmā (Satyacha Prakāśh and Ātmā Itself in Form), Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "So, that Anna Mahārāj had come somewhere so I said that, "If he is seen somewhere call Me also." He was told that, "Mātājī is coming."<br>
 I went. He was smoking a cigarette in front of Me and was talking in his Hyderabadi language something with these four or five women. Very comfortably he is [was] sitting. I went. I said, "How are you?" He said, "My gurujī left his throne to meet You in Bombay [Mumbai]." I said, "Why not? After all, I'm his Mother and he came to meet Me. Do you have any objection?" He said, "He should not have done that. He is this and he is that. He is gone case and so forth." I said, "Now see My way. He just broke your legs." So, I put kumkum to him and then as I was leaving I asked him to put kumkum to My forehead. Just as he put on My Āgñyā chakra I just pulled him inside. He just started shaking, "Mother, Mother, save me! Leave me!" <font color="DarkRed">I said, "First you tell Me that you will not criticize your guru." "No, I will not criticize my guru. Leave me!" "And secondly, you drop your habit of smoking." "Yes. Leave me! Leave me!" I said, "Thirdly you should leave the company of women and go and sit in a jungle." When he promised all three things only then I left his hands. Else he was almost fully sucked and he couldn't move his fingers from there.</font><br>
 That drama was seen by all of them for a whole five minutes.<br>
@@ -274,8 +304,8 @@ Please show this letter to all Sahaja Yogis."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b>1979-0122 Public Program (Marathi), Ātmyālā Miḍavilyāhśivāya Parameśhwar or Avadhūtas, YMCA Hall, New Link Road, D.N. Nagar, Andheri West (14 kms NW of Mumbai), Maharashtra, India</b></font>
+<font color="DarkRed">"This desire, or lust, it never ends. Today you want this, tomorrow you want that. If you get that, then you want something else. What's the cure for this? Contentment! Sit in contentment. Contentment is the cure for the navel chakra. The cure for the navel is contentment and resolution. As soon as contentment and resolution come, these waves of the ocean of desires start flowing straight. And this ocean of desires is the essence of all religions."</font><br>
+<font size="+0"><b>1979-0117 Public Program (Hindi), Day 4, Chakroṃ para Upasthita Devatā (Deities on All Chakras), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -818,6 +848,14 @@ This is the resolution I have made for My Birthday and I hope you will accept it
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"It's not at all difficult to give you Self-realization, but you have to promise Me only one thing: you will give up these deceitful gurus and will not run after them.<br>
+Because of this, you have suffered a lot and you will suffer. Therefore first of all you all should get your awakening."</font><br>
+<font size="+0"><b>1985-0331 Public Program (Rāma Navamī Day) (Hindi), Dal Lake, McLeod Ganj, Dharmaśhālā, Himachal Pradesh, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">"You understand: that this is the reality that is come into you people. Actually you have felt the reality! Actually you know the reality! You are in the reality! And why not talk about it? Why should we not? Is it not the most important thing that we have to do? If you realize it, I'm sure it will work out.<br>
 With all My blessings, with all My love, I really command you to do that now!<br>
 May God bless you.<br>
@@ -1143,10 +1181,17 @@ So on this auspicious day take an oath and decide that, 'I am a Sahaja Yogi and 
 
 <p>
 <font color="DarkRed">"So today I have shared with you My opinion. But I want that you should also take a resolution in your heart.<br>
-What I am saying appears to be very simple, but the temperaments and activities of human beings are so strange that I am also not able to understand them. They say ``If you can understand Him, then how can He be God?" but I say ``If you can understand him, then how can he be human?" Because human beings are so complicated, so complicated, that to understand them is very difficult.<br>
+What I am saying appears to be very simple, but the temperaments and activities of human beings are so strange that I am also not able to understand them. They say "If you can understand Him, then how can He be God?" but I say "If you can understand him, then how can he be human?" Because human beings are so complicated, so complicated, that to understand them is very difficult.<br>
 I request all of you that if you have to achieve divinity, the complicated nature should be completely reprimanded, and it should be renounced to. And you should say that you want to achieve that divinity by which anything that you touch gets nourished, vibrated and beautiful.<br>
 Your life will also become very beautiful very ideal, very joy-giving, full of love, and of a very high level."</font><br>
 <font size="+0"><b>1990-0114 Makar Saṅkrānti Pūjā (Hindi + English), We Have to Take a Very High Flight and The Sun of Sahaja Yoga Has Risen to the Zenith (Give Up All the Burdens within Us and a new flight we have to take Fully Dedicate Yourself to Meditation and Surrender Yourself to Collectivity), Mukand Steel Works, Kalwa, Thane, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1161,8 +1206,17 @@ This is a tremendous work we have to do. It is the evolution of the highest type
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"I request that you take a decision on this day, My birthday, with humbleness that, 'Oh Mother this year we will enlighten hundred people.'<br>
+At least every one should try. It can happen. Call people for meals, for tea. Talk to people that they should take to Sahaja Yoga. Tell them about the miracles of Sahaja Yoga. "</font><br>
+<font size="+0"><b>1990-0324 Birthday Pūjā (Hindi), Mumbai, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"I saw this in some cities, such people suddenly came up and started acting important. And then neither Āratī was performed nor did they have the desire to clean the photograph. But at least they did not use their own photograph.<br>
+So much of self-importance, so much of bragging, so much of showing superiority over others, taking individual decisions without asking the collective. Then the quarrels began and separate groups were formed."</font><br>
+<font size="+0"><b>1990-0330 Birthday Pūjā (Hindi), Sahaja Yoga mein Pragati Kī Tīn Yuktiyām̐ (Three Tips to Progress in Sahaja Yoga), Rāmlīlā Maidān, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1232,7 +1286,7 @@ But only thing what you need is a courage and a complete commitment to go forwar
 
 <p>
 <font color="DarkRed">"......<br>
-We are always deceiving ourselves. We should make a resolution that, `No, we are not going to indulge into this deception any more. We are going to give up all this, and go into Sahaja Yoga, and go deep.' Only then will you benefit from it."</font><br>
+We are always deceiving ourselves. We should make a resolution that, 'No, we are not going to indulge into this deception any more. We are going to give up all this, and go into Sahaja Yoga, and go deep.' Only then will you benefit from it."</font><br>
 <font size="+0"><b>1990-1225 Christmas Pūjā (English + Hindi), Gaṇapatīpuḷe, Maharashtra, India</b></font>
 </p>
 
@@ -1456,7 +1510,7 @@ Because you do not meditate, you do not have the depth to show that you are grea
 <p>
 <font color="DarkRed">"We should also strive to become like this [like Īsā Masīh]. That we will keep ourselves clean and pure, and spotless.<br>
 But when doing this we should not use our intelligence, because then it will appear like a very difficult task.<br>
-Actually it is very simple. Just relax. Leave everything. Just tell yourself, your attention, not to focus on wrong things. If you make a firm resolution that, `We are not going to do any wrong and sinful deeds, anything that is dirty and filthy,' then no power on earth can shake you from this resolve."</font><br>
+Actually it is very simple. Just relax. Leave everything. Just tell yourself, your attention, not to focus on wrong things. If you make a firm resolution that, 'We are not going to do any wrong and sinful deeds, anything that is dirty and filthy,' then no power on earth can shake you from this resolve."</font><br>
 <font size="+0"><b>1993-1205 Śhrī Gaṇeśha Pūjā (Hindi), New Delhi, India</b></font>
 </p>
 

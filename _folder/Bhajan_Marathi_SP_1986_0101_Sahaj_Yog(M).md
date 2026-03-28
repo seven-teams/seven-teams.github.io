@@ -8,7 +8,7 @@ tags:
   - blue @ Shashikala Pawar
   - brown @ 1986
   - cornflowerblue @ TBD
-  - deeppink @ 1986-01001 Sahaj Yog (Marathi)
+  - deeppink @ 1986-0101 Sahaj Yog (Marathi)
   - maroon @ Let
   - maroon @ Love
   - maroon @ See
