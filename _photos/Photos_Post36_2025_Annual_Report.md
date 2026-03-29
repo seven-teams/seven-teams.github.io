@@ -16,9 +16,9 @@ We are pleased to report the following progress on uploads to the website <a hre
 <b>A. TOTAL NUMBER OF IMAGES: 35,174.</b><br> 
 A1. A total of 2,002 images were uploaded since the third annual report on 2024-0312, which means a daily average of 5.4254 images per day in the last year.<br>
 A2. A total of 4,753 images were uploaded since the second annual report on 2023-0312, which means a daily average of 6.4754 images per day in the last 2 years.<br>
-A2. A total of 10,627 images were uploaded since the first annual report on 2022-0312, which means a daily average of 9.7050 images per day in the last 3 years.<br>
-A3. The XYZ Unknown Collection has 1,644 images which represents 4.6739% of the total.<br>
-A4. Percentage of the targeted 5 million images: 0.70348%.<br>
+A3. A total of 10,627 images were uploaded since the first annual report on 2022-0312, which means a daily average of 9.7050 images per day in the last 3 years.<br>
+A4. The XYZ Unknown Collection has 1,644 images which represents 4.6739% of the total.<br>
+A5. Percentage of the targeted 5 million images: 0.70348%.<br>
 <br>
 <b>B. TOTAL NUMBER OF PHOTOS: 26,537.</b><br>
 B1. A total of 1,645 Photos were uploaded since the third annual report on 2024-0312, which means a daily average of 4.45799 Photos per day in the last year.<br>
