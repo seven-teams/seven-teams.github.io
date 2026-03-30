@@ -1,5 +1,5 @@
 ---
-title: 'Treatment for &#8216;Left Side&#8217; contributed by Alla Kulkarni, CA from 2007-1012 and 1019 The Australian Sahaja Yoga Newsletter, Page 5
+title: 'Treatment for &#8216;Left Side&#8217; contributed by Alla Kulkarni, CA from 2007-1012 and 1019 The Australian Sahaja Yoga Newsletter, Page 5'
 date: 2007-10-12
 permalink: /folder/Treatment-AK-Left-Side-2007-1012-1019-TASYN
 tags:

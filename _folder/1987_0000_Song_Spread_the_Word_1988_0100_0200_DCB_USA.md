@@ -1,5 +1,5 @@
 ---
-title: '1987-0000 Poem &#8216;Spread the Word&#8217; from the 1988-0100 and 0200 The Divine Cool Breeze (U.S.A.), Volume 2, Issue 1, Page 14'
+title: '1987-0000 Song &#8216;Spread the Word&#8217; from the 1988-0100 and 0200 The Divine Cool Breeze (U.S.A.), Volume 2, Issue 1, Page 14'
 date: 1987-12-01
 permalink: /folder/1987-0000-Spread-the-Word--1988-0100-0200-DCB-USA-P14
 tags:
