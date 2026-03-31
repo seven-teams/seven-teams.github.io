@@ -4,7 +4,9 @@ date: 1986-03-01
 permalink: /folder/Bhajan-PS-1986-0201-SY(M)
 tags:
   - black @ Song
+  - black @ Song in Marathi  
   - black @ Bhajan
+  - black @ Translated Song  
   - blue @ Pramod Shete
   - brown @ 1986
   - cornflowerblue @ TBD

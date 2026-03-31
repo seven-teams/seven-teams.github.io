@@ -4,6 +4,8 @@ date: 1986-03-01
 permalink: /folder/Poem-SG-1986-0400-SY(M)
 tags:
   - black @ Poetry
+  - black @ Poetry in Marathi  
+  - black @ Translated Poetry  
   - blue @ Sudha Girje
   - brown @ 1986
   - cornflowerblue @ New Delhi

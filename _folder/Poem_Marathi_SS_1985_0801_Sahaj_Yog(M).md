@@ -4,6 +4,8 @@ date: 1985-08-01
 permalink: /folder/Poem-SS-1985-0801-SY(M)
 tags:
   - black @ Poetry
+  - black @ Poetry in Marathi  
+  - black @ Translated Poetry  
   - blue @ Subhash Suravkar
   - brown @ 1985-08
   - deeppink @ 1985-0801 Sahaj Yog (Marathi)

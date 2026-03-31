@@ -4,7 +4,9 @@ date: 1986-01-01
 permalink: /folder/Bhajan-RM-1986-0101-SY(M)
 tags:
   - black @ Song
+  - black @ Song in Marathi  
   - black @ Bhajan
+  - black @ Translated Song  
   - blue @ Rekha Masal
   - brown @ 1986
   - cornflowerblue @ TBD

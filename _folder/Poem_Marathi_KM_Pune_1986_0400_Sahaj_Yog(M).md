@@ -4,6 +4,8 @@ date: 1986-03-01
 permalink: /folder/Poem-KM-1986-0400-SY(M)
 tags:
   - black @ Poetry
+  - black @ Poetry in Marathi  
+  - black @ Translated Poetry
   - blue @ Kishan More
   - brown @ 1986
   - cornflowerblue @ Pune
