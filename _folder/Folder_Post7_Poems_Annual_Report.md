@@ -11,7 +11,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to mention that 96 poems were uploaded since the second annual report on poetry on 2025-0329, which represents a poem uploaded every other 3.8229 days (the idea being to, as an average, upload one new Poem every other 3.5 days).<br>
-All the 336 Poems can be enjoyed at the link:<a href="https://seven-teams.github.io/tag-folder/"> <font color="Orange"><b>Folder Tag</b></font></a>
+All the 335 Poems can be enjoyed at the link:<a href="https://seven-teams.github.io/tag-folder/"> <font color="Orange"><b>Folder Tag</b></font></a>
 Please kindly share the news and the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
