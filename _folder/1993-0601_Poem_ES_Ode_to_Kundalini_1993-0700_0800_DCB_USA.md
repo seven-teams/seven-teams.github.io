@@ -1,5 +1,5 @@
 ---
-title: '1993-0601 Poem &#8216;Ode To Kundalini&#8217; by Edward Saugstad, Vienna from the 1993-0700 and 0800 The Divine Cool Breeze (U.S.A.), Volume 7, Issues 6 and 7, Page 8''
+title: '1993-0601 Poem &#8216;Ode To Kundalini&#8217; by Edward Saugstad, Vienna from the 1993-0700 and 0800 The Divine Cool Breeze (U.S.A.), Volume 7, Issues 6 and 7, Page 8'
 date: 1993-06-01
 permalink: /folder/1993-0601-ES-Ode-to-Kundalini-1993-0700-0800-DCB-USA-P8
 tags:

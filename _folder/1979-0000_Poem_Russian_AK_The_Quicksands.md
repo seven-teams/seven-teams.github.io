@@ -5,6 +5,7 @@ permalink: /folder/1979-AK-The-Quicksands
 tags:
   - black @ Poetry
   - black @ Poetry in Russian
+  - black @ Translated Poetry 
   - blue @ Alla Kulkarni
   - brown @ 1979
   - cornflowerblue @ Russia

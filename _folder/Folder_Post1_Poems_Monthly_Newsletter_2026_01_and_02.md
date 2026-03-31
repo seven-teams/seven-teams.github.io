@@ -16,7 +16,7 @@ Since the October to December 2025 newsletter, the following 16 extra Poems have
 3. <a href="https://seven-teams.github.io/folder/2009-WL-B2-A-Light-in-the-Night"> <font color="DeepPink"><b>A Light in the Night</b></font></a><br>
 4. <a href="https://seven-teams.github.io/folder/1997-98-MrsT-Divine-Bindi-SA"> <font color="DeepPink"><b>Divine Bindi</b></font></a><br>
 5. <a href="https://seven-teams.github.io/folder/2009-WL-B2-Fear"> <font color="DeepPink"><b>Fear</b></font></a><br>
-6. <a href="https://seven-teams.github.io/folder/009-WL-B1-For-a-Sister-on-Raksha-Bandhan-Day"> <font color="DeepPink"><b>For a Sister on Raksha Bandhan Da</b></font></a><br>
+6. <a href="https://seven-teams.github.io/folder/2009-WL-B1-For-a-Sister-on-Raksha-Bandhan-Day"> <font color="DeepPink"><b>For a Sister on Raksha Bandhan Da</b></font></a><br>
 7. <a href="https://seven-teams.github.io/folder/1997-98-Funny-Boys-SA"> <font color="DeepPink"><b>Funny Boys</b></font></a><br>
 8. <a href="https://seven-teams.github.io/folder/2009-WL-B2-Love-and-Hate"> <font color="DeepPink"><b>Love and Hate</b></font></a><br>
 9. <a href="https://seven-teams.github.io/folder/2009-WL-B2-Miracle-of-Life"> <font color="DeepPink"><b>Miracle of Life</b></font></a><br>

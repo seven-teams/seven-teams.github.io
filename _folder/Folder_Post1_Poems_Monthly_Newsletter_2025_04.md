@@ -12,7 +12,7 @@ Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 Since the March 2025 newsletter, the following 8 extra Poems have been uploaded.<br>
 1. <a href="https://seven-teams.github.io/folder/1987-0801-P-1987-0600-0800-DCB-USA-P11"> <font color="DeepPink"><b>Poem</b></font></a><br>
-2. <a href="https://seven-teams.github.io/folder/1989-0901-MT-Deep-Space-1989-0900-DCB-USA-P18"> <font color="DeepPink"><b>Deep Space</b></font></a><br>
+2. <a href="https://seven-teams.github.io/folder/1989-0901-MT-Deep-Space-1989-0900-DCB-USA-P16"> <font color="DeepPink"><b>Deep Space</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/1986-0601-0000-ND-Happy-Fathers-Day-1986-1100-Newsletter"> <font color="DeepPink"><b>Happy Father's Day</b></font></a><br>
 4. <a href="https://seven-teams.github.io/folder/1989-0501-D-Nature-1989-0500-DCB-USA-P10"> <font color="DeepPink"><b>Nature</b></font></a><br>
 5. <a href="https://seven-teams.github.io/folder/1989-0401-DPD-The-Gift-of-Love-1989-0400-0500-DCB-USA-P10"> <font color="DeepPink"><b>The Gift of Love</b></font></a><br>

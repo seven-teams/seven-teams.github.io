@@ -14,7 +14,6 @@ Since the November 2025 and January 2026 newsletter, the following 4 humor piece
 1. <a href="https://seven-teams.github.io/folder/1998-Clearing-Techniques-I-Sudarshan"> <font color="DeepPink"><b>Clearing Techniques, Part I</b></font></a><br>
 2. <a href="https://seven-teams.github.io/folder/1998-Clearing-Techniques-II-Sudarshan"> <font color="DeepPink"><b>Clearing Techniques, II</b></font></a><br>
 3. <a href="https://seven-teams.github.io/folder/Humor-The-things-our-children-have-to-say-1992-0904-SN(A)"> <font color="DeepPink"><b>The things our children have to say</b></font></a><br>
-<br>
 4. <a href="https://seven-teams.github.io/folder/2010-0000-AK-Oh-Ancient-People"> <font color="DeepPink"><b>Oh Ancient People</b></font></a><br>
 Jay Śhrī Mātājī!<br>
 <br>
