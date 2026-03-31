@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8216;The Song of Lord Ganesha&#8217; by Dr. Rustom Burjorjee from 1985-0500 and 0600 Nirmala Yoga, Page 4'
+title: '&#8216;The Song of Lord Ganesha&#8217; by Dr. Rustom Burjorjee from 1985-0500 and 0600 Nirmala Yoga, Page 4'
 date: 1985-05-01
 permalink: /folder/1985-0501-DrRB-The-Song-of-Lord-Ganesha
 tags:

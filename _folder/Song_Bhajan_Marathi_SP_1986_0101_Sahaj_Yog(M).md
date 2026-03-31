@@ -4,8 +4,8 @@ date: 1986-03-01
 permalink: /folder/Bhajan-SP-1986-0100-SY(M)
 tags:
   - black @ Song
-  - black @ Song in Marathi   
-  - black @ Translated Song  
+  - black @ Song in Marathi
+  - black @ Translated Song
   - black @ Bhajan
   - blue @ Shashikala Pawar
   - brown @ 1986

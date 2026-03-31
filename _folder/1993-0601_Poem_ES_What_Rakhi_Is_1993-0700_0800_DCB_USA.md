@@ -1,5 +1,5 @@
 ---
-title: 'Poem &#8216;What Rakhi Is&#8217; by Edward Saugstad, Vienna from the 1993-0600 The Divine Cool Breeze (U.S.A.), Volume 7, Issue 5, Page 12''
+title: 'Poem &#8216;What Rakhi Is&#8217; by Edward Saugstad, Vienna from the 1993-0600 The Divine Cool Breeze (U.S.A.), Volume 7, Issue 5, Page 12'
 date: 1993-06-01
 permalink: /folder/1993-0601-0000-ES-What-Rakhi-Is
 tags:

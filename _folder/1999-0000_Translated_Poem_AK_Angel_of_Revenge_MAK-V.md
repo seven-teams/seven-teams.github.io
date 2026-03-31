@@ -3,6 +3,7 @@ title: '1999-0000 Translation of Alla Kulkarni of the 1932-0000 Poem &#8216;Ange
 date: 1999-01-01
 permalink: /folder/1999-Translation-AK-Angel-of-Revenge
 tags:
+  - black @ Poetry
   - black @ Translated Poetry
   - blue @ Alla Kulkarni
   - brown @ 1999

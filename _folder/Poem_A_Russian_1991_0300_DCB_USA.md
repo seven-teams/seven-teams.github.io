@@ -3,6 +3,7 @@ title: 'Poem A Translated from Russian from the 1991-0300 The Divine Cool Breeze
 date: 1990-12-01
 permalink: /folder/1990-1201-A-1991-0300-DCB-USA-P9
 tags:
+  - black @ Poetry
   - black @ Translated Poetry
   - blue @ TBD
   - brown @ 1990
