@@ -50,10 +50,3 @@ It's more than we've hoped for, it's more than our dreams.<br>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
   <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1988-0100 to 0200 The Divine Cool Breeze (U.S.A.), Volume 2, Issue 1, Page 14, link <a href="https://b286c762-1c9b-468d-afbf-9f039b298299.usrfiles.com/ugd/b286c7_2ca603607a4445ee81cfa1b6fed71273.pdf"><font color="DarkGreen">1988-0100 to 0200 The DCB (U.S.A.)</font></a>.</list-item>
 </wave-list>
-
-<br>
-
-<wave-list>
-<list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>Editorial Note:</b> "The following poem about Rakhi brothers and sisters was given to those who attended the Shri Vishnumaya (Raksha Bandhan) puja on August 9 in New York:"</list-item>
-</wave-list>
