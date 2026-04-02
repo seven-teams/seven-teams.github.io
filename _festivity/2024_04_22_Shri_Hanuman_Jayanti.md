@@ -9,8 +9,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"Today we have come here to do Hanumāna's Pūjā. 
-
+<font color="DarkRed">"Today we have come here to do Hanumāna's Pūjā.<br>
 Śhrī Hanumāna is a great character in our being and He runs all the way from Swādhiṣhṭhāna to your brain and He supplies all the necessary guidance we need in our futuristic planning or in our mental activities. He gives us guidance and protection.<br>
 ......<br>
 It is very surprising how a Deity like Śhrī Hanumāna, who is an eternal child, because He was like a monkey. His head was that of a monkey, if not of an elephant.<br>
