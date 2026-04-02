@@ -10,14 +10,14 @@ tags:
 
 <p>
 <font color="SaddleBrown">"What to say about Hanumāna? <b>The more powerful and wise, he was equally devoted and dedicated.</b> Generally, such a powerful person becomes right-sided and considers himself so high that he would not listen to anyone else. But Hanumāna is a special Deity, a typical Deity full of qualities. There was a perfect balance between his devotion and power. How could he achieve this balance is a thing to be understood.<br>
-In Sahaja Yoga, when we are enlightened, we get many powers. Then we have to keep balance. We love others and with the power of the love, we keep on doing our duties.<br>
+In Sahaja Yoga, when we are enlightened, we get many powers. Then we have to keep balance. We love others and with the power of the love, we keep on doing our duties.</font><br>
 <font size="+0"><b>1999-0331 Śhrī Hanumāna Pūjā (Hindi), Krishna Sundar Garden, Amit Gaikwad Mala, Erandwane, Mhatre Bridge, Pune, Maharashtra, India</b></font>
 </p>
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0250.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkGreen">"<b>ach cell of Śhrī Hanumāna’s body was filled with power and devotion. Because of this specialty today we worship Śhrī Hanumāna all over the world.</b><br>
+<font color="DarkGreen">"<b>ach cell of Śhrī Hanumāna’s body was filled with power and devotion. Because of this specialty today we worship Śhrī Hanumāna all over the world.</b></font><br>
 <font size="+0"><b>1999-0331 Śhrī Hanumāna Pūjā (Hindi), Krishna Sundar Garden, Amit Gaikwad Mala, Erandwane, Mhatre Bridge, Pune, Maharashtra, India</b></font><br>
 <font color="MediumPurplen"><b>Auṃ Twameva sākṣhāt Śhrī Bhakti-Śhakti Samādhikarī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 <font size="+0"><b>You are the master of balancing devotion (left) and power (right)</b></font><br>
@@ -41,7 +41,7 @@ So He was an eternal child and He was the one who was used to run the right side
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0251.png" /></div>
 
 <p style="text-align:center;">
-<font size="-1"><font color="DarkGreen">"...... the mental understanding of whether it is good or bad is given to us by Śhrī Hanumāna."<br>
+<font color="DarkGreen">"...... the mental understanding of whether it is good or bad is given to us by Śhrī Hanumāna."</font><br>
 <font size="+0">1990-0831 Śhrī Hanumāna Pūjā, Electromagnetic Force, Schloss Schwetzingen, Schloß Mittelbau, Schwetzingen, Baden-Württemberg, Germany<b></b></font><br>
 <font color="blue">You give guidance, self-confidence and discrimination.<br>
 You are called Devdut, the ambassador of God Almighty.<br>
@@ -111,7 +111,7 @@ With Śhrī Rāma, Śhrī Lakṣhmaṇa and Śhrī Sītā,<br>
 <font color="blue"You create the co-relationship between the different sides of the brain.<br>
 You give us the power to think and protect us from bad thinking. You are our conscience.<br>
 You control human beings through their conscience.<br>
-You are ‘sat asat viveka buddhi’, the intelligence to discriminate between truth and untruth.<br>
+You are ‘sat asat viveka buddhi’, the intelligence to discriminate between truth and untruth.</font><br>
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
