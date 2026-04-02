@@ -106,9 +106,9 @@ Most auspicious figure,<br>
 <b>Rām Lakhan Sītā Sahit</b><br>
 With Śhrī Rāma, Śhrī Lakṣhmaṇa and Śhrī Sītā,<br>
 <b>Hridaya Basahu Sur Bhūp.</b><br>
->O Protector of Heaven and Earth, please reside in my heart.</font><br>
+O Protector of Heaven and Earth, please reside in my heart.</font><br>
 <br>
-<font color="blue"You create the co-relationship between the different sides of the brain.<br>
+<font color="blue">You create the co-relationship between the different sides of the brain.<br>
 You give us the power to think and protect us from bad thinking. You are our conscience.<br>
 You control human beings through their conscience.<br>
 You are ‘sat asat viveka buddhi’, the intelligence to discriminate between truth and untruth.</font><br>
