@@ -10,8 +10,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo of the special event <font color="Crimson"><b>1916-0000 Miracle (Evening Program, Sitting on a sofa, white shawl and blue blanket)</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 low resolution from the Named Collections.<br>
-The direct link to the 3 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/https://eternalmoments.smugmug.com/Countries/TBD/1916"> TBD 1916</a>.<br>
+We are pleased to let you know that 2 Photos of the special event <font color="Crimson"><b>1916-0000 Miracle (Evening Program, Sitting on a sofa, white shawl and blue blanket)</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 low resolutions from the Named Collections.<br>
+[Note: 1 Photo uploaded only on 2026-0401.]<br>
+The direct link to the 4 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/https://eternalmoments.smugmug.com/Countries/TBD/1916"> TBD 1916</a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
