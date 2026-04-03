@@ -25,7 +25,7 @@ We would like to report on the up-dated <font color="mediumvioletred">Database o
 5. has a size of 454.3 (an increment of 21.9 mb from Version 10).<br>
 </p>
 
-<br>
+<p>
 Jay Śhrī Mātājī!<br>
 <br>
 The Comprehensive Compilations Team (the Divine Message Subteam)<br>
