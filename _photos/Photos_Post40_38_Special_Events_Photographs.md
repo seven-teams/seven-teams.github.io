@@ -1,4 +1,4 @@
---
+---
 title: 'Photos Post 40: Special Events (after 1975), Part 38'
 date: 2026-03-14
 permalink: /photos/2026/0314-d
