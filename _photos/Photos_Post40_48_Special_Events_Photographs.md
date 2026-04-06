@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 40: Special Events (after 1975), Part 48'
 date: 2026-04-06
-permalink: /photos/2026/0406-b
+permalink: /photos/2026/0406-c
 tags:
   - green @ Updates
 ---
