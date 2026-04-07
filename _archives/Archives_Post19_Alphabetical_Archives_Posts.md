@@ -19,13 +19,13 @@ tags:
 <b>5.</b> <a href="https://seven-teams.github.io/archives/2026/0104"><font color="maroon"><b>Books</b></font></a>: 1 file<br> 
 <b>6.</b> <a href="https://seven-teams.github.io/archives/2025/1116-a"><font color="maroon"><b>Diary Pages</b></font></a>: 1 file<br> 
 <b>7.</b> <a href="https://seven-teams.github.io/archives/2022/0818"><font color="maroon"><b>Divine Cool Breeze (USA)</b></font></a>: 2 files<br>
-<b>8.</b> <a href="https://seven-teams.github.io/archives/2022/0818"><font color="maroon"><b>Fliers</b></font></a>: 1 file<br>
+<b>8.</b> <a href="https://seven-teams.github.io/archives/2025/0611-b"><font color="maroon"><b>Fliers</b></font></a>: 1 file<br>
 <b>9.</b> <a href="https://seven-teams.github.io/archives/2023/0119"><font color="maroon"><b>Letters and Press Releases</b></font></a>: 6 files<br>
 <b>10.</b> <a href="https://seven-teams.github.io/archives/2023/0824-a"><font color="maroon"><b>Newsletter Australia</b></font></a>: 3 files<br>
 <b>11.</b> <a href="https://seven-teams.github.io/archives/2023/0829"><font color="maroon"><b>Official Photos with Text</b></font></a>: 1 file<br>
 <b>12.</b> <a href="https://seven-teams.github.io/archives/2023/0502"><font color="maroon"><b>Posters</b></font></a>: 17 files<br>
 <b>13.</b> <a href="https://seven-teams.github.io/archives/2023/0519"><font color="maroon"><b>Publications Related to Offerings</b></font></a>: 1 file<br>
-<b>14.</b> <a href="https://seven-teams.github.io/archives/2023/0629"><font color="maroon"><b>Research</b></font></a>: 3 files<br>
+<b>14.</b> <a href="https://seven-teams.github.io/archives/2025/0611-a"><font color="maroon"><b>Research</b></font></a>: 3 files<br>
 <b>15.</b> <a href="https://seven-teams.github.io/archives/2023/0629"><font color="maroon"><b>Sahaj Patrika (Hindi)</b></font></a>: 1 file<br>
 <b>16.</b> <b>Sahaj Yog (Marathi)</b>: Total files 46<br>
  &emsp; &emsp; &emsp;<b>16.1.</b> <a href="https://seven-teams.github.io/archives/2024/1229"><font color="maroon"><b>Sahaj Yog (Marathi), Part 2 (1986)</b></font></a>: 10 files<br>
