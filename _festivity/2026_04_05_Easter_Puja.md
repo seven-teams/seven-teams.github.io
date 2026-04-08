@@ -159,11 +159,6 @@ He told some important things at that time and one most important thing out of t
 </p>
 
 <p>
-<font color="green"><b></b></font><br>
-<a href="">video</a> 
-</p>
-
-<p>
 <font size="+0">Jai Śhrī Mātājī!<br>
 On behalf of the festivity team</font>
 
