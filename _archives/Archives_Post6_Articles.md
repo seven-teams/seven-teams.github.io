@@ -181,7 +181,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <font color="DarkGreen"><b>A25.</b></font> <b>1996-0717 Article 'Prisli Jsme si pro Kousek lásky kterou rozdávála Šri Mátadží' by Eva Sýkorová published in Večernik Praha, Czech Republic, (David Burša Collection)</b> (2 pages, uploaded on 2023-0508), <font color="SeaGreen"><b>Source:</b></font> <a href="https://photos.app.goo.gl/CiXWhaaR8YD5JyRA8"> <b>Šrí Mátadží v ČR 2</b></a>
 
-<div style="text-align: center"><img src="/images/1996-0717_Article_We_came_for_a_piece_of_love_that_was_given_out_by_Shri_Mataji_by_Eva Sykorova_published_in_Vecernik_Praha,_Czech_Republic,_Slide_1_(t)_(David_Bursa_Collection).jpeg" /></div>
+<div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1996-0717_Article_We_came_for_a_piece_of_love_that_was_given_out_by_Shri_Mataji_by_Eva_Sykorova_published_in_Vecernik_Praha_Czech_Republic_Slide_1_(t)_(David_Bursa_Collection).jpeg" /></div>
 
 <div style="text-align: center"><img src="https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1996-0717_Article_We_came_for_a_piece_of_love_that_was_given_out_by_Shri_Mataji_by_Eva_Sykorova_published_in_Vecernik_Praha_Czech_Republic_Slide_2_(b)_(David_Bursa_Collection).jpeg" /></div>
 
