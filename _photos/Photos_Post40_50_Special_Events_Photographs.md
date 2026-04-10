@@ -10,7 +10,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 4 Photos of the special event <font color="Crimson"><b>1985-0124 Public Program, india</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
+We are pleased to let you know that 4 Photos of the special event <font color="Crimson"><b>1985-0124 Public Program, India</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 high resolutions from the Named Collections.<br>
 The direct link to the 4 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Karan-Khurana-Collection/1985"> Collection 1985</a>.<br>
 The event has as well 2 photos Moments of Joy (uploaded on 2026-0403) which can be seen in the smallest gallery at the link <a href="https://eternalmoments.smugmug.com/Collections/Karan-Khurana-Collection/Moments-of-Joy"> Collection Moments of Joy</a>.<br>
 <br>
