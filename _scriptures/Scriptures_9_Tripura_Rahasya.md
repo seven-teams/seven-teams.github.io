@@ -741,8 +741,6 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 <font color="DarkGreen"><b>Key to the Parable of Chapter 5</b></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>8.4 Translation</b><br>
 <font color="DarkGreen">"The Supreme Mother's grace  descended on him [Hemachida] ......"</font>
@@ -763,12 +761,12 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 <font color="DarkGreen">"...... <i>Madam Vorax</i> is desire; her sons are <i>anger</i> and <i>greed</i>; their city is <i>the body</i>. What was said to be my most potent talisman is <i>Realization</i> of the Self. ...... The consummation of the discerning faculty is <i>Samadhi</i>. My admission into my mother's chamber is <i>final emancipation</i>."</font>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Chapter 9</b><br>
 <font color="DarkGreen"><b>How that Hemachuda Realized the Self after Analyzing His Own Mind and Plunging Within</b></font>
 </p>
-
-<div class="para-divider"></div>
 
 <p>
 <b>9.6 Translation</b><br>
@@ -855,12 +853,12 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 <font color="DarkGreen">"...... none of these finds place in that Transcendence which is the support of all there is, and which is the being in all, but is bereft of everything (does not contain anything). That is the Supreme Lord, the Creator, the Supporter and the Destroyer of the Universe and the Eternal Being."</font>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Chapter 10</b><br>
 <font color="DarkGreen"><b>On Further Instructions by His Beloved, He Got Samadhi in Spite of His External Activities and Remained in the State of Emancipation Even When Alive</b></font>
 </p>
-
-<div class="para-divider"></div>
 
 <p>
 <b>10.7-14 Translation</b><br>
@@ -897,38 +895,80 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 <font color="DarkGreen">Even parrots and cockatoos in their cages spoke words of wisdom. For example: ‘Consider the Self as pure intelligence bereft of objective knowledge. ...... [Śhri Dattātreya:] ...... "Therefore let those sensible people who are desirous of chit –'Pure intelligence' turn away from illusory knowledge and contemplate their own Self — the absolute consciousness —  which illumines all the rest, and which is their being too."</font>
 </p>
 
+<div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 11</b><br>
 <font color="DarkGreen"><b>That the Cosmos Is Not Other Than Intelligence</b></font>
 </p>
 
+<p>
+<b>11.6-30 Translation</b><br>
+<font color="DarkGreen">[Śhri Dattātreya:] "...... Scriptures alone are the guide for comprehending the metaphysical and the transcendental.
+The rest are not authoritative because of the individual’s limitations, the absence of reliable tests for their accuracy. The Universe must have a Creator, and He must be an intelligent principle, but He cannot be of any known type because of the vastness of the creation. His power is past understanding and is dealt with in the scriptures, whose authority is incontrovertible. ...... He created the Universe by His own power. It is in its entirety and all its details, a picture on the screen of His Self. ...... is the Lord not to be confounded with the creation. ...... How can this unique creation be apart from Him? There can indeed be nothing but consciousness. ......"</font>
+</p>
+
+<p>
+<b>11.31-32 Translation</b><br>
+<font color="DarkGreen"> "...... this consciousness is the only existence, covering the whole Universe, and perfect all through. ......The Supreme God is thus the embodiment of pure Consciousness."</font>
+</p>
+
+<p>
+<b>11.33-34 Translation</b><br>
+<font color="DarkGreen">"This whole Universe consisting of the mobile and the immobile, arises from, abides in, and resolves into Him. This is the final and well-known conclusion of the scriptures; and the scriptures never err. The guide by which one can apprehend the metaphysical and transcendental matters is scripture alone."</font>
+</p>
+
+<p>
+<b>11.36-40 Translation</b><br>
+<font color="DarkGreen">"The creation is not an object apart; it is a picture drawn on the canvas of supreme consciousness, for there cannot possibly be anything beyond Perfection. ...... The Universe has thus originated only as an image on the surface of the mirror of the Absolute. This conclusion is in harmony with all facts."</font>
+</p>
+
+<p>
+<b>11.41-45 Translation</b><br>
+<font color="DarkGreen">"...... this creation a mental figment of Shiva. Shiva is absolute Awareness, without any form. Shri Tripurā is Shakti (energy) and Witness of the whole. That Being is perfect all round and remains undivided."</font>
+</p>
+
+<p>
+<b>11.52-54 Translation</b><br>
+<font color="DarkGreen">"...... Just as reflections have no substance in them, outside of the mirror, so also the things of the world have no substance in them outside of the cognising factor, viz., Intelligence."</font>
+</p>
+
+<p>
+<b>11.55-63 Translation</b><br>
+<font color="DarkGreen">"...... Therefore I say that the Universe is nothing but an image on our consciousness."</font>
+</p>
+
+<p>
+<b>11.65-66 Translation</b><br>
+<font color="DarkGreen">"...... The place of objects is taken up by the peculiar imaginative quality of the mind. When such imagination is deep, it takes shape as creation; consciousness is pure and unblemished in the absence of imagination."</font>
+</p>
+
+<p>
+<b>11.67 Translation</b><br>
+<font color="DarkGreen">"Thus you see how consciousness was absolute and pure before creation and how its peculiar quality or <i>will</i> brought about this image of the world in it."</font>
+</p>
+
+<p>
+<b>11.71 Translation</b><br>
+<font color="DarkGreen">"The hampering of limitations is to some extent overcome by the use of incantations, gems and herbs, and an unbroken current of ‘I’ is established. With the aid of that pure yoga, O Rama [Śhri Paraśhurāma], observe the creation manifested by one’s will ......"</font>
+</p>
+
+<p>
+<b>11.73 Translation</b><br>
+<font color="DarkGreen">"A magician’s creations are only transitory; a Yogi’s creations may be permanent; both are external to the creator, whereas the divine creation cannot be apart from the omnipresent Lord." [Note: Viśhwāmitra, a great Ṛiṣhi, is reputed to have created a duplicate Universe, a part of which consists of the constellations composing Scorpio, Sagittarius, and the Southern Cross. Some trees, plants and herbs in imitation of well-known species (e.g., palmyra corresponding to coconut, jungle potatoes and onions, insipid to taste and useless, etc.) are among his creations] </font>
+</p>
+
+<p>
+<b>11.76 Translation</b><br>
+<font color="DarkGreen">"Truth can never change its nature, whereas untruth is always changing. See how changeful the nature of the world is!"</font>
+</p>
+
+<p>
+<b>11.85 Translation</b><br>
+<font color="DarkGreen">". That which shines as ‘Is’, is Her Majesty the Absolute Consciousness. Thus the Universe is only the Self — the One and one only."</font>
+</p>
+
 <div class="para-divider"></div>
-
-<p>
-<b>11.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>11.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>11.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>11.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>11.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
 
 <p style="text-align:center;">
 <b>Chapter 12</b><br>
@@ -936,6 +976,106 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>12.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
 
 <p style="text-align:center;">
 <b>Chapter 13</b><br>
