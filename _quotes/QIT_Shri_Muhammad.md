@@ -1137,6 +1137,14 @@ The same thing with us: you can't follow the Zen is Sahaja Yoga. What ... what Z
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"Actually Mussulman: means a person who is realized. And Pīr is a person whose ... whose Realization is established. So much so that He [Prophet Muhammad] said, "Those who have become Mussulman should be buried and not be burnt." Because [laughing:] He thought they are all realized Souls.<br>
+But Realization finished off with His son-in-law and His daughter. After that He had two sons [grandchildren] who were great Souls, who are really the Reincarnation[s] of Lav and Kuśh."</font><br>
+<font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">"Moses, Abraham, Confucius, Socrates, Muhammad, Nāṇak, Janak, Lao Tze, these are the Primordial Masters, the Principle of Primordial Masters, the Ādi Gurus, who incarnated on this Earth to teach us how to keep our sustainance [sustenance]. They taught against all alcohols and strong things."</font><br>
 <font size="+0"><b>1981-0402 Public Program, Day 1, The Pure Power of Desire or Aim of Seeking, Royal Exhibition Building, Carlton Gardens, 9 Nicholson Street, Melbourne, Victoria, Australia</b></font>
 </p>

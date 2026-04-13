@@ -68,28 +68,46 @@ This I am telling you the subtle side of it, you may check this when your Kuṇ�
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"There's one more point I would like to tell you, that they have not yet gone here, but here you have to [<font color="orange">unclear</font>] and [<font color="orange">unclear</font>], there are the two uh more small uh-uh-uh chakras: one that belongs to, uh uh which we call as the Sūrya -- Sūrya is the-uh-uh uh uh, means the Sun, the Sun center -- and the another as the Moon center on the left-hand side. And these two are uh governed or, we can say, is uh bestowed upon by two great uh-uh-uh people, who are the Disciple Elements.<br>
+And They, Disciple Elements were first, were born to Śhrī Rāma and Śhrī Sītā as the-ee Lav and Kuśh. And then They incarnated many a times on this Earth as disciple. One of Them is, we can say, ah ... was uh Śhaṅkarāchārya, another was Kabīra, uh like that. Then, we can say, later on, uh like, uh before Śhaṅkarāchārya, they came as Buddha and Mahāvīra. Then Śhaṅkarāchārya, and then, uh I told you, which is? Uh after Śhaṅkarāchārya came ... the Advent of Hasan and Husayn, who were the grandsons of Prophet.<br>
+So these have been incarnating, and they have been moving from one uh-uh-uh side to another and telling people that, "This is extreme, leave it." "This is the extreme, leave it. Come in the center, and be in the center." That has been Their job. And they are the ones who are, sort of, imparting you that awareness by you become a perfect disciple."</font><br>
 <font size="+0"><b>1979-0530 Public Program, A Higher Life, A World of Bliss and Joy (The Three Paths of Evolution), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Actually Mussulman: means a person who is realized. And Pīr is a person whose ... whose Realization is established. So much so that He [Prophet Muhammad] said, "Those who have become Mussulman should be buried and not be burnt." Because [laughing:] He thought they are all realized Souls.<br>
+But Realization finished off with His son-in-law and His daughter. After that He had two sons [grandchildren] who were great Souls, who are really the Reincarnation[s] of Lav and Kuśh.<br>
+Now perhaps we do not know what happened to Lav and Kuśh when They were born. Lav and Kuśh, when Their Mother disappeared in the Mother Earth and the Father They were little annoyed with that, went in the north: one went to Caucasus and another went to China. Lav went to Caucasus, and from there He became a very powerful king in Russia.<br>
+Russians always use Sanskrit language. We do not know that how much Sanskrit they use. For example, they-sh ... they will say kharos ... khorosho [fine], means Haro Śhivay. Then Pravada itself, the word Pra-vada: vada is 'to say'. Pra means enlightened. Is, you see their language, is full of Sanskrit words. Practically, it is absolutely based on Sanskrit.<br>
+And you'd say Slav people ... Slavs, sa [with] love, Sla ...<br>
+Lav ruled there for years together, and about four hundred y-years back, His very distentrary ... uh di... di... descendants flew away from there, went to Iran, where there's a ... there's a Godd... Goddess Hindolika's uh-uh-uh temple is there, which is all described in the Purāṇas, where they used to worship Goddess Hindolika.<br>
+From there they came down and spread all over. It's a big story.<br>
+Then Kuśh went to China. That's how you have Kuṣhāṇ, in China. And Chinese language is very much near Sanskrit and quite close to Marathi language, is more surprising. If you hear them talking, for example they say; 'Ma tza tum.' Tza is only in Marathi language they use this word tza. We never say in Hindi tza or in any other language you won't find it. But only in Chinese and in Marathi language they have this word 'tza'.<br>
+Is very interesting to see: how uh the spirituality spread into these countries, and had then how it died out.<br>
+All these things happened, but then They were born again and again. They were born as Mahāvīra and Buddha. They are the same. They are born as Mārkaṇḍeya. They are born as Kabīra, as Ādi Śhaṅkarāchārya."</font><br>
 <font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"I do not know if you have read the life of Śhrī Rāma, who was a very great's king, and He sacrificed His own wife just to keep the public opinion all right. That was the greatest thing, democracy one can think. But you have see people, that for their own children, they sacrifice the whole country. There are people who sacrifice the whole country for their wives, while He is the man who sacrificed His wife for the whole country.<br>
+And the whole story is so beautiful, that: the wife had to go and deliver children in a[n] āśhram of a very good Sage, known as Vālmīki.<br>
+Now these two children were born, and when Rāma came to call Her, She left Him and disappeared into Mother Earth.<br>
+After that [it] is said: these two children, who were Lav and Kuśh, They went -- that's a two ends of a grass, because They were twins -- they decided not to stay in India.<br>
+That time the Himalayas, you see, was not so ... the height was not so much.<br>
+And They decided to disappear in the North. So Lav went right towards the Caucasia's [Caucasus] side and Kuśh went to the left side. The left side was China. That's why the Russians are called as Slav, lav come from this Lav, and the Chinese are called as Kuṣhāṇ.<br>
+Better go and tell them, 'They are the descendants of two twin brothers, who were the children of Sītājī, and why should they fight among themselves?' [The] Chinese and Russians. Because they are Slavs and this one is Kuṣhāṇ."</font><br>
 <font size="+0"><b>1981-0330 Public Program, Cycle 1, Day 4, Anāhata, Śhrī Lalitā, Śhrī Chakra, Maccabean Hall (now Sydney Jewish Museum), 146, Darlinghurst Road, Darlinghurst (eastern suburb of Sydney), New South Wales, Australia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Is most surprising: that, you see, China and -- I must tell you a good story about China and the ... Russia. Is very interesting. That Sītā had two sons, twins, called as Lav and Kuśh. And, you see, Rāma had, Rāma had ... uh-uh ... sort of's [of] sent Her in the wilderness, because people criticized Her staying with Rāvaṇa, whatever it is. So these two boys didn't accept His kingdom, Ayodhyā, and They went across India. One of Them went to Caucasia's [Caucasus], another went to China. To this Caucasia's [Caucasus] fellow went actually to Russia because He established His kingdom there. And that's why it is called as Slav, from Lav. His name was Lav. And the ... another brother who went to China is Kuṣhāṇ. He, His name was Kuśhaher.<br>
+Now imagine these two brothers [Russians and Americans/Chinese] fighting, what should I feel about them? I mean there's nothing to fight! Nothing to fight! I mean this fighting is all nonsense! "</font><br>
 <font size="+0"><b>1981-1014 Public Program, Day 3, John Muir Elementary School, 1721 Ocean Park Boulevard, Santa Monica (23 kms W of Los Angeles), CA, U.S.A.</b></font>
 </p>
 
@@ -175,7 +193,7 @@ There's a-eh ... temple of the Goddess of Hindolika [Devī], there [in Iran], ..
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"The great seer Valmiki who wrote the Ramayana, himself came from a low caste <i>of a fisherman -- was himself a decoit.</i> He was transformed into a great saint by Narada. Shri Sita, Luv<i>,<\i> and Kush were looked after by him in his Ashram. Can there be a greater example to show how Shri Sita never considered the existence of caste and bestowed Divine rights on the people irrespective of ant caste<i>?</i> It seems Shri Rama and Shri Sita deliberately created situations to <i>put</i> down the horrible caste system which had become the cancer of the Indian society. <i>It is so evident how they respected a Saint like ValmiKi despite his very low birth according to this curse of the caste system.</i>"</font><br>
+<font color="red">"The great seer Valmiki who wrote the Ramayana, himself came from a low caste <i>of a fisherman -- was himself a decoit.</i> He was transformed into a great saint by Narada. Shri Sita, Luv,<\i> and Kush were looked after by him in his Ashram. Can there be a greater example to show how Shri Sita never considered the existence of caste and bestowed Divine rights on the people irrespective of ant caste<i>?</i> It seems Shri Rama and Shri Sita deliberately created situations to <i>put</i> down the horrible caste system which had become the cancer of the Indian society. <i>It is so evident how they respected a Saint like ValmiKi despite his very low birth according to this curse of the caste system.</i>"</font><br>
 <font size="+0"><b>1988-0000 Essay 'Riddles of Dr. Ambedkar' by a Sahaja Yogi with Handwritten Corrections and Additions, Follow on to the 1988-0126 Interview with Foreign Correspondents, India</b></font>
 </p>
 
@@ -214,7 +232,7 @@ And this is the place where Vālmīki, who wrote the great epic of Rāmāyaṇa,
 That's why you see a kind of a-eh-eh ... culture of Maharashtra ah-ah-ah going to the hills and also to Nepal through Her and Her children, who went down: one to Russia and another to China.<br>
 One, the name of one who went to Russia was Lav, and the one who went to China was Kuśh. So, they are called as Slavs, they're was mostly called as Lev[s]. And those who went to China are called as Kuśhan[s].<br>
 So They lived here from Their birth, till They became about, say, twelve years of age, when Vālmīki composed Rāmāyaṇa, and taught Them how to sing that song, of Rāmāyaṇa.<br>
-So, then They went to Ayodhyā, and there They started singing the song. With that singing, Śhrī Rāma was very much touched. They challenged Him in a way that, `There's a lady [Śhrī Sītā] who was such a chaste person who was driven out of,' [but] They didn't know that was, Rāma was Their father.<br>
+So, then They went to Ayodhyā, and there They started singing the song. With that singing, Śhrī Rāma was very much touched. They challenged Him in a way that, 'There's a lady [Śhrī Sītā] who was such a chaste person who was driven out of,' [but] They didn't know that was, Rāma was Their father.<br>
 [Breathing out:] Hah-hah then They came back and stayed here for some time and then went to, again to Nepal, because Sh-She was a Nepali lady.<br>
 So I think Her father must have arranged something for Her to stay in Nepal in that Vālmīki āśhram, which is ... which can be only approached from Bihar, which I've seen Myself. "</font><br>
 <font size="+0"><b>1989-1219 Pūjā (English + Marathi), Aurangabad Has a Special significance in My own life (Vālmīki and the Story of this Place), Aurangabad, Maharashtra, India</b></font>
@@ -252,7 +270,13 @@ As disciples They learned archery when they were small. And learned Rāmāyaṇa
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Also in ancient times, the son of Rāma went through Iran. His name was Lav. He went to Caucasia's [Caucasus].<br>
+That's why the Russians are called as Slavs. You see, His name was Lav -- Slav -- with love.<br>
+Now, this ... is said in our Purāṇas, that when He went there, there was a temple of a Goddess called Hindulika, on the way, in Iran itself, there was this temple.<br>
+But I don't know the exact spot where it is-ss.<br>
+And they used to worship the Goddess, in those days.<br>
+But then the whole thing ... was very different.<br>
+They used to worship women, mothers, very much, in those days."</font><br>
 <font size="+0"><b>1992-0915 Public Talk to a Group of about 20 Iranians, Āśhram, 5206 Topeka Drive, Tarzana, CA, U.S.A.</b></font>
 </p>
 
