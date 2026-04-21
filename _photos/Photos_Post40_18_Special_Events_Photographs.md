@@ -10,8 +10,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 6 Photos of the special event <font color="Crimson"><b>1986-0531 Evening Program, U.S.A.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 6 low resolutions from the Named Collections.<br>
-The direct link to the 6 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Dallas-Fort-Worth-Collection/1986"> Collection 1986</a>.<br>
+We are pleased to let you know that 11 Photos of the special event <font color="Crimson"><b>1986-0531 Evening Program, U.S.A.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 high resolutions, 1 medium, and 6 low resolutions from the Named Collections.<br>
+The direct link to the 11 Photos in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Collections/Dallas-Fort-Worth-Collection/1986"> Collection 1986</a>.<br>
+[Note: 5 Photios uploaded only on 2026-0421.]<br>
 The event has as well 1 photo Moments of Joy (uploaded yesterday) which can be seen in the smallest gallery at the link <a href="https://eternalmoments.smugmug.com/Collections/Dallas-Fort-Worth-Collection/Moments-of-Joy"> Collection Moments of Joy</a>.<br>
 Please kindly share the links with all our brothers and sisters.<br>
 <br>
