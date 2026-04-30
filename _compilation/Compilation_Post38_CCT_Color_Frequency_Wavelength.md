@@ -18,9 +18,59 @@ tags:
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"Vibratory awareness begins now. As Kuṇḍalinī unites our individual consciousness to the universal, the Ātmā and the Paramātma, we are suddenly tuned into the universal wavelength of vibrations. These vibrations pervade the cosmos, but before Realization, while we are still in the egg, we know nothing of them. When Kuṇḍalinī breaks the shell, we emerge into God's Kingdom, the Collective Unconscious, and we are singing the song of the Unconscious, the vibrations are playing through [the] instrument we have become. "</font><br>
+<font size="+0"><b>1900-0000 Quote from the book Sahaja Yoga the Divine Path by Dr. Hari Shankar Sharma, Part I, Page 65</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">"[Due to an Āgñyā chakra problem, Douglas Fry used to see different colors, this beautiful rainbow green and this beautiful rainbow, flashing from Śhrī Mātājī. He mentions this to Her.]<br>
 You shouldn't see that. One color is power [red] and one is purity [green]. If you can actually see those colors, it means you are not in the center. You are off to one side."</font><br>
 <font size="+0"><b>1900-0000 Quote on Seeing Colors, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"You see, what I am saying: that, as you are realized, you will be surprised that you are in a different wavelength absolutely, on a different position."</font><br>
+<font size="+0"><b>1979-0422 Talk to Sahaja Yogis, Give Up Misidentifications, Āśhram, 8, Hamilton Road, Dollis Hill, London NW10 1NX, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">[Reply to the question of a gentleman, "How important is color in our lives?":] "Color? It is important uh if you understand the value in vibrations. See the color, any color that you use, used with other colors gives a coefficience, you see.<br>
+Uh-uh-uh a painting, say for example, uh every painting is valued according to something artificial in normal human life. Uh I don't know how they value it. But, in the spiritual life, we value it with the vibratory point of view.<br>
+For example you see a painting, maybe abstract, maybe any kind of a painting, and you put your hands towards the Phot... painting. If the person who has painted it, is a realized Soul ...<br>
+For example I would say Michelangelo. He was a realized Soul. And he has done the Sistine Chapel. Uh if you see the Christ he has made, is absolutely very near of what Christ was.<br>
+But other people, you see, they make Christ in such a horrible way that bad vibrations are coming. And it ... I mean I don't know how people like it but some people say, "Oh, it's very great and it's very valuable," I just don't [laughs] understand, who is nowhere near Christ, it is not good colors, and is the inside, the filth inside, you see, people are trying to express. For example to show Christ, in like, just like a skeleton, you know. Is cynicism, I think.<br>
+How can a person who carried the complete cross be like that? You can imagine! You see, He was a healthy man. Not healthy, He could take five of uh-uh-uh modern people and just s-s-swirl them in the [laughs] air, you see. He was such a powerful personality!<br>
+And such a man can only be non violent. And His nonviolence has a glory, isn't it?<br>
+What is the nonviolence of a person who is already a weakling?<br>
+So they show Christ, such a weakling, I can't believe it. And I just don't understand, 'From where did they get the ideas?'<br>
+But's I have seen such statues being sold for a very big price.<br>
+So human beings have their own ways of value system. But the Divine has different.<br>
+So the color also plays, say, you may have colors. Like red color is now, people the-uh-uh according to the psychologists who are quite stupid, I must say [soft laughter], is uh-uh-uh ... uh-uh-uh very bad, according to them the red color is. No, but it is not! Red is the color of the Mother. Because the first light in it, mother's womb, is red. The child sees the red. And that's why it has the smallest [largest, up to 700 nm], uh what you call, the wavelength.<br>
+Anything that you want to attract the attention: you see, a cricket ball is red. If you want to say danger, it is red.<br>
+And the red color has its own value. The white has its own value.<br>
+But in knuh-uh-uh human mind it's very different.<br>
+You see, they have their own norms and forms and things like, you see, they have got."</font><br>
+<font size="+0"><b>1982-0514 Public Program, Day 2, Advice on Right Side, You Must Become the Spirit, Brighton Pavilion, Brighton, East Sussex, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -67,6 +117,22 @@ There's a mistake in coloring.</font><br>
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"Now, this is, this one is something right ... uh now red, you know, it has the uh-uh-uh, what you call wavelength, which can be seen by anyone. The fastest, you see, it has the ... such a short wavelength, they say, that it can pass through, it can bend itself very well. That's why this is the red mark they have described in the Bible.<br>
+Now the red mark, this one, this is made out of a very auspicious thing, and then burnt into this color. This is the color of Śhrī Gaṇeśh.<br>
+And, if you put it in the night, before sleeping, on your forehead, if you are possessed, the possession will leave you. But it should be vibrated. It should be vibrated. Once it is vibrated it has that power. And it really clears -- I will's try today on some of you -- but it clears completely your head, makes it properly first."</font><br>
+<font size="+0"><b>1983-0929 Śhrī Gaṇeśha Pūjā, The Significance of Pūjā, Home, Mill Valley (6 miles N of Sausalito), CA, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "<font color="DarkRed">Now within us, are these seven centers: if you see the red one, the yellow one, the green one, the blue one, and here is a little smoky [blue magenta] one, and then here is like the light, and, ultimately, this big one which we call as Sahastrāra [Sahasrāra].</font> These are the subtle centers.<br>
 And they control outside ... the centers that are known to the doctors as plexuses. Outside in the gross.<br>
 Now, these centers are very subtle centers, and govern our parasympathetic nerver ... nervous system. And this parasympathetic nervous system is beyond our control."<br>
@@ -92,6 +158,7 @@ Now, the fruit of the pearl ... of the lotus is, later on we see, and the I woul
 </p>
 
 <div class="para-divider"></div>
+
 <p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b></b></font>
@@ -153,6 +220,13 @@ There are no temples to Brahmadeva because He is never there to attend any pūj�
 ......<br>
 When a seeker gets his Self-realization, Praṇava manifests the existence of the five elements. A Sahaja Yogi feels an energy like electricity oozing out of his extremities (<i>Chaitanya Laharī</i>). These are the Divine Vibrations of Praṇava but they also express the electrical part of his nature. These vibrations are also magnetic, and emit radiance or light. <font color="DarkRed">When this happens one can hear the sounds of the heart, and see different forms of light and colors.</font>"<br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 14: The Powers of Ādi Śhakti and the Three Guṇas</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"By the first elliptical movement of 'Ā', Ādi Śhakti desires the creation; by the second, 'Ū' She activates to create it; and by the third 'MA' She reveals Her Love for the creation who is Her child. In this way, the three moods of desiring (tamoguṇa), activating (rajoguṇa) and revelatory (sattvaguṇa) come into existence. These three fanlike elliptical movements rotate and bend in three hundred and sixty degrees, creating the permutations and combinations of different wavelengths which give variety to life. That is how people of such different temperaments are ultimately created. These three guṇas are the expressions of the Three Powers of God Almighty and are expressed by them as Mahākālī, Mahāsaraswatī and Mahālakṣhmī. Although three, these Powers are completely integrated and coordinated as Ādi Śhakti."</font><br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 1: Creation, the Eternal Play</b></font>
 </p>
 
 <div class="para-divider"></div>
