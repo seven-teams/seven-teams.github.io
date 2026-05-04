@@ -132,7 +132,31 @@ So this is the only two human beings, actually who were the children of an Incar
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So, now, here, at the Void point, is very important to see that Sītā, who was Mahālakṣhmī, came on this Earth. And She became ... She gave birth to twins: called Lav and Kuśh. Two children She gave birth. They were human beings, who were created by Her. 
+
+It's a very unique thing to create human beings. 
+
+She created two human beings: called Lav and Kuśh. 
+
+Now these two human beings were to occupy two positions in the head here, from here to here. So they had to ascend. So the ascent was worked on these two persons, throughout. 
+
+So we can say they are the Principle of the ... Disciple. They are the Principle of the Disciple.<br>
+And the Principle of the Disciple was worked in such a way that They occupied this position and this position in the Cosmos.<br>
+Then Lav and Kuśh, in Their lifetime -- now this is another s-s... story which is now being proved, which I told long time back -- one of Them, He was little annoyed with the father [Śhrī Rāma] because the father has deserted the wife [Śhrī Sītā], for certain reasons.<br>
+The father, though the Incarnation, forgot about His Incarnation, was made to forget His Incarnation ,and became the Incarnation of a benevolent king. He is the symbol of benevolent king.<br>
+And that's how the idea of benevolence, in a king, first came into the head of human beings through His Incarnation. It is He who charmed or, we can say, the [He] enlightened the awareness of human beings, of understanding: that the king has to be benevolent.<br>
+This happened eight thousands years back, when Śhrī Rāma came on this Earth.<br>
+And to show how a benevolent king should be, He forgot that He was the Incarnation. He lived like an ordinary king, behave[d] like an ordinary king, with all His ordinary feelings and all that. It was like a human Realization, we call it. And He acted as a benevolent king. This is Rāma's Incarnation.<br>
+Then He had these two children, Lav and Kuśh. And in Their lifetime, when They came back from Their exile. He offered His kingdom to these children.<br>
+That is also the father's position is. He was the father. Father's position is that of Śhrī Rāma, what you call as right Heart.<br>
+Uh have you got the Kuṇḍalinī book in the ...? You ... you better go through that also, the right Heart's.<br>
+The right Heart is the Rāma's place, Rāma is.<br>
+And He had these two children, Lav and Kuśh.<br>
+And They went to, one went, uh-uh the Kuśh went to China, and Lav went to Caucasia's [Caucasus] side. So the Russians are called as Slav: because He was Lav, so it was called [as soft laughter starts:] Slavs. Saha-lav. Means: with ... sa means with. Lav is the one who went to the right side, to Russia. And Chinese are Kuṣhāṇs.<br>
+So you can imagine: these two twin brothers are now fighting among themselves.<br>
+I mean, ultimately if you follow the history you find that two twin brothers are fighting among themselves. This is the history. [Laughing:] The historical truth.<br>
+'Ascent is like this!', or we can call it the descent. [Some laughter.]<br>
+So that is what happened to both of Them."</font><br>
 <font size="+0"><b>1982-1029 Talk to Sahaja Yogis, Creation, Original Sin, and Incarnations, Manhattan, New York City, NY, U.S.A.</b></font>
 </p>
 
@@ -248,7 +272,39 @@ So I think Her father must have arranged something for Her to stay in Nepal in t
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">
+<font color="red"><b>Śhrī Mātājī:</b></font> You see, it is because They were Rama's children, knuh?<br>
+<b>Gentleman journalist:</b> Yes.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Lev ... Lav and Kuśh, ...<br>
+<b>Gentleman journalist:</b> Yes.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> ... They're Rāmā's children.<br>
+<b>Gentleman journalist:</b> Yes, yes.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> And one came to Caucasia's [Caucasus], ...<br>
+<b>Gentleman journalist:</b> Yes.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> ... so you are Slavs. And another went to China, so they are Kuśhans.<br>
+<b>Gentleman journalist:</b> OK. [Translates for the lady.]<br>
+<font color="red"><b>Śhrī Mātājī</b></font> [related to the translation]: Please.<br>
+[During translating:] Two twins.<br>
+And this one ... uh Chinese were called as Kuśhans.<br>
+<b>Gentleman journalist:</b> Ah-ha. [Translates for the lady.]<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> So, and They stayed ... They lived in Maharashtra. [As translation begins:] They grew in Maharashtra.<br>
+So the language has a common ...<br>
+<b>Gentleman journalist:</b> Mh-hm.<br>
+Who ... who, Mother, eh grew [in] Maharasta [Maharashtra]?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Sītā, the mother.<br>
+<b>Gentleman journalist:</b> Yes. OK.<br>
+And Maharasta [Maharashtra] has connections somehow with uh ...<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> With all.<br>
+<b>Gentleman journalist:</b> ... Slavic.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> These two countries.<br>
+<b>Gentleman journalist:</b> Yes. [Translates for the lady.]<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Nobody can say tza. Is not easy. Even North Indians cannot say tza.<br>
+<b>Gentleman journalist:</b> Yes. English people they cannot say.<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> No-no-no. Even our North Indians.<br>
+<b>Gentleman journalist:</b> Mh-hm. [Translates for the lady.]<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> No one can say tza, except for Maharashtra and Russians and Chinese.<br>
+So, we have ...<br>
+<b>Gentleman journalist:</b> ... expressional language.</font><br>
 <font size="+0"><b>1990-0629 Interview with a Lady Journalist Speaking in Russian, Lobby, Hotel, Kiev, Ukraine</b></font>
 </p>
 
@@ -283,14 +339,16 @@ They used to worship women, mothers, very much, in those days."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Śhrī Rāma had two sons: one was Lav and one was Kuśh. One of Them, Lav, came to Russia.<br>
+That's why you are called as Slavs, means 'with love'.<br>
+So Russian people are already: are quite full of their heart with love. But once you get your enlightenment, you realize that your love becomes a beautiful Ocean of Joy for yourself. "</font><br>
 <font size="+0"><b>1993-0803 Śhrī Śhakti Pūjā, Power of Love, Camp, Shores of Volga, Togliatti, Samara Oblast, Russia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">[Śhrī Mātājī speaks about Lav and Kuśh, the twin sons of Śhrī Rāma, who were born and brought up in an Āśhram. About 6,000 years ago Lav came to Caucasus Mountains to Russia, and today His descendants are known as Slavs. Kuśh went to China, and His descendants are called Kuṣhāṇs today, and in Indian language, Chinese are called the Kuṣhāṇs. Śhrī Mātājī then jokes that Russians and Chinese are like twin brothers.]</font><br>
 <font size="+0"><b>1993-1113 Interview with Prof. Yuriy A. Voronov, Moscow, Russia</b></font>
 </p>
 
