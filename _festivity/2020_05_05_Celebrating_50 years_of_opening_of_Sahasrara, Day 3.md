@@ -146,12 +146,12 @@ Grant Me in good will benign, Your Benevolent Grace Divine<br
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/image425.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b>Śhrī Mātājī: Now say the Sahasraras mantras, three, Sahasrara Swamini, Moksha Pradayani, Sahaja Yoga Dayini.</b></font><br>
+<font color="DarkRed"><b>Śhrī Mātājī: Now say the Sahasrāra's mantras, three. Sahasrāra Swāminī Mokṣha Pradāyinī Sahaja Yoga Dāyinī.</b></font><br>
 Sahaja Yogis: Auṃ Twameva sākṣhāt Śhrī Sahasrāra Swāminī, Mokṣha Pradāyinī Sakshat Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ.<br>
-<font color="DarkRed"><b>Śhrī Mātājī: Sahaja Yoga Dayini.</b></font><br>
+<font color="DarkRed"><b>Śhrī Mātājī: Sahaja Yoga Dāyinī. .</b></font><br>
 Sahaja Yogis:  Auṃ Twameva sākṣhāt Śhrī Sahaja Yoga Dāyinī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ.<br>
 <font color="DarkRed"><b>Śhrī Mātājī: Now, after saying all these mantras you have reached up to Sahasrāra and you have also pierced through the Sahasrāra.<br> 
-The most effective mantra you know is `Nirmalā' and that works the best for Sahasrāra.</b></font><br>
+The most effective mantra you know is Nirmalā and that works the best for Sahasrāra.</b></font><br>
 <font size="+0"><b>1985-0611 Talk to Sahaja Yogis, Arrival, Founex, Switzerland</b></font>
 <font color="DarkGreen"><b>Śhrī Mātājī gives the Sahasrāra Mantras</b></font><br>
 <font size="+0"><b></b></font><br>

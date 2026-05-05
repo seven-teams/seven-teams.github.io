@@ -92,8 +92,6 @@ O Mother, please open the Sahasrara!<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT024.png" /></div>
-
 <p>
 <font color="DarkRed">"<b>Today is the Sahasrāra Day which, of course, I agree I opened the last chakra.</b> But, further to go, to grow, you have to get to meditation where you become silent and your Tree of Life will grow in silence, not in a turmoil. If you understand that, please work it out in such a manner that you all become completely aware of your divinity by which you can see.<br>
 If you have to see the image you have to have a very good mirror. In the same way, if you have to feel the Mahāmāyā you have to have complete, pure divinity manifesting in you."</font><br>
@@ -123,15 +121,15 @@ I mean, it’s a very ancient song. And still is maintained so well."</b></font>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT025.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0264.png" /></div>
 
 <p style=" text-align:center;">
-<font color="DarkRed"><b>Śhrī Mātājī: Now say the Sahasraras mantras, three, Sahasrara Swamini, Moksha Pradayani, Sahaja Yoga Dayini.</b></font><br>
+<font color="DarkRed"><b>Śhrī Mātājī: Now say the Sahasrāra's mantras, three. Sahasrāra Swāminī Mokṣha Pradāyinī Sahaja Yoga Dāyinī.</b></font><br>
 Sahaja Yogis: Auṃ Twameva sākṣhāt Śhrī Sahasrāra Swāminī, Mokṣha Pradāyinī Sakshat Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ.<br>
-<font color="DarkRed"><b>Śhrī Mātājī: Sahaja Yoga Dayini.</b></font><br>
+<font color="DarkRed"><b>Śhrī Mātājī: Sahaja Yoga Dāyinī. .</b></font><br>
 Sahaja Yogis:  Auṃ Twameva sākṣhāt Śhrī Sahaja Yoga Dāyinī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ.<br>
 <font color="DarkRed"><b>Śhrī Mātājī: Now, after saying all these mantras you have reached up to Sahasrāra and you have also pierced through the Sahasrāra.<br> 
-The most effective mantra you know is 'Nirmalā' and that works the best for Sahasrāra.</b></font><br>
+The most effective mantra you know is Nirmalā and that works the best for Sahasrāra.</b></font><br>
 <font size="+0"><b>1985-0611 Talk to Sahaja Yogis, Arrival, Founex, Switzerland</b></font>
 <font color="DarkGreen"><b>Śhrī Mātājī gives the Sahasrāra Mantras</b></font><br>
 <font size="+0"><b></b></font><br>
