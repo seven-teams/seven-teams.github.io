@@ -978,103 +978,52 @@ The rest are not authoritative because of the individual’s limitations, the ab
 <div class="para-divider"></div>
 
 <p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>12.3 Translation</b><br>
+<font color="DarkGreen">[Śhri Paraśhurāma:] "......, how is it that it[the Universe] appears to be real to me and two others who are both intelligent and shrewd.]</font>
 </p>
 
 <p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>12.6 Translation</b><br>
+<font color="DarkGreen">[Śhri Dattātreya:] "This illusion is very old, being no other than the deep-rooted ignorance which mistakes one thing for another."</font>
 </p>
 
 <p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>12.7 Translation</b><br>
+<font color="DarkGreen">"See how the true Self has been ignored and the body has become identified with the Self. Consider this foul body comprised of blood and bones beside that unblemished, pure intelligence!"</font>
 </p>
 
 <p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>12.10 Translation</b><br>
+<font color="DarkGreen">"The world becomes for one whatever one is accustomed to think it. ......"</font>
 </p>
 
 <p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>12.11-12 Translation</b><br>
+<font color="DarkGreen">"......  There is a very holy town, Sundara, in the country of Vanga. Here once lived a very wise and famous King, Susena by name. His younger brother, Mahasena, was his loyal and dutiful subject. The king ruled his kingdom so well that all his subjects loved him."</font>
 </p>
 
 <p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>12.24-30 Translation</b><br>
+<font color="DarkGreen">[King Susena to Mahasena:] "Brother! Go to the place of the Sage Gana.
+Remember that penance-doers are wonderfully powerful and cannot be conquered even by gods. Therefore take care to please him, ......"<br>
+Saying so, he sat down, withdrew his senses, united the in-going and outgoing breaths, exhaled air and stopped motionless for a short time; in this way he entered the mind of the Sage and after agitating it, re-entered his own body. Immediately the Sage came to his senses and found Mahasena in front of him, prostrating and praising him. ......</font>
 </p>
 
 <p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>12.31-45 Translation</b><br>
+<font color="DarkGreen">[Sage Gana's son to Mahasena:] "...... This is not the time for my father to speak. He is now in Kevala Nirvikalpa Samadhi and will come out of it only after twelve years, of which five have already passed and seven yet remain. ...... There is nothing impossible for <i>yogis</i> engaged in penance."</font>
 </p>
 
 <p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>12.47-49 Translation</b><br>
+<font color="DarkGreen">[Sage Gana to his son:] "...... Penance is only possible and can progress without obstruction because the king protects <i>Yogis</i>. To interfere with a sacrifice is always reprehensible and never to be countenanced by the good. ......"</font>
 </p>
 
 <p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>12.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>12.54-66 Translation</b><br>
+<font color="DarkGreen">[Sage Gana to Mahasena:] "...... Once my wife embraced me and this son was born to her when I was in <i>samādhi</i>.
+She brought me to my senses, left the babe with me and died. This boy was brought up by me with love and care. When he grew up, he heard that I had once been a king.
+He wished to be one also and besought me to grant his prayer. I initiated him in <i>yoga</i>, which he practiced with such success that he was able by the force of his will to create a world of his own in this hill which he is now ruling. ......"</font>
 </p>
 
 <p style="text-align:center;">
@@ -1083,6 +1032,61 @@ The rest are not authoritative because of the individual’s limitations, the ab
 </p>
 
 <div class="para-divider"></div>
+
+<p>
+<b>13.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>13.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>13.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>13.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>13.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>13.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>13.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>13.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>13.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>13.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>13.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
 
 <p style="text-align:center;">
 <b>Chapter 14</b><br>
