@@ -33,9 +33,9 @@ You shouldn't see that. One color is power [red] and one is purity [green]. If y
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"Now see how beautifully you are made! Now I show you the red one, the big yellow, and the green, then you have got the blue, then the-uh-uh ... one that looks like a smoke and then here is the white with the pistils, and then on top of you. These seven chakras are there.<br>
-And all these seven chakras, one by one, if you see in the [Chakra] Chart, you have got the full idea about the seven chakras, the Deities that are sitting on them and how they help us, and what is the sympathetic system, what is the parasympathetic, what is the left side, what is the right side of the man, and what is the lower side. The lower side of the man is the Hell now. The left side of the man is the subconscious. The right side of the man is the supraconscious by which we plan for the future, we are ambitious about it."</font><br>
-<font size="+0"><b>1978-0000 Public Program, You Have to Enjoy in the Company of Others, London, UK (other month 1977-1x)</b></font>
+<font color="DarkRed">"Now see how beautifully you are made! Now I show you the red one, then the yellow, then the green, then you have got the blue, then the-uh-uh ... one that looks like a smo-oke [smoky color, blue magenta]. And then here is the white with the pistils, and then on top of you. These seven chakras are there.<br>
+And all these seven chakras, one by one, if you see in the [Chakra] Chart, you have got the full idea about the seven chakras, the Deities that are sitting on them and how they help us. And what is the sympathetic system, what is the parasympathetic, what is the left side, what is the right side of the man, and what is the lower side. The lower side of the man is the Hell now. The left side of the man is the subconscious. The right side of the man is the supraconscious by which we plan for the future, we are ambitious about it."</font><br>
+<font size="+0"><b>1978-0512 Public Program, What Can We Do in Sahaja Yoga, Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
