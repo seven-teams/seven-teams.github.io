@@ -76,7 +76,6 @@ So, humble down yourself! Humble down yourself in your heart. Humble down in you
 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0268.png" /></div>
 
-
 <p style="text-align:center;">
 <font color="DarkGreen"><b>The most beautiful word on the lips of mankind is the word "Mother," and the most beautiful call is the call of "My mother."<br>
 It is a word full of hope and love, a sweet and kind word coming from the depths of the heart.</b><br>
