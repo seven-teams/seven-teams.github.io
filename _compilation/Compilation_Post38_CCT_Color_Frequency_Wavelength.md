@@ -55,8 +55,8 @@ And all these seven chakras, one by one, if you see in the [Chakra] Chart, you h
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"Now, the whole system is left like this, with seven centers within you. You can see for yourself: the red, the yellow, the green, the blue, the smoky, and the brilliant white, or you can say the goldenish, and the top one. Like that: there are seven centers, these are the subtle centers, all within you, placed within you. They are all there, already there. I don't have to create them: they are just ready and placed beautifully there inside you."</font><br>
+<font size="+0"><b>1979-0531 Public Program, Hall in City Center, Birmingham, West Midlands, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
