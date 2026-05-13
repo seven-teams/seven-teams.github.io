@@ -162,6 +162,23 @@ So, Kṛiṣhṇa did not tell anything about Reality, only told one disciple, t
 <div class="para-divider"></div>
 
 <p>
+"But you have certain things which are very essential for Sahaja Yoga.<br>
+Before Rāma, Paraśhurāma came: to announce the Advent of Rāma. The Reṇukā Devī was the wife [mother] of Paraśhurāma.<br>
+[{\textcolor{darkgoldenrod}{Marathi}}] Reṇukā Devī.<br>
+[After a Sahaja Yogin says, "Mh":] And She was the Power in those days.<br>
+It [She] was His mother actually. Jamadagni was the father.<br>
+And this Paraśhurāma She created because He was a very, very powerful man. Actually He reigned in Greece, as Zeus I think.<br>
+And then He tried to overpower people, captured them, create His domain over others, and people were terrified!<br>
+Unless and until they are terrified, they would not understand God.<br>
+Afterwards, when He declared that, `This was Rāma, who is the Viṣhṇu Avatāra,' people accepted Him.<br>
+The West has terrified all the Eastern people by their power: power of money, power of brains, power of aggressiveness.<br>
+The aggressiveness of [the] West is something so surprising, that they cannot see it. Ego cannot see the aggression."<br>
+<font size="+0"><b>1981-0202 Public Program, Dhule, Maharashtra, India]</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Then the sustainance [sustenance] start[s] growing, till you become a human being, as shown [points to the Chakra Chart:] here.<br>
 [Circling:] In this Void, [points to Mūlādhāra chakra:] here as carbon, [pointing to the Nābhī chakra:] then you move into the Void. And here, you go through all the evolution, starting from a fish up to the human level, where you become a small man.<br>
 Once you become the small man, Vāmana is called that. First the man who came on the Earth was a small statured man.<br>
