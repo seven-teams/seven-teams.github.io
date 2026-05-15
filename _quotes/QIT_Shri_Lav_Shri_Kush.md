@@ -214,7 +214,7 @@ There's a-eh ... temple of the Goddess of Hindolika [Devī], there [in Iran], ..
 <div class="para-divider"></div>
 
 <p>
-"The great seer Valmiki who wrote the Ramayana, himself came from a low caste <i>of a fisherman -- was himself a decoit.</i> He was transformed into a great saint by Narada. <font color="red">Shri Sita, Luv<i>,<\i> and Kush were looked after by him in his Ashram. Can there be a greater example to show how Shri Sita never considered the existence of caste and bestowed Divine rights on the people irrespective of ant caste<i>?</i></font? It seems Shri Rama and Shri Sita deliberately created situations to <i>put</i> down the horrible caste system which had become the cancer of the Indian society. <i>It is so evident how they respected a Saint like ValmiKi despite his very low birth according to this curse of the caste system.</i>"<br>
+"The great seer Valmiki who wrote the Ramayana, himself came from a low caste <i>of a fisherman -- was himself a decoit.</i> He was transformed into a great saint by Narada. <font color="red">Shri Sita, Luv<i>,<\i> and Kush were looked after by him in his Ashram. Can there be a greater example to show how Shri Sita never considered the existence of caste and bestowed Divine rights on the people irrespective of ant caste<i>?</i></font> It seems Shri Rama and Shri Sita deliberately created situations to <i>put</i> down the horrible caste system which had become the cancer of the Indian society. <i>It is so evident how they respected a Saint like ValmiKi despite his very low birth according to this curse of the caste system.</i>"<br>
 <font size="+0"><b>1988-0000 Essay 'Riddles of Dr. Ambedkar' by a Sahaja Yogi with Handwritten Corrections and Additions, Follow on to the 1988-0126 Interview with Foreign Correspondents, India</b></font>
 </p>
 
@@ -270,7 +270,7 @@ So I think Her father must have arranged something for Her to stay in Nepal in t
 
 <p>
 <font color="red">
-<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You see, it is because They were Rama's children, knuh?</font?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You see, it is because They were Rama's children, knuh?</font><br>
 <b>Gentleman journalist:</b> Yes.<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Lev ... Lav and Kuśh, ...</font><br>
 <b>Gentleman journalist:</b> Yes.<br>
@@ -282,7 +282,7 @@ So I think Her father must have arranged something for Her to stay in Nepal in t
 <b>Gentleman journalist:</b> OK. [Translates for the lady.]<br>
 <font color="red"><b>Śhrī Mātājī</b></font> [related to the translation]: Please.<br>
 [During translating:] <font color="red">Two twins.<br>
-And this one ... uh Chinese were called as Kuśhans.</font?<br>
+And this one ... uh Chinese were called as Kuśhans.</font><br>
 <b>Gentleman journalist:</b> Ah-ha. [Translates for the lady.]<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">So, and They stayed ... They lived in Maharashtra.</font> [As translation begins:] <font color="red">They grew in Maharashtra.</font><br>
 So the language has a common ...<br>
@@ -313,7 +313,7 @@ So, we have ...<br>
 <br>
 <b>Version 2:</b>
 "You see how Śhrī Sītā and Rāma have good attitude and are faithful [to] each other.<br>
-Even if She was left, Sītā thought it Her duty. She never complained or talked ill of Him. <font color="red">And effortlessly She has raised Her children. Śhrī Rāma's children are called Lav and Kuśh. They came as devotees and we can see Them as disciples. They represent śhiṣhya [disciples], the Power of Śhiṣhya.</font?<br>
+Even if She was left, Sītā thought it Her duty. She never complained or talked ill of Him. <font color="red">And effortlessly She has raised Her children. Śhrī Rāma's children are called Lav and Kuśh. They came as devotees and we can see Them as disciples. They represent śhiṣhya [disciples], the Power of Śhiṣhya.</font><br>
 So we can be disciple of someone.<br>
 <font color="red">As disciples They learned archery when they were small. And learned Rāmāyaṇa and got proficiency in the music showing the disciples must surrender completely to the guru.</font>"<br>
 <font size="+0"><b>1991-0325 Śhrī Rāma Pūjā (Hindi) (the day after Rāma Navamī Day), If You Believe in Śhrī Rāma Follow His Ideal (Our Nature Can Change because He Is Our Ideal and You All Become Ideals for this World), Kolkata, West Bengal, India</b></font>
