@@ -269,8 +269,7 @@ So I think Her father must have arranged something for Her to stay in Nepal in t
 <div class="para-divider"></div>
 
 <p>
-<font color="red">
-<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You see, it is because They were Rama's children, knuh?</font><br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">You see, it is because They were Rāma's children, knuh?</font><br>
 <b>Gentleman journalist:</b> Yes.<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">Lev ... Lav and Kuśh, ...</font><br>
 <b>Gentleman journalist:</b> Yes.<br>
@@ -301,7 +300,7 @@ And Maharasta [Maharashtra] has connections somehow with uh ...<br>
 <b>Gentleman journalist:</b> Mh-hm. [Translates for the lady.]<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> No one can say tza, except for Maharashtra and Russians and Chinese.<br>
 So, we have ...<br>
-<b>Gentleman journalist:</b> ... expressional language.</font><br>
+<b>Gentleman journalist:</b> ... expressional language.<br>
 <font size="+0"><b>1990-0629 Interview with a Lady Journalist Speaking in Russian, Lobby, Hotel, Kiev, Ukraine</b></font>
 </p>
 
