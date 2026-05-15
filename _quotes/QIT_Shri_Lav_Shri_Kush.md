@@ -87,14 +87,14 @@ From there they came down and spread all over. It's a big story.<br>
 <font color="red">Then Kuśh went to China.</font> That's how you have Kuṣhāṇ, in China.<br>
 And Chinese language is very much near Sanskrit and quite close to Marathi language, is more surprising. If you hear them talking, for example they say; 'Ma tza tum.' Tza is only in Marathi language they use this word tza. We never say in Hindi tza or in any other language you won't find it. But only in Chinese and in Marathi language they have this word 'tza'.<br>
 Is very interesting to see: how uh the spirituality spread into these countries, and had then how it died out.<br>
-All these things happened, but then They were born again and again. They were born as Mahāvīra and Buddha. They are the same. They are born as Mārkaṇḍeya. They are born as Kabīra, as Ādi Śhaṅkarāchārya."</font><br>
+All these things happened, but then They were born again and again. They were born as Mahāvīra and Buddha. They are the same. They are born as Mārkaṇḍeya. They are born as Kabīra, as Ādi Śhaṅkarāchārya."<br>
 <font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"I do not know if you have read the life of Śhrī Rāma, who was a very great's king, and He sacrificed His own wife just to keep the public opinion all right. That was the greatest thing, democracy one can think. But you have see people, that for their own children, they sacrifice the whole country. There are people who sacrifice the whole country for their wives, while He is the man who sacrificed His wife for the whole country.<br>
+"I do not know if you have read the life of Śhrī Rāma, who was a very great's king, and He sacrificed His own wife just to keep the public opinion all right. That was the greatest thing, democracy one can think. But you have see people, that for their own children, they sacrifice the whole country. There are people who sacrifice the whole country for their wives, while He is the man who sacrificed His wife for the whole country.<br>
 <font color="red">And the whole story is so beautiful, that: the wife had to go and deliver children in a[n] āśhram of a very good Sage, known as Vālmīki.<br>
 Now these two children were born, and when Rāma came to call Her, She left Him and disappeared into Mother Earth.<br>
 After that [it] is said: these two children, who were Lav and Kuśh, They went -- that's a two ends of a grass, because They were twins -- they decided not to stay in India.</font><br>
@@ -214,7 +214,7 @@ There's a-eh ... temple of the Goddess of Hindolika [Devī], there [in Iran], ..
 <div class="para-divider"></div>
 
 <p>
-"The great seer Valmiki who wrote the Ramayana, himself came from a low caste <i>of a fisherman -- was himself a decoit.</i> He was transformed into a great saint by Narada. <font color="red">Shri Sita, Luv<i>,<\i> and Kush were looked after by him in his Ashram. Can there be a greater example to show how Shri Sita never considered the existence of caste and bestowed Divine rights on the people irrespective of ant caste<i>?</i></font> It seems Shri Rama and Shri Sita deliberately created situations to <i>put</i> down the horrible caste system which had become the cancer of the Indian society. <i>It is so evident how they respected a Saint like ValmiKi despite his very low birth according to this curse of the caste system.</i>"<br>
+"The great seer Valmiki who wrote the Ramayana, himself came from a low caste <i>of a fisherman -- was himself a decoit.</i> He was transformed into a great saint by Narada. <font color="red">Shri Sita, Luv<i>,</i> and Kush were looked after by him in his Ashram. Can there be a greater example to show how Shri Sita never considered the existence of caste and bestowed Divine rights on the people irrespective of any caste<i>?</i></font> It seems Shri Rama and Shri Sita deliberately created situations to <i>put</i> down the horrible caste system which had become the cancer of the Indian society. <i>It is so evident how they respected a Saint like ValmiKi despite his very low birth according to this curse of the caste system.</i>"<br>
 <font size="+0"><b>1988-0000 Essay 'Riddles of Dr. Ambedkar' by a Sahaja Yogi with Handwritten Corrections and Additions, Follow on to the 1988-0126 Interview with Foreign Correspondents, India</b></font>
 </p>
 
@@ -225,7 +225,7 @@ There's a-eh ... temple of the Goddess of Hindolika [Devī], there [in Iran], ..
 He took His birth later on as Buddha, then He took His birth as Ādi Śhaṅkarāchārya, it's the same personality.<br>
 <font color="red">But He was actually the son of Rāma, to begin with. He was Lav and He went to Russia and that is why they are called as Slavs. He ruled in Russia, that's why they are called as Slavs.<br>
 Another son was Kuśh, who went to China, that is why they are called as Kuṣhāṇ.<br>
-Then They incarnated again and again, also as Hasan and Husayn, as Mahāvīra and Buddha, as Ādi Śhaṅkarāchārya and Gyāneśhwara, like that.</font> <br>
+Then They incarnated again and again, also as Hasan and Husayn, as Mahāvīra and Buddha, as Ādi Śhaṅkarāchārya and Gyāneśhwara, like that.</font><br>
 See, it is so peaceful. Cool Breeze."<br>
 <font size="+0"><b>1988-0609 Talk to Sahaja Yogis, Giving Names and the Story of Mārkaṇḍeya, Āśhram, Josef Melichar Gasse 20, Vienna, Austria</b></font>
 </p>
