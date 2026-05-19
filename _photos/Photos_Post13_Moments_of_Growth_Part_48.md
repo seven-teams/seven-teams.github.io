@@ -1,7 +1,7 @@
 ---
-title: 'Photos Post 13: Moments of Growth, New Albums and Galleries, Part 46'
-date: 2026-02-27
-permalink: /photos/2026/0227
+title: 'Photos Post 13: Moments of Growth, New Albums and Galleries, Part 48'
+date: 2026-05-18
+permalink: /photos/2026/0518
 tags:
   - crimson @ Photos Moments of Growth
   - green @ Updates
@@ -12,7 +12,7 @@ tags:
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
 We are pleased to bring to your attention one new album of Art:<br>
-<b>1.</b> <a href="https://imageevent.com/sahaja/art/photographicartofmarianehufschmitt/199409moscow"><font color="DarkGreen"><b>Photographic Art of an Artist</b></font></a>.<br>
+<b>1.</b> <a href="https://imageevent.com/sahaja/art/photographicartofmarianehufschmitt/1993031xnepal"><font color="DarkGreen"><b>Photographic Art of an Artist</b></font></a>.<br>
 Please kindly share the news and the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
