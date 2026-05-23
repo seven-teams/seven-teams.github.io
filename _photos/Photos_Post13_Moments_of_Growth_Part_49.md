@@ -19,4 +19,5 @@ Jay Śhrī Mātājī!<br>
 The Photo Subteam<br>
 sahajayoga.compilations@gmail.com<br>
 https://linktr.ee/comprehensivecompilationsteam<br>
+https://www.facebook.com/sahajayogavidya/ (Warning: solely for communications when email is less convenient)
 </p>
