@@ -11,7 +11,7 @@ tags:
   - maroon @ Bandhan
   - maroon @ Day
   - maroon @ Raksha
-  - maroon @ Sisiter  
+  - maroon @ Sister  
 ---
 
 <br>
