@@ -7,7 +7,7 @@ tags:
   - red @ Archive
 ---
 
-<b>POSTS</b>: 741 files, 4,821 pages, 1 external page <br>
+<b>POSTS</b>: 751 files, 4,855 pages, 1 external page <br>
 <b>1.</b> <a href="https://seven-teams.github.io/archives/2024/0121"><font color="maroon"><b>Ads</b></font></a>: 3 files, 3 pages, 1 external page<br>
 <b>2.</b> <a href="https://seven-teams.github.io/archives/2023/0508"><font color="maroon"><b>Articles</b></font></a>: 32 files, 48 pages<br>
 <b>3.</b> <b>Australian Sahaja Newsletter</b>: Total files 100<br>
@@ -19,7 +19,7 @@ tags:
 <b>5.</b> <a href="https://seven-teams.github.io/archives/2026/0104"><font color="maroon"><b>Books</b></font></a>: 1 file, 310 pages<br> 
 <b>6.</b> <a href="https://seven-teams.github.io/archives/2025/1116-a"><font color="maroon"><b>Diary Pages</b></font></a>: 1 file, 1 page<br> 
 <b>7.</b> <a href="https://seven-teams.github.io/archives/2022/0818"><font color="maroon"><b>Divine Cool Breeze (USA)</b></font></a>: 2 files, 68 pages<br>
-<b>8.</b> <a href="https://seven-teams.github.io/archives/2025/0611-b"><font color="maroon"><b>Fliers</b></font></a>: 1 file, 2 pages<br>
+<b>8.</b> <a href="https://seven-teams.github.io/archives/2025/0611-b"><font color="maroon"><b>Fliers</b></font></a>: 11 file, 36 pages<br>
 <b>9.</b> <a href="https://seven-teams.github.io/archives/2023/0119"><font color="maroon"><b>Letters and Press Releases</b></font></a>: 6 files, 12 pages<br>
 <b>10.</b> <a href="https://seven-teams.github.io/archives/2023/0824-a"><font color="maroon"><b>Newsletter Australia</b></font></a>: 3 files, 10 pages<br>
 <b>11.</b> <a href="https://seven-teams.github.io/archives/2023/0829"><font color="maroon"><b>Official Photos with Text</b></font></a>: 1 file, 1 page<br>
