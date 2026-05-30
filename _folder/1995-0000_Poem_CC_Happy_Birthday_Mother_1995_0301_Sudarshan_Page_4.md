@@ -1,13 +1,13 @@
 ---
-title: '1996-0000 Poem &#8216;Happy Birthday, Mother&#8217; by Călin Costian from 1995-0301 Sudarshan, Page 4'
-date: 1996-01-01
+title: '1995-0000 Poem &#8216;Happy Birthday, Mother&#8217; by Călin Costian from 1995-0301 Sudarshan, Page 4'
+date: 1995-01-01
 permalink: /folder/1995-CC-Happy-Birthday-Mother
 tags:
   - black @ Poetry
   - blue @ Călin Costian
-  - brown @ 1995
+  - brown @ 1996
   - cornflowerblue @ TBD
-  - deeppink @ 1995-0301 Sudarshan, Spring Review
+  - deeppink @ 1995-0301 Sudarshan
   - maroon @ Birthday
   - maroon @ Happy
   - maroon @ Mother    
@@ -33,5 +33,5 @@ Happy Birthday to You
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1995-0301 Sudarshan, Spring Review, Page 4.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1995-0301 Sudarshan, Page 4.</list-item>
 </wave-list>
