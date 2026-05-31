@@ -4,9 +4,9 @@ date: 1995-01-01
 permalink: /folder/1997-0000_Sudarshan_P8
 tags:
   - black @ Poetry
-  - blue @ Sulu Dunphy
+  - blue @ TBD
   - brown @ 1995
-  - cornflowerblue @ Los Angeles
+  - cornflowerblue @ TBD
   - deeppink @ 1997-0000 Sudarshan
 ---
 

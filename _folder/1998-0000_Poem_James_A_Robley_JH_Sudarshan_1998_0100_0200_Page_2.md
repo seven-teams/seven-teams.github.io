@@ -1,7 +1,7 @@
 ---
-title: '1998-0101 Poem &#8216;James A. Robley&#8217; by Jonathan Horelick from 1998-0100 and 0200 Sudarshan, Volume 7, Number 1, Page 2'
+title: '1998-0100 Poem &#8216;James A. Robley&#8217; by Jonathan Horelick from 1998-0100 and 0200 Sudarshan, Volume 7, Number 1, Page 2'
 date: 1998-01-01
-permalink: /folder/1997-1200-JH-James-A-Robley
+permalink: /folder/1990-0100-JH-James-A-Robley
 tags:
   - black @ Poetry
   - blue @ Jonathan Horelick
