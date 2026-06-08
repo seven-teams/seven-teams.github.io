@@ -975,8 +975,6 @@ The rest are not authoritative because of the individual’s limitations, the ab
 <font color="DarkGreen"><b>The Appearance of the Reality of the Universe Depends on the Strength of Will of Creation </b></font>
 </p>
 
-<div class="para-divider"></div>
-
 <p>
 <b>12.3 Translation</b><br>
 <font color="DarkGreen">[Śhri Paraśhurāma:] "......, how is it that it[the Universe] appears to be real to me and two others who are both intelligent and shrewd.]</font>
@@ -1026,71 +1024,149 @@ She brought me to my senses, left the babe with me and died. This boy was brough
 He wished to be one also and besought me to grant his prayer. I initiated him in <i>yoga</i>, which he practiced with such success that he was able by the force of his will to create a world of his own in this hill which he is now ruling. ......"</font>
 </p>
 
+<div class="para-divider"></div>
+
 <p style="text-align:center;">
 <b>Chapter 13</b><br>
 <font color="DarkGreen"><b>How Wakefulness and Dream Are Similar in Nature and Objects Are Only Mental Images</b></font>
 </p>
 
+<p>
+<b>13.49 Translation</b><br>
+<font color="DarkGreen">[Son of the royal sage Gana to Mahasena:] "...... People are deluded by the illusion cast by Her Divine Majesty. They partake of misery that is due to the ignorance of their selves. Their misery is meaningless."</font>
+</p>
+
+<p>
+<b>13.53-55 Translation</b><br>
+<font color="DarkGreen"> "...... so also one aware of the Self not only does not grieve but also laughs at another’s grief. ......" </font>
+</p>
+
+<p>
+<b>13.91 Translation</b><br>
+<font color="DarkGreen"> "...... Realize that the Self is the self-contained mirror projecting and manifesting this world. The Self is pure unblemished consciousness. Be quick! Realize it quickly and gain transcendental happiness!"</font>
+</p>
+
 <div class="para-divider"></div>
-
-<p>
-<b>13.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>13.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>13.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>13.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>13.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>13.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>13.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>13.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>13.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>13.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>13.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
 
 <p style="text-align:center;">
 <b>Chapter 14</b><br>
 <font color="DarkGreen"><b>How the Universe is Mere Imagination; How to Gain that Strong Will which Can Create It; and the Highest Truth</b></font>
+</p>
+
+<p>
+<b>14.7 Translation</b><br>
+<font color="DarkGreen"> "The will conceives either effectively or ineffectively, according to whether it is uniform or broken up by indecision."
+</font>
+</p>
+
+<p>
+<b>14.8 Translation</b><br>
+<font color="DarkGreen">"Do you not know this world to be the result of Brahma’s desire? This looks real and permanent because the original desire is so powerful."</font>
+</p>
+
+<p>
+<b>14.9 Translation</b><br>
+<font color="DarkGreen">"Whereas the world of your creation no one takes seriously, and your own mistrust makes it useless."</font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>14.1 Translation</b><br>
+<font color="DarkGreen"></font>
 </p>
 
 <div class="para-divider"></div>
