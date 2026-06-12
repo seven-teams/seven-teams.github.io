@@ -40,5 +40,5 @@ Shri Mataji Nirmala Devi.
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="40">Sources</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 11993-0800 Sudarshan, Volume 2, Number 3, Page 8.</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>S1. </b> 1993-0800 Sudarshan, Volume 2, Number 3, Page 8.</list-item>
 </wave-list>
