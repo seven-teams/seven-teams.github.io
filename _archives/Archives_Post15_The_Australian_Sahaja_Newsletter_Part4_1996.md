@@ -225,7 +225,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW25.</b></font> <b>1996-0831 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file uploaded on 2023-1210 as 2 and 3 pages, scanned file by CCT uploaded on 2026-0621)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW25.</b></font> <b>1996-0831 The Australian Sahaja Newsletter (Sue Raggatt and Blessings Atlanta Collections)</b> (4 pages, scanned file uploaded on 2023-1210 as 2 and 3 pages, scanned file by CCT uploaded on 2026-0621)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-0831_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
@@ -235,7 +235,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW26.</b></font> <b>1996-0907 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file by CCT, uploaded on 2026-0621)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW26.</b></font> <b>1996-0907 The Australian Sahaja Newsletter (Blessings Atlanta Collection)</b> (8 pages, scanned file by CCT, uploaded on 2026-0621)
 
 <iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1996-0907_The_Australian_Sahaja_Newsletter_(Blessings_Atlanta_Collection).pdf" width="1000px" height="1000px"></iframe>
 
