@@ -225,45 +225,53 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW25.</b></font> <b>1996-0831 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (2 pages, scanned file, uploaded on 2023-1210 as 2 and 3 pages)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW25.</b></font> <b>1996-0831 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file uploaded on 2023-1210 as 2 and 3 pages, scanned file by CCT uploaded on 2026-0621)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-0831_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1996-0831_The_Australian_Sahaja_Newsletter_Vertical_Single_Pages_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1996-0831_The_Australian_Sahaja_Newsletter_(Blessings_Atlanta_Collection).pdf" width="1000px" height="1000px"></iframe>
+
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW26.</b></font> <b>1996-0928 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW26.</b></font> <b>1996-0907 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file by CCT, uploaded on 2026-0621)
+
+<iframe src="/pdf/?usedownload=true#https://pub-fafd822530b64b16aba4d8eefe69e1af.r2.dev/1996-0907_The_Australian_Sahaja_Newsletter_(Blessings_Atlanta_Collection).pdf" width="1000px" height="1000px"></iframe>
+
+<br>
+
+<font color="DarkGreen"><b>1996THEAUSSAHNEW27.</b></font> <b>1996-0928 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-0928_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW27.</b></font> <b>1996-1005 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW28.</b></font> <b>1996-1005 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-1005_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW28.</b></font> <b>1996-1012 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW289.</b></font> <b>1996-1012 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-1012_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW29.</b></font> <b>1996-1019 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW30.</b></font> <b>1996-1019 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-1019_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW30.</b></font> <b>1996-1026 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW31.</b></font> <b>1996-1026 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-1026_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW31.</b></font> <b>1996-1102 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1210 as 4 and 6 pages)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW32.</b></font> <b>1996-1102 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1210 as 4 and 6 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-1102_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
@@ -271,25 +279,25 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW32.</b></font> <b>1996-1109 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW33.</b></font> <b>1996-1109 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-1109_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW33.</b></font> <b>1996-1116 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW34.</b></font> <b>1996-1116 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-1116_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW34.</b></font> <b>1996-1122 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW35.</b></font> <b>1996-1122 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-1122_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW35.</b></font> <b>1996-1207 and 1214 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1210 as 2 and 5 pages)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW36.</b></font> <b>1996-1207 and 1214 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (8 pages, scanned file, uploaded on 2023-1210 as 2 and 5 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-1207_1214_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 
@@ -297,7 +305,7 @@ https://linktr.ee/comprehensivecompilationsteam<br>
 
 <br>
 
-<font color="DarkGreen"><b>1996THEAUSSAHNEW36.</b></font> <b>1996-1221 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
+<font color="DarkGreen"><b>1996THEAUSSAHNEW37.</b></font> <b>1996-1221 The Australian Sahaja Newsletter (Sue Raggatt Collection)</b> (4 pages, scanned file, uploaded on 2023-1210 as 2 pages)
 
 <iframe src="/pdf/?usedownload=true#/files/1996-1221_The_Australian_Sahaja_Newsletter_(Sue_Raggatt_Collection).pdf" width="1000px" height="1000px"></iframe>
 

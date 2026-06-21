@@ -7,7 +7,7 @@ tags:
   - red @ Archive
 ---
 
-<b>POSTS</b>: 751 files, 4,855 pages, 1 external page <br>
+<b>POSTS</b>: 753 files, 4,873 pages, 1 external page <br>
 <b>1.</b> <a href="https://seven-teams.github.io/archives/2024/0121"><font color="maroon"><b>Ads</b></font></a>: 3 files, 3 pages, 1 external page<br>
 <b>2.</b> <a href="https://seven-teams.github.io/archives/2023/0508"><font color="maroon"><b>Articles</b></font></a>: 32 files, 48 pages<br>
 <b>3.</b> <b>Australian Sahaja Newsletter</b>: Total files 100<br>
@@ -50,8 +50,8 @@ tags:
  &emsp; &emsp; &emsp;<b>19.1.</b> <a href="https://seven-teams.github.io/archives/2023/0914"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 1 (1993)</b></font></a>: 14 files, 104 pages<br>
  &emsp; &emsp; &emsp;<b>19.2.</b> <a href="https://seven-teams.github.io/archives/2023/1007"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 2 (1994)</b></font></a>: 39 files, 308 pages<br>
  &emsp; &emsp; &emsp;<b>19.3.</b> <a href="https://seven-teams.github.io/archives/2023/1209"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 3 (1995)</b></font></a>: 36 files, 268 pages<br>
- &emsp; &emsp; &emsp;<b>19.4.</b> <a href="https://seven-teams.github.io/archives/2023/1210"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 4 (1996)</b></font></a>: 37 files (includes 1 supplement), 232 pages<br>
- &emsp; &emsp; &emsp;<b>19.5.</b> <a href="https://seven-teams.github.io/archives/2023/1213"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 5 (1997)</b></font></a>: 27 files, 160 pages<br>
+ &emsp; &emsp; &emsp;<b>19.4.</b> <a href="https://seven-teams.github.io/archives/2023/1210"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 4 (1996)</b></font></a>: 38 files (includes 1 supplement), 242 pages<br>
+ &emsp; &emsp; &emsp;<b>19.5.</b> <a href="https://seven-teams.github.io/archives/2023/1213"><font color="maroon"><b>The Australian Sahaja Newsletter, Part 5 (1997)</b></font></a>: 28 files, 168 pages<br>
  <b>20.</b> <b>The Australian Sahaja Yoga Newsletter</b>: Total files 119<br>
  &emsp; &emsp; &emsp;<b>20.1.</b> <a href="https://seven-teams.github.io/archives/2024/0703"><font color="maroon"><b>The Australian Sahaja Yoga Newsletter, Part 1 (2005)</b></font></a>: 33 files, 209 pages<br>
  &emsp; &emsp; &emsp;<b>20.2.</b> <a href="https://seven-teams.github.io/archives/2024/0705"><font color="maroon"><b>The Australian Sahaja Yoga Newsletter, Part 2 (2006)</b></font></a>: 37 files, 163 pages<br>
