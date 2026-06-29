@@ -15,7 +15,7 @@ Sahasrāra was definitely opened and Mother had to do it. "</font><br>
 <font size="+0"><b>1998-0510 Sahasrāra Pūjā, Blessing of the Divine Pours Only if the Sahasrāra is Open (Meditation Is the Only Way You Can Enrich Yourself with the Beauty of Reality), Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT065.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0265.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkGreen"><b>The Mother is everything</b> — She is our consolation in sorrow, our hope in misery and our strength in weakness.<br>
