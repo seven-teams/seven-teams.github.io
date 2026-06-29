@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 4 Photos from the special event <font color="Crimson"><b>1989-0524 Śhrī Pallas Athena Pūjā, Athens, Greece</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 high resolutions from the Named Collections.<br>
-The direct link to the 11 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Greece/1989"> Greece 1989</a>.<br> 
+We are pleased to let you know that 5 Photos from the special event <font color="Crimson"><b>1989-0524 Śhrī Pallas Athena Pūjā, Athens, Greece</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 5 high resolutions from the Named Collections.<br>
+[Note: 1 Photo uploaded only on 2026-0629.]<br>
+The direct link to the 12 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Greece/1989"> Greece 1989</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

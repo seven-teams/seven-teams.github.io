@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 2 Photos from the special event <font color="Crimson"><b>1989-0520 Śhrī Buddha Pūjā, Barcelona, Spain</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
-The direct link to the 4 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Spain/1989"> Spain 1989</a>.<br> 
+We are pleased to let you know that 4 Photos from the special event <font color="Crimson"><b>1989-0520 Śhrī Buddha Pūjā, Barcelona, Spain</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 4 high resolutions from the Named Collections.<br>
+[Note: 3 Photos uploaded only on 2026-0629.]<br>
+The direct link to the 6 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Spain/1989"> Spain 1989</a>.<br> 
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
