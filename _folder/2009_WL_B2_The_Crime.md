@@ -67,5 +67,6 @@ And by forgiving ourselves
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem:</b> "Forgiveness as way to destroy evil and heal suffering"</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem:</b> "Forgiveness as way to destroy evil<br>
+  and heal suffering"</list-item>
 </wave-list>

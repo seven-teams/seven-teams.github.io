@@ -80,5 +80,6 @@ Could be smiling, could be saying:<br>
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem:</b> "Through darkness and through light the eternal never leaves"</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem:</b> "Through darkness and through light<br>
+   the eternal never leaves"</list-item>
 </wave-list>

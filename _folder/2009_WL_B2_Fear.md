@@ -65,5 +65,6 @@ Love and silence fill my heart and mind
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem:</b> "When the mind becomes silent, fear loses all its power"</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem:</b> "When the mind becomes silent,<br>
+  fear loses all its power"</list-item>
 </wave-list>

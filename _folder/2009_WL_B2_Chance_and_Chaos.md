@@ -58,5 +58,8 @@ Let's enjoy it while it lasts
 
 <wave-list>
 <list-title color="DarkSeaGreen" width="25">Story</list-title>
-  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem</b> "Chance allows for the most unlikely events to happen. Seeming chaos bringsabout most higher orders in nature. Both are necessary for an evolution towards a higher consciousness"</list-item>
+  <list-item color="BlanchedAlmond"  width="280"><b>Author's introduction to the poem</b> "Chance allows for the most unlikely<br>
+  events to happen. Seeming chaos brings<br>
+  about most higher orders in nature. Both are necessary<br>
+  for an evolution towards a higher consciousness"</list-item>
 </wave-list>
