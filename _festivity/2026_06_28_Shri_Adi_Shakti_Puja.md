@@ -22,13 +22,14 @@ Now, one has to know very clearly what is Ādi Shakti.</b><br>
 As we say, it is the Pure Desire of God Almighty, of Sadāshiva. But what is the pure desire of God Almighty? If you see your own desires, come out of what? Not out of the Divine Love but out of carnal love, out of material love, out of power love. Behind all these desires there is love.<br>
 .....<br>
 <b>So Ādi Shakti is the embodiment of God’s Divine Love, is God’s pure love, and in his love what did He desire?</b> He desired that He should create human beings, who would be very obedient, would be sublime, would be like angels.</b> And that was His idea: to create Adam and Eve."</font><br>
-<font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Italy</b></font>
-<font size="-1"><font color="DarkGreen"><b>Bin.ti Suniye Adi Shakti Meri</b></font></font><br>
-<font size="-1"><b>Oh Adi Shakti, please listen to my request</b></font><br>
-<font size="-1"><font color="DarkGreen"><b>Pujan. ka adhikar. dijiye</b></font></font><br>
-<font size="-1"><b>Please give me the authority to do Your Puja</b></font><br>
-<font size="-1"><font color="DarkGreen"><b>Sharanagat. hai hriday. pujari</b></font></font><br>
-<font size="-1"><b>Your worshipper is surrendered to You from the heart.</b></font><br>
+<font size="+0"><b>1993-0606 Śhrī Ādi Śhakti Kuṇḍalinī Pūjā, Incarnation of Divine Love, Tent, Cabella Ligure, Italy</b></font><br>
+<br>
+<font size="+0"><font color="DarkGreen"><b>Bin.ti Suniye Adi Shakti Meri</b></font></font><br>
+<font size="+0"><b>Oh Adi Shakti, please listen to my request</b></font><br>
+<font size="+0"><font color="DarkGreen"><b>Pujan. ka adhikar. dijiye</b></font></font><br>
+<font size="+0"><b>Please give me the authority to do Your Puja</b></font><br>
+<font size="+0"><font color="DarkGreen"><b>Sharanagat. hai hriday. pujari</b></font></font><br>
+<font size="+0"><b>Your worshipper is surrendered to You from the heart.</b></font><br>
 <a href="https://www.youtube.com/watch?v=hMK6gaaQ1hU">video</a>
 </p>
 
@@ -53,7 +54,7 @@ We don't worry anymore about the past and the future<br>
 This vibratory awareness is full of fragrance as though we Sahaja Yogis have risen to full glory<br>
 <font color="DarkGreen"><b>Niha.Re Hai Ye Phul</b></font><br>
 and emitting the fragrance of collective awareness through our blossoming <br>
-Pyar Bhare Ye Do Nirmal
+Pyar Bhare Ye Do Nirmal>br>
 <a href="https://youtu.be/EPyKJnXWV8M">video</a>
 </p>
 
@@ -67,7 +68,7 @@ In the same way we have human beings who have different reflectors. But they can
 <p>
 <font color="DarkRed"><b>"I have seen in many cases that Kuṇḍalinī just doesn't rise, She doesn't rise. Even if She rises, She falls back. This happens when a person is very self-indulgent. He's all the time thinking of things which are not of very great importance for spirituality.<br>
 ......<br>
-So, for a Sahaj Yogi it is important to introspect and see for himself: `What is your level?' As I told you about the reflector, `What sort of a reflector you are?' No use deceiving yourself!"</b></font><br>
+So, for a Sahaj Yogi it is important to introspect and see for himself: 'What is your level?' As I told you about the reflector, 'What sort of a reflector you are?' No use deceiving yourself!"</b></font><br>
 <font size="+0"><b>1995-0604 Śhrī Ādi Śhakti Pūjā, How to Detach Yourself From This Idea of Money Orientation (Thinking about Money, Saving Money, These Things Are Absolutely Against Sahaja Yoga), Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -100,9 +101,9 @@ O Primordial Mother, O Eternal Mother<br>
 </p>
 
 <p>
-<font color="DarkRed"><b>"So I think it is very important for you to worship the Ādi Śhakti and the Ādi Kuṇḍalinī. It's absolutely without understanding, absolutely you cannot understand how you have become a Saint. When you will know within yourself, you have got all these centers and these centers have to be awakened through the awakening of the Kuṇḍalinī, and that the Kuṇḍalinī expresses Herself through your fingertips -- unless and until you fully identify with this knowledge, there's always a possibility that you will deviate from the path of your perfection."
+<font color="DarkRed"><b>"So I think it is very important for you to worship the Ādi Śhakti and the Ādi Kuṇḍalinī. It's absolutely without understanding, absolutely you cannot understand how you have become a Saint. When you will know within yourself, you have got all these centers and these centers have to be awakened through the awakening of the Kuṇḍalinī, and that the Kuṇḍalinī expresses Herself through your fingertips -- unless and until you fully identify with this knowledge, there's always a possibility that you will deviate from the path of your perfection."<br>
 ......<br>
-Somebody asked Me, uh, ``Is it necessary to have this Pūjā?", [laughing:] I think, if there's any Pūjā that you should do, it is this one, is [of] Ādi Śhakti. Is very important that this Pūjā must be performed. Because that is how you grow, this reflection improves, and you grow more and more within yourself, through the Power of Ādi Śhakti or through the power of Kuṇḍalinī."</b></font><br>
+Somebody asked Me, uh, "Is it necessary to have this Pūjā?", [laughing:] I think, if there's any Pūjā that you should do, it is this one, is [of] Ādi Śhakti. Is very important that this Pūjā must be performed. Because that is how you grow, this reflection improves, and you grow more and more within yourself, through the Power of Ādi Śhakti or through the power of Kuṇḍalinī."</b></font><br>
 <font size="+0"><b>1996-0609 Śhrī Ādi Śhakti Pūjā, Get Dissolved into the Divine Power, Hangar, Cabella Ligure, Alessandria, Italy</b></font>
 </p>
 
@@ -128,7 +129,7 @@ If that height is achieved by pure life, by pure thinking, by pure heart, it is 
 <b>Reside in our Sahasraras</b><br>
 <font color="DarkGreen"><b>Shri Mataji Vandu Tav.char.na</b></font><br>
 <b>Shri Mataji, we bow to Your Lotus Feet</b><br>
-<font size="-1"><font color="DarkGreen">Shri Mataji Vandu Tav. Charna</font></font>
+<font size="-1"><font color="DarkGreen">Shri Mataji Vandu Tav. Charna</font></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
