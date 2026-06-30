@@ -11,7 +11,7 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-This month 43 new Photos were uploaded to 12 Pūjas as follows (42 high resolutions).<br>
+This month 44 new Photos were uploaded to 13 Pūjas as follows (44 high resolutions).<br>
 (i) 1977-0216 Śhivarātri Pūjā: 2 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1977"> <font color="DarkGreen"><b>India 1977</b></font></a>.<br>
 (ii) 1980-0214 Śhivarātri Pūjā: 1 high resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/India/1980"> <font color="DarkGreen"><b>India/1980</b></font></a>.<br>
 (iii) 1981-1122 Śhrī Mahālakṣhmī Pūjā: 1 high resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1981"> <font color="DarkGreen"><b>Italy 1981</b></font></a>.<br>
@@ -23,7 +23,8 @@ This month 43 new Photos were uploaded to 12 Pūjas as follows (42 high resoluti
 (ix) 1989-0520 Śhrī Buddha Pūjā: 3 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Spain/1989"> <font color="DarkGreen"><b>Spain 1989</b></font></a>.<br>
 (x) 1989-0524 Śhrī Pallas Athena Pūjā: 1 high resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Greece/1989"> <font color="DarkGreen"><b>Greece 1989</b></font></a>.<br>
 (xi) 1991-0331 Easter Pūjā: 1 high resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Australia/1991"> <font color="DarkGreen"><b>Australia 1991</b></font></a>.<br>
-(xii) 1995-0716 Guru Pūjā: 22 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1995-01-to-07"> <font color="DarkGreen"><b>Italy 1995-01 to 07</b></font></a>.<br>
+(xii) 1994-0410 Śhrī Mahāmāyā Pūjā: 1 high resolution uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/New-Zealand/1994"> <font color="DarkGreen"><b>New-Zealand 1994</b></font></a>.<br>
+(xiii) 1995-0716 Guru Pūjā: 22 high resolutions uploaded, link <a href="https://eternalmoments.smugmug.com/Countries/Italy/1995-01-to-07"> <font color="DarkGreen"><b>Italy 1995-01 to 07</b></font></a>.<br>
 Please kindly share the news and the links with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>
