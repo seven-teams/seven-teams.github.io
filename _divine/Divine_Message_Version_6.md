@@ -76,4 +76,5 @@ Sahaja Yogis, Sahaja Yoginīs and Seekers of Truth.
 
 Jay Śhrī Mātājī!
 
+
 The Comprehensive Compilations Team (the Divine Message Subteam)
