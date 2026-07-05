@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 1 Photo from the special event <font color="Crimson"><b>1984-0916 Śhrī Ekādaśha Rudra Pūjā, Italy</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution from the Named Collections.<br>
-The direct link to the 7 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Italy/1984"> Italy 1984</a>.<br>
+We are pleased to let you know that 2 Photos from the special event <font color="Crimson"><b>1984-0916 Śhrī Ekādaśha Rudra Pūjā, Italy</b></font> has been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 2 high resolutions from the Named Collections.<br>
+The direct link to the 8 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Italy/1984"> Italy 1984</a>.<br>
+[Note: 1 Photo uploaded only on 2026-0704.]<br>
 Please kindly share the link with all our brothers and sisters.<br>
 <br>
 Jay Śhrī Mātājī!<br>

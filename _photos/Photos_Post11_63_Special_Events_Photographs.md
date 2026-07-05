@@ -12,8 +12,9 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 9 Photos from the special event <font color="Crimson"><b>1983-0114 Puja, Dhule, India</b></font> have been uploaded 1 week ago to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 medium resolutions and 6 low resolutions from the Named Collections.<br>
-The direct link to the 23 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1983"> India 1983</a>.<br>
+We are pleased to let you know that 10 Photos from the special event <font color="Crimson"><b>1983-0114 Śhrī Saraswatī Pūjā, Dhule, India</b></font> have been uploaded 1 week ago to <font color="DarkGreen"><b>Eternal Moments</b></font>: 1 high resolution, 3 medium resolutions, and 6 low resolutions from the Named Collections.<br>
+[Note: 1 Photo uploaded only on 2026-0704.]<br>
+The direct link to the 24 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/India/1983"> India 1983</a>.<br>
 Please kindly share the link with all our brothers and sisters.<br>
 [Note: 1 Photo uploaded only on 2024-1011.]<br>
 <br>
