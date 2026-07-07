@@ -27,19 +27,34 @@ Now why is it some are seekers and some are not? One may say that Ādi Śhakti, 
 </p>
 
 <p style="text-align:center;">
-<font color="DarkRed">"And<b>that is what you see in America, very common, that for people it has become a joke, life has become a joke.</b> And they think that, 'Life is not to be taken seriously, there is more fun in doing all kinds of things than in getting into any kind of inhibitions,' as they call it, or maybe some sort of uh forms or patterns. But it is a myth, with Americans now, because for that you have to have Śhrī Kṛiṣhṇa, you have to have Realization.<br>
+<font color="SteelBlue">"And <b>that is what you see in America, very common, that for people it has become a joke, life has become a joke.</b> And they think that, 'Life is not to be taken seriously, there is more fun in doing all kinds of things than in getting into any kind of inhibitions,' as they call it, or maybe some sort of uh forms or patterns. But it is a myth, with Americans now, because for that you have to have Śhrī Kṛiṣhṇa, you have to have Realization.<br>
 ......<br>
 It's quite symbolic that in Śhrī Kṛiṣhṇa's place this thing should be so commonly accepted, that, 'Everything is an illusion.' So, who is wrong? Who is bad? 'Nothing is wrong! There's nothing like evil, nothing like good.' And some people go to that limit to say that, 'There's nothing like a bhūt, nothing like a rākṣhasa, nothing like a[n] evil force.'<br>
 ......<br>
 <b>So, one has to understand in that light, that when Kṛiṣhṇa said, "The whole thing is a play," He was meaning for Him, not for others.</b> For Him it is a play. And that's why, when they talk to you about the play and the illusion, you must tell him [them], 'Then why did He kill Kaṃsa? Why did He uh kill Jarāsandha? Why did He kill all the people who were following Kaṃsa?' So to Him it was a play, everything was a play. And He did it in His own attitude of a play.<br>
-<b>So the first thing if you are awakened by Śhrī Kṛiṣhṇa's Powers, then the first thing that should happen to you is wisdom.</b></font><br>
+<b>So the first thing if you are awakened by Śhrī Kṛiṣhṇa's Powers, then the first thing that should happen to you is wisdom.</b>"</font><br>
 <font size="+0">1985-0602 Śhrī Kṛiṣhṇa Pūjā, He Started a New Theme (The Whole Thing Is Nothing but a Līlā) and The Divine Diplomacy Is Expressed through Your Discretion (Play the Melody of God and See Everything as a Play), Tent, Backyard, House of Judy Gaddy, 442 Liberty Road, Englewood, NJ, U.S.A.<b></b></font>
 </p>
 
+<p style="text-align:center;">
+<font color="DarkRed">"So must, one must know the first, <b>first duty of every Sahaja Yogi now is to save others</b>: ......<br>
+......<br>
+But worst of all, I think, is <b>the innocence is under attack in these Western countries, specially in America</b>. The innocence is under attack and this is something is very dangerous, because the children get this mutation at a very young age, and what will happen to them? So we have to think of all those innocent children what we can do for them, how we can save them, how we can work it out.<br>
+......<br>
+All the way you have come here in this wilderness. <b>From this wilderness only, you will rise and you will bless all the people, world. Specially America should be blessed again and again, because it's the Virāṭ, it is Śhrī Kṛiṣhṇa's land. Because people will always try to follow, to copy you.</b> Things will improve if you get the, we can say the blessings of the various lotuses you have within yourself, no doubt. But what about you doing something? What about you doing something about it? And this is what is very important.<br>
+......<br>
+<b>I was asked that I should come and stay in America, so [that] America will improve very much. So now, here I am! I came here, I stayed here, and the I am definitely putting all My attention. Because it's a very important, very way important chakra which is this, uh which is America. And this very important country is doing sometimes very stupid things.</b><br>
+I would not say that you enter into politics, no. I would not say you get into any opposition and farm [form] a group, no.<br>
+But you also know that you have powers. Even your thought, your desire has powers. Try to experiment with it. Once you experiment, you'll find out that only the attention that you put to these things, it will work out, I am sure it will work out. "</font><br>
+<font size="+0"><b>1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</b></font>
+</p>
+
+
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0274.png" /></div>
 
+
 <p style="text-align:center;">
-<font color="DarkRed">"It is a country which can definitely help for the emancipation of the whole human beings. But on the contrary, it is uh going on the other way round. I mean, American culture, I don't understand at all what, what is the American culture i[s]. Is um something -- they say something, do something else. They've no proper value system, which is accepted by everyone, which is built traditionally from days together. The value system is so convoluted, so twisted that it's only a Sahaja Yogi by his nobility, by his greatness can disentangle these people. They have funny ideas, and those funny ideas should not deter you, should not stop you, for you know that they are stupid, they are destructive and they will destroy all the, all the good qualities.<br>
+<font color="SteelBlue">"It is a country which can definitely help for the emancipation of the whole human beings. But on the contrary, it is uh going on the other way round. I mean, American culture, I don't understand at all what, what is the American culture i[s]. Is um something -- they say something, do something else. They've no proper value system, which is accepted by everyone, which is built traditionally from days together. The value system is so convoluted, so twisted that it's only a Sahaja Yogi by his nobility, by his greatness can disentangle these people. They have funny ideas, and those funny ideas should not deter you, should not stop you, for you know that they are stupid, they are destructive and they will destroy all the, all the good qualities.<br>
 <b>You should know that their responsibility of Americans is much greater than the responsibility of any other Sahaja Yogis, because they are accepted and regarded as the most competent people, as the most effective people, by the Divine Power. Divine Power thinks that, 'Now you can go all ahead, you can do so much, and let us see.'</b> "</font><br>
 <font size="+0"><b>1999-0620 Śhrī Ādi Śhakti Pūjā, Sahaja Yogis Have to Transform Others, Hangar, Nirmal Nagarī, 287 Starkville Road, Fort Plain (5 kms NW of Canajoharie), NY, U.S.A.</b></font>
 </p>
