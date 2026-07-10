@@ -12,10 +12,10 @@ tags:
 <br>
 Dear Sahaja Yogis and Sahaja Yoginīs,<br>
 <br>
-We are pleased to let you know that 6 Photos of the special event <font color="Crimson"><b>1993-1014 Public Program, MD, U.S.A.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 6 medium resolutions from the Named Collections.<br>
-The direct link to the 48 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/USA/1993"><font color="DarkGreen">USA 1993</font></a>.<br> 
+We are pleased to let you know that 10 Photos of the special event <font color="Crimson"><b>1993-1014 Public Program, MD, U.S.A.</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 3 high resolutions and 7 medium resolutions from the Named Collections.<br>
+The direct link to the 52 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/USA/1993"><font color="DarkGreen">USA 1993</font></a>.<br> 
 Please kindly share the links with all our brothers and sisters.<br>
-[Note: one uploaded only on 2024-0627.]<br>
+[Note: 1 Photo uploaded only on 2024-0627 and 3 Photos uploaded only on 2026-0710.]<br>
 <br>
 Jay Śhrī Mātājī!<br>
 <br>
