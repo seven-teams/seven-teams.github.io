@@ -1,7 +1,7 @@
 ---
 title: 'Photos Post 13: Moments of Growth, New Albums and Galleries, Part 59'
 date: 2026-07-09
-permalink: /photos/2026/0709
+permalink: /photos/2026/0709-a
 tags:
   - crimson @ Photos Moments of Growth
   - green @ Updates
