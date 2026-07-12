@@ -1070,110 +1070,168 @@ He wished to be one also and besought me to grant his prayer. I initiated him in
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.10-15 Translation</b><br>
+<font color="DarkGreen">"Conceptions materialize for various reasons as follows: by virtue of the natural function, as with Brahma the Creator; by the possession of live-gems, as with <i>Yakshas</i> and <i>rakshasas</i> [classes of celestial beings]; by the use of herbs, as with Gods [nectar is reputed to contain the extracts of superb herbs]; by the practice of <i>yoga</i>, as with yogis; by the miraculous power of incantations, as with a few <i>siddhas</i>; by the force of penance, as with some Sages; and by virtue of boons, as with the Architect of the Universe (<i>Viswakarma</i>).<br>
+One should forget the old associations in order to make one’s new conception effective, ...... A conception is forceful unless obstructed by an antecedent one, and thus destroyed. It is effective only when forceful; ......"</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.17-23 Translation</b><br>
+<font color="DarkGreen">"...... spirits do so [i.e., engage in activities] with the bodies of others. ......"</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.34-40 Translation</b><br>
+<font color="DarkGreen">"...... The illumined and the illuminant cannot be identical. ...... the illumination in perfection - only one, and the <i>being</i> of all."</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.43 Translation</b><br>
+<font color="DarkGreen">"The whole Universe is thus in the illumination which shines self-sufficient, by itself, everywhere, and at all times"</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.44-45 Translation</b><br>
+<font color="DarkGreen">"Such illumination is Her Transcendental Majesty Tripurā, the Supreme. She is called Brahma in the Vedas, Vishnu by the Vaisnavites, Shiva by the Saivites, and Shakti by the Saktas. There is indeed nothing but She. She holds everything by Her prowess as a mirror does its images. She is the illuminant in relation to the illumined."
+</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.47-49 Translation</b><br>
+<font color="DarkGreen">"...... so also the Universe is part and parcel of the perfect, solid and unitary consciousness, namely the Self."</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.51 Translation</b><br>
+<font color="DarkGreen">"The Universe is, always and all-through, a phenomenon in the Self. ......"</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.53 Translation</b><br>
+<font color="DarkGreen">"Though consciousness is all-pervading, dense and single, it still holds the mobile and immobile creation within it, wonderful in its variety, with no immediate or ultimate cause for it."</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.58 Translation</b><br>
+<font color="DarkGreen">"Though unperturbed, unblemished, thick, dense and single, the absolute consciousness being self-sufficient manifests within itself what looks ‘exterior’, ......<br></font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.59-60 Translation</b><br>
+<font color="DarkGreen">"This is the first step in creation; it is called ignorance or darkness. Starting as an infinitesimal fraction of the whole, it manifests as though external to its origin, and is a property of the ego-sense. The alienation is on account of the latent tendencies to be manifested later. Because of its non-identity with the original consciousness, it is now simple, insentient energy."</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.61 Translation</b><br>
+<font color="DarkGreen">"That consciousness which illumines the ‘exterior’ is called <i>Shiva-tattwa</i>, whereas the individual feeling as ‘I’ is <i>Shakti-tattwa</i>."</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.62 Translation</b><br>
+<font color="DarkGreen">"When the awareness of the ‘exterior’, combined with the ‘I’, encompasses the entire imagined space as ‘I’, it is called <i>Sadā-Shiva-tattwa</i>."</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.63 Translation</b><br>
+<font color="DarkGreen">"When, later, discarding the abstraction of the Self and the exterior, clear identification with the insentient space takes place, it is called <i>Ishwara-tattwa</i>. The investigation of the last two steps is pure Vidyā (knowledge).</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.64 Translation</b><br>
+<font color="DarkGreen">"All these five <i>tattwas</i> are pure because they relate to an as-yet-undifferentiated condition ......"</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.67-69 Translation</b><br>
+<font color="DarkGreen">"The sentient phase now contracts, being relegated to a minor position and takes on the name of <i>Purusha</i> being covered by five sheaths, namely <i>kalā</i> (something of doership), <i>vidya</i> (some knowledge), <i>rāga</i> (desire), kāla (time - allotted life) and <i>niyati</i> – (fixed order of things)."</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.76 Translation</b><br>
+<font color="DarkGreen">"That chitta [mind] is tripartite according to its functions, namely, ego, intellect and mind."</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.77 Translation</b><br>
+<font color="DarkGreen">"When influenced by the three qualities, it manifests in greater details as follows: by <i>sattwa<i> (brightness), it becomes the five senses, hearing, sight, touch, taste and smell; by <i>rajas</i> (activity) speech, hands, feet, organs of excretion and of procreation; by <i>tamas</i> (darkness) Earth, Air, Fire, Water and Ether."</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.78 Translation</b><br>
+<font color="DarkGreen">"The supreme intelligence coquettes with the Universe in this manner, remaining all the time unaffected, a witness of its own creation."</font>
 </p>
 
 <p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>14.92 Translation</b><br>
+<font color="DarkGreen">"...... world is simply an image on the mirror of consciousness and cultivate the contemplation of ‘I am’, abide as pure being and thus give up this delusion of the reality of the world."</font>
 </p>
 
-<p>
-<b>14.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
 
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 15</b><br>
 <font color="DarkGreen"><b>On what Need Be Known and Need Not Be Known and on the Nature of the Self</b></font>
+</p>
+
+<p>
+<b>15.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>15.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>15.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>15.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>15.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>15.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>15.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>15.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>15.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>15.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>15.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>15.1 Translation</b><br>
+<font color="DarkGreen"></font>
 </p>
 
 <div class="para-divider"></div>
