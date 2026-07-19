@@ -1,7 +1,7 @@
 ---
 title: '1993-0000 Poem &#8216;Why meditate?&#8217; Sharon K. Collins, Los Angeles from 1993-0200 Sudarshan, Volume 2, Number 1, Page 3'
 date: 1993-01-01
-permalink: /folder/
+permalink: /folder/1993-SKC-Why-meditate
 tags:
   - black @ Poetry
   - blue @ Bles Yaneza
