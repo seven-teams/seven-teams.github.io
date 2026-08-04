@@ -116,9 +116,10 @@ You won't find a relative like your Guru<br>
 There is no other refuge  than your Guru<br>
 <font color="DarkRed"><b>GURU NIDHAN. GURU MOKSH. ASARA</b></font><br>
 He is the solution, the Giver of Liberation and Shelter<br>
-<font color="DarkRed"><b>DEV. DAIV. LABHE SADAIV.<br>
-GURU CHARAN. LABH. HOTA</b></font><br>
+<font color="DarkRed"><b>DEV. DAIV. LABHE SADAIV.</b></font><br>
 He is the solution, the Giver of Liberation and Shelter<br>
+<font color="DarkRed"><b>GURU CHARAN. LABH. HOTA</b></font><br>
+At the Lotus Feet of the Guru<br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
