@@ -36,8 +36,8 @@ The One who makes me my own Guru<br>
 </p>
 
 <p style="text-align:center;">
-<font color="DarkRed">"So, today you have to take some vows. And you have to say: that, 'We are going to do these things. We are going to talk about Sahaj Yog, we are going to propagate it, we are going to spread it. And what may come, we are going to surrender ourselves to Mother. Even, if She's supposing, scolds us, or says anything it is for our good. And we are not going to get confused.' And that's how you have to absolutely vow that you are going to dedicate yourself to Sahaj Yog to help others, to e... emancipate, and to create atmosphere for the completion of this universe, of this creation, for that fruitful day when we will say: that, <b>'The Kingdom of God has been brought on this Earth.'
-So today is not the day for Me to give, but for you. You have to announce.</b>"<br>
+<font color="DarkRed">"So, today you have to take some vows. And you have to say: that, 'We are going to do these things. We are going to talk about Sahaj Yog, we are going to propagate it, we are going to spread it. And what may come, we are going to surrender ourselves to Mother. Even, if She's supposing, scolds us, or says anything it is for our good. And we are not going to get confused.' And that's how you have to absolutely vow that you are going to dedicate yourself to Sahaj Yog to help others, to e... emancipate, and to create atmosphere for the completion of this universe, of this creation, for that fruitful day when we will say: that, <b>'The Kingdom of God has been brought on this Earth.'<br>
+So today is not the day for Me to give, but for you. You have to announce.</b>"</font><br>
 <font size="+0"><b>1977-0701 Guru Pūjā (Guru Pūrṇimā Day) (first more formal Pūjā in the West), Self-realization, Living Room, Gavin Brown's Geological Institute (Terrace House), 160 North Gower Street, 2nd Floor, Euston, London, UK</b></font>
 </p>
 
@@ -128,7 +128,7 @@ You won't find a relative like your Guru<br>
 There is no other refuge  than your Guru<br>
 <font color="Chocolate"><b><b>GURU NIDHAN. GURU MOKSH. ASARA</b></font><br>
 He is the solution, the Giver of Liberation and Shelter<br>
-<font color="Chocolate"><b>DEV. DAIV. LABHE SADAIV.<font><br>
+<font color="Chocolate"><b>DEV. DAIV. LABHE SADAIV.</font><br>
 He is the solution, the Giver of Liberation and Shelter<br>
 <font color="Chocolate"><b>GURU CHARAN. LABH. HOTA</b></font><br>
 At the Lotus Feet of the Guru<br>

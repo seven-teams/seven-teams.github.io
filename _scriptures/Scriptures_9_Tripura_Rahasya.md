@@ -780,7 +780,7 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 
 <p>
 <b>9.8 Translation</b><br>
-<font color="DarkGreen">"The Self does not admit of specification, and therefore no teacher can teach it. However, realise the Self within you, for it abides in unblemished intellect."</font>
+<font color="DarkGreen">"The Self does not admit of specification, and therefore no teacher can teach it. However, realize the Self within you, for it abides in unblemished intellect."</font>
 </p>
 
 <p>
@@ -872,7 +872,7 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 
 <p>
 <b>10.28-38 Translation</b><br>
-<font color="DarkGreen">"...... Even what may be surmised to be in another place and at a different time, is also within your consciousness. ...... There cannot be anything that is not held by consciousness ...... it cannot be the perfect state if it can be attained. ...... the fire of realisation will burn away all your sense of duty so that there will be nothing left for you to do. Be strong, root out your thoughts and cut off the deep-rooted knots from your heart, namely, 'I will see’, 'I am not this’, 'This is non-Self ’, and such like. ...... Find wherever you turn the one, undivided, eternal blissful Self; also watch the whole Universe reflected, as in a mirror in the Self, as it arises and subsides in It. ......"</font>
+<font color="DarkGreen">"...... Even what may be surmised to be in another place and at a different time, is also within your consciousness. ...... There cannot be anything that is not held by consciousness ...... it cannot be the perfect state if it can be attained. ...... the fire of realization will burn away all your sense of duty so that there will be nothing left for you to do. Be strong, root out your thoughts and cut off the deep-rooted knots from your heart, namely, 'I will see’, 'I am not this’, 'This is non-Self ’, and such like. ...... Find wherever you turn the one, undivided, eternal blissful Self; also watch the whole Universe reflected, as in a mirror in the Self, as it arises and subsides in It. ......"</font>
 </p>
 
 <p>
@@ -1175,63 +1175,69 @@ One should forget the old associations in order to make one’s new conception e
 </p>
 
 <p>
-<b>15.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>15.5 Translation</b><br>
+<font color="DarkGreen">[Śhrī Paraśhurāma to Śhrī Dattātreya:] "Her Transcendental Majesty, the Maheshvari, is that Consciousness manifesting as Intelligence cognizant of the whole range of phenomena ......"</font>
 </p>
 
 <p>
-<b>15.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>15.8 Translation</b><br>
+<font color="DarkGreen">"But this intelligence is said to be beyond cognition because it always remains as pure knowledge itself."</font>
 </p>
 
 <p>
-<b>15.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>15.9 Translation</b><br>
+<font color="DarkGreen">"I do not see how it can be realized if it surpasses knowledge. The goal is not achieved without realizing it. "</font>
 </p>
 
 <p>
-<b>15.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>15.18 Translation</b><br>
+<font color="DarkGreen">"...... Or are there grades in knowledge and liberation?"</font>
 </p>
 
 <p>
-<b>15.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>15.21 Translation</b><br>
+<font color="DarkGreen">[Śhrī Dattātreya:] "Worthy Rama! You are indeed fit to reach that goal because you have now turned towards the right way of investigation."</font>
 </p>
 
 <p>
-<b>15.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>15.22 Translation</b><br>
+<font color="DarkGreen">"This is due to the grace of God which puts you in the right way of investigation. Who can attain anything worthy, without divine grace?"</font>
 </p>
 
 <p>
-<b>15.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>15.24-25 Translation</b><br>
+<font color="DarkGreen">"...... A knowledge of the property of a thing without actual experience of the thing itself is as useless as no knowledge."</font>
 </p>
 
 <p>
-<b>15.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>15.28 Translation</b><br>
+<font color="DarkGreen">"...... There was formerly an extremely virtuous king ruling over Videha."</font>
 </p>
 
 <p>
-<b>15.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>15.29 Translation</b><br>
+<font color="DarkGreen">"He was Janaka by name, very wise and conversant with both this world and beyond. ....."</font>
 </p>
 
 <p>
-<b>15.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>15.54-56 Translation</b><br>
+<font color="DarkGreen">[Female ascetic to Ashtavakra, son of Kahoela:] "...... What is that condition reaching which there will be all-round immortality; knowing which all doubts and uncertainties will disappear; and established in which all desires will vanish? ......"</font>
 </p>
 
 <p>
-<b>15.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>15.59-63 Translation</b><br>
+<font color="DarkGreen">[Ashtavakra:] "...... the primal and efficient cause of the Universe, being itself without beginning, middle or end, and unaffected by time and space. It is pure, unbroken, single Consciousness. ......"</font>
 </p>
 
 <p>
-<b>15.1 Translation</b><br>
-<font color="DarkGreen"></font>
+<b>15.75-84 Translation</b><br>
+<font color="DarkGreen">[Female ascetic:] "...... Of all the people now assembled here, no one has experienced Reality, except the king and myself. It is not a subject for discussion. The most brilliant logic can only approach it but never attain it. Although unaffected by logic coupled with a keen intellect, it can however be realized by service to one’s Guru and the grace of God. ......"</font>
+</p>
+
+<p>
+<b>15.85 Translation</b><br>
+<font color="DarkGreen">"...... As long as the mind is not inward, so long the Self cannot be realized. Turning inward means absence of desire. How can the mind be fixed within if desires are not given up? Therefore become dispassionate and inhere as the Self. Such inherence is spontaneous (no effort is needed to inhere as the Self). It is realized after thoughts are eliminated and investigation ceases. ......Thus realizing the unknowable, one abides in immortality for ever and ever. ...... This king, the wisest among men, can make you understand. So ask him again and he will clear your doubts. ......"<br>
+[Śhrī Dattātreya:][I have now related to you, O Rama, the method of Self-realization.]</font>
 </p>
 
 <div class="para-divider"></div>
@@ -1239,6 +1245,101 @@ One should forget the old associations in order to make one’s new conception e
 <p style="text-align:center;">
 <b>Chapter 16</b><br>
 <font color="DarkGreen"><b>On Consciousness; Control of Mind; and Sleep</b></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>16.1 Translation</b><br>
+<font color="DarkGreen"></font>
 </p>
 
 <div class="para-divider"></div>
