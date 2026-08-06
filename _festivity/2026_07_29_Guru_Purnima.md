@@ -121,14 +121,14 @@ So, anything that you see, anything you do or others are doing, try to relate it
 Specially ladies are very shy I think. They can do a lot and they should work it out. They are shy for nothing at all, what is the need to be shy? They are very shy ladies and they just don't get into the whole working of Sahaja Yoga -- you should. If the ladies start talking about it, I think it will work much faster.<br>
 And I bless you all to do this work, which was left half done by the Saints, it's your duty to complete it.<br>
 May God bless you.</b>"</font><br>
-<font size="+0"><b></b></font><br>
+<br>
 <font color="Chocolate"><b>GURU SAMAN. KUNI NAHI SOYARA</b></font><br>
 You won't find a relative like your Guru<br>
 <font color="Chocolate"><b>GURU VIN. NAHI THARA</b></font><br>
-There is no other refuge  than your Guru<br>
-<font color="Chocolate"><b><b>GURU NIDHAN. GURU MOKSH. ASARA</b></font><br>
+There is no other refuge  han your Guru<br>
+<font color="Chocolate"><b>GURU NIDHAN. GURU MOKSH. ASARA</b></font><br>
 He is the solution, the Giver of Liberation and Shelter<br>
-<font color="Chocolate"><b>DEV. DAIV. LABHE SADAIV.</font><br>
+<font color="Chocolate"><b>DEV. DAIV. LABHE SADAIV.</b></font><br>
 He is the solution, the Giver of Liberation and Shelter<br>
 <font color="Chocolate"><b>GURU CHARAN. LABH. HOTA</b></font><br>
 At the Lotus Feet of the Guru<br>
@@ -147,7 +147,7 @@ At the Lotus Feet of the Guru<br>
 <font size="+2"><b>Bhajans:</b></font>
 
 <p>
-<font color="green"><b>Guru bin Kaun</b></font><br>
+<font color="Maroon"><b>Guru bin Kaun</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
@@ -162,12 +162,12 @@ At the Lotus Feet of the Guru<br>
 </p>
 
 <p>
-<font color="green"><b>Namanat Karo (I bow to Lotus Feet of my Guru)</b></font><br>
+<font color="Maroon"><b>Namanat Karo (I bow to Lotus Feet of my Guru)</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="green"><b>Guru Mauli</b></font><br>
+<font color="Maroon"><b>Guru Mauli</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
