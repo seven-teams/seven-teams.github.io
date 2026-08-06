@@ -5,7 +5,6 @@ permalink: /festivity/2026/07/29
 tags:
   - maroon @ Guru Purnima
   - orange @ Guru Puja
-
 ---
 
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>

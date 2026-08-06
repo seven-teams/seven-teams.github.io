@@ -1,5 +1,5 @@
 ---
-title: '2026 Celebrating 250 Years of Independence of United States of America: ""It is a responsibility to save America. You know it is a Viśhuddhi chakra and all the responsibility of Sahaja Yoga rests on Viśhuddhi chakra." '
+title: '2026 Celebrating 250 Years of Independence of United States of America: "It is a responsibility to save America. You know it is a Viśhuddhi chakra and all the responsibility of Sahaja Yoga rests on Viśhuddhi chakra." '
 date: 2026-07-04
 permalink: /festivity/2026/07/04
 tags:
