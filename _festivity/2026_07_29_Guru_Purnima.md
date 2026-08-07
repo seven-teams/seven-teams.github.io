@@ -1,5 +1,5 @@
 ---
-title: '2026 Celebrating Guru Pūrṇimā: "If God is your Guru, let Him guide you; Thy will be done." '
+title: '2026 Celebrating Guru Pūrṇimā: "If God is your Guru, let Him guide you&#59; Thy will be done." '
 date: 2026-07-29
 permalink: /festivity/2026/07/29
 tags:
