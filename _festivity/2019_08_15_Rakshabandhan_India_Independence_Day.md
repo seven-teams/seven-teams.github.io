@@ -30,7 +30,7 @@ We are equal and made of the same Earth.</font><br>
 <p>
 <font color="Maroon">"<b>Today in India, we celebrate a special festival. It is called as Rakshābandhan.</b> 'Raksha' means protection and ‘bandhan’ means the bondage – the bondage of protection. It’s a very nice, good, social custom to have this beautiful festival today. Today is the full moon day and this day what we do is to tie a band of threads around the person whom you want to protect. It is done between brothers and sisters.<br>
 The sisters tie this bondage to the wrist of the brothers, and when we do that, they’re putting all their love around the wrist, that it is the day for giving all their love, everything to their brother, as a protection, as a symbol of their protection through that thread. It’s a very, very simple thread they use. And this is has to be tied on the left hand side. But people tie it on the right hand side, which is a mistake, but it has to be tied on the left hand side."</font><br>
-<font size="+0"><b>1980-0826 Rakshābandhan, Caxton Hall, Westminster, London, UK</b></font>
+<font size="+0"><b>1980-0826 Talk to Sahaja Yogis (Rakṣhābandhan Day), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div style="text-align: center"><img src="/images/image26.png" /></div>
@@ -38,7 +38,7 @@ The sisters tie this bondage to the wrist of the brothers, and when we do that, 
 <p style="text-align:center;">
 <font size="-1"><b>Baba Mama, (March 1990): This is what the brother has written for the sister:<br>
 "O Nirmala, my sister, how much should I praise You? Because You have given the human being the experience of God."</b></font><br>
-<a href="https://seven-teams.github.io/Videos_Links.html">Nirmalaa, Kiti Varnaavi Tujhiga Stuti</a>
+<a href="https://seven-teams.github.io/Videos_Links.html">Nirmalā, Kiti Varnāvi Tujhiga Stuti</a>
 </p>
 
 <p>
