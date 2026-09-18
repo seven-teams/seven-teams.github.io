@@ -23,8 +23,8 @@ Always remembering you<br>
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0282.png" /></div>
 
 <p style="text-align:center;">
-<font color="Blue">"Today, in India, we celebrate a set ... special festival. <b>It is called as Rakṣhā-bandhan. Rakṣhā means protection and bandhan means the bondage: the bondage of protection.</b>b> Is a very nice, good, social custom to have this beautiful festival today.<br>
-<b>Today is the Full Moon Day, and this day what we do is to tie a band of threads around the person whom you want to protect.</b>b> But it is done between brothers and sisters. The sisters tie this bondage to the wrist of the brothers, and when they do that, they are putting all their love around the wrist, that it is the day for giving all their love, everything to their brother, as a protection, as a symbol of their protection through that thread. Is a very, very simple thread they use. And uh this is, has to be tied on the left-hand side. But people tie it on the right-hand side, which is a mistake. But it has to be tied on the left-hand side."</font><br>
+<font color="Blue">"Today, in India, we celebrate a set ... special festival. <b>It is called as Rakṣhā-bandhan. Rakṣhā means protection and bandhan means the bondage: the bondage of protection.</b> Is a very nice, good, social custom to have this beautiful festival today.<br>
+<b>Today is the Full Moon Day, and this day what we do is to tie a band of threads around the person whom you want to protect.</b> But it is done between brothers and sisters. The sisters tie this bondage to the wrist of the brothers, and when they do that, they are putting all their love around the wrist, that it is the day for giving all their love, everything to their brother, as a protection, as a symbol of their protection through that thread. Is a very, very simple thread they use. And uh this is, has to be tied on the left-hand side. But people tie it on the right-hand side, which is a mistake. But it has to be tied on the left-hand side."</font><br>
 <font size="+0"><b>1980-0826 Talk to Sahaja Yogis (Rakṣhābandhan Day), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font><br>
 <br>
 <font color="FireBrick"><b>Auṃ Twameva sākṣhāt Śhrī Bandhu Ātmā-prabudhyata sākshāt<br>
@@ -46,7 +46,7 @@ And Viṣhṇumāyā, the One which today announced our coming, is the sister of
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0283.png" /></div>
 
 <p style="text-align:center;">
-<font color="DarkRed"><b></b></font><br>
+<font color="DarkRed">"...... we have to know that chastity is the foundation of all dharmas. <b>Unless and until you have sense of chastity you cannot have dharma.</b> Dharma is not possible because that's the foundation."</font><br>
 <font size="+0"><b>1985-0901 Śhrī Viṣhṇumāyā Pūjā, Southlands College, University of Roehampton, Wimbledon, London, UK</b></font><br>
 <br>
 <font color="Purple">You purify all relationships.<br>
@@ -69,6 +69,7 @@ May God bless you!"</font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a> 
 </p>
 
+<p style="text-align:center;">
 <font color="DarkRed">"So the relationship between Śhrī Kṛiṣhṇa and Viṣhṇumāyā is that of a brother and a sister.<br>
 And surprisingly, the other day [on 1990-0807] we celebrated the Rākhī Bandhan, the Rakṣhābandhan, which is the same thing as the brothers-sisters relationship.<br>
 <b>So now here we are celebrating actually the Deity which is the Sister of Śhrī Kṛiṣhṇa.<br>
@@ -79,7 +80,7 @@ Later on She was born as Draupadī. And that's why Śhrī Kṛiṣhṇa went to 
 <div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0284.png" /></div>
 
 <p>
-<font color="Blue">"<b>So, this day is uh extremely important, in a way, for Sahaja Yogis to observe, and I'm happy that I am here, because it's very important also for America.</b>b><br>
+<font color="Blue">"<b>So, this day is uh extremely important, in a way, for Sahaja Yogis to observe, and I'm happy that I am here, because it's very important also for America.</b><br>
 Uh as I told you that, I have already talked to you how the-ee war between Alexander and Puru's was finished because of a sister's intervention.<br>
 And, also, how Śhrī Kṛiṣhṇa, whose sister was Draupadī, Viṣhṇumāyā was born as Draupadī, and how He came to save Her chastity, by rushing all the way from Dvārikā.<br>
 So, we can see that when we ascend in the Collective Consciousness and we have collective living, collective meeting, at the Viśhuddhi chakra, Śhrī Kṛiṣhṇa establish[ed] this, or He manifested uh this pure relationship of a sister.<br>

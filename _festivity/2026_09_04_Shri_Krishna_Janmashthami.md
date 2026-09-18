@@ -9,14 +9,14 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<p style="text-align:center;">font><br>
+<p style="text-align:center;">
 <font color="DarkRed">"<b>Today we have gathered here to worship Śhrī Kṛiṣhṇa's Incarnation.</b><br>
 As you know that Śhrī Kṛiṣhṇa is the Incarnation of Nārāyaṇa, of Śhrī Viṣhṇu.<br>
 So in every Incarnation, They carry all Their qualities, all Their powers, and all Their nature with Them.<br>
 So when He incarnated, He had all the qualities of Nārāyaṇa, and then that of Rāma, but every Incarnation tries to rectify whatever in Their previous life has been misunderstood and have been carried to the extremes. That's why They have to come back again and again."</font><br>  
 <font size="+0"><b>1989-0814 Śhrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, Essex, UK</b></font><br>
 <br>
-<font color="DarkRed">"Now try to understand every word, every name of Śhrī Kṛiṣhṇa. "</font><br>
+<font color="DarkRed">"Now try to understand every word, every name of Śhrī Kṛiṣhṇa."</font><br>
 <font size="+0"><b>1996-0929 Śhrī Kṛiṣhṇa Pūjā, Donald Jonas Gymnasium and Leonard Franklin Theatre, Camp Vacamas, 256 Macopin Road, West Milford, NJ, U.S.A.</b></font><br>
 </p>
 
@@ -101,7 +101,7 @@ Auṃ Twameva sākṣhāt Śhrī Viśhwa-Sākṣhi sākṣhāt Śhrī Ādi Śhak
 <p>
 <font color="SteelBlue"><u>The Master of the Divine Diplomacy</u></font><br>
 <font color="DarkRed"><b>"Śhrī Kṛiṣhṇa, as I told you, was the Incarnation also of diplomacy."</b></font><br>
-<font size="+0"><b>>1992-0816 Śhrī Kṛiṣhṇa Pūjā, Virāṭa State and Rise above Viśhuddhi, Tent, Cabella Ligure, Alessandria, Italy</b></font><br>
+<font size="+0"><b>1992-0816 Śhrī Kṛiṣhṇa Pūjā, Virāṭa State and Rise above Viśhuddhi, Tent, Cabella Ligure, Alessandria, Italy</b></font><br>
 <font color="DarkRed">"So what is the Divine Diplomacy? You don't have to shout, but you change the subject. If you want to bring somebody to a, some, conclusion -- then best thing is first you change the subject and gradually, if you are clever enough, then you go on changing, changing and you bring it back to the right thing.<br>
 ......<br>
 <b>What is the essence of this diplomacy? Is benevolence.</b> You have to achieve the benevolence of the whole humanity."</font><br>
@@ -115,7 +115,7 @@ Auṃ Twameva sākṣhāt Śhrī Viśhwa-Sākṣhi sākṣhāt Śhrī Ādi Śhak
 So, to dissolve people with sweetness, how to do it, that trick one has to learn.<br>
 ......<br>
 First of all, you must always show that you are less intelligent than another person.<br>
-.....<br?
+.....<br>
 So first is humility, which it should be genuine, and secondly is equanimity, no temper.<br>
 ......<br>
 So the second trick is: how to master your own temper. And the third one is how to master the temper of others. That's even better."</font><br>
@@ -208,7 +208,7 @@ Many a times, people have asked Me, ``Mother, why not we have a Pūjā of Kṛi�
 <font color="SteelBlue"><u>The Wielder of the Sudarśhan Chakra</u></font><br>
 <font color="DarkRed">"Now the other side of Śhrī Kṛiṣhṇa people do not know. It's a play, all right. But He is Saṃhāra Śhakti. He is the power of destruction. It's very good He comes with everything to protect us. But He also has got Sudarśhan Chakra. Sudarśhan, `su' means auspicious, `darśhan' is vision. He gives us auspicious visions, you see. <b>You try tricks with Him, that goes round your neck and then you have auspicious darśhans of yourself, that you are hanging in the air somewhere.</b>"</font><br>
 <font size="+0"><b>1982-0815 Śhrī Yogeśhwara (God of Yoga) Pūjā, To do Duty to Him First and Foremost Thing Is You Have to Develop that Purity of a Yogeśhwara (Complete Purity) and A Real Yogi Is a Person who Gets this Yogeśhwara Awakened within Him (Unless and Until You Follow the Path of Yogeśhwara, You Cannot Establish Yourself Fully), Āśhram, 44 Chelsham Road, Clapham, London, UK</b></font><br>
-<font color="DarkRed">"<b>So Sahaja Yoga is the only organization in the whole world, whether you call it spiritual or whatever you may call it, is the only organization that it is also anxious to throw away many people from Sahaja Yoga.</b? There is no organization -- I mean we are not organization, also. But there is no spiritual movement, there is no movement in the whole world that not only allows people to go out of Sahaja Yoga but throws them out, because it is bound by the Divine Laws and it has to abide by the Divine Laws. Śhrī Kṛiṣhṇa's style was that: what is the need to throw them away? Just kill them, finished."</font><br>
+<font color="DarkRed">"<b>So Sahaja Yoga is the only organization in the whole world, whether you call it spiritual or whatever you may call it, is the only organization that it is also anxious to throw away many people from Sahaja Yoga.</b> There is no organization -- I mean we are not organization, also. But there is no spiritual movement, there is no movement in the whole world that not only allows people to go out of Sahaja Yoga but throws them out, because it is bound by the Divine Laws and it has to abide by the Divine Laws. Śhrī Kṛiṣhṇa's style was that: what is the need to throw them away? Just kill them, finished."</font><br>
 <font size="+0"><b>1990-0819 Śhrī Kṛiṣhṇa Pūjā, Hallowtree Scout Campsite, Nacton, Ipswich IP10 0JP, Essex, UK</b></font>
 </p>
 
@@ -244,7 +244,7 @@ and to establish dharma in the hearts of men, I am born from age to age.</font><
 </p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
-<font size="+0"><b>>1989-0814 Śhrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, Essex, UK</b></font>
+<font size="+0"><b>1989-0814 Śhrī Kṛiṣhṇa Pūjā, Secondary School, Saffron Walden, Essex, UK</b></font>
 <a href="https://vimeo.com/575624651"> video</a><br>
 
 <font size="+2"><b>Bhajans:</b></font>
@@ -270,12 +270,12 @@ and to establish dharma in the hearts of men, I am born from age to age.</font><
 </p>
  
 <p>
-<font color="blue"><b>Jay Rādhā Mādhav</b></font><br>
+<font color="orange"><b>Jay Rādhā Mādhav</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
 <p>
-<font color="blue"><b>Rādhā Kanta Śhyām Manohar</b></font><br>
+<font color="orange"><b>Rādhā Kanta Śhyām Manohar</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
