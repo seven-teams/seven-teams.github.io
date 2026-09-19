@@ -29,7 +29,7 @@ What have you done for Sahaja Yoga? Ask this question: 'What have I done for Sah
 So it is your faith. Faith is not blind in Sahaja Yoga. You know for definite what is Sahaja Yoga is. You have seen miraculous Photographs, you have seen all the miracles happening, so now your faith should be completely, entirely in it. And it will work out.<br>
 I promise you, if your faith is deep enough to reach Me, you don't have to see My face, even not to have My Photograph, nothing. Wherever you are, you'll find Me.<br>
 That's why I always say, "Develop your faith, develop your faith.<br>
-<font color="blue"><b>994-0407 Talk to Sahaja Yogis, Helping Each Other and Rules and Regulations of the Divine, Farewell, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font><br>
+<font color="blue"><b>1994-0407 Talk to Sahaja Yogis, Helping Each Other and Rules and Regulations of the Divine, Farewell, Āśhram, 10 Clarence Street, Burwood, Sydney, New South Wales, Australia</b></font><br>
 </p>
 
 Links to suggested talk: <a href="https://vimeo.com/32222690?fl=pl&fe=cm"> SL video</a> and <a href="https://soundcloud.com/nirmala-vidya-portal/1994-0407-farewell-talk-sydney"> NVA audio</a><br>
