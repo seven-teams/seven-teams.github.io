@@ -825,7 +825,7 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 
 <p>
 <b>9.83-85 Translation</b><br>
-<font color="DarkGreen">"Effort towards Realization is like the attempt to stamp with one’s foot on the shadow cast by one’s head. Effort will always make it recede."</font>
+<font color="DarkGreen">"Effort towards Realization is like the attempt to stamp with one's foot on the shadow cast by one's head. Effort will always make it recede."</font>
 </p>
 
 <p>
@@ -872,7 +872,7 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 
 <p>
 <b>10.28-38 Translation</b><br>
-<font color="DarkGreen">"...... Even what may be surmised to be in another place and at a different time, is also within your consciousness. ...... There cannot be anything that is not held by consciousness ...... it cannot be the perfect state if it can be attained. ...... the fire of realization will burn away all your sense of duty so that there will be nothing left for you to do. Be strong, root out your thoughts and cut off the deep-rooted knots from your heart, namely, 'I will see’, 'I am not this’, 'This is non-Self ’, and such like. ...... Find wherever you turn the one, undivided, eternal blissful Self; also watch the whole Universe reflected, as in a mirror in the Self, as it arises and subsides in It. ......"</font>
+<font color="DarkGreen">"...... Even what may be surmised to be in another place and at a different time, is also within your consciousness. ...... There cannot be anything that is not held by consciousness ...... it cannot be the perfect state if it can be attained. ...... the fire of realization will burn away all your sense of duty so that there will be nothing left for you to do. Be strong, root out your thoughts and cut off the deep-rooted knots from your heart, namely, 'I will see', 'I am not this', 'This is non-Self ', and such like. ...... Find wherever you turn the one, undivided, eternal blissful Self; also watch the whole Universe reflected, as in a mirror in the Self, as it arises and subsides in It. ......"</font>
 </p>
 
 <p>
@@ -892,7 +892,7 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 
 <p>
 <b>10.63-68 Translation</b><br>
-<font color="DarkGreen">Even parrots and cockatoos in their cages spoke words of wisdom. For example: ‘Consider the Self as pure intelligence bereft of objective knowledge. ...... [Śhri Dattātreya:] ...... "Therefore let those sensible people who are desirous of chit –'Pure intelligence' turn away from illusory knowledge and contemplate their own Self — the absolute consciousness —  which illumines all the rest, and which is their being too."</font>
+<font color="DarkGreen">Even parrots and cockatoos in their cages spoke words of wisdom. For example: 'Consider the Self as pure intelligence bereft of objective knowledge. ...... [Śhri Dattātreya:] ...... "Therefore let those sensible people who are desirous of chit –'Pure intelligence' turn away from illusory knowledge and contemplate their own Self — the absolute consciousness —  which illumines all the rest, and which is their being too."</font>
 </p>
 
 <div class="para-divider"></div>
@@ -905,7 +905,7 @@ Surrender yourself directly and unhesitatingly to Him. He will ordain the best f
 <p>
 <b>11.6-30 Translation</b><br>
 <font color="DarkGreen">[Śhri Dattātreya:] "...... Scriptures alone are the guide for comprehending the metaphysical and the transcendental.
-The rest are not authoritative because of the individual’s limitations, the absence of reliable tests for their accuracy. The Universe must have a Creator, and He must be an intelligent principle, but He cannot be of any known type because of the vastness of the creation. His power is past understanding and is dealt with in the scriptures, whose authority is incontrovertible. ...... He created the Universe by His own power. It is in its entirety and all its details, a picture on the screen of His Self. ...... is the Lord not to be confounded with the creation. ...... How can this unique creation be apart from Him? There can indeed be nothing but consciousness. ......"</font>
+The rest are not authoritative because of the individual's limitations, the absence of reliable tests for their accuracy. The Universe must have a Creator, and He must be an intelligent principle, but He cannot be of any known type because of the vastness of the creation. His power is past understanding and is dealt with in the scriptures, whose authority is incontrovertible. ...... He created the Universe by His own power. It is in its entirety and all its details, a picture on the screen of His Self. ...... is the Lord not to be confounded with the creation. ...... How can this unique creation be apart from Him? There can indeed be nothing but consciousness. ......"</font>
 </p>
 
 <p>
@@ -950,12 +950,12 @@ The rest are not authoritative because of the individual’s limitations, the ab
 
 <p>
 <b>11.71 Translation</b><br>
-<font color="DarkGreen">"The hampering of limitations is to some extent overcome by the use of incantations, gems and herbs, and an unbroken current of ‘I’ is established. With the aid of that pure yoga, O Rama [Śhri Paraśhurāma], observe the creation manifested by one’s will ......"</font>
+<font color="DarkGreen">"The hampering of limitations is to some extent overcome by the use of incantations, gems and herbs, and an unbroken current of 'I' is established. With the aid of that pure yoga, O Rama [Śhri Paraśhurāma], observe the creation manifested by one's will ......"</font>
 </p>
 
 <p>
 <b>11.73 Translation</b><br>
-<font color="DarkGreen">"A magician’s creations are only transitory; a Yogi’s creations may be permanent; both are external to the creator, whereas the divine creation cannot be apart from the omnipresent Lord." [Note: Viśhwāmitra, a great Ṛiṣhi, is reputed to have created a duplicate Universe, a part of which consists of the constellations composing Scorpio, Sagittarius, and the Southern Cross. Some trees, plants and herbs in imitation of well-known species (e.g., palmyra corresponding to coconut, jungle potatoes and onions, insipid to taste and useless, etc.) are among his creations] </font>
+<font color="DarkGreen">"A magician's creations are only transitory; a Yogi's creations may be permanent; both are external to the creator, whereas the divine creation cannot be apart from the omnipresent Lord." [Note: Viśhwāmitra, a great Ṛiṣhi, is reputed to have created a duplicate Universe, a part of which consists of the constellations composing Scorpio, Sagittarius, and the Southern Cross. Some trees, plants and herbs in imitation of well-known species (e.g., palmyra corresponding to coconut, jungle potatoes and onions, insipid to taste and useless, etc.) are among his creations] </font>
 </p>
 
 <p>
@@ -965,7 +965,7 @@ The rest are not authoritative because of the individual’s limitations, the ab
 
 <p>
 <b>11.85 Translation</b><br>
-<font color="DarkGreen">". That which shines as ‘Is’, is Her Majesty the Absolute Consciousness. Thus the Universe is only the Self — the One and one only."</font>
+<font color="DarkGreen">". That which shines as 'Is', is Her Majesty the Absolute Consciousness. Thus the Universe is only the Self — the One and one only."</font>
 </p>
 
 <div class="para-divider"></div>
@@ -1038,7 +1038,7 @@ He wished to be one also and besought me to grant his prayer. I initiated him in
 
 <p>
 <b>13.53-55 Translation</b><br>
-<font color="DarkGreen"> "...... so also one aware of the Self not only does not grieve but also laughs at another’s grief. ......" </font>
+<font color="DarkGreen"> "...... so also one aware of the Self not only does not grieve but also laughs at another's grief. ......" </font>
 </p>
 
 <p>
@@ -1061,7 +1061,7 @@ He wished to be one also and besought me to grant his prayer. I initiated him in
 
 <p>
 <b>14.8 Translation</b><br>
-<font color="DarkGreen">"Do you not know this world to be the result of Brahma’s desire? This looks real and permanent because the original desire is so powerful."</font>
+<font color="DarkGreen">"Do you not know this world to be the result of Brahma's desire? This looks real and permanent because the original desire is so powerful."</font>
 </p>
 
 <p>
@@ -1072,7 +1072,7 @@ He wished to be one also and besought me to grant his prayer. I initiated him in
 <p>
 <b>14.10-15 Translation</b><br>
 <font color="DarkGreen">"Conceptions materialize for various reasons as follows: by virtue of the natural function, as with Brahma the Creator; by the possession of live-gems, as with <i>Yakshas</i> and <i>rakshasas</i> [classes of celestial beings]; by the use of herbs, as with Gods [nectar is reputed to contain the extracts of superb herbs]; by the practice of <i>yoga</i>, as with yogis; by the miraculous power of incantations, as with a few <i>siddhas</i>; by the force of penance, as with some Sages; and by virtue of boons, as with the Architect of the Universe (<i>Viswakarma</i>).<br>
-One should forget the old associations in order to make one’s new conception effective, ...... A conception is forceful unless obstructed by an antecedent one, and thus destroyed. It is effective only when forceful; ......"</font>
+One should forget the old associations in order to make one's new conception effective, ...... A conception is forceful unless obstructed by an antecedent one, and thus destroyed. It is effective only when forceful; ......"</font>
 </p>
 
 <p>
@@ -1113,7 +1113,7 @@ One should forget the old associations in order to make one’s new conception e
 
 <p>
 <b>14.58 Translation</b><br>
-<font color="DarkGreen">"Though unperturbed, unblemished, thick, dense and single, the absolute consciousness being self-sufficient manifests within itself what looks ‘exterior’, ......<br></font>
+<font color="DarkGreen">"Though unperturbed, unblemished, thick, dense and single, the absolute consciousness being self-sufficient manifests within itself what looks 'exterior', ......<br></font>
 </p>
 
 <p>
@@ -1123,12 +1123,12 @@ One should forget the old associations in order to make one’s new conception e
 
 <p>
 <b>14.61 Translation</b><br>
-<font color="DarkGreen">"That consciousness which illumines the ‘exterior’ is called <i>Shiva-tattwa</i>, whereas the individual feeling as ‘I’ is <i>Shakti-tattwa</i>."</font>
+<font color="DarkGreen">"That consciousness which illumines the 'exterior' is called <i>Shiva-tattwa</i>, whereas the individual feeling as 'I' is <i>Shakti-tattwa</i>."</font>
 </p>
 
 <p>
 <b>14.62 Translation</b><br>
-<font color="DarkGreen">"When the awareness of the ‘exterior’, combined with the ‘I’, encompasses the entire imagined space as ‘I’, it is called <i>Sadā-Shiva-tattwa</i>."</font>
+<font color="DarkGreen">"When the awareness of the 'exterior', combined with the 'I', encompasses the entire imagined space as 'I', it is called <i>Sadā-Shiva-tattwa</i>."</font>
 </p>
 
 <p>
@@ -1163,7 +1163,7 @@ One should forget the old associations in order to make one’s new conception e
 
 <p>
 <b>14.92 Translation</b><br>
-<font color="DarkGreen">"...... world is simply an image on the mirror of consciousness and cultivate the contemplation of ‘I am’, abide as pure being and thus give up this delusion of the reality of the world."</font>
+<font color="DarkGreen">"...... world is simply an image on the mirror of consciousness and cultivate the contemplation of 'I am', abide as pure being and thus give up this delusion of the reality of the world."</font>
 </p>
 
 
@@ -1231,13 +1231,13 @@ One should forget the old associations in order to make one’s new conception e
 
 <p>
 <b>15.75-84 Translation</b><br>
-<font color="DarkGreen">[Female ascetic:] "...... Of all the people now assembled here, no one has experienced Reality, except the king and myself. It is not a subject for discussion. The most brilliant logic can only approach it but never attain it. Although unaffected by logic coupled with a keen intellect, it can however be realized by service to one’s Guru and the grace of God. ......"</font>
+<font color="DarkGreen">[Female ascetic:] "...... Of all the people now assembled here, no one has experienced Reality, except the king and myself. It is not a subject for discussion. The most brilliant logic can only approach it but never attain it. Although unaffected by logic coupled with a keen intellect, it can however be realized by service to one's Guru and the grace of God. ......"</font>
 </p>
 
 <p>
 <b>15.85 Translation</b><br>
 <font color="DarkGreen">"...... As long as the mind is not inward, so long the Self cannot be realized. Turning inward means absence of desire. How can the mind be fixed within if desires are not given up? Therefore become dispassionate and inhere as the Self. Such inherence is spontaneous (no effort is needed to inhere as the Self). It is realized after thoughts are eliminated and investigation ceases. ......Thus realizing the unknowable, one abides in immortality for ever and ever. ...... This king, the wisest among men, can make you understand. So ask him again and he will clear your doubts. ......"<br>
-[Śhrī Dattātreya:][I have now related to you, O Rama, the method of Self-realization.]</font>
+[Śhrī Dattātreya:] "I have now related to you, O Rama, the method of Self-realization."</font>
 </p>
 
 <div class="para-divider"></div>
@@ -1248,97 +1248,216 @@ One should forget the old associations in order to make one’s new conception e
 </p>
 
 <p>
-<b>16.1 Translation</b><br>
+<b>16.8-9 Translation</b><br>
+<font color="DarkGreen">[Śhrī Dattātreya:] "Ashtavakra asked: 'O King of Videha, ......' ......"</font>
+</p>
+
+<p>
+<b>16.10-13 Translation</b><br>
+<font color="DarkGreen">[Śhrī Janaka:] "...... This transcendental state is quite easy or may be well-nigh impossible according as one's mind is inward bent in peace or out moving in restlessness. ......"</font>
+</p>
+
+<p>
+<b>16.14 Translation</b><br>
+<font color="DarkGreen">"The fact that the Vedas point to it only indirectly as 'not this — not this' shows that the knowledge can be imparted to others. Whatever you see becomes known by the very Abstract Intelligence."</font>
+</p>
+
+<p>
+<b>16.15-19 Translation</b><br>
+<font color="DarkGreen">"......  Intelligence is that by which objects are known; it cannot be what it is if it becomes the object of knowledge.
+What is intelligible must always be different from Intelligence itself, or else it could not be made known by it. Intelligence in the abstract cannot admit of parts, which is the characteristic of objects. ...... Carefully watch absolute intelligence after eliminating all else from it." </font>
+</p>
+
+<p>
+<b>16.21 Translation</b><br>
+<font color="DarkGreen">"Abstract Intelligence can thus be made manifest by eliminating from it all that can be known. It cannot be known as such and such, for it is the supporter of one and all."</font>
+</p>
+
+<p>
+<b>16.24 Translation</b><br>
+<font color="DarkGreen">"...... The answer is as follows: 'I', is of two kinds — qualified and unqualified. Qualification implies limitations whereas its absence implies its unlimited nature.
+'I' is associated with limitations in dream and wakeful states, and it is free from them in deep slumber and Samādhi states. In that case is the 'I' in Samādhi or sleep associated with threefold division of subject, object and their relation? No! Being pure and single, it is unblemished and persists as 'I-I', and nothing else. The same is Perfection."</font>
+</p>
+
+<p>
+<b>16.25 Translation</b><br>
+<font color="DarkGreen">"Whereas Her Majesty the Absolute Intelligence is ever resplendent as 'I', therefore She is all and everknowing. You are She, in the abstract."</font>
+</p>
+
+<p>
+<b>16.26 Translation</b><br>
+<font color="DarkGreen">"Realize it yourself by turning your sight inward. You are only pure abstract Consciousness. ......"</font>
+</p>
+
+<p>
+<b>16.28 Translation</b><br>
+<font color="DarkGreen">"To say that the sight is turned inward is appropriate because perception is possible only when the sight is turned towards the object."</font>
+</p>
+
+<p>
+<b>16.29-31 Translation</b><br>
+<font color="DarkGreen">"...... The fact that the sight is not fixed on it is the same as not seeing it. ......"</font>
+</p>
+
+<p>
+<b>16.33 Translation</b><br>
+<font color="DarkGreen">The other perceptions require the two conditions, namely, elimination of other objects and concentration on the one. But Self-realization differs from them in that it requires only one condition: <i>elimination of all perceptions</i>.
+</font>
+</p>
+
+<p>
+<b>16.35-45 Translation</b><br>
+<font color="DarkGreen">'...... But since consciousness is the Self and not apart from the mind, concentration on it is not necessary for its realization. ......consciousness is the supporter of all and is immanent in all and always remains perfect like space, pervading the mind also. Diversion of attention from other items is all that is necessary for Self-realization. ......"</font>
+</p>
+
+<p>
+<b>16.46 Translation</b><br>
+<font color="DarkGreen">"...... Therefore consciousness of the Self becomes manifest by mere diversion of attention from things or thoughts."</font>
+</p>
+
+<p>
+<b>16.47 Translation</b><br>
+<font color="DarkGreen">"Realization of Self requires absolute purity only and no concentration of mind. ......"</font>
+</p>
+
+<p>
+<b>16.48 Translation</b><br>
+<font color="DarkGreen">"Realization of Self requires absolute purity only and no concentration of mind. For this reason, the Self is said to be unknowable (meaning not objectively knowable)."</font>
+</p>
+
+<p>
+<b>16.50-51 Translation</b><br>
+<font color="DarkGreen">"Or, how is it possible for the Self not to be found gleaming in the pure mind? All the injunctions in the scriptures are directed towards this end alone. For instance, unselfish action, devotion and dispassion have no other purpose in view."</font>
+</p>
+
+<p>
+<b>16.52 Translation</b><br>
+<font color="DarkGreen">"Because transcendental consciousness, viz., the Self, is manifest only in the stain-free mind." ......</font>
+</p>
+
+<p>
+<b>16.53-54 Translation</b><br>
+<font color="DarkGreen">"...... realization of the Self can only be with an alert mind and not with a stupefied one. ......"</font>
+</p>
+
+<p>
+<b>16.64 Translation</b><br>
+<font color="DarkGreen">"...... There are two states of mind:  (1) Illumination and (2) Consideration."</font>
+</p>
+
+<p>
+<b>16.65 Translation</b><br>
+<font color="DarkGreen">"The first of them is association of the mind with external objects and the second is deliberation on the object seen."</font>
+</p>
+
+<p>
+<b>16.66 Translation</b><br>
+<font color="DarkGreen">"The first of them is association of the mind with external objects and the second is deliberation on the object seen."</font>
+</p>
+
+<p>
+<b>16.68 Translation</b><br>
+<font color="DarkGreen">"The thing becomes defined later on and is said to be such and such, and so and so. That is the perception of the thing after deliberation."</font>
+</p>
+
+<p>
+<b>16.64 Translation</b><br>
 <font color="DarkGreen"></font>
 </p>
 
 <p>
-<b>16.1 Translation</b><br>
+<b>16.64 Translation</b><br>
 <font color="DarkGreen"></font>
 </p>
 
 <p>
-<b>16.1 Translation</b><br>
+<b>16.69-70 Translation</b><br>
+<font color="DarkGreen">"Deliberation is again of two kinds: the one is the actual experience and is said to be fresh, whereas the other is cogitation over the former and is called memory. The mind always functions in these two ways."</font>
+</p>
+
+<p>
+<b>16.73 Translation</b><br>
+<font color="DarkGreen">"...... Sleep is the first born from Transcendence, and also called the <i>unmanifest</i>, the <i>exterior</i>, or the <i>great void</i>."</font>
+</p>
+
+<p>
+<b>16.78 Translation</b><br>
+<font color="DarkGreen">"All these three states, namely, <i>Samādhi</i>, sleep and the instant of cognition of objects, are characterized by absence of perturbation.</font>
+</p>
+
+<p>
+<b>16.79 Translation</b><br>
+<font color="DarkGreen">"Their difference lies in the later recapitulation of the respective states which illumine different perceptions."</font>
+</p>
+
+<p>
+<b>16.80 Translation</b><br>
+<font color="DarkGreen">"Absolute Reality is manifest in <i>Samādhi</i>; a void or unmanifest condition distinguishes sleep and diversity is the characteristic of cognition in wakefulness."</font>
+</p>
+
+<p>
+<b>16.81 Translation</b><br>
+<font color="DarkGreen">"The illuminant is however the same all through and is always unblemished. Therefore it is said to be Abstract Intelligence."</font>
+</p>
+
+<p>
+<b>16.82 Translation</b><br>
+<font color="DarkGreen">"<i>Samadhi</i> and sleep are obvious because their experience remains unbroken for some appreciable period and can be recapitulated after waking up.</font>
+</p>
+
+<p>
+<b>16.83 Translation</b><br>
+<font color="DarkGreen">"That of cognition remains unrecognized because of its fleeting nature. But <i>Samādhi</i> and sleep cannot be recognized when they are only fleeting."</font>
+</p>
+
+<p>
+<b>16.84 Translation</b><br>
+<font color="DarkGreen">"The wakeful state is iridescent with fleeting <i>Samādhi</i> and sleep. Men when they are awake can detect fleeting sleep because they are already conversant with its nature."</font>
+</p>
+
+<p>
+<b>16.85 Translation</b><br>
+<font color="DarkGreen">"But fleeting <i>Samādhi</i> goes undetected because people are not so conversant with it. O Brahmin! Fleeting <i>Samādhi</i> is indeed being experienced by all, even in their busy moments; but it passes unnoticed by them, for want of acquaintance with it. Every instant free from thoughts and musings in the wakeful state is the condition of <i>Samādhi</i>."</font>
+</p>
+
+<p>
+<b>16.87 Translation</b><br>
+<font color="DarkGreen">"<i>Samādhi</i> is simply absence of thoughts. Such a state prevails in sleep and at odd moments of wakefulness."</font>
+</p>
+
+<p>
+<b>16.88 Translation</b><br>
+<font color="DarkGreen">"Yet, it is not called <i>Samādhi</i> proper, because all the proclivities of the mind are still there latent, ready to manifest the next instant."</font>
+</p>
+
+<p>
+<b>16.89 Translation</b><br>
+<font color="DarkGreen">"The infinitesimal moment of seeing an object is not tainted by deliberation on its qualities and is exactly like <i>Samādhi</i>. ......"</font>
+</p>
+
+<p>
+<b>16.90-93 Translation</b><br>
+<font color="DarkGreen">"The unmanifest state, the first-born of abstract Intelligence revealing ‘There is not anything’, is the state of abstraction full of light; it is, however, called sleep because it is the insentient phase of consciousness. Nothing is revealed because there is nothing to be revealed. Sleep is therefore the manifestation of the insentient state.<br>
+But in <i>Samādhi</i>, Brahman, the Supreme Consciousness, is continuously glowing. She is the engulfer of time and space, the destroyer of void, and the pure being (Jehovah – I am). How can She be the ignorance of sleep?"</font>
+</p>
+
+<p>
+<b>16.64 Translation</b><br>
 <font color="DarkGreen"></font>
 </p>
 
 <p>
-<b>16.1 Translation</b><br>
+<b>16.64 Translation</b><br>
 <font color="DarkGreen"></font>
 </p>
 
 <p>
-<b>16.1 Translation</b><br>
+<b>16.64 Translation</b><br>
 <font color="DarkGreen"></font>
 </p>
 
 <p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.1 Translation</b><br>
+<b>16.64 Translation</b><br>
 <font color="DarkGreen"></font>
 </p>
 
