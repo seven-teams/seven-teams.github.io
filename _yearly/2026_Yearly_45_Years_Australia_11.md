@@ -36,7 +36,7 @@ So patience is needed. And patience is needed in such a way that others should s
 But generosity is a general term: generosity of kindness, generosity of compassion, generosity of patience, and generosity of material things.<br>
 ......<br>
 I bless you all in Melbourne that you have a beautiful collectivity and enjoy yourself and every, every meeting should be a festival for you, and an enjoyment."<br>
-<font color="blue"><b>1991-0410 Śhrī Virāṭa Pūjā, Collectivity Is the Basic of Your Ascent and Without Collectivity Sahaja Yoga Cannot Exist, Āśhram, Lake Road, Blackburne, Melbourne, Victoria, Australia]{1991-0410 Śhrī Virāṭa Pūjā, Collectivity Is the Basic of Your Ascent and Without Collectivity Sahaja Yoga Cannot Exist, Āśhram, Lake Road, Blackburne, Melbourne, Victoria, Australia</b></font><br>
+<font color="blue"><b>1991-0410 Śhrī Virāṭa Pūjā, Collectivity Is the Basic of Your Ascent and Without Collectivity Sahaja Yoga Cannot Exist, Āśhram, Lake Road, Blackburne, Melbourne, Victoria, Australia</b></font><br>
 </p>
 
 Links to suggested talk: <a href="https://vimeo.com/588214384"> SL video</a> and <a href="https://soundcloud.com/nirmala-vidya-portal/1991-0410-virata-puja-talk"> NVA audio</a><br>
