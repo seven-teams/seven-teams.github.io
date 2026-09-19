@@ -13,7 +13,7 @@ tags:
 
 <br>
 <p style="color:DarkGreen; text-align:center">
-<font size="+2"><b></b><br></font>
+<font size="+2"><b>Every Meeting Should Be A Festival For You</b><br></font>
 </p>
 
 <p>
@@ -25,7 +25,7 @@ They can all be brought to the seven major uh notes, we can say, but they are al
 ......<br>
 But those who have come to Sahasrāra have to understand that collectivity is the basic of your ascent.<br>
 ......<br>
-Now this is the sense of collectivity, that, `It's a last small hall, doesn't matter, we are all together. And how are we going to get all of them inside?' Because you can't enjoy it unless and until all of you are together.<br>
+Now this is the sense of collectivity, that, 'It's a last small hall, doesn't matter, we are all together. And how are we going to get all of them inside?' Because you can't enjoy it unless and until all of you are together.<br>
 ......<br>
 So now, let us see how do we uh miss out on collectivity. There's a very practical down-to-earth understanding. First we must know [that] without collectivity we cannot exist. As the body has to be in connection with the brain, in the same way, without collectivity Sahaja Yoga cannot exist. Once you understand that, then you have to work it out that collectivity is absolutely established, within and without. It is more within that you have to establish, than without. Whatever you have within is manifested outside.<br>
 So, 'Sahaja Yoga is to be practiced,' doesn't mean that you sit down with My Photograph all the time, doesn't mean that. It means you practice con ... compassion. You practice that.<br>
