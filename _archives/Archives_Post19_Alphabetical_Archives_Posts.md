@@ -7,7 +7,7 @@ tags:
   - red @ Archive
 ---
 
-<b>POSTS</b>: 753 files, 4,873 pages, 1 external page <br>
+<b>POSTS</b>: 755 files, 4,875 pages, 1 external page <br>
 <b>1.</b> <a href="https://seven-teams.github.io/archives/2024/0121"><font color="maroon"><b>Ads</b></font></a>: 3 files, 3 pages, 1 external page<br>
 <b>2.</b> <a href="https://seven-teams.github.io/archives/2023/0508"><font color="maroon"><b>Articles</b></font></a>: 32 files, 48 pages<br>
 <b>3.</b> <b>Australian Sahaja Newsletter</b>: Total files 100<br>
@@ -23,7 +23,7 @@ tags:
 <b>9.</b> <a href="https://seven-teams.github.io/archives/2023/0119"><font color="maroon"><b>Letters and Press Releases</b></font></a>: 6 files, 12 pages<br>
 <b>10.</b> <a href="https://seven-teams.github.io/archives/2023/0824-a"><font color="maroon"><b>Newsletter Australia</b></font></a>: 3 files, 10 pages<br>
 <b>11.</b> <a href="https://seven-teams.github.io/archives/2023/0829"><font color="maroon"><b>Official Photos with Text</b></font></a>: 1 file, 1 page<br>
-<b>12.</b> <a href="https://seven-teams.github.io/archives/2023/0502"><font color="maroon"><b>Posters</b></font></a>: 17 files, 17 pages<br>
+<b>12.</b> <a href="https://seven-teams.github.io/archives/2023/0502"><font color="maroon"><b>Posters</b></font></a>: 19 files, 19 pages<br>
 <b>13.</b> <a href="https://seven-teams.github.io/archives/2023/0519"><font color="maroon"><b>Publications Related to Offerings</b></font></a>: 1 file, 32 pages (slides)<br>
 <b>14.</b> <a href="https://seven-teams.github.io/archives/2025/0611-a"><font color="maroon"><b>Research</b></font></a>: 3 files, 14 pages<br>
 <b>15.</b> <a href="https://seven-teams.github.io/archives/2023/0629"><font color="maroon"><b>Sahaj Patrika (Hindi)</b></font></a>: 1 file, 4 pages<br>
