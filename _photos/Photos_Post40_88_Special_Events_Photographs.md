@@ -1,0 +1,24 @@
+---
+title: 'Photos Post 40: Special Events (after 1975), Part 88'
+date: 2026-09-28
+permalink: /photos/2026/0928
+tags:
+  - green @ Updates
+---
+
+<p>
+<br>
+Dear Sahaja Yogis and Sahaja Yoginīs,<br>
+<br>
+We are pleased to let you know that 20 Photos of the special event <font color="Crimson"><b>1984-0917 Interview, Italy</b></font> have been uploaded to <font color="DarkGreen"><b>Eternal Moments</b></font>: 20 high resolutions from the Named Collections.<br>
+The direct link to the 20 Photos of the event in the smallest gallery: <a href="https://eternalmoments.smugmug.com/Countries/Italy/1984"> Italy 1984</a>.<br>
+[Note: 10 Photos uploaded yesterday.]<br>
+<br>
+Please kindly share the links with all our brothers and sisters.<br>
+<br>
+Jay Śhrī Mātājī!<br>
+<br>
+The Photo Subteam<br>
+sahajayoga.compilations@gmail.com<br>
+https://linktr.ee/comprehensivecompilationsteam
+</p>

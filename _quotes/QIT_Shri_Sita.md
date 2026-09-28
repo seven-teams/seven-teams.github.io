@@ -131,6 +131,13 @@ To recognize Them, you should have a love for yourself."</font><br>
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"This Mahā-viṣhṇu Tattwa is also re... represented, or we can say has an aspect, of others, which incarnated on this Earth as [the] two children of Sītā. They incarnated as ... Mahāvīra and Buddha, as Hasan and Husayn."</font><br>
+<font size="+0"><b>1984-0908 Śhrī Mary Mahālakṣhmī Pūjā, Münich, Bavaria, Germany</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="red">""</font><br>
 <font size="+0"><b></b></font>
 </p>

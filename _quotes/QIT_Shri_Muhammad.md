@@ -1519,6 +1519,23 @@ Christ clearly said: "You are to be born-again!" Then Nicodemus asked Him: "Do y
 <div class="para-divider"></div>
 
 <p>
+<font color="red">"So Buddha and Mahāvīra, these two persons, at that time did not talk of God, both of Them. Later on, They again incarnated and talked of God: as Hasan and Husayn, as Kabīra.<br>
+This is how it is. They Themselves incarnate to complete, to give a balance.<br>
+Like Muhammad Sāhab came on this earth to establish the religion in the ... not in the sense ouside, but within, the balance.<br>
+And then people started fighting."</font><br>
+<font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, South Yorkshire, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 "Now, we can say that Christ has always said that, "You are to be born-again." In all the religions, which are true religions, it is said, "You are to be born-again"!<br>
 Actually, in India, which is a country which we think is not very developed, has been always the idea that you have to achieve your Self-realization.<br>
 <font color="red">Zen has said the same thing, Lao Tze's Tao is the same thing, in Islam it is said the same thing. Muhammad Sāhab has said that: "In the Time of Resurrection your hands will speak."</font><br>

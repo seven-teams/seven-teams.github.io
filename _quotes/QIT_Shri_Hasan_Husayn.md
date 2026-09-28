@@ -97,28 +97,36 @@ I am telling you this because when your Kuṇḍalinī is awakened, then if your
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Can you believe that Mahāvīra and Buddha were the same as Hasan and Husayn? Which we can prove it to you on suh ... on vibrations and on curing people. They were the same people reincarnated just to improve on Themselves. Because people believe into something which They were not, so They were incarnated just to show: that, 'This was wrong. No, no, this was, I never said it! This was the thing.' "</font><br>
 <font size="+0"><b>1979-0507 Public Program, Sahaja Yoga and Christianity, Bharatiya Vidya Bhavan, 4A Castletown Road, London W14 9HE, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"There's one more point I would like to tell you, that they have not yet gone here, but here you have to [<font color="orange">unclear</font>] and [<font color="orange">unclear</font>], there are the two uh more small uh-uh-uh chakras: one that belongs to, uh uh which we call as the Sūrya -- Sūrya is the-uh-uh uh uh, means the Sun, the Sun center -- and the another as the Moon center on the left-hand side. And these two are uh governed or, we can say, is uh bestowed upon by two great uh-uh-uh people, who are the Disciple Elements.<br>
+And They, Disciple Elements were first, were born to Śhrī Rāma and Śhrī Sītā as the-ee Lav and Kuśh. And then They incarnated many a times on this Earth as disciple. One of Them is, we can say, ah ... was uh Śhaṅkarāchārya, another was Kabīra, uh like that. Then, we can say, later on, uh like, uh before Śhaṅkarāchārya, they came as Buddha and Mahāvīra. Then Śhaṅkarāchārya, and then, uh I told you, which is? Uh after Śhaṅkarāchārya came ... the Advent of Hasan and Husayn, who were the grandsons of Prophet.<br>
+So these have been incarnating, and they have been moving from one uh-uh-uh side to another and telling people that, "This is extreme, leave it." "This is the extreme, leave it. Come in the center, and be in the center." That has been Their job. And they are the ones who are, sort of, imparting you that awareness by you become a perfect disciple.<br>
+And the ... this is a very important point because it comes, quite often, that uh-uh-uh we do not understand. "</font><br>
 <font size="+0"><b>1979-0530 Public Program, A Higher Life, A World of Bliss and Joy (The Three Paths of Evolution), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Then they were born as the sons of Fāṭimah Bi, who was Herself nothing else but Jānakī, and They were Her sons Hasan and Husayn, who had preached nonviolence and They saw that people were trying to save uh-uh-uh ... bugs and mosquitoes.<br>
+You know, there are some funny cults where we are so particular of bugs, mosquitoes and all the worms. We are not at all particular about human beings. They, I don't know what am I going to do with bugs? Am I going to give them Realization? Even chickens, am I going to give them Realization? I have to give Realization to human beings! What is the need to pay so much attention to these nonsensical things? To save the bugs and save the mosquitoes and make them bite a Brahmin, pay him money, because they think they have done a great kalyāṇa on the bugs. Perhaps they might have been bugs, in last lives, the way they are interested in all these mosquitoes. [Laughter.]<br>
+Now, these two were born as Hasan and Husayn and to get rid of these ideas of nonviolence, they had this Karbalāʾ, in which They fought and died like great śhūras [warriors for good, brave men].<br>
+This is the story of Great Incarnations on this Earth. "</font><br>
 <font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Thoughse [those] who talked about it, you'll read in the book, were Buddha and Mahāvīra.<br>
+They couldn't bear the way people were stupid! So they were born again as Hasan and Husayn, the grandchildren of Muhammad Sāhab, and They faut ... fought in Karbalāʾ to show: that, 'When it comes to fighting, you have to fight!'<br>
+So, onward Christian soldiers."</font><br>
 <font size="+0"><b>1981-1006 Public Program (8th Day of Navarātri), Day 3, The New Age Has Started (From Kṛiṣhṇa to Christ), Venue 2, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
 </p>
 
@@ -136,14 +144,7 @@ So this is the only two human beings, actually who were the children of an Incar
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
-<font size="+0"><b>1983-0329 Talk to Sahaja Yogis (Hindi), Raṃgavalī Holī Celebrations, Universal Sahaja Yoga Temple, Āśhram, 78 Kṛiṣhṇa Nagar, Safdarjung Enclave, New Delhi, India</b></font>
-</p>
-
-<div class="para-divider"></div>
-
-<p>
-<font color="red">""</font><br>
+<font color="red">"So, this kind of extreme type of food-ori-ented religions started out of Them, so they got themselves born again, as Hasan and Husayn and [<font color="orange">gap</font>] [<font color="orange">unclear</font> that when it comes] to righteousness, when it comes to the [<font color="orange">unclear</font> fight for righteousness, you have to fight. That time the one who doesn't fight] is not a person who is a religious person."</font><br>
 <font size="+0"><b>1983-1012 Public Program (7th Day of Navarātri), Day 2, Old Cambridge Baptist Church, 1151 Massachussetts Avenue, Cambridge, MA, U.S.A.</b></font>
 </p>
 
@@ -163,14 +164,15 @@ So they incarnated so many times on this Earth, those who correspond to the Prin
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"This Mahā-viṣhṇu Tattwa is also re... represented, or we can say has an aspect, of others, which incarnated on this Earth as [the] two children of Sītā. They incarnated as ... Mahāvīra and Buddha, as Hasan and Husayn."</font><br>
 <font size="+0"><b>1984-0908 Śhrī Mary Mahālakṣhmī Pūjā, Münich, Bavaria, Germany</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So Buddha and Mahāvīra, these two persons, at that time did not talk of God, both of Them. Later on, They again incarnated and talked of God: as Hasan and Husayn, as Kabīra.<br>
+This is how it is. They Themselves incarnate to complete, to give a balance."</font><br>
 <font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, South Yorkshire, UK</b></font>
 </p>
 
@@ -198,21 +200,26 @@ So they incarnated so many times on this Earth, those who correspond to the Prin
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"But though She was in the house, She was Śhakti. So She allowed Her sons, or actually ordered Them, to fight those fanatics-s-s who were trying to deny the authority of Her husband. And you know They, Hasan and Husayn, They were killed there."</font><br>
 <font size="+0"><b>1988-0814 Śhrī Fāṭimah Pūjā, Saint-George (40 kms W of Lausanne), Vaud, Switzerland</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"There's a gentleman, a Muslim gentleman, I'm happy he asked Me a very nice question about Imam Husayn Sāhab, the son of ʿAlī. The Mother was Fāṭimah Bi. He was killed in the war, where They were absolutely correct: what They said was correct, no doubt. Both the brothers were killed. And He said: "We have to fight our enemies."<br>
+It was all right for Them to know who was their enemy, because They were realized Souls. We are not. We do not know who are our enemies.<br>
+These are age-old things, also, we need not carry it on."</font><br>
 <font size="+0"><b>1992-0612 Public Program, Day 2, Royal Albert Hall, Kensington Gore, South Kensington, London SW7 2AP, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Perhaps, you do not know that we worship ʿAlī and Fāṭimah Bi, in a Pūjā. There's a regular Pūjā for Them. Because to us They are Brahmadeva Itself [Himself]. And that's why you'll find [musicians], among these Shia people, who have got such a talent of expression.<br>
+In the Qur'ān, I'm sorry to say, that Muhammad Sahāb was toutured so much. And also, later on as you know, Hasan and Husayn were killed in Karbalāʾ. There had no time to talk about the Universal Nature, but such a great book is this Qur'ān.<br>
+We have written now some sort of a commentary on that.<br>
+And it's obvious that He was the Incarnation of the Primordial Master. Though He was so humble, eh so much worried that He should not be called as divine, because people will again start doing all kinds of ritualism."</font><br>
 <font size="+0"><b>1992-1230 Talk to Sahaja Yogis (English + Hindi), before the Evening Program (Santūr Ustād Amjad Alī Khān and family), Kalwa, Thane, Maharashtra, India</b></font>
 </p>
 
@@ -228,28 +235,54 @@ In Sahaja Yoga we recognize Lord Mahāvīra as the Incarnation of Śhrī Bhairav
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"As you know about Her that She was the daughter of Muhammad Sāhab, and was married to ʿAlī, and She had two children, Hasan and Husayn, who were ultimately killed in Karbalāʾ by the fanatics, who were, that time, called themselves Sunnis.<br>
+......<br>
+I mean, you can think of your mothers, how much they loved you -- all the men have a mother. Why? Why do you think of your mother so much? Because she sacrificed everything, but without showing that she was sacrificing. She did so much for you, so you could be a woman.<br>
+Woman's potential to love is tremendous! Tremendous!<br>
+And this is what we have to learn from Fāṭimah. She gave Her two children to be killed! She knew, because She was, after all, Viṣhṇumāyā. She was the Incarnation of Viṣhṇumāyā. She knew Her children will be killed! But still She sent Her children. "All right. Doesn't matter. Even if I know that They are going to die, it's all right."<br>
+Such bravery, such courage, such understanding of the duty of Her children.<br>
+Today we remember Them as Hasan and Husayn. Supposing She had said, 'No-no-no-no, don't go for the war. Stay at home.' And if She had forced Them not to go, then They would not have gone! We would not have talked about Them today, isn't it? In any case They would have been dead sometime, but the death of a hero They got because of Their mother. Of course They were also a kind of Incarnations, but the way She gave Them absolutely complete encouragement, "Go and fight for the right thing," because these fundamentalists were trying to bring their fanaticism.<br>
+So, today is a day I have to tell men also that you must learn to respect a woman who is chaste.<br>"</font><br>
 <font size="+0"><b>1993-0518 Śhrī Fāṭimah Pūjā, You Must Learn to Respect a Woman Who Is Chaste, Mövenpick Hotel, Balmumcu, Barbaros Blv. No:165, 34349 Beşiktaş, Istanbul, Turkey</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">
+<font color="red"><b>Śhrī Mātājī:</b></font> And the Shias are still sort of mourning ...<br>
+<b>Antonio Mendes Nazare:</b> She [has]?<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> Shias, Shias.<br>
+<b>Antonio Mendes Nazare:</b> Ah, Shias. Ah-ha.<br>
+<b>Sahaja Yogi:</b> Shia.<br>
+<b>Another Sahaja Yogi:</b> Shia [<font color="orange">unclear</font>].<br>
+{\bf {\red Śhrī Mātājī}}: ... are still mourning death of Hasan and Husayn.<br></font><br>
 <font size="+0"><b>1993-0715 Meeting with Ayatollah Dr. Mehdi Rouhani, Conversation and Dinner, Paris, France</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Because you are all Shias, I am quite happy to tell you about what happened.<br>
+That Abu Bakr became the head of the Islam, Abu Bakr, and he was a fundamentalist. Actual... actually, it's ... it was Hazarat ʿAlī who had to become the head. ʿAlī: had to become. But somehow or other Abu Bakr managed, he was very ambitious man, to become the head of the Islam.<br>
+Is a history, I am telling you.<br>
+Now, when he became, he tried to uh argue with Hazarat ʿAlī. And he said that: "Whatever written in the Qur'ān is all right," and he added his own things also to it.<br>
+Now Hazarat ʿAlī, you know, had a fight with him.<br>
+I know the whole history about it. Because My father translated Qur'ān into Hindi language. So I've read Qur'ān also, quite nicely.<br>
+Now what happened, it's a history where the turning point took place.<br>
+As you know, Hazarat ʿAlī became head but later on He was killed, and His two sons were killed.<br>
+And the [youngest] wife of Muhammad Sāhab, ʿĀ'ishah [bint Abi Bakr], was told [by Him] that, "You will go and fight against the truth, and you will know it when the dogs will bark."<br>
+So when she went on the other side, it's called as Ḥaw'ab [pond near Basra on the way to Mecca], it happened, and dogs started barking, but still she didn't listen. And she went and told the other side of the people, that, "Whatever is Abu Bakr is saying is all right. You listen to Abu Bakr."<br>
+So the rift started that time.<br>
+And as you know, later on, Hasan and Husayn both were killed in Karbalāʾ.<br>
+That's how Shia and Sunni, two parties' start is."</font><br>
 <font size="+0"><b>1993-1009 Iranian Public Program, 11301 Olympic Boulevard, Los Angeles, CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"Whatever Haz... Hazarat ʿAlī did and His sons Hasan and Husayn have done, we have to now fulfill Their promise. And here we are with all of this from all countries, who are sitting down and who all believe in ʿAlī and also Fāṭimah, Hasan, Husayn, everyone. So now, we have to spread the news that we have all to get that Realization which They have promised."</font><br>
 <font size="+0"><b>1994-1104 Conversation with Turkish Sufi Musicians (Guḍhī Pāḍavā Day), during the Evening Program, the day before Diwālī Pūjā, Istanbul, Turkey</b></font>
 </p>
 

@@ -1321,7 +1321,16 @@ This is the only problem we have. That: we have all the ideals, we have all the 
 <p>
 <font color="red">"And these great people have talked, Nāṇaka has talked very clearly, very recently they have talked about these things. Hundred years back only, William Blake has talked about Sahaja Yoga. He has said, "The men of God" -- Men of God, that's you -- "will become Prophets and they will have powers to make others Prophet."<br>
 He had such hopes of making England into Jerusalem.<br>
-But where are those English? I have still to meet many."</font><br>
+But where are those English? I have still to meet many.<br>
+......<br>
+So Buddha and Mahāvīra, these two persons, at that time did not talk of God, both of Them. Later on, They again incarnated and talked of God: as Hasan and Husayn, as Kabīra.<br>
+This is how it is. They Themselves incarnate to complete, to give a balance.<br>
+Like Muhammad Sāhab came on this earth to establish the religion in the ... not in the sense ouside, but within, the balance.<br>
+And then people started fighting.<br>
+So, Nāṇaka Himself was nobody else but Muhammad Sāhab, who came on this Earth. Nāṇaka Sāhab was the same, is, said in His life.<br>
+Once, Śhrī Nāṇaka was lying down, and people said, "S-sir, You're talking about Kaaba but Your Feet are towards Kaaba." "All right!" He said, "I turn My Feet this side." And the illusion was: that every time He turned His feet, the Kaaba turned with Him.<br>
+They're all one! We are only fighting, because we don't see the oneness.<br>
+So, because of the time They did speak, but They did not cut out. They had to say, "Stop at this point. Not more." Because that was the situation, you can see that."</font><br>
 <font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, UK</b></font>
 </p>
 

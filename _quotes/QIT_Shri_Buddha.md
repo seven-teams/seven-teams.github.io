@@ -146,6 +146,22 @@ And They are the two milestones you have got, by which you can know what a human
 
 <div class="para-divider"></div>
 
+<p>
+<font color="red">"Thoughse [those] who talked about it, you'll read in the book, were Buddha and Mahāvīra.<br>
+They couldn't bear the way people were stupid! So they were born again as Hasan and Husayn, the grandchildren of Muhammad Sāhab, and They faut ... fought in Karbalāʾ to show: that, 'When it comes to fighting, you have to fight!'<br>
+So, onward Christian soldiers."</font><br>
+<font size="+0"><b>1981-1006 Public Program (8th Day of Navarātri), Day 3, The New Age Has Started (From Kṛiṣhṇa to Christ), Venue 2, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
  <p>
 <font color="red">"What is important is to cross even this is. So you reach a stage now, after this, you reach a stage where there's ... you knew on Incarnations.<br>
 Incarnations are always above this gap.<br>
@@ -255,6 +271,35 @@ Another was the Lao Tze style who did not talk of God and of Buddha, but of Ta-o
 <font color="red">So these two good things came out of Him [Lord Buddha].</font><br>
 ......"<br>
 <font size="+0"><b>1983-0526 Śhrī Buddha Pūjā, Brighton Center, Brighton, East Sussex, UK</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"This Mahā-viṣhṇu Tattwa is also re... represented, or we can say has an aspect, of others, which incarnated on this Earth as [the] two children of Sītā. They incarnated as ... Mahāvīra and Buddha, as Hasan and Husayn."</font><br>
+<font size="+0"><b>1984-0908 Śhrī Mary Mahālakṣhmī Pūjā, Münich, Bavaria, Germany</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="red">"So Buddha and Mahāvīra, these two persons, at that time did not talk of God, both of Them. Later on, They again incarnated and talked of God: as Hasan and Husayn, as Kabīra.<br>
+This is how it is. They Themselves incarnate to complete, to give a balance."</font><br>
+<font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, South Yorkshire, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
