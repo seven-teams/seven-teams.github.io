@@ -21,7 +21,7 @@ tags:
 If you know how to use it, you can purify everyone! You and yours -- everyone!<br>
 So, the responsibility of Australians, one must understand, is very great. Because they are living in a country which is ruled by Śhrī Gaṇeśh.<br>
 So, first they have to maintain their purity: purity of their being.<br>
-Many people sometimes think, that: 'Purity is only limited to the gross side, that you lead a senseible sex life is sufficient.' It is not so.<br>
+Many people sometimes think, that: 'Purity is only limited to the gross side, that you lead a sensible sex life is sufficient.' It is not so.<br>
 That's why Christ has said: "Thou shalt not have adulterous eyes." Meaning: your eyes should be clean. And as you know, eyes represent your ego and superego, both. So, when He said that, 'Your eyes should be clear,' He meant that your thoughts should be clean."<br>
 <font color="blue"><b>1983-0301 Śhrī Gaṇeśha Pūjā, Perth, WA, Australia]{1983-0301 Śhrī Gaṇeśha Pūjā, Perth, WA, Australia</b></font><br>
 </p>
