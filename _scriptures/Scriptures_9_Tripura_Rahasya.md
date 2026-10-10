@@ -1009,7 +1009,7 @@ Saying so, he sat down, withdrew his senses, united the in-going and outgoing br
 
 <p>
 <b>12.31-45 Translation</b><br>
-<font color="DarkGreen">[Sage Gana's son to Mahasena:] "...... This is not the time for my father to speak. He is now in Kevala Nirvikalpa Samadhi and will come out of it only after twelve years, of which five have already passed and seven yet remain. ...... There is nothing impossible for <i>yogis</i> engaged in penance."</font>
+<font color="DarkGreen">[Sage Gana's son to Mahasena:] "...... This is not the time for my father to speak. He is now in <i>Kevala Nirvikalpa Samadhi</i> and will come out of it only after twelve years, of which five have already passed and seven yet remain. ...... There is nothing impossible for <i>yogis</i> engaged in penance."</font>
 </p>
 
 <p>
@@ -1441,31 +1441,333 @@ What is intelligible must always be different from Intelligence itself, or else 
 But in <i>Samādhi</i>, Brahman, the Supreme Consciousness, is continuously glowing. She is the engulfer of time and space, the destroyer of void, and the pure being (Jehovah – I am). How can She be the ignorance of sleep?"</font>
 </p>
 
-<p>
-<b>16.64 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.64 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.64 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
-<p>
-<b>16.64 Translation</b><br>
-<font color="DarkGreen"></font>
-</p>
-
 <div class="para-divider"></div>
 
 <p style="text-align:center;">
 <b>Chapter 17</b><br>
 <font color="DarkGreen"><b>On the Uselessness of Fleeting Samadhi and the Way to Wisdom</b></font>
+</p>
+
+<p>
+<b>17.4-11 Translation</b><br>
+<font color="DarkGreen"> Thus requested, Janaka replied: "Listen, O Brahmin! The following are instances of that state: When a man remains unaware of 'in and out' for a short interval and is not overpowered by the ignorance of sleep; the infinitesimal time when one is beside oneself with joy; when embraced by one’s beloved in all purity; when a thing is gained which was intensely longed for but given up in despair; when a lonely traveller moving with the utmost confidence is suddenly confronted with the utmost danger; when one hears of the sudden death of one’s only son, who was in the best of health, in the prime of life, and at the apex of his glory."</font>
+</p>
+
+<p>
+<b>17.12-14 Translation</b><br>
+<font color="DarkGreen">"There are also intervals of <i>Samādhi</i>, namely the interim period between the waking, dream and sleep states; at the time of sighting a distant object, the mind holding the body at one end projects itself into space until it holds the object at the other end, just as a caterpillar prolongs itself at the time of leaving one hold to catch another hold. ....."</font>
+</p>
+
+<p>
+<b>17.15-18 Translation</b><br>
+<font color="DarkGreen">"...... know that if one can become aware of these broken <i>Samādhis</i>, no other <i>Samādhi</i> need attract one."</font>
+</p>
+
+<p>
+<b>17.24-26 Translation</b><br>
+<font color="DarkGreen">[King Janaka:] "...... The cycle of births and deaths is from time immemorial caused by ignorance, which displays itself as pleasure and pain, and yet is only a dream and unreal. Being so, the wise say that it can be ended by knowledge. By what kind of knowledge? Wisdom born of Realization (viz., ‘I am That’).
+"</font>
+</p>
+
+<p>
+<b>17.35-38 Translation</b><br>
+<font color="DarkGreen">"Such wisdom which can destroy ignorance is clearly of two sorts; indirect and direct. Knowledge is first acquired from a Master and through him from the scriptures. Such indirect knowledge cannot fulfil the object in view. Because theoretical knowledge alone does not bear fruit; practical knowledge is necessary which comes through <i>Samādhi</i> alone. Knowledge born of <i>Nirvikalpa Samādhi</i> generates wisdom by the eradication of ignorance and objective knowledge."</font>
+</p>
+
+<p>
+<b>17.39-47 Translation</b><br>
+<font color="DarkGreen">"...... Ignorance cannot be eradicated by mere theory or by the casual <i>Samādhi</i> of an ignorant man. ...... Inattentive people are simply fools who cannot understand the ever-recurring <i>Samādhis</i> in their lives. ......"</font>
+</p>
+
+<p>
+<b>17.50-52 Translation</b><br>
+<font color="DarkGreen">"...... Of all the things in creation, to be born a sentient being requires good luck; even so, to acquire a human body requires considerable merit; while it is out of the ordinary for human beings to be endowed with both virtuous tendencies and sharp intellect."</font>
+</p>
+
+<p>
+<b>17.53-60 Translation</b><br>
+<font color="DarkGreen">"...... How can these poor folk, held in the grip of <i>Māyā</i>, extend their weak sight to the sublime Truth of Oneness? ...... Inscrutable are the ways of <i>Māyā</i>, which veils the highest Realization. It is as if they threw away the real gem in their hands, thinking it to be a mere pebble."</font>
+</p>
+
+<p>
+<b>17.61 Translation</b><br>
+<font color="DarkGreen">"Only those transcend <i>Māyā</i> with whose devotion the Goddess of the Self is pleased; such can discern well and happily."</font>
+</p>
+
+<p>
+<b>17.62 Translation</b><br>
+<font color="DarkGreen">"Being by the grace of God endowed with proper discernment and right-earnestness, they get established in transcendental Oneness and become absorbed. I shall now tell you the scheme of liberation."</font>
+</p>
+
+<p>
+<b>17.63 Translation</b><br>
+<font color="DarkGreen">?One learns true devotion to God after a meritorious life continued in several births, and then worships Him for a long time with intense devotion."</font>
+</p>
+
+<p>
+<b>17.64 Translation</b><br>
+<font color="DarkGreen">"Dispassion for the pleasures of life arises in a devotee who gradually begins to long for knowledge of the truth and becomes absorbed in the search for it."</font>
+</p>
+
+<p>
+<b>17.65 Translation</b><br>
+<font color="DarkGreen">"He then finds his gracious Master and learns from him all about the transcendental state. He has now gained theoretical knowledge."</font>
+</p>
+
+<p>
+<b>17.66 Translation</b><br>
+<font color="DarkGreen">"After this he is impelled to revolve the whole matter in his mind until he is satisfied from his own practical knowledge with the harmony of the scriptural injunctions and the teachings of his Master. He is able to ascertain the highest truth with clearness and certitude."</font>
+</p>
+
+<p>
+<b>17.67 Translation</b><br>
+<font color="DarkGreen">"The ascertained knowledge of the Oneness of the Self must afterwards be brought into practice, even forcibly if necessary, until the experience of the truth occurs to him."</font>
+</p>
+
+<p>
+<b>17.68 Translation</b><br>
+<font color="DarkGreen">"After experiencing the Inner Self, he will be able to identify the Self with the Supreme and thus destroy the root of ignorance. There is no doubt of it."</font>
+</p>
+
+<p>
+<b>17.69 Translation</b><br>
+<font color="DarkGreen">"The inner Self is realized in advanced contemplation and that state of Realization is called <i>Nirvikalpa Samādhi</i>. Memory of that Realization enables one to identify the Inner Self with the Universal Self (as 'I am That')."</font>
+</p>
+
+<p>
+<b>17.76 Translation</b><br>
+<font color="DarkGreen">"...... Aspirants may be divided into three groups: (1) the best, (2) the middle class, and (3) the lowest."</font>
+</p>
+
+<p>
+<b>17.77 Translation</b><br>
+<font color="DarkGreen">"Of these, the best class realize at the very moment of hearing the truth. Their ascertainment of truth and contemplation thereon are simultaneous with their learning."</font>
+</p>
+
+<p>
+<b>17.78-92 Translation</b><br>
+<font color="DarkGreen">"Realization of truth requires no effort on their part. Take my case for instance. On a moonlit summer night, I was lying drunkenly on a downy bed in my pleasure garden in the loving embrace of my beloved. I suddenly heard the sweet nectar-like songs of invisible aerial beings who taught me the oneness of the Self, of which I was unaware till that moment. I instantly thought it over, meditated on it, and realized it in less than an hour. For about an hour and a half I remained in <i>Samādhi</i> — the state of supreme bliss.</font>
+</p>
+
+<p>
+<b>17.93-95 Translation</b><br>
+<font color="DarkGreen">"What confusion I am in! Although I am always in the perfection of Bliss, what is it I want to do? What more can I acquire? What do I lack? When and whence can I get anything? Even if there were anything new to be gained, would it endure? How can I who am Infinite Consciousness-Bliss know effort?"</font>
+</p>
+
+<p>
+<b>17.99 Translation</b><br>
+<font color="DarkGreen">"Again, even if all minds are controlled, mine remains free. For my mind is like infinite space, the receptacle of all things. Who is to control it and how?"</font>
+</p>
+
+<p>
+<b>17.100 Translation</b><br>
+<font color="DarkGreen">" How can <i>Samādhi</i> be brought about when I am already in the perfection of bliss, for the Self is Bliss-Consciousness, even more perfect than infinite space?"</font>
+</p>
+
+<p>
+<b>17.101 Translation</b><br>
+<font color="DarkGreen">"My own light manifests diverse activities all about the world which is again my own manifestation."</font>
+</p>
+
+<p>
+<b>17.102 Translation</b><br>
+<font color="DarkGreen">"What does it matter if one should manifest as action or inaction? Where is the gain or loss in such manifestation?"</font>
+</p>
+
+<p>
+<b>17.103 Translation</b><br>
+<font color="DarkGreen">"Similarly what does it matter for the perfect blissful Self if it falls into <i>Nirvikalpa Samādhi</i>? <i>Samadhi</i> or no <i>Samādhi</i>, I am the same Perfection and eternal Peace."</font>
+</p>
+
+<p>
+<b>17.104-105 Translation</b><br>
+<font color="DarkGreen">"Let the body do what it likes. Thinking thus, I always abide in my own Self as the Perfect fountainhead of Bliss and pure uninterrupted consciousness. I am therefore in the state of perfection and remain unblemished. My experience is typical of the best aspirants."</font>
+</p>
+
+<p>
+<b>17.106-107 Translation</b><br>
+<font color="DarkGreen">"Wisdom is achieved in the course of many births by the lowest aspirants. As for the middle class, wisdom is gained in the same birth, but slowly and gradually according to the aforesaid scheme of (1) learning the truth, (2) conviction of the same, (3) meditation — qualified <i>Samādhi</i> and unqualified <i>Samādhi</i> — and (4) finally <i>Sahaja Samādhi</i> (to be unattached even while engaged in the activities of the world). This last state is very rarely found.z"</font>
+</p>
+
+<p>
+<b>17.108 Translation</b><br>
+<font color="DarkGreen">"Why fall into <i>Nirvikalpa Samādhi</i>, without gaining the fruit of its wisdom! Even if he should experience it a hundred times it will not liberate the individual. Therefore I tell you that momentary <i>Samādhis</i> in the waking state are fruitless."</font>
+</p>
+
+<p>
+<b>17.109 Translation</b><br>
+<font color="DarkGreen">"Unless a man lives the ordinary life and checks every incident as the projection of the Self, not swerving from the Self in any circumstances, he cannot be said to be free from the handicap of ignorance."</font>
+</p>
+
+<p>
+<b>17.110 Translation</b><br>
+<font color="DarkGreen">"<i>Nirvikalpa Samādhi</i> is characterized by the experience of the true Self alone, namely, Pure Intelligence. Though eternal and resplendent even ordinarily, this Abstract Intelligence is as if it did not exist.</font>
+</p>
+
+<p>
+<b>17.111-112 Translation</b><br>
+<font color="DarkGreen">"Abstract Intelligence is the background on which the phenomena are displayed, and it must certainly manifest itself in all its purity, in their absence, although its appearance may look new at first. It remains unrecognized because it is not distinguished from the phenomena displayed by it. On their being eliminated it becomes apparent.><br>
+This in short is the method of Self-realization."</font>
+</p>
+
+<p>
+<b>17.113 Translation</b><br>
+<font color="DarkGreen">" ...... With the wisdom born of your Realization, you will inhere as the Self and be eternally free.’"</font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
+</p>
+
+<p>
+<b>17.1 Translation</b><br>
+<font color="DarkGreen"></font>
 </p>
 
 <div class="para-divider"></div>
