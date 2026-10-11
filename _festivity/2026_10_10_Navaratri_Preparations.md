@@ -106,4 +106,3 @@ Victory to the Divine Mother of the Universe!</b></font>
 <font size="+0">Jai Śhrī Mātājī!<br>
 On behalf of the festivity team!</font>
 </p>
-</p>
