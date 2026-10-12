@@ -19,7 +19,7 @@ So to help Me out, you should not take any sides with negativity. That's how you
 <font size="+0"><b>1985-1009 Talk to Sahaja Yogis, Like a Drama, On Arrival before the Public Program, Flat of Ruth and Kingsley Flint, Strasbourg, Grand Est, France</b></font>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev//FT0294.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0294.png" /></div>
 
 <p style=" text-align:center;">
 <font color="DarkRed">"In the first Advent of the Holy Ghost came on this Earth this day. That was about fourteen thousands years back. <b>And today is the day that is celebrated as the first Advent. And there are Nine Advents</b> She has had before She came as the Mahālakṣhmī. She first, today I will be telling you about it -- how She is placed within us, where She resides, what is Her work, how She protects us. I'll be today telling you on the Heart chakra. <b>And that's why today they celebrate this special day of Her worship.</b>"</font><br>
