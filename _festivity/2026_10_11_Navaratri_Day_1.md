@@ -1,5 +1,5 @@
 ---
-title: '2026 Celebrating Navarātri Festival: "" '
+title: '2026 Celebrating Navarātri Festival: "Navarātri, the Pūjā that I give you powers to fight the negativity" '
 date: 2026-10-11
 permalink: /festivity/2026/10/11
 tags:
