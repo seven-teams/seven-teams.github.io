@@ -69,7 +69,10 @@ And this thing is Truth or not you can see on your vibrations. If [one thinks th
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"And do you know? Buddha took His birth, again. <font color="red">He was Hasan and Husayn, one of Them was Buddha, another was Mahāvīra.<br>
+See the silence.<br>
+......<br>
+So, They came as Hasan and Husayn, and fought it!"</font><br>
 <font size="+0"><b>1978-1015 Talk to Sahaja Yogis, Zen and Void, Part 1, First Western Seminar, Day 2, Session 2 (during and after tea and coffee), Conference Center, East Hampstead Park (near Wokingham, 60 kms W of London), Berkshire, UK</b></font>
 </p>
 
@@ -186,14 +189,26 @@ This is how it is. They Themselves incarnate to complete, to give a balance."</f
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+"I must say, his brother, also, is such a great accompaniment to him. <font color="red">Like, we should say, Hasan and Husayn."</font> [Laughter, laughs, applause.]<br>
 <font size="+0"><b>1988-0402 Talk to Sahaja Yogis, Praises for Musicians, after the Evening Program, the day before Easter Pūjā, Tent, Marque, Back Garden, Śhuddhi Camp (now The Hall, Shudy Camps Park), Shudy Camps, Cambridgeshire, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">""</font><br>
+<font color="red">"So that's the great part of Mārkaṇḍeya.<br>
+And Mārkaṇḍeya took His birth, later on, as-s Buddha. Then He took His birth as Ādi Śhaṅkarāchārya. Same personality.<br>
+But He was actually the son of Rāma, to begin with. Was the son of Rāma. He was Lav.<br>
+And Lav went to Russia, and that's why they are called as Slav.<br>
+[After a Sahaja Yogi says something:] He ruled in Russia. That's why they are called as Slav.<br> 
+The another son was Kuśh-śh. So he went to China, that's why they are called as Kuṣhāṇ.<br>
+And then They incarnated again and again, also as Hasan and Husayn, ...<br>
+[After a Sahaja Yogi says, "Mhh":] ... Mahāvīra and Buddha, ...<br>
+[After a Sahaja Yogi says something:] ... Ādi Śhaṅkarāchārya and Gyāneśhwara. Like that different.<br>
+[<font color="orange">unclear</font>] took birth.<br>
+Saying that [laughing:] only ... is so peaceful.<br>
+Cool Breeze.<br>
+Might be the name, Markus might be coming from Mārkaṇḍeya only, I think."</font><br>
 <font size="+0"><b>1988-0609 Talk to Sahaja Yogis, Giving Names and the Story of Mārkaṇḍeya, Āśhram, Josef Melichar Gasse 20, Vienna, Austria</b></font>
 </p>
 
