@@ -11,58 +11,59 @@ tags:
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Now, what can I say, you would be surprised, that the Shia sect that started after Muhammad Sāhab, His daughter was Fāṭimah, She was also Ādi Śhakti.<br>
-And Her two children were, Hasan and Husayn, back then, when They saw even after the annihilation of the world, the human beings did not understand, then They were born as Buddha and Mahāvīra and They brought the non-violence as religion, and attempted that, 'Maybe with the establishment of non-violence people will achieve Self-realization.' But couldn't do it."</font><br>
+"Now, what can I say, you would be surprised, that the Shia sect that started after Muhammad Sāhab, His daughter was Fāṭimah, She was also Ādi Śhakti.<br>
+<font color="red">And Her two children were, Hasan and Husayn, back then, when They saw even after the annihilation of the world, the human beings did not understand, then They were born as Buddha and Mahāvīra and They brought the non-violence as religion, and attempted that, 'Maybe with the establishment of non-violence people will achieve Self-realization.'</font> But couldn't do it."<br>
 <font size="+0"><b>1973-1208 Public Program (Hindi), Day 2, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"After the birth of the daughter of Muhammad Sāhab, as I talked yesterday also, there was beginning of the caste Shia in Islam.<br>
+"After the birth of the daughter of Muhammad Sāhab, as I talked yesterday also, there was beginning of the caste Shia in Islam.<br>
 Shia word has been derived from Siyā. The word which come from Siyā became Shia -- Siyā means Sītājī. If you go to UP [Uttar Pradesh, India] then nobody says Sītājī, they say Siyājī, 'Siyā var Rām[a]chandra ki jay.' Everyone takes the name Siyā. She was Sītājī, Ādi Śhakti Herself.<br>
-And Her two sons, who were Hasan and Husayn, destroyed many evils. When They ultimately died after getting tried, then in the next birth they thought of establishment of nonviolence, violence led them nowhere.<br>
-They were [re]born as Mahāvīr and Buddha to make a new experiment. Experiments do happen. "</font><br>
+<font color="red">And Her two sons, who were Hasan and Husayn, destroyed many evils. When They ultimately died after getting tried, then in the next birth they thought of establishment of nonviolence, violence led them nowhere.<br>
+They were [re]born as Mahāvīr and Buddha to make a new experiment.</font><br>
+Experiments do happen."<br>
 <font size="+0"><b>1973-1209 Public Program (Hindi), Day 3, Śhrī Dattātreya Jayanti, Biralā Krīṛā Keṃdra, Chowpatty, Girgaum Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"And His daughter Fāṭimah was nobody else but Sītā Jānakī Herself.<br>
-And Her two sons, Hasan and Husayn, were nobody else but Lava and Kuśha. They were born again and again: They were born as Mahāvīra and Buddha, and then They were born as Hasan and Husayn.<br>
-It is only possible through Sahaja Yoga to realize that this is the Truth, this is the fact. "</font><br>
+"And His daughter Fāṭimah was nobody else but Sītā Jānakī Herself.<br>
+<font color="red">And Her two sons, Hasan and Husayn, were nobody else but Lava and Kuśha. They were born again and again: They were born as Mahāvīra and Buddha, and then They were born as Hasan and Husayn.</font><br>
+It is only possible through Sahaja Yoga to realize that this is the Truth, this is the fact."<br>
 <font size="+0"><b>1976-0205 Public Program (Vasant Pañchamī), Day 2, Description of Kuṇḍalinī, after Śhrī Viṣhnu Havan, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Now, beyond that is God's Realization.<br>
+"Now, beyond that is God's Realization.<br>
 There are three stages to that also, but just now I have told this: the Sat-chit-ānand State.<br>
 The God's Realization is the state in which Gautam Buddha and Mahāvīra only rose, and They are settled down here in our brains, both of Them are here, Christ is here.<br>
-And these two were not Incarnations: They were born as human beings. They were born to Sītā, as Lav and Kuśh. Then they were born as Buddha and Mahāvīra. Then Ādi Śhakti was Their mother again. Then they were born to Fāṭimah Bi as Hasan and Husayn.<br>
-They are both placed here, in your head.<br>
-And They are the two milestones you have got, by which you can know what a human being can rise up to that now today They are like Incarnations. Incarnations are beyond, but maybe the gap can be bri... bridged."</font><br>
+<font color="red">And these two were not Incarnations: They were born as human beings. They were born to Sītā, as Lav and Kuśh. Then they were born as Buddha and Mahāvīra. Then Ādi Śhakti was Their mother again. Then they were born to Fāṭimah Bi as Hasan and Husayn.<br>
+They are both placed here, in your head.</font><br>
+And They are the two milestones you have got, by which you can know what a human being can rise up to that now today They are like Incarnations. Incarnations are beyond, but maybe the gap can be bri... bridged."<br>
 <font size="+0"><b>1977-0215 Public Program (Hindi + English), Day 2, Sat-chit-ānanda, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Now in this Void we have two great entities as well which we know as Chandra [Moon] and Sūrya [Sun]. Moon and Sun are such chakras which reside on these nāḍīs here and here.<br>
+"Now in this Void we have two great entities as well which we know as Chandra [Moon] and Sūrya [Sun]. Moon and Sun are such chakras which reside on these nāḍīs here and here.<br>
 On these chakras there are two very great personalities who have been appointed. They are complete embodiment of human beings. They are like humans, in fact are humans. Out of these one is Buddha and one is Mahāvīra.<br>
 But if you listen to the whole history of Their lives, then these are two sons which Śhrī Sītā had as Lav and Kuśha who is completely in human form. And after They evolved to the level that They are here as Buddha and Mahāvīra. There also they thought They have reached an extreme of nonviolence because the supports of nonviolence came in and started protecting even mosquitoes and bugs.<br>
 Then They again took birth and came at the time of Muhammad. Muhammad was an Incarnation of Śhrī Janaka and His daughter Fāṭimah Bi was also Incarnation of Śhrī Sītā.<br>
-Then, as Their sons as Hasan and Husayn, They gave Their life in Karbalāʾ to prove that no kind of extreme is good.<br>
-And this thing is Truth or not you can see on your vibrations. If [one thinks that] I am lying, then through your vibrations you would know that not even one single word is a lie here that I am telling you. "</font><br>
+<font color="red">Then, as Their sons as Hasan and Husayn, They gave Their life in Karbalāʾ to prove that no kind of extreme is good.</font><br>
+And this thing is Truth or not you can see on your vibrations. If [one thinks that] I am lying, then through your vibrations you would know that not even one single word is a lie here that I am telling you."<br>
 <font size="+0"><b>1978-0131 Public Program (Hindi), Day 2, Void, Heart, Viśhuddhi, Channels, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"They are all connected. Because Hazarat ʿAlī was the son-in-law of Prophet Muhammad and Prophet Muhammad was the Incarnation of King Janaka. His sons Hasan and Husayn, who were killed in the battle of Karbalā, were no one else but Sītājī's sons Lav and Kuśh, who were later incarnated as Mahāvīr and Buddha."</font><br>
+"They are all connected. Because Hazarat ʿAlī was the son-in-law of Prophet Muhammad and Prophet Muhammad was the Incarnation of King Janaka. <font color="red">His sons Hasan and Husayn, who were killed in the battle of Karbalā, were no one else but Sītājī's sons Lav and Kuśh, who were later incarnated as Mahāvīr and Buddha.</font>"<br>
 <font size="+0"><b>1978-0201 Public Program (Hindi), Brahma kā Gyān (Knowledge of Brahma) or Mūlādhāra to Viśhuddhi, Āgñyā, and Sahasrāra, 9 Raisina Road, New Delhi, India</b></font>
 </p>
 
@@ -79,110 +80,110 @@ So, They came as Hasan and Husayn, and fought it!"</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Those who are here and Buddha and Mahāvīr are here, sitting on our foreheads. Buddha and Mahāvīr are not someone else, [but] Lav and Kuśh, whom you call, Their names are Lav and Kuśh. They are the ones who take birth in Their world multiple times. They came into the world under the names of Buddha and Mahāvīr.<br>
+"Those who are here and Buddha and Mahāvīr are here, sitting on our foreheads. Buddha and Mahāvīr are not someone else, [but] Lav and Kuśh, whom you call, Their names are Lav and Kuśh. They are the ones who take birth in Their world multiple times. They came into the world under the names of Buddha and Mahāvīr.<br>
 Consider Them as Incarnations only. They are a special being who take incarnation from humans.<br>
 He came into the world and preached non-violence. But His non-violence was not like the Jains, who say, 'Take care of the ants, take care of the mosquitoes.'<br>
-So then He said, "Take birth again." I don't know what drama He created, so then He took birth as Hasan and Husayn.<br>
-Their mother, who was Sītājī, was also Jānakī, was also Rādhā, She is also called Fāṭimah. And Her place is in the left navel.<br>
-Hazarat ʿAlī is also a very significant figure. Without taking His name, the left navel doesn't open. Hazarat ʿAlī. He is the same incarnation of Brahma."</font><br>
+So then He said, "Take birth again." <font color="red">I don't know what drama He created, so then He took birth as Hasan and Husayn.<br>
+Their mother, who was Sītājī, was also Jānakī, was also Rādhā, She is also called Fāṭimah. And Her place is in the left navel.</font><br>
+Hazarat ʿAlī is also a very significant figure. Without taking His name, the left navel doesn't open. Hazarat ʿAlī. He is the same incarnation of Brahma."<br>
 <font size="+0"><b>1979-0117 Public Program (Hindi), Day 4, Chakroṃ para Upasthita Devatā (Deities on All Chakras), Gita Mandir Hall, Bharatiya Vidyā Bhavan (3rd floor), 29, Kulapati K.M. Munshi Mārg, Chowpatty, Mumbai, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"But when He [Lord Buddha] saw His disciples doing all stupid things He again took birth, you will be surprised, do you know where? Can you tell? Hasan and Husayn, who were killed in Karbalāʾ were no other than Mahāvīra and Buddha.<br>
+"But when He [Lord Buddha] saw His disciples doing all stupid things He again took birth, you will be surprised, do you know where? Can you tell? <font color="red">Hasan and Husayn, who were killed in Karbalāʾ were no other than Mahāvīra and Buddha.</font><br>
 But who will tell all this, now who can make you understand this? Now this responsibility has come on Me so I am telling you.<br>
-I am telling you this because when your Kuṇḍalinī is awakened, then if your ego and superego are caught up, then you have to take the name of Buddha and Mahāvīra, these are two of the Rudras in Ekādaśha Rudra. These are very great Rudras, and when the Last Judgment will take place, then many more will come, you will know about these two then, you will see that it is difficult to get rid of ego and superego. Then if you are a Hindu, you will have to take the name of Hasan and Husayn, and if you are a Muslim then you have to take the name of Buddha and Mahāvīra. Without these, you cannot get rid of ego and superego, especially ego."</font><br>
+I am telling you this because when your Kuṇḍalinī is awakened, then if your ego and superego are caught up, then you have to take the name of Buddha and Mahāvīra, these are two of the Rudras in Ekādaśha Rudra. These are very great Rudras, and when the Last Judgment will take place, then many more will come, you will know about these two then, you will see that it is difficult to get rid of ego and superego. <font color="red">Then if you are a Hindu, you will have to take the name of Hasan and Husayn, and if you are a Muslim then you have to take the name of Buddha and Mahāvīra.</font> Without these, you cannot get rid of ego and superego, especially ego."<br>
 <font size="+0"><b>1979-0311 Public Program (English + Hindi), Day 2, Session 2 (evening), On Gāndhī and Collective Consciousness, Gāndhī Bhawan, Delhi University, North Campus, GC Narang Road, Timarpur, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Can you believe that Mahāvīra and Buddha were the same as Hasan and Husayn? Which we can prove it to you on suh ... on vibrations and on curing people. They were the same people reincarnated just to improve on Themselves. Because people believe into something which They were not, so They were incarnated just to show: that, 'This was wrong. No, no, this was, I never said it! This was the thing.' "</font><br>
+"<font color="red">Can you believe that Mahāvīra and Buddha were the same as Hasan and Husayn?</font> Which we can prove it to you on suh ... on vibrations and on curing people. <font color="red">They were the same people reincarnated just to improve on Themselves. Because people believe into something which They were not, so They were incarnated just to show: that, 'This was wrong. No, no, this was, I never said it! This was the thing.'</font> "<br>
 <font size="+0"><b>1979-0507 Public Program, Sahaja Yoga and Christianity, Bharatiya Vidya Bhavan, 4A Castletown Road, London W14 9HE, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"There's one more point I would like to tell you, that they have not yet gone here, but here you have to [<font color="orange">unclear</font>] and [<font color="orange">unclear</font>], there are the two uh more small uh-uh-uh chakras: one that belongs to, uh uh which we call as the Sūrya -- Sūrya is the-uh-uh uh uh, means the Sun, the Sun center -- and the another as the Moon center on the left-hand side. And these two are uh governed or, we can say, is uh bestowed upon by two great uh-uh-uh people, who are the Disciple Elements.<br>
-And They, Disciple Elements were first, were born to Śhrī Rāma and Śhrī Sītā as the-ee Lav and Kuśh. And then They incarnated many a times on this Earth as disciple. One of Them is, we can say, ah ... was uh Śhaṅkarāchārya, another was Kabīra, uh like that. Then, we can say, later on, uh like, uh before Śhaṅkarāchārya, they came as Buddha and Mahāvīra. Then Śhaṅkarāchārya, and then, uh I told you, which is? Uh after Śhaṅkarāchārya came ... the Advent of Hasan and Husayn, who were the grandsons of Prophet.<br>
+"There's one more point I would like to tell you, that they have not yet gone here, but here you have to [<font color="orange">unclear</font>] and [<font color="orange">unclear</font>], there are the two uh more small uh-uh-uh chakras: one that belongs to, uh uh which we call as the Sūrya -- Sūrya is the-uh-uh uh uh, means the Sun, the Sun center -- and the another as the Moon center on the left-hand side. And these two are uh governed or, we can say, is uh bestowed upon by two great uh-uh-uh people, who are the Disciple Elements.<br>
+And They, Disciple Elements were first, were born to Śhrī Rāma and Śhrī Sītā as the-ee Lav and Kuśh. And then They incarnated many a times on this Earth as disciple. One of Them is, we can say, ah ... was uh Śhaṅkarāchārya, another was Kabīra, uh like that. Then, we can say, later on, uh like, uh before Śhaṅkarāchārya, they came as Buddha and Mahāvīra. Then Śhaṅkarāchārya, and then, uh I told you, which is? <font color="red">Uh after Śhaṅkarāchārya came ... the Advent of Hasan and Husayn, who were the grandsons of Prophet.</font><br>
 So these have been incarnating, and they have been moving from one uh-uh-uh side to another and telling people that, "This is extreme, leave it." "This is the extreme, leave it. Come in the center, and be in the center." That has been Their job. And they are the ones who are, sort of, imparting you that awareness by you become a perfect disciple.<br>
-And the ... this is a very important point because it comes, quite often, that uh-uh-uh we do not understand. "</font><br>
+And the ... this is a very important point because it comes, quite often, that uh-uh-uh we do not understand."<br>
 <font size="+0"><b>1979-0530 Public Program, A Higher Life, A World of Bliss and Joy (The Three Paths of Evolution), Caxton Hall, 10 Caxton Street, Westminster, London, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Then they were born as the sons of Fāṭimah Bi, who was Herself nothing else but Jānakī, and They were Her sons Hasan and Husayn, who had preached nonviolence and They saw that people were trying to save uh-uh-uh ... bugs and mosquitoes.<br>
+"<font color="red">Then they were born as the sons of Fāṭimah Bi, who was Herself nothing else but Jānakī, and They were Her sons Hasan and Husayn, who had preached nonviolence and They saw that people were trying to save uh-uh-uh ... bugs and mosquitoes.</font><br>
 You know, there are some funny cults where we are so particular of bugs, mosquitoes and all the worms. We are not at all particular about human beings. They, I don't know what am I going to do with bugs? Am I going to give them Realization? Even chickens, am I going to give them Realization? I have to give Realization to human beings! What is the need to pay so much attention to these nonsensical things? To save the bugs and save the mosquitoes and make them bite a Brahmin, pay him money, because they think they have done a great kalyāṇa on the bugs. Perhaps they might have been bugs, in last lives, the way they are interested in all these mosquitoes. [Laughter.]<br>
-Now, these two were born as Hasan and Husayn and to get rid of these ideas of nonviolence, they had this Karbalāʾ, in which They fought and died like great śhūras [warriors for good, brave men].<br>
-This is the story of Great Incarnations on this Earth. "</font><br>
+<font color="red">Now, these two were born as Hasan and Husayn and to get rid of these ideas of nonviolence, they had this Karbalāʾ, in which They fought and died like great śhūras [warriors for good, brave men].<br>
+This is the story of Great Incarnations on this Earth.</font>"<br>
 <font size="+0"><b>1981-0207 Public Program, Day 3, Introduction to Nābhī and Void, Mavlankar Hall, Constitution Club of India, Vithal Bhai Patel House, Rafi Mārg, Sansad Mārg Area, Behind Reserve Bank of India, New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Thoughse [those] who talked about it, you'll read in the book, were Buddha and Mahāvīra.<br>
-They couldn't bear the way people were stupid! So they were born again as Hasan and Husayn, the grandchildren of Muhammad Sāhab, and They faut ... fought in Karbalāʾ to show: that, 'When it comes to fighting, you have to fight!'<br>
-So, onward Christian soldiers."</font><br>
+"Thoughse [those] who talked about it, you'll read in the book, were Buddha and Mahāvīra.<br>
+They couldn't bear the way people were stupid! <font color="red">So they were born again as Hasan and Husayn, the grandchildren of Muhammad Sāhab, and They faut ... fought in Karbalāʾ to show: that, 'When it comes to fighting, you have to fight!'</font><br>
+So, onward Christian soldiers."<br>
 <font size="+0"><b>1981-1006 Public Program (8th Day of Navarātri), Day 3, The New Age Has Started (From Kṛiṣhṇa to Christ), Venue 2, Unity (Church of Christianity), 2929 Unity Drive, Houston, TX, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"What is important is to cross even this is. So you reach a stage now, after this, you reach a stage where there's ... you knew on Incarnations.<br>
+"What is important is to cross even this is. So you reach a stage now, after this, you reach a stage where there's ... you knew on Incarnations.<br>
 Incarnations are always above this gap.<br>
-This gap has been crossed only by two people, Buddha and Mahāvīra, who become Hasan and Husayn. They were the only who could cross, but They were born of Incarnations: They were the children of Incarnations.>br>
-They were human beings! Just see it: if God wants, He can do anything He likes. So He created two Incarnations of Lav and Kuśh, from ... They were the children of Rāma and Sītā. Then They were born as Buddha and Mahāvīra, and then Hasan and Husayn.<br>
-So this is the only two human beings, actually who were the children of an Incarnation, became Incarnations, and They are placed in the body of's the ... Virāṭa, in the center point here, helping with Realization and Salvation."</font><br>
+<font color="red">This gap has been crossed only by two people, Buddha and Mahāvīra, who become Hasan and Husayn.</font> They were the only who could cross, but They were born of Incarnations: They were the children of Incarnations.>br>
+They were human beings! Just see it: if God wants, He can do anything He likes. So He created two Incarnations of Lav and Kuśh, from ... They were the children of Rāma and Sītā. <font color="red">Then They were born as Buddha and Mahāvīra, and then Hasan and Husayn.</font><br>
+So this is the only two human beings, actually who were the children of an Incarnation, became Incarnations, and They are placed in the body of's the ... Virāṭa, in the center point here, helping with Realization and Salvation."<br>
 <font size="+0"><b>1981-1126 Public Program, Surrey Hall, Lansdowne Way, Stockwell, Lambeth, London SW8 2DG, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"So, this kind of extreme type of food-ori-ented religions started out of Them, so they got themselves born again, as Hasan and Husayn and [<font color="orange">gap</font>] [<font color="orange">unclear</font> that when it comes] to righteousness, when it comes to the [<font color="orange">unclear</font> fight for righteousness, you have to fight. That time the one who doesn't fight] is not a person who is a religious person."</font><br>
+"<font color="red">So, this kind of extreme type of food-ori-ented religions started out of Them, so they got themselves born again, as Hasan and Husayn and [<font color="orange">gap</font>] [<font color="orange">unclear</font> that when it comes] to righteousness, when it comes to the [<font color="orange">unclear</font> fight for righteousness, you have to fight.</font> That time the one who doesn't fight] is not a person who is a religious person."<br>
 <font size="+0"><b>1983-1012 Public Program (7th Day of Navarātri), Day 2, Old Cambridge Baptist Church, 1151 Massachussetts Avenue, Cambridge, MA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"So, all those Personalities were absolutely divine, but one day Śhrī Rāma, who was an Incarnation of Śhrī Viṣhṇu, and Śhrī Sītā, who was Incarnation of Śhrī Mahālakṣhmī, gave birth, while they were on this Earth, to two children, of whom we can say that they had a Divine Nature as well as human. So, They had special powers, special helps, so that They could become leaders, leaders for human beings. They were named Lava and Kuśha. Lava, after Śhrī Rāma's death, left towards Caucasus, and this is the reason why the population in Russia are called Slavs; Kuśha went to China, and the people around there are called Kuṣhāṇs. [Or tous ceux-là sont des personnalités absolument divines, mais un jour, Śhrī Rāma, qui était une Incarnation de Śhrī Viṣhṇu, et Śhrī Sītā, qui était une Incarnation de Śhrī Mahālakṣhmī, mirent au monde, alors qu'ils étaient sur cette terre, deux enfants, dont nous pouvons dire qu'ils étaient de nature divine autant qu'humaine. En effet, ils avaient des pouvoirs, des aides spéciales, de telle façon qu'ils pouvaient devenir des leaders, des chefs pour les êtres humains. Ces deux enfants furent nommés Lāva et Kuśha. Lava partit après la mort de Śhrī Rāma, vers la Caucase, et c'est pourquoi les peuples de Russie se nomment les Slaves; et Kuśha alla vers la Chine, et le gens ce pays s'appelèrent Kouchanes.]<br>
+"So, all those Personalities were absolutely divine, but one day Śhrī Rāma, who was an Incarnation of Śhrī Viṣhṇu, and Śhrī Sītā, who was Incarnation of Śhrī Mahālakṣhmī, gave birth, while they were on this Earth, to two children, of whom we can say that they had a Divine Nature as well as human. So, They had special powers, special helps, so that They could become leaders, leaders for human beings. They were named Lava and Kuśha. Lava, after Śhrī Rāma's death, left towards Caucasus, and this is the reason why the population in Russia are called Slavs; Kuśha went to China, and the people around there are called Kuṣhāṇs. [Or tous ceux-là sont des personnalités absolument divines, mais un jour, Śhrī Rāma, qui était une Incarnation de Śhrī Viṣhṇu, et Śhrī Sītā, qui était une Incarnation de Śhrī Mahālakṣhmī, mirent au monde, alors qu'ils étaient sur cette terre, deux enfants, dont nous pouvons dire qu'ils étaient de nature divine autant qu'humaine. En effet, ils avaient des pouvoirs, des aides spéciales, de telle façon qu'ils pouvaient devenir des leaders, des chefs pour les êtres humains. Ces deux enfants furent nommés Lāva et Kuśha. Lava partit après la mort de Śhrī Rāma, vers la Caucase, et c'est pourquoi les peuples de Russie se nomment les Slaves; et Kuśha alla vers la Chine, et le gens ce pays s'appelèrent Kouchanes.]<br>
 Those two Incarnations, we will call them Principle of the Disciple. Not the Guru Principle, which also incarnates, but that one is fully of Divine Nature. So, these two incarnate as Disciple Principle. [Ces deux Incarnations, nous Les nommerons Le Principe du Disciple, pas de Principe du Gourou, lequel s'incarne aussi, mais celui-ci est entièrement de Nature Divine. Donc, ceux-là s'incarnent sur cette terre comme Principes du Disciple.]<br>
 First, they incarnated, as we say, as Lava and Kuśha, each one being specially assisted by Saint Gabriel and Saint Michel. [Tout d'abord ils s'incarnèrent, nous dirons, comme Lava and Kuśha, chacun est spécialement assisté par Saint Gabriel et Saint Michel.]<br>
 These two Incarnations incarnated later as Buddha and Mahāvīra, who came once again as Śhaṅkara [who had been Buddha] and Kabīr [who had been Mahāvīra]. Kahlil Gibran is part of their Incarnations. So was Mārkaṇḍeya, and we can say that our William Blake is part of it. [Ces deux Incarnations s'incarnèrent plus tard comme Bouddha et Mahāvīra, lesquels revinrent à nouveau au sixième siècle de notre èrecomme Śhankara [c'était Bouddha], puis [c'était Mahāvīra]. Kahlil Gilran fait partie de Leurs Incarnations. Mārkaṇḍeya aussi, et on peut dire que notre Mister Blake en fait partie.]<br>
 So, they came back as poets, as devotees of God, with an astounding capacity to create songs, music, and to talk about God. [Ainsi Ils sont venus comme poètes, comme dépôts de Dieu, avec une étonnante capacité de créer des chants, de la musique, de parler de Dieu.]<br>
-Otherwise they incarnated as Hasan and Husayn, the sons of Fāṭimah, daughter of Muhammad and wife of ʿAlī. [Par ailleurs, Ils se sont incarnés comme Hasan and Husayn, les fils de Fāṭimah, la fille de Mahomet et l'épouse d' ʿAlī.]<br>
-So they incarnated so many times on this Earth, those who correspond to the Principle of the Disciple. [Ainsi se sont incarnés tant de fois sur cette terre ceux qui correspondaient au Principe du Disciple.]"</font><br>
+<font color="red">Otherwise they incarnated as Hasan and Husayn, the sons of Fāṭimah, daughter of Muhammad and wife of ʿAlī. [Par ailleurs, Ils se sont incarnés comme Hasan and Husayn, les fils de Fāṭimah, la fille de Mahomet et l'épouse d' ʿAlī.]</font><br>
+So they incarnated so many times on this Earth, those who correspond to the Principle of the Disciple. [Ainsi se sont incarnés tant de fois sur cette terre ceux qui correspondaient au Principe du Disciple.]"<br>
 <font size="+0"><b>1984-0507 Interview with Michel Sadashiva Cherney for the Sahaja Yoga Magazine in French \textcolor{greeny}{\it L'Attention, Issue 4, Pages 32 to 37}, Āśhram, 9, Allée Du Rocher, Le Raincy (13 kms E of Paris), Île-de-France, France</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"This Mahā-viṣhṇu Tattwa is also re... represented, or we can say has an aspect, of others, which incarnated on this Earth as [the] two children of Sītā. They incarnated as ... Mahāvīra and Buddha, as Hasan and Husayn."</font><br>
+"This Mahā-viṣhṇu Tattwa is also re... represented, or we can say has an aspect, of others, which incarnated on this Earth as [the] two children of Sītā. <font color="red">They incarnated as ... Mahāvīra and Buddha, as Hasan and Husayn.</font>"<br>
 <font size="+0"><b>1984-0908 Śhrī Mary Mahālakṣhmī Pūjā, Münich, Bavaria, Germany</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"So Buddha and Mahāvīra, these two persons, at that time did not talk of God, both of Them. Later on, They again incarnated and talked of God: as Hasan and Husayn, as Kabīra.<br>
-This is how it is. They Themselves incarnate to complete, to give a balance."</font><br>
+"So Buddha and Mahāvīra, these two persons, at that time did not talk of God, both of Them. <font color="red">Later on, They again incarnated and talked of God: as Hasan and Husayn, as Kabīra.</font><br>
+This is how it is. They Themselves incarnate to complete, to give a balance."<br>
 <font size="+0"><b>1985-0920 Public Program, Memorial Hall, City Hall, Sheffield, South Yorkshire, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"There is such a close relationship between Muhammad Sāheb and Nāṇak Sāheb. Nāṇak Sāheb and Śhrī Sītā had a close relationship and this Śhrī Mahāvīr and Śhrī Buddha are closely related. Both were twin brothers, who were the sons of Śhrī Rāma, Lav and Kuśh. Both were born again and again as Hasan, Husayn and came into this world."</font><br>
+"There is such a close relationship between Muhammad Sāheb and Nāṇak Sāheb. Nāṇak Sāheb and Śhrī Sītā had a close relationship and this Śhrī Mahāvīr and Śhrī Buddha are closely related. Both were twin brothers, who were the sons of Śhrī Rāma, Lav and Kuśh. <font color="red">Both were born again and again as Hasan, Husayn and came into this world.</font>"<br>
 <font size="+0"><b>1986-1201 Public Program (Hindi), Mumbai, Maharashtra, India</b></font>
 </p>
 
@@ -196,26 +197,26 @@ This is how it is. They Themselves incarnate to complete, to give a balance."</f
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"So that's the great part of Mārkaṇḍeya.<br>
+"So that's the great part of Mārkaṇḍeya.<br>
 And Mārkaṇḍeya took His birth, later on, as-s Buddha. Then He took His birth as Ādi Śhaṅkarāchārya. Same personality.<br>
 But He was actually the son of Rāma, to begin with. Was the son of Rāma. He was Lav.<br>
 And Lav went to Russia, and that's why they are called as Slav.<br>
 [After a Sahaja Yogi says something:] He ruled in Russia. That's why they are called as Slav.<br> 
 The another son was Kuśh-śh. So he went to China, that's why they are called as Kuṣhāṇ.<br>
-And then They incarnated again and again, also as Hasan and Husayn, ...<br>
+<font color="red">And then They incarnated again and again, also as Hasan and Husayn, ...</font><br>
 [After a Sahaja Yogi says, "Mhh":] ... Mahāvīra and Buddha, ...<br>
 [After a Sahaja Yogi says something:] ... Ādi Śhaṅkarāchārya and Gyāneśhwara. Like that different.<br>
 [<font color="orange">unclear</font>] took birth.<br>
 Saying that [laughing:] only ... is so peaceful.<br>
 Cool Breeze.<br>
-Might be the name, Markus might be coming from Mārkaṇḍeya only, I think."</font><br>
+Might be the name, Markus might be coming from Mārkaṇḍeya only, I think."<br>
 <font size="+0"><b>1988-0609 Talk to Sahaja Yogis, Giving Names and the Story of Mārkaṇḍeya, Āśhram, Josef Melichar Gasse 20, Vienna, Austria</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"But though She was in the house, She was Śhakti. So She allowed Her sons, or actually ordered Them, to fight those fanatics-s-s who were trying to deny the authority of Her husband. And you know They, Hasan and Husayn, They were killed there."</font><br>
+"But though She was in the house, She was Śhakti. <font color="red">So She allowed Her sons, or actually ordered Them, to fight those fanatics-s-s who were trying to deny the authority of Her husband. And you know They, Hasan and Husayn, They were killed there.</font>"<br>
 <font size="+0"><b>1988-0814 Śhrī Fāṭimah Pūjā, Saint-George (40 kms W of Lausanne), Vaud, Switzerland</b></font>
 </p>
 
@@ -223,74 +224,73 @@ Might be the name, Markus might be coming from Mārkaṇḍeya only, I think."</
 
 <p>
 <font color="red">"There's a gentleman, a Muslim gentleman, I'm happy he asked Me a very nice question about Imam Husayn Sāhab, the son of ʿAlī. The Mother was Fāṭimah Bi. He was killed in the war, where They were absolutely correct: what They said was correct, no doubt. Both the brothers were killed. And He said: "We have to fight our enemies."<br>
-It was all right for Them to know who was their enemy, because They were realized Souls. We are not. We do not know who are our enemies.<br>
-These are age-old things, also, we need not carry it on."</font><br>
+It was all right for Them to know who was their enemy, because They were realized Souls.</font> We are not. We do not know who are our enemies.<br>
+These are age-old things, also, we need not carry it on."<br>
 <font size="+0"><b>1992-0612 Public Program, Day 2, Royal Albert Hall, Kensington Gore, South Kensington, London SW7 2AP, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Perhaps, you do not know that we worship ʿAlī and Fāṭimah Bi, in a Pūjā. There's a regular Pūjā for Them. Because to us They are Brahmadeva Itself [Himself]. And that's why you'll find [musicians], among these Shia people, who have got such a talent of expression.<br>
-In the Qur'ān, I'm sorry to say, that Muhammad Sahāb was toutured so much. And also, later on as you know, Hasan and Husayn were killed in Karbalāʾ. There had no time to talk about the Universal Nature, but such a great book is this Qur'ān.<br>
+"Perhaps, you do not know that we worship ʿAlī and Fāṭimah Bi, in a Pūjā. There's a regular Pūjā for Them. Because to us They are Brahmadeva Itself [Himself]. And that's why you'll find [musicians], among these Shia people, who have got such a talent of expression.<br>
+In the Qur'ān, I'm sorry to say, that Muhammad Sahāb was tortured so much. <font color="red">And also, later on as you know, Hasan and Husayn were killed in Karbalāʾ.</font> There had no time to talk about the Universal Nature, but such a great book is this Qur'ān.<br>
 We have written now some sort of a commentary on that.<br>
-And it's obvious that He was the Incarnation of the Primordial Master. Though He was so humble, eh so much worried that He should not be called as divine, because people will again start doing all kinds of ritualism."</font><br>
+And it's obvious that He was the Incarnation of the Primordial Master. Though He was so humble, eh so much worried that He should not be called as divine, because people will again start doing all kinds of ritualism."<br>
 <font size="+0"><b>1992-1230 Talk to Sahaja Yogis (English + Hindi), before the Evening Program (Santūr Ustād Amjad Alī Khān and family), Kalwa, Thane, Maharashtra, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"In Sahaj we very much respect and understand Mahāvīrjī and we also accept that He is the Incarnation of Śhrī Bhairavnāth and not only this, [but] He took birth many times and later also came as Hasan and Husayn. In Bible Bhairavnāthjī is addressed as Saint Georg and some refer Him as Saint Michael.<br>
+"<font color="red">In Sahaj we very much respect and understand Mahāvīrjī and we also accept that He is the Incarnation of Śhrī Bhairavnāth and not only this, [but] He took birth many times and later also came as Hasan and Husayn.</font> In Bible Bhairavnāthjī is addressed as Saint Georg and some refer Him as Saint Michael.<br>
 ......<br>
-In Sahaja Yoga we recognize Lord Mahāvīra as the Incarnation of Śhrī Bhairavnāth. He also incarnated as Imam Husayn. Saint Michael is the same who is also called Saint George [the Guardian angel of London] ......"</font><br>
+In Sahaja Yoga we recognize Lord Mahāvīra as the Incarnation of Śhrī Bhairavnāth. <font color="red">He also incarnated as Imam Husayn.</font> Saint Michael is the same who is also called Saint George [the Guardian angel of London] ......"<br>
 <font size="+0"><b>1993-0404 Śhrī Mahāvīra Jayanti Pūjā (Hindi), New Delhi, India</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"As you know about Her that She was the daughter of Muhammad Sāhab, and was married to ʿAlī, and She had two children, Hasan and Husayn, who were ultimately killed in Karbalāʾ by the fanatics, who were, that time, called themselves Sunnis.<br>
+"<font color="red">As you know about Her that She was the daughter of Muhammad Sāhab, and was married to ʿAlī, and She had two children, Hasan and Husayn, who were ultimately killed in Karbalāʾ by the fanatics, who were, that time, called themselves Sunnis.<br>
 ......<br>
 I mean, you can think of your mothers, how much they loved you -- all the men have a mother. Why? Why do you think of your mother so much? Because she sacrificed everything, but without showing that she was sacrificing. She did so much for you, so you could be a woman.<br>
 Woman's potential to love is tremendous! Tremendous!<br>
 And this is what we have to learn from Fāṭimah. She gave Her two children to be killed! She knew, because She was, after all, Viṣhṇumāyā. She was the Incarnation of Viṣhṇumāyā. She knew Her children will be killed! But still She sent Her children. "All right. Doesn't matter. Even if I know that They are going to die, it's all right."<br>
 Such bravery, such courage, such understanding of the duty of Her children.<br>
-Today we remember Them as Hasan and Husayn. Supposing She had said, 'No-no-no-no, don't go for the war. Stay at home.' And if She had forced Them not to go, then They would not have gone! We would not have talked about Them today, isn't it? In any case They would have been dead sometime, but the death of a hero They got because of Their mother. Of course They were also a kind of Incarnations, but the way She gave Them absolutely complete encouragement, "Go and fight for the right thing," because these fundamentalists were trying to bring their fanaticism.<br>
-So, today is a day I have to tell men also that you must learn to respect a woman who is chaste.<br>"</font><br>
+Today we remember Them as Hasan and Husayn. Supposing She had said, 'No-no-no-no, don't go for the war. Stay at home.' And if She had forced Them not to go, then They would not have gone! We would not have talked about Them today, isn't it? In any case They would have been dead sometime, but the death of a hero They got because of Their mother. Of course They were also a kind of Incarnations, but the way She gave Them absolutely complete encouragement, "Go and fight for the right thing," because these fundamentalists were trying to bring their fanaticism.</font><br>
+So, today is a day I have to tell men also that you must learn to respect a woman who is chaste."<br>
 <font size="+0"><b>1993-0518 Śhrī Fāṭimah Pūjā, You Must Learn to Respect a Woman Who Is Chaste, Mövenpick Hotel, Balmumcu, Barbaros Blv. No:165, 34349 Beşiktaş, Istanbul, Turkey</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">
-<font color="red"><b>Śhrī Mātājī:</b></font> And the Shias are still sort of mourning ...<br>
+<font color="red"><b>Śhrī Mātājī:</b></font> <font color="red">And the Shias are still sort of mourning ...</font><br>
 <b>Antonio Mendes Nazare:</b> She [has]?<br>
 <font color="red"><b>Śhrī Mātājī:</b></font> Shias, Shias.<br>
 <b>Antonio Mendes Nazare:</b> Ah, Shias. Ah-ha.<br>
 <b>Sahaja Yogi:</b> Shia.<br>
 <b>Another Sahaja Yogi:</b> Shia [<font color="orange">unclear</font>].<br>
-{\bf {\red Śhrī Mātājī}}: ... are still mourning death of Hasan and Husayn.<br></font><br>
+{\bf {\red Śhrī Mātājī}}: <font color="red">... are still mourning death of Hasan and Husayn.</font><br><br>
 <font size="+0"><b>1993-0715 Meeting with Ayatollah Dr. Mehdi Rouhani, Conversation and Dinner, Paris, France</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Because you are all Shias, I am quite happy to tell you about what happened.<br>
+"Because you are all Shias, I am quite happy to tell you about what happened.<br>
 That Abu Bakr became the head of the Islam, Abu Bakr, and he was a fundamentalist. Actual... actually, it's ... it was Hazarat ʿAlī who had to become the head. ʿAlī: had to become. But somehow or other Abu Bakr managed, he was very ambitious man, to become the head of the Islam.<br>
 Is a history, I am telling you.<br>
 Now, when he became, he tried to uh argue with Hazarat ʿAlī. And he said that: "Whatever written in the Qur'ān is all right," and he added his own things also to it.<br>
 Now Hazarat ʿAlī, you know, had a fight with him.<br>
 I know the whole history about it. Because My father translated Qur'ān into Hindi language. So I've read Qur'ān also, quite nicely.<br>
 Now what happened, it's a history where the turning point took place.<br>
-As you know, Hazarat ʿAlī became head but later on He was killed, and His two sons were killed.<br>
+<font color="red">As you know, Hazarat ʿAlī became head but later on He was killed, and His two sons were killed.</font><br>
 And the [youngest] wife of Muhammad Sāhab, ʿĀ'ishah [bint Abi Bakr], was told [by Him] that, "You will go and fight against the truth, and you will know it when the dogs will bark."<br>
 So when she went on the other side, it's called as Ḥaw'ab [pond near Basra on the way to Mecca], it happened, and dogs started barking, but still she didn't listen. And she went and told the other side of the people, that, "Whatever is Abu Bakr is saying is all right. You listen to Abu Bakr."<br>
 So the rift started that time.<br>
-And as you know, later on, Hasan and Husayn both were killed in Karbalāʾ.<br>
-That's how Shia and Sunni, two parties' start is."</font><br>
+<font color="red">And as you know, later on, Hasan and Husayn both were killed in Karbalāʾ.</font><br>
+That's how Shia and Sunni, two parties' start is."<br>
 <font size="+0"><b>1993-1009 Iranian Public Program, 11301 Olympic Boulevard, Los Angeles, CA, U.S.A.</b></font>
 </p>
 
@@ -304,27 +304,27 @@ That's how Shia and Sunni, two parties' start is."</font><br>
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"My father, as I told you, was a scholar of Arabic and Persian -- scholar. And he translated Qur'ān into Hindi language. He was a scholar of Sanskrit. Fourteen, fourteen languages he [<font color="orange">unclear</font>].<br>
+"My father, as I told you, was a scholar of Arabic and Persian -- scholar. And he translated Qur'ān into Hindi language. He was a scholar of Sanskrit. Fourteen, fourteen languages he [<font color="orange">unclear</font>].<br>
 But he himself said, that, "I don't know why people get these ideas that Muhammad Sāhab created a separate religion."<br>
-He was himself a realized Soul. And he had tremendous-s-s respect for Muhammad Sāhsb, for Hazarat ʿAlī, for Fāṭimah, for Hasan, Husayn.<br>
-He told ... he told Me all about Islam or how to talk to Islamic people. Because if you tell the Truth, there will be a fatwā on Me."</font><br>
+<font color="red">He was himself a realized Soul. And he had tremendous-s-s respect for Muhammad Sāhsb, for Hazarat ʿAlī, for Fāṭimah, for Hasan, Husayn.</font><br>
+He told ... he told Me all about Islam or how to talk to Islamic people. Because if you tell the Truth, there will be a fatwā on Me."<br>
 <font size="+0"><b>1994-1112 Public Program, Day 2, Auditorium, Hotel Karim (now closed), Route Touristique Raouad, Gammarth (21 kms NE of Tunis), Tunisia</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Specially, these are the days of your marty[rdo]m. And I know about it, everything, what had happened to Hasan and Husayn. You all have done lot of penance for Them, and are still doing it. But now the time has come for all of you to know that Their sacrifice, Their kurbānī, has been completely fulfilled. After all, what did They want? They wanted whatever Their father, ʿAlī, wanted Them to do, also Their mother Fāṭimah. But we don't know, 'Who They were? What Incarnations They were? What was Their job?'<br>
+"Specially, these are the days of your marty[rdo]m. <font color="red">And I know about it, everything, what had happened to Hasan and Husayn. You all have done lot of penance for Them, and are still doing it. But now the time has come for all of you to know that Their sacrifice, Their kurbānī, has been completely fulfilled. After all, what did They want? They wanted whatever Their father, ʿAlī, wanted Them to do, also Their mother Fāṭimah. But we don't know, 'Who They were? What Incarnations They were? What was Their job?'<br>
 ......<br>
-No need to feel guilty. You are not the ones who killed Hasan and Husayn, and still, if you feel that Hasan and Husayn should have lived, They can live through your lives. Only thing you have to know: how to become personality, make your personality of Their level. "</font><br>
+No need to feel guilty. You are not the ones who killed Hasan and Husayn, and still, if you feel that Hasan and Husayn should have lived, They can live through your lives. Only thing you have to know: how to become personality, make your personality of Their level."</font><br>
 <font size="+0"><b>2000-0528 Persian Public Program, Iman Cultural Center, Los Angeles, CA, U.S.A.</b></font>
 </p>
 
 <div class="para-divider"></div>
 
 <p>
-<font color="red">"Later They were born in Arabia as Hasan and Husayn, the two sons of Fāṭimah, daughter of Muhammad Sāhib. They were murdered in a very violent war at Karbalāʾ. Their death signifies a great sacrifice in the name of religion. It is an indication how people who are extreme in nature take to fanaticism and, in their blindness, kill the very essence of religion that is born in flesh and blood as an Incarnation. This awakening gave a rude shock to the mass of religious human beings of the land, and there ensued a phenomenon of mass repentance. In this way people were made to realize that there can be no attachment to war for a realized Soul. Violence and nonviolence are attributes of mind but awareness is beyond these extremes. In defense of righteousness one has to go to war, but when one becomes the witness one only sees the play of war without taking any credit or discredit for it, or being disturbed by its aggression.<br>
-After Fāṭimah, the Reincarnation of Sītā, died, sectarian war broke out among the Muslims. One side, the Shiya sect, was founded by Her; in Indian dialect Sītā is pronounced 'Shiya'. They are known today as Shiites. Shiya women are regarded as fair, innocent and beautiful because of their motherly expressions; in the same way the women of Janakapur, Sītā's birthplace in India, are similarly blessed by Mahālakṣhmī."</font><br>
+"<font color="red">Later They were born in Arabia as Hasan and Husayn, the two sons of Fāṭimah, daughter of Muhammad Sāhib. They were murdered in a very violent war at Karbalāʾ. Their death signifies a great sacrifice in the name of religion.</font> It is an indication how people who are extreme in nature take to fanaticism and, in their blindness, kill the very essence of religion that is born in flesh and blood as an Incarnation. This awakening gave a rude shock to the mass of religious human beings of the land, and there ensued a phenomenon of mass repentance. In this way people were made to realize that there can be no attachment to war for a realized Soul. Violence and nonviolence are attributes of mind but awareness is beyond these extremes. In defense of righteousness one has to go to war, but when one becomes the witness one only sees the play of war without taking any credit or discredit for it, or being disturbed by its aggression.<br>
+After Fāṭimah, the Reincarnation of Sītā, died, sectarian war broke out among the Muslims. One side, the Shiya sect, was founded by Her; in Indian dialect Sītā is pronounced 'Shiya'. They are known today as Shiites. Shiya women are regarded as fair, innocent and beautiful because of their motherly expressions; in the same way the women of Janakapur, Sītā's birthplace in India, are similarly blessed by Mahālakṣhmī."<br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 2: Divine Incarnations -- Ambassadors of God</b></font>
 </p>
 
