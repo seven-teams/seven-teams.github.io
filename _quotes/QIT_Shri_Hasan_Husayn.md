@@ -139,7 +139,7 @@ So, onward Christian soldiers."<br>
 <p>
 "What is important is to cross even this is. So you reach a stage now, after this, you reach a stage where there's ... you knew on Incarnations.<br>
 Incarnations are always above this gap.<br>
-<font color="red">This gap has been crossed only by two people, Buddha and Mahāvīra, who become Hasan and Husayn.</font> They were the only who could cross, but They were born of Incarnations: They were the children of Incarnations.>br>
+<font color="red">This gap has been crossed only by two people, Buddha and Mahāvīra, who become Hasan and Husayn.</font> They were the only who could cross, but They were born of Incarnations: They were the children of Incarnations.<br>
 They were human beings! Just see it: if God wants, He can do anything He likes. So He created two Incarnations of Lav and Kuśh, from ... They were the children of Rāma and Sītā. <font color="red">Then They were born as Buddha and Mahāvīra, and then Hasan and Husayn.</font><br>
 So this is the only two human beings, actually who were the children of an Incarnation, became Incarnations, and They are placed in the body of's the ... Virāṭa, in the center point here, helping with Realization and Salvation."<br>
 <font size="+0"><b>1981-1126 Public Program, Surrey Hall, Lansdowne Way, Stockwell, Lambeth, London SW8 2DG, UK</b></font>
