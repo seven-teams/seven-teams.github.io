@@ -10,8 +10,7 @@ tags:
 <div style="text-align: left"><img src="/images/image1.png" width="250" /></div><br>
 
 <p>
-<font color="DarkRed">"You come up now to the Heart chakra. 
-
+<font color="DarkRed">"You come up now to the Heart chakra.<br>
 Heart chakra is divided into three parts. In the center of the Heart chakra resides Jagadambā Herself. But [in] the left side as I have told you resides Śhiva and His Power is Pārvatī. <b>When Pārvatī Herself separates Her identity with Her Lord and enters in the center to save Her children from the domination of the evil spirits, then She resides in the center and She is the Jagadambā. This is called as "Sacred Heart" in the Bible. She resides as Jagadambā. She has taken many Incarnations to save.</b>"</font><br>
 <font size="+0"><b>1976-0205 Public Program (Vasant Pañchamī), Day 2, Description of Kuṇḍalinī, after Śhrī Viṣhnu Havan, New Delhi, India</b></font>
 </p>
