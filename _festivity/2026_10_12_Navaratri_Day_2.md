@@ -61,7 +61,7 @@ who took the form of Brahmanī (the Śhakti of Brahmadeva)
 and sprinkled water with kuśha grass while riding in the heavenly car (aeroplane Vimāna) of the swan</b></font><br>
 <font size="+0"><b>(Mahālakṣhmī Hymn, Chapter 11 of Devī Māhātmyam)</b></font><br>
 <br>
-<font color="Indigo"><b>PRABHU MAZA MALA JEVHA BASE GHEUNI EKANTĪ</font><br>
+<font color="Indigo"><b>PRABHU MAZA MALA JEVHA BASE GHEUNI EKANTĪ</b></font><br>
 <b>When I am alone with my God (in meditation)</b></b>
 <font color="Indigo">MITI VARNU MALA TEVHA GHADE JI HO SUKHAPRAPTĪ</font><br>
 The bliss that I feel is beyond words<br>
