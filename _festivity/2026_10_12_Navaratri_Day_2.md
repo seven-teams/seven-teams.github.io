@@ -62,7 +62,7 @@ and sprinkled water with kuśha grass while riding in the heavenly car (aeroplan
 <font size="+0"><b>(Mahālakṣhmī Hymn, Chapter 11 of Devī Māhātmyam)</b></font><br>
 <br>
 <font color="Indigo"><b>PRABHU MAZA MALA JEVHA BASE GHEUNI EKANTĪ</b></font><br>
-<b>When I am alone with my God (in meditation)</b></b>
+<b>When I am alone with my God (in meditation)</b><br>
 <font color="Indigo">MITI VARNU MALA TEVHA GHADE JI HO SUKHAPRAPTĪ</font><br>
 The bliss that I feel is beyond words<br>
 <font color="Indigo">MALA PĀHĪ PRABHUSANGE, DUI ATMA TAI PALE DURĪ</font><br>
