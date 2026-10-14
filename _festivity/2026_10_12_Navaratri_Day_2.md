@@ -16,7 +16,7 @@ How you accept them and how you deal with whatever they try is very surprising.<
 You must understand that the goodness of a person is very important. If you are trying to be nasty or dominating then you'll be definitely destroyed. That's why this Devī has come on the Earth. <b>That is the assurance of this Devī, the Goddess.</b>"</font><br>
 <font size="+0"><b>2003-1004 Pūjā (9th Day of Navarātri), House, 268 Overpack Avenue, Ridgefield Park, NJ, U.S.A.</b></font>
 </p>
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0297.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0306.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"And that is why, <b>today is the day when the Virgin, Gaurī, sat down to worship Śhiva</b>. She made a Śhiva Lingua and was sitting and <b>putting Her sindūr on that: "That you look after this, which is the mark of my Union with you. I leave it to you, to look after" -- to Śhiva. "You look after me. I surrender to you." With this, that's how Gaurī your Kuṇḍalinī surrenders to the Spirit: 'Now You look after this connection.</b> I forget everything else. I leave it into Your hands. Lift Me up. You raise Me up. I forget all that was Me before. Everything I have dropped out. No other desire. But just lift Me higher and higher. Make Me Yourself. The rest of it is not important. All other manifestations of this, desires are over. Now, I am absolutely surrendered to You, My Spirit. Lift Me higher and higher. Higher and higher, away from all the things that were not the Spirit. Make Me complete Spirit, full Spirit.'</font><br>
@@ -49,7 +49,7 @@ That quality should be shown -- on the contrary you are very jealous. That means
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a>
 </p>
 
-<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0298.png" /></div>
+<div style="text-align: center"><img src="https://pub-1e517d8c73a64c9c82977d676b1fff72.r2.dev/FT0307.png" /></div>
 
 <p style="text-align:center;">
 <font color="DarkRed">"You must pray to God and ask what you want.<br>
