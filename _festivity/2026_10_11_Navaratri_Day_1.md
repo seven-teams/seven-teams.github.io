@@ -97,7 +97,6 @@ Victory to the Killer of Mahiṣhāsura, O Beautiful matted-haired Daughter of t
 <br>
 <font color="Indigo"><b>Auṃ Twameva sākṣhāt Śhrī Śhailaputrī sākṣhāt Śhrī Ādi Śhakti Mātājī Śhrī Nirmalā Devī namo namaḥ!</b></font><br>
 </p>
-</p>
 
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1984-0923 Navarātri Pūjā (1st Day), The Discipline, Hampstead Town Hall Centre, 213 Haverstock Hill, London NW3 4QP, UK</b></font>
