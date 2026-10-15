@@ -110,7 +110,7 @@ It fills My heart to see how since long the seekers have been asking for this Un
 </p>
  
  <p>
-<font color="green"><b>Śhrī Argala Stotram</b> (recited on the 5th day of Navarātri)</font><br>
+<font color="DarkGreen"><b>Śhrī Argala Stotram</b> (recited on the 5th day of Navarātri)</font><br>
 <a href="https://youtu.be/lVgW5k89t44">video</a>
 </p>
 
