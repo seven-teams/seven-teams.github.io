@@ -86,7 +86,6 @@ May God bless you all."</b></font><br>
 <a href="https://seven-teams.github.io/Videos_Links.html">video</a><br>
 </p>
 
-
 <font size="+2"><b>Suggested Talk:</b></font> 
 <font size="+0"><b>1989-1008 Navarātri Pūjā (cusp between 8th Day and 9th Day), The Content Within (How Deeply You Have Touched the Feet of the Divine), Butlins Grand Hotel, Margate (123 kms ESE of London), Kent, UK</b></font>
 <a href="https://vimeo.com/72573127"> video</a><br>
