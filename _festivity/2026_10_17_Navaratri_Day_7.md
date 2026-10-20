@@ -1,5 +1,5 @@
 ---
-title: '2026 Celebrating Navarātri Festival: " "She gives you the status, which is indestructible, the position, which cannot be destroyed" -- "Amara Pada," "the highest." That's the description of the Goddess and that's what you have got." '
+title: '2026 Celebrating Navarātri Festival: " "She gives you the status, which is indestructible, the position, which cannot be destroyed" &#8211; "Amara Pada," "the highest." That&#8217;s the description of the Goddess and that&#8217;s what you have got." '
 date: 2026-10-17
 permalink: /festivity/2026/10/17
 tags:
