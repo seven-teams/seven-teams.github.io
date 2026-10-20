@@ -3,7 +3,7 @@ title: '2026 Celebrating Navarātri Festival: "on this day the Power of Kālī a
 date: 2026-10-18
 permalink: /festivity/2026/10/18
 tags:
-  - deeppink @ Shri  Mahagauri
+  - deeppink @ Shri Mahagauri
   - green @ Navaratri
 ---
 
