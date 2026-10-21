@@ -1,5 +1,5 @@
 ---
-title: '2026 Celebrating Navarātri Festival: "" '
+title: '2026 Celebrating Navarātri Festival: "today is a very great day for you to thank Her: thank Her for Her protection and for Her understanding as to what you have been tortured for" '
 date: 2026-10-19
 permalink: /festivity/2026/10/19
 tags:
