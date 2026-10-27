@@ -124,7 +124,7 @@ But when Sahaja Yoga comes, he becomes more committed to his wife, I have seen t
 
 <p>
 <font color="DarkRed">"I got your very loving letter. You and Rāja Kuṃwar [Raul] did an amazing work. Not only did you put in your mind and body but also your life for the work. Śharayū [Gaḍakarī] is also an amazing girl. I am not sure what shall I say to you all. Forgive me if you felt insulted at my house. But how come I troubled you this much, I am unable to understand. Even sākṣhāt Chaṇḍikā would not have done anything this bad. Sometimes I feel so bad that I have troubled My loving daughters so much. Only I get appreciated as a Mother, but who will look after you people? Until the last moment you all were peacefully busy with the work. I couldn't find even a little bit of time to hug you and ask you about your well-being. We found the land which is a gift from you all to Sahaja Yoga. No matter how skilled the captain is, the boat should be strong. In this work we witnessed the power of the Virāṭa. From this one can conclude that if Sahaja Yogis decide to do something, nothing is impossible. "</font><br>
-<font size="+0"><b>1975-0508 Letter to Nirmalā (sister of Rājabhāī Modi) (Marathi), 2, Parklands, Ice House Wood, Hurst Green, Oxted, Surrey, UK}</b></font>
+<font size="+0"><b>1975-0508 Letter to Nirmalā (sister of Rājabhāī Modi) (Marathi), 2, Parklands, Ice House Wood, Hurst Green, Oxted, Surrey, UK</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1659,7 +1659,7 @@ Please give us Your blessings and Your ... Your attention so that we can go fort
 [Śhrī Mātājī then makes them to promise to Her ... With calm determination She looks around at everyone in the room.]<br>
 Now, will you promise to Me?"<br>
 All leaders, individually and as a group, vow to Śhrī Mātājī: "Mother, we promise You!"]</font><br>
-<font size="+0"><b>2001-050x Talk to Sahaja Yogis Leaders, Living Room, Palazzo Doria, Cabella Ligure, Alessandria, Italy (month not sure)}</b></font>
+<font size="+0"><b>2001-050x Talk to Sahaja Yogis Leaders, Living Room, Palazzo Doria, Cabella Ligure, Alessandria, Italy (month not sure)</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1809,6 +1809,13 @@ Today's speech is a little different, it is unique and it is very gracious of yo
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"When someone is very anxious to marry a particular person, it should be understood that the Divine has chosen that couple to be husband and wife. This decision is final and should not be tampered with. When such a marriage decision has been agreed to by parents and others, this collectively sanctioned act takes place primarily for the future children to be born through this union. In India people consult horoscopes for matching brides and grooms, and if the astrologer is a realized Soul, this is the best consultation possible. The Universal Unconscious is responsible for such matches of people who respect love above all, that take place in the presence of many people, and are sanctioned by society. There is a unique festivity and joy at such weddings, and people remember the event long after with fond memories."</font><br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 5: The Subconscious and the Collective Subconscious</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 7: Haṭha Yoga and Rāja Yoga</b></font>
 </p>
@@ -1816,8 +1823,49 @@ Today's speech is a little different, it is unique and it is very gracious of yo
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"It may be asked why divorce is at an all-time high in countries where people choose their own marriage partners. This is because the choice of a partner is based on mundane, physically exposed personality factors, rather than on the inner being. In mainly Eastern countries, where pious parents are consulted, because they love their children, the Deities on their chakras also help in the decision-making process. It is not a calculated decision but a spontaneous decision because our parents were chosen by us. When they die, those who are pious and even-tempered live in the Collective Subconscious (<i>Paraloka</i>) and decide all about their next birth, including the choice of parents. These days there are many who do not marry and yet have children, giving birth to very depraved souls. Those who marry and divorce again and again become split personalities, and in time go out of evolution. How can such people give birth to great Souls? Today's children will be tomorrow's parents. If your parents have not been very good guides in your life, you should at least try to improve on them and be better parents. But in modern Western societies parents have no interest in their children, and leave them on their own to face and fight all the hazards in life. Of course, the parents find an excuse for their indifference. They theorize that they are trying to make their children `tough'. You will find that the net result is that they go off on their own, and turn into warmongers. Actually, the way the parents shirk their responsibility has a historical reason. Today's [around 1980] parents were young people at the time of the Second World War. The war shattered all their values and battered their personalities. They did not experience the joy of `the love of home' in a shelter, and their attitude towards their children has been very rigid and austere.<br>
+There was a young man I knew who used to take LSD. When I discovered it I told him I would stop eating until he stopped taking this drug. I only had to fast for a day before this young man yielded to My love. He turned out later into a very dynamic Sahaja Yogi.<br>
+The crux of the problem is that each and everyone is not entitled to sacred institution of marriage. Those who enjoy sex with many partners outside marriage or within a marriage can carry on with their own misguided life. But if Sahaja Yoga does not work for them, they cannot complain. Even if `awakened', they cannot go further along the path of Self-realization. A decision about their chastity has to be taken once and for all. Only then can they evolve, and these are the only ones who should have children. Unless you want a race of criminals and animals incarnating in human form, others should not have children. Those who do not respect their parents will not have the respect of their own children. In many cases, in the name of freedom, we run away from our parents and our homes, and lose the blissful protection of our divine inheritance. There is only one thing that is important in this creation and that is the Union with God, the Yoga, while evolving in the human form. For that you need freedom from your own chains of bondage, and not from anybody else. "</font><br>
+<font size="+0"><b>The Book of Ādi Śhakti, Chapter 12: Mūlādhāra Chakra</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Of course, rationality is not even as firmly anchored in reality as the blind man's perception and who may not even be in contact with the elephant, but perhaps indeed the trunk of a tree, a piece of hanging rope, or a poisonous snake. Unless you have access to the Absolute Truth, which is a totality, unless you can see the whole elephant, how can you decide whether your view is the right one?"</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 1: Modernism and Rationality</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"The whole fashion industry is just a moneymaking racket. It is a wonderful way of pampering the ego to say that such and such a style has won the first prize in the fashion parade in Milan or Paris or Timbuktu. And you are so enamored by this new chance of exercising your ``choice" and of throwing out all the expensive clothes you have chosen before as so much out-of-date junk. Once you become addicted to fashion, you do not know how far to go with the entrepreneur who is thus so kindly giving a new dimension to your stupidity and your gullibility. With this kind of compulsion to change, we live on the cusp of superficiality and our attention is always caught up with deciding what new irrelevance to have, to buy, to own and to display.<br>
+......<br>
+The key idea in modern times is that every day one must have something new. There should be a change every day, perhaps even down to your wife or your children, because a modern person becomes bored so very easily. Perhaps he has to make up his mind so often between so many different choices that his brain gets exhausted and ultimately, when he gets what he thought he wanted, he finds that he is bored with that as well. This secret is well-known to the entrepreneur. He first tempts your attention with a vast array of choices, and then he bores you stiff and creates more and more things for you to choose from, because that is how he can keep his machines satisfied, and these require feeding every day. He knows how to pamper your ego and to suggest that you have the choice to do something, or to accept something. For example, if you want to buy or sell some property in England, a house which is not decorated and is not yet attended to and has been left to its own fate, fetches much more money than a house which has been done up and is well decorated. The point is, the house which has not been done up -- is the one which satisfies the ego of the purchaser, who would like to have the house done according to his own choice. So, personal choice becomes the criterion for deciding what is the best for you. But this choice is based on the play of ego and if some entrepreneur is clever enough to see how he can fool the buyers by advertising in the media or through window displays, he can easily make a vast sum of money in a very short time."</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 2: Choices</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">"There is a tendency, built up in the West since the time of Enlightenment and the democratic revolutions of the 18th century, that we should be free to absorb all the unrighteous, unholy, inauspicious and destructive ideas that we can find in every film, every book, and every newspaper, whatever the source. Somehow people want to take up the challenge to become the evil force themselves. People have now to decide if they want to stop this democratic derailment by understanding what must be done. The progress that the West is proud of is towards complete destruction, as human beings have the freedom to achieve heaven or go to hell and also they have the tremendous power of rationality to justify their doom."</font><br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 3: Democracy</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"Another problem is that the UN, as it is today, is trying to maintain a balance among different powers and groups. In this process it makes great mistakes. Sometimes it supports very negative people who are barbaric, who are violent and who are terrorists. Before taking any decision as to what other countries should do, the UN should have a full idea as to the motives of aggressive countries. Sometimes these aggressive countries sound extremely reasonable and logical and create such an image that all the negativity of the rest of the world is drawn towards that. First the UN should find out what the purpose of these people is, what their background is and what sort of ideas they have. Only then will they not be deceived by the tricks of aggressive people like Saddam Hussein.<br>
+......<br>
+We cannot say with certainty that this Supreme Council which will be created to control the UN will be absolutely perfect. First of all, they will not be paid very highly, but an honorarium would be given and they may try to do something which is not honest if they are by any chance, money-oriented. So the only conclusion one can reach is that this Supreme Council should be constituted by the election only of excellent Sahaja Yogis. They have all the requisite qualities in abundance -- they are selfless, they are compassionate, they are devoted to public interest without the slightest bias on grounds of race, religion or nationality. They will thus always make sound and proper decisions. Most importantly, the Supreme Court consisting of Sahaja Yogis, will spread the message of Sahaja Yoga throughout the world not merely by words but by deeds which will inspire all the people and thus ensure a new peaceful and just world order. Sahaja Yoga is thus the only solution to world problems because it will ensure the transformation of all human beings and thus create a new highly evolved human race."</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 8: World Peace</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"There is another shoot of Viśhuddhi between the eyebrows called the ``Haṃsa chakra". This chakra is for the power of discrimination. When enlightened this gives Divine Discretion. When overloaded with decision-making without discretion, one can develop sinus or a shooting headache on one side. When this center is caught up, one should understand that one should not eat things that can spoil the throat, like sour things or things which are very sharp on the tongue."</font><br>
+<font size="+0"><b>1995-0929 Meta Modern Era, Chapter 11: The Subtle System</b></font>
 </p>
 
 <div class="para-divider"></div>
