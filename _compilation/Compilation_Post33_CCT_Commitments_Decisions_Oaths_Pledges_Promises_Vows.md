@@ -55,6 +55,13 @@ You are the light lamps of the entire world. You are brothers and sisters amongs
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"Now man is standing in such a place, where he is either in the pool of good, in the pool or the pool of evil, evil and good. If people do not decide at this time that, 'We want to bring Satya Yuga,' then I do not doubt that the whole world will be destroyed!"</font><br>
+<font size="+0"><b>1972-0409 Public Program (Marathi), Dhule, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">"Joy is not outside. It is within. It is within you. People say you are in the form of God.<br>
 Just by talking about it, it is not going to happen. In Marathi they say, "Bolāchāch bhāta bōlāchīch kaḍhī" [Only making promises but not fulfilling them].<br>
 Whether I say that you seek the Formless or Formed, but these are only words.<br>
@@ -324,7 +331,10 @@ Please show this letter to all Sahaja Yogis."<br>
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"So, I would like to say to the Sahaja Yogis of Pune, that the Tattwa of Gaṇeśha should be strengthened on our side. I will tell you how to do it because this is a communication for your benefit.<br>
+<font color="DarkRed">"Yesterday I awakened Gaṇeśha with a lot of cajoling. That is, the Gaṇeśha Tattwa is the last of all. This is a very tolerant Tattwa. It is very difficult to destroy it and it sits on the main root.<br>
+It is also being damaged by them and all this is happening before your eyes. He doesn't want felicitation, He doesn't want anyone. If all Sahaja Yogis decide it will not take any time at all. The Gaṇeśha Tattwa has deteriorated here in Pune. So see how big the blow it is on Sahaja Yoga.<br>
+......<br>
+So, I would like to say to the Sahaja Yogis of Pune, that the Tattwa of Gaṇeśha should be strengthened on our side. I will tell you how to do it because this is a communication for your benefit.<br>
 The first thing is that it is a vow of holiness.<br>
 So the defects that happen to Gaṇeśha happen first from the eye. Gaṇeśha has a direct relation with the eyes and this Gaṇeśha Tattwa itself has disappeared from Pune.<br>
 So in the middle of it where the optic nerves cross, there is the place of the Āgñyā chakra and the Āgñyā chakra is the representation of the Gaṇeśha Tattwa. It is a manifestation. So, if Gaṇeśh Tattwa itself has gone bad, then it must be remembered that eyes have seen something that is not desirable."</font><br>
@@ -1136,8 +1146,28 @@ As you all are sitting here, in meditation, all the Indian Sahaja Yogis should m
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"I request all to pledge with feeling of humility and devotion that, 'I have gain nothing at all till now, I have yet to grow and progress, when I enlighten others it is I who is more enlightened.' You have to enlighten others."</font><br>
+<font color="DarkRed">"I request all to pledge with feeling of humility and devotion that, 'I have gain nothing at all till now, I have yet to grow and progress, when I enlighten others it is I who is more enlightened.' You have to enlighten others.<br>
+......<br>
+If you have to go somewhere and there is a gate then how long does it take to get inside? But if you have made up your mind in such a way then of course it will take time. If you have decided to climb a mountain then surely it will take time. But what is the need to climb a mountain?"</font><br>
 <font size="+0"><b>1989-0303 Talk to Sahaja Yogis (Marathi), Unconditional Love, Nagpur, Maharashtra, India</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"First, a person becomes thoughtless. No thoughts come to his mind, but it doesn't mean he cannot think. Whenever one wants one can think and whenever one wants he can decide not to think.<br>
+......<br>
+One single person can make such a big difference and don't know what all he can do if he just realizes that, 'Now I have become a Yogi completely,' and imbibes Sahaja Yoga completely in his life. And he decides that, 'I am a Yogi and my race has changed now. I have lost my religion and now I have a new religion.'<br>
+Even if a single man decides [like this], then he alone is sufficient to transform the whole of India.<br>
+If I could have managed alone what was the need for Me to gather so many Sahaja Yogis, to wander door to door, run about and go to different places? This work will be done by you all."</font><br>
+<font size="+0"><b>1989-0316 Public Program (Hindi), Kuṇḍalinī Ke Jāgran Ke Bād Lābh (Benefits after Awakening of Kuṇḍalinī) or The Power of Love and the Blessings of Kuṇḍalinī, Noida, Uttar Pradesh, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1222,6 +1252,13 @@ So much of self-importance, so much of bragging, so much of showing superiority 
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">""</font><br>
+<font size="+0"><b></b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">"Sahaja Yoga is not by the way.<br>
 And it happens [that it becomes 'by the way']. Like, when I went to Australia, I was surprised: that, Sahaja Yoga, which was such a prime thing frod [for] them, suddenly became by the way.<br>
 So Sahaja Yoga is a commitment. Is a commitment and complete involvement. Otherwise you are really useless for Sahaja Yoga, absolutely useless. Is better to have few people who are committed than to have thousands who are just useless.<br>
@@ -1235,8 +1272,10 @@ But only thing what you need is a courage and a complete commitment to go forwar
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">""</font><br>
-<font size="+0"><b></b></font>
+<font color="DarkRed">"So, today you all decide that you will never fall into the web of black magic and you will get rid of it completely.<br>
+Many people feel bad when someone asks them to leave all these bad things. So, the Sahaja Yogis talk very cautiously to others and they never talk openly. But I want to tell you clearly that when you have not benefited from this thing, then why are you still sticking to it, why do you want to hold on to it, and why do you want to grovel yourself and your children along with this? Why don't we see this new thing, with a new outlook, where we experience this, which is clearly visible to us?<br>
+This is not something where a lecture is given and everything is done with. This is the actualization of a theory. This is a proven experience. Until you actually experience something, whatever you accept is not truth."</font><br>
+<font size="+0"><b>1990-0411 Public Program (Hindi), Day 2, Tivoli Park, 225, Acharya Jagdish Chandra Bose Road, Kolkata, West Bengal, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1450,6 +1489,15 @@ Accepting the Vishwa Nirmala Dharma is the first biding. All brides and bridegro
 <p>
 <font color="DarkRed">""</font><br>
 <font size="+0"><b>1992-0212 Public Program, Canberra, Australia</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"It is really sad that because of these people Kuṇḍalinī of many people is also spoiled.<br>
+Such type of people are spread over in so many places.<br>
+You see them once and decide to go as far away as possible from them."</font><br>
+<font size="+0"><b>1992-0402 Public Program (Hindi), Satya Aapnī Jagah Aḍig Hai (Truth is Immovable in Its Place), Yamunānagar, Haryana, India</b></font>
 </p>
 
 <div class="para-divider"></div>
@@ -1809,6 +1857,24 @@ Today's speech is a little different, it is unique and it is very gracious of yo
 <div class="para-divider"></div>
 
 <p>
+<font color="DarkRed">"The leader should not stir up any emotions violently, but delicately allow the emotions of the Yogis to come up and allow them to calm down by themselves. If the Sahaja Yogis are heated up on some point, and even if you know they are right in their anger, try to understand the whole problem and make a drama as if you are also angry with them for the same reason. You should not suddenly drop cold water on the heated minds, but after acting with them try to bring them round and cool them down, then sit down with them and coolly discuss and decide whatever is the best way of solving the problem.<br>
+......<br>
+The leader should develop himself fully, but if he needs to he can take help from the world leader. He has all the freedom that gives him complete responsibility to decide for himself. But if he finds himself in a situation where he needs help from any other leader or from the world leader, he should go all out, because they are all your own, part and parcel of the one whole.<br>
+......<br>
+The accounts must be absolutely clean and clear-cut. There should be no money collected without the permission of the world leader. All the accounts must be shown to every member of the society. All accounting should be done in such a manner that people should watch and see for themselves your expertise as far as the maintaining of the accounts are concerned and the honesty with which you have handled the money. The best thing is to give the money to some group of people who can be called the finance committee, who should look after it and decide where it should be spent. Of course, the leader should have the overall charge of the money."</font><br>
+<font size="+0"><b>1991-0700 Book 'Sahaja Yoga', Chapter 5: The Leader in Sahaja Yoga</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
+<font color="DarkRed">"The children should be put into competition of goodness, like sharing things, caring for each other, lovingly looking after other smaller children, competition in their wise decisions. The parents and the teachers must talk to them about Sahaja Yoga Culture."</font><br>
+<font size="+0"><b>1991-0700 Book 'Sahaja Yoga', Chapter 6: Sahaja Yoga and Children</b></font>
+</p>
+
+<div class="para-divider"></div>
+
+<p>
 <font color="DarkRed">"When someone is very anxious to marry a particular person, it should be understood that the Divine has chosen that couple to be husband and wife. This decision is final and should not be tampered with. When such a marriage decision has been agreed to by parents and others, this collectively sanctioned act takes place primarily for the future children to be born through this union. In India people consult horoscopes for matching brides and grooms, and if the astrologer is a realized Soul, this is the best consultation possible. The Universal Unconscious is responsible for such matches of people who respect love above all, that take place in the presence of many people, and are sanctioned by society. There is a unique festivity and joy at such weddings, and people remember the event long after with fond memories."</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 5: The Subconscious and the Collective Subconscious</b></font>
 </p>
@@ -1823,9 +1889,9 @@ Today's speech is a little different, it is unique and it is very gracious of yo
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"It may be asked why divorce is at an all-time high in countries where people choose their own marriage partners. This is because the choice of a partner is based on mundane, physically exposed personality factors, rather than on the inner being. In mainly Eastern countries, where pious parents are consulted, because they love their children, the Deities on their chakras also help in the decision-making process. It is not a calculated decision but a spontaneous decision because our parents were chosen by us. When they die, those who are pious and even-tempered live in the Collective Subconscious (<i>Paraloka</i>) and decide all about their next birth, including the choice of parents. These days there are many who do not marry and yet have children, giving birth to very depraved souls. Those who marry and divorce again and again become split personalities, and in time go out of evolution. How can such people give birth to great Souls? Today's children will be tomorrow's parents. If your parents have not been very good guides in your life, you should at least try to improve on them and be better parents. But in modern Western societies parents have no interest in their children, and leave them on their own to face and fight all the hazards in life. Of course, the parents find an excuse for their indifference. They theorize that they are trying to make their children `tough'. You will find that the net result is that they go off on their own, and turn into warmongers. Actually, the way the parents shirk their responsibility has a historical reason. Today's [around 1980] parents were young people at the time of the Second World War. The war shattered all their values and battered their personalities. They did not experience the joy of `the love of home' in a shelter, and their attitude towards their children has been very rigid and austere.<br>
+<font color="DarkRed">"It may be asked why divorce is at an all-time high in countries where people choose their own marriage partners. This is because the choice of a partner is based on mundane, physically exposed personality factors, rather than on the inner being. In mainly Eastern countries, where pious parents are consulted, because they love their children, the Deities on their chakras also help in the decision-making process. It is not a calculated decision but a spontaneous decision because our parents were chosen by us. When they die, those who are pious and even-tempered live in the Collective Subconscious (<i>Paraloka</i>) and decide all about their next birth, including the choice of parents. These days there are many who do not marry and yet have children, giving birth to very depraved souls. Those who marry and divorce again and again become split personalities, and in time go out of evolution. How can such people give birth to great Souls? Today's children will be tomorrow's parents. If your parents have not been very good guides in your life, you should at least try to improve on them and be better parents. But in modern Western societies parents have no interest in their children, and leave them on their own to face and fight all the hazards in life. Of course, the parents find an excuse for their indifference. They theorize that they are trying to make their children 'tough'. You will find that the net result is that they go off on their own, and turn into warmongers. Actually, the way the parents shirk their responsibility has a historical reason. Today's [around 1980] parents were young people at the time of the Second World War. The war shattered all their values and battered their personalities. They did not experience the joy of 'the love of home' in a shelter, and their attitude towards their children has been very rigid and austere.<br>
 There was a young man I knew who used to take LSD. When I discovered it I told him I would stop eating until he stopped taking this drug. I only had to fast for a day before this young man yielded to My love. He turned out later into a very dynamic Sahaja Yogi.<br>
-The crux of the problem is that each and everyone is not entitled to sacred institution of marriage. Those who enjoy sex with many partners outside marriage or within a marriage can carry on with their own misguided life. But if Sahaja Yoga does not work for them, they cannot complain. Even if `awakened', they cannot go further along the path of Self-realization. A decision about their chastity has to be taken once and for all. Only then can they evolve, and these are the only ones who should have children. Unless you want a race of criminals and animals incarnating in human form, others should not have children. Those who do not respect their parents will not have the respect of their own children. In many cases, in the name of freedom, we run away from our parents and our homes, and lose the blissful protection of our divine inheritance. There is only one thing that is important in this creation and that is the Union with God, the Yoga, while evolving in the human form. For that you need freedom from your own chains of bondage, and not from anybody else. "</font><br>
+The crux of the problem is that each and everyone is not entitled to sacred institution of marriage. Those who enjoy sex with many partners outside marriage or within a marriage can carry on with their own misguided life. But if Sahaja Yoga does not work for them, they cannot complain. Even if 'awakened', they cannot go further along the path of Self-realization. A decision about their chastity has to be taken once and for all. Only then can they evolve, and these are the only ones who should have children. Unless you want a race of criminals and animals incarnating in human form, others should not have children. Those who do not respect their parents will not have the respect of their own children. In many cases, in the name of freedom, we run away from our parents and our homes, and lose the blissful protection of our divine inheritance. There is only one thing that is important in this creation and that is the Union with God, the Yoga, while evolving in the human form. For that you need freedom from your own chains of bondage, and not from anybody else. "</font><br>
 <font size="+0"><b>The Book of Ādi Śhakti, Chapter 12: Mūlādhāra Chakra</b></font>
 </p>
 
@@ -1839,7 +1905,7 @@ The crux of the problem is that each and everyone is not entitled to sacred inst
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"The whole fashion industry is just a moneymaking racket. It is a wonderful way of pampering the ego to say that such and such a style has won the first prize in the fashion parade in Milan or Paris or Timbuktu. And you are so enamored by this new chance of exercising your ``choice" and of throwing out all the expensive clothes you have chosen before as so much out-of-date junk. Once you become addicted to fashion, you do not know how far to go with the entrepreneur who is thus so kindly giving a new dimension to your stupidity and your gullibility. With this kind of compulsion to change, we live on the cusp of superficiality and our attention is always caught up with deciding what new irrelevance to have, to buy, to own and to display.<br>
+<font color="DarkRed">"The whole fashion industry is just a moneymaking racket. It is a wonderful way of pampering the ego to say that such and such a style has won the first prize in the fashion parade in Milan or Paris or Timbuktu. And you are so enamored by this new chance of exercising your ''choice" and of throwing out all the expensive clothes you have chosen before as so much out-of-date junk. Once you become addicted to fashion, you do not know how far to go with the entrepreneur who is thus so kindly giving a new dimension to your stupidity and your gullibility. With this kind of compulsion to change, we live on the cusp of superficiality and our attention is always caught up with deciding what new irrelevance to have, to buy, to own and to display.<br>
 ......<br>
 The key idea in modern times is that every day one must have something new. There should be a change every day, perhaps even down to your wife or your children, because a modern person becomes bored so very easily. Perhaps he has to make up his mind so often between so many different choices that his brain gets exhausted and ultimately, when he gets what he thought he wanted, he finds that he is bored with that as well. This secret is well-known to the entrepreneur. He first tempts your attention with a vast array of choices, and then he bores you stiff and creates more and more things for you to choose from, because that is how he can keep his machines satisfied, and these require feeding every day. He knows how to pamper your ego and to suggest that you have the choice to do something, or to accept something. For example, if you want to buy or sell some property in England, a house which is not decorated and is not yet attended to and has been left to its own fate, fetches much more money than a house which has been done up and is well decorated. The point is, the house which has not been done up -- is the one which satisfies the ego of the purchaser, who would like to have the house done according to his own choice. So, personal choice becomes the criterion for deciding what is the best for you. But this choice is based on the play of ego and if some entrepreneur is clever enough to see how he can fool the buyers by advertising in the media or through window displays, he can easily make a vast sum of money in a very short time."</font><br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 2: Choices</b></font>
@@ -1864,7 +1930,7 @@ We cannot say with certainty that this Supreme Council which will be created to 
 <div class="para-divider"></div>
 
 <p>
-<font color="DarkRed">"There is another shoot of Viśhuddhi between the eyebrows called the ``Haṃsa chakra". This chakra is for the power of discrimination. When enlightened this gives Divine Discretion. When overloaded with decision-making without discretion, one can develop sinus or a shooting headache on one side. When this center is caught up, one should understand that one should not eat things that can spoil the throat, like sour things or things which are very sharp on the tongue."</font><br>
+<font color="DarkRed">"There is another shoot of Viśhuddhi between the eyebrows called the ''Haṃsa chakra". This chakra is for the power of discrimination. When enlightened this gives Divine Discretion. When overloaded with decision-making without discretion, one can develop sinus or a shooting headache on one side. When this center is caught up, one should understand that one should not eat things that can spoil the throat, like sour things or things which are very sharp on the tongue."</font><br>
 <font size="+0"><b>1995-0929 Meta Modern Era, Chapter 11: The Subtle System</b></font>
 </p>
 
